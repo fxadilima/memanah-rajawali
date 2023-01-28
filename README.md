@@ -12,4 +12,13 @@ To view the novel outside of GitHub, we may need some _simple_, and yet effectiv
 here. I do not use fancy codes to transform the **Markdown** text, just enough to give us convenient and nice text,
 with all references videos (if any), and also some screenshots I get from dramas here and there.
 
+## Downloading
+
+The entire book can be downloaded by clicking the download button, and choose to download the ZIP.
+The contents are inside 'Book1' folder.
+
+The modules and also the HTML use external Cloud 9 editor for editing, but you do not have to download anything,
+because we are using the simplest way here (use it via CDN). And the viewer also use MarkedJS, which we also use
+via CDN.
+
 I hope you enjoy the story.
