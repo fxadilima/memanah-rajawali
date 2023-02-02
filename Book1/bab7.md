@@ -1,16 +1,5 @@
 # Perlombaan Mencari Jodoh
 
-<div class="w3-container w3-center">
-    <a href="#" target="_blank">
-        <img src="images/bab-7.jpg" alt="Lomba Mencari Jodoh"/>
-    </a>
-    <div class="w3-container w3-center">
-        <p><em>
-        Guo Jing merampas spanduk yang berbunyi 'Lomba Mencari Jodoh'
-        </em></p>
-    </div>
-</div>
-
 Keenam Orang Aneh dan Guo Jing mengambil arah ke Tenggara. Perjalanan itu memakan
 waktu sangat panjang. Mereka memerlukan waktu berhari-hari hanya untuk keluar dari
 padang rumput. Hari itu mereka tidak jauh dari Zhang Jia Kou (di jaman sekarang 
@@ -106,7 +95,7 @@ kudanya, kita tidak akan bisa mengejarnya lagi."
 "Mengapa delapan orang ini bikin rencana sekejam itu?" pikir Ke Zhen'E, ia heran tapi tidak menunjukkan
 reaksi apa-apa, dan terus menelan makanannya dengan rakus.
 
-"Kita akan mempersembahkan kuda mahal itu untuk Gong Zhi (Tuan Muda)," kata salah seorang dari mereka lainnya.
+"Kita akan mempersembahkan kuda mahal itu untuk Gong Zi (Tuan Muda)," kata salah seorang dari mereka lainnya.
 "Menunggang kuda semahal itu, kedatangannya di Yanjing pasti akan kelihatan luar biasa! Tidak bakalan ada yang
 lebih menarik perhatian dari dia, apalagi orang-orang payah seperti 'Ginseng Abadi' dan 
 'Kebijaksanaan Tertinggi Lingzhi'!"
@@ -126,22 +115,22 @@ Dan juga, dari mana asalnya delapan perempuan ini?"
 
 Para wanita itu meneruskan pembicaraan mereka dengan suara rendah, dan akhirnya memutuskan untuk membuat jebakan
 di tengah jalan, di luar kota ini, untuk merampas kuda Guo Jing. Lalu mereka mengobrol tentang hal-hal kecil
-seperti pakaian, perhiasan, dan lain sebagainya. "Gong Zhi lebih suka kau", "Gong Zhi pasti sedang memikirkan
+seperti pakaian, perhiasan, dan lain sebagainya. "Gong Zi lebih suka kau", "Gong Zi pasti sedang memikirkan
 kau", dan seterusnya. Ke Zhen'E dengan marah menaikkan alisnya, tapi ia tidak bisa menutup telinganya, dan ia
 mendengar setiap kalimat dari pembicaraan itu.
 
-"Kalau kita hadiahkan kuda berkeringat darah kepada Gong Zhi," kata orang yang lain lagi. "Hadiah apa yang kau
+"Kalau kita hadiahkan kuda berkeringat darah kepada Gong Zi," kata orang yang lain lagi. "Hadiah apa yang kau
 harapkan sebagai balasannya?"
 
-"Ya dia pasti akan mebih sering tidur denganmu," jawab yang lainnya, sambil tertawa.
+"Ya dia pasti akan lebih sering tidur denganmu," jawab yang lainnya, sambil tertawa.
 
 Orang yang pertama protes, dan mereka terus saling menggoda sambil cekikikan. "Ssstt, hati-hati," kata yang satu.
 "Jangan sampai rencana kita bocor, karena mereka kelihatannya juga tidak gampang..."
 
 "Yang perempuan di sana itu," kata yang lain lagi. "dia membawa pedang. Pasti jagoan kungfu. Dia juga 
-agak cantik. Kalau dia sepuluh tahun lebih muda, pasti Gong Zhi bakal tertarik sama dia..."
+agak cantik. Kalau dia sepuluh tahun lebih muda, pasti Gong Zi bakal tertarik sama dia..."
 
-Ke Zhen'E tahu bahwa mereka sedang membicarakan Han Xiaoying, dan ia makin marah. "Si 'Gong Zhi' yang mereka
+Ke Zhen'E tahu bahwa mereka sedang membicarakan Han Xiaoying, dan ia makin marah. "Si 'Gong Zi' yang mereka
 bicarakan itu pastilah bukan orang yang patut dikagumi." pikirnya. Kedelapan wanita itu sudah selesai makan,
 dan sekarang mereka berjalan keluar ruangan, menaiki onta mereka dan pergi.
 
@@ -176,7 +165,7 @@ sekaligus.
 "Yang dimaksud Si Ge adalah," jelas Han Xiaoying. "Jing'Er berangkat ke Jiaxing sendirian. Kita akan menyusul
 setelah kita selesai mengurus masalah pertemuan di Yanjing itu." Nan Xiren mengangguk.
 
-"Kami belum menjelaskan secara selengkapnya soal ini," kata Zhu Cong. "Pokoknya tepat pada tanggal dua puluh empat,
+"Kami belum menjelaskan selengkapnya soal ini," kata Zhu Cong. "Pokoknya tepat pada tanggal dua puluh empat,
 bulan tiga, tepat tengah hari, kau _harus_ hadir di Paviliun Dewa Mabuk, meskipun langit ambruk menimpa
 kepalamu!"
 
@@ -184,7 +173,7 @@ Guo Jing mengangguk tanda setuju.
 
 "Wanita-wanita itu mau mencuri kudamu," kata Ke Zhen'E. "Tapi kau tidak perlu berkelahi dengan mereka.
 Kudamu sangat cepat, mereka tidak bakal bisa mengejarmu. Kau punya tugas yang lebih penting, tidak perlu terlibat
-masalah yang bisa tidak ada gunanya, dan bisa mengganggu urusanmu."
+masalah yang tidak ada gunanya, dan bisa mengganggu urusanmu."
 
 "Kalau delapan perempuan itu berani bikin masalah," kata Han Baoju. "Tujuh Orang Aneh dari Jiangnan yang
 akan berurusan dengan mereka semua."
@@ -224,17 +213,17 @@ berjanji untuk menjaga ibunya. Tapi kesendiriannya saat itu membuatnya merasa be
 ibunya.
 
 Setelah berkuda sekitar sepuluh li, ia tiba di daerah pegunungan. Jalanan sangat berangin di dasar lembah itu,
-dan didominasi oleh [craggy slopes dotted with strange boulders]. Karena ini pengalaman pertamanya menghadapi
+dan didominasi oleh lereng terjal yang dihiasi oleh bebatuan aneh. Karena ini pengalaman pertamanya menghadapi
 dunia luar, mau tidak mau ia merasa agak ngeri menghadapi situasi alam yang menakutkan seperti itu. Dengan sebelah tangan
 memegang gagang pedangnya, ia berhenti sejenak dan tersenyum. "Kalau San Shifu melihat aku begini, gemetar dan
 takut, pasti dia akan tertawa."
 
 Jalanan itu mulai menanjak, dan menyempit. Setelah melewati sebuah tikungan, Guo Jing tiba-tiba melihat
-sekelompok benda putih di depannya. Empat orang wanita berpakaian seba putih, menunggang empat ekor onta
+sekelompok benda putih di depannya. Empat orang wanita berpakaian serba putih, menunggang empat ekor onta
 putih, sedang menghalangi jalan. Guo Jing menarik tali kekang kudanya, dan berhenti. Dari kejauhan ia berteriak,
 "Permisi! Boleh aku lewat?"
 
-Keempat wanita itu tertawa. "Pria kecil," kata yang seorang. "Kau takut ya? Ayo sini! Kami tidak akan memakanmu!"
+Keempat wanita itu tertawa. "Laki-laki kecil," kata yang seorang. "Kau takut ya? Ayo sini! Kami tidak akan memakanmu!"
 Guo Jing tidak tahu harus berbuat apa, mukanya memerah. Apa dia bisa numpang lewat dengan baik-baik? Atau harus
 menerobos dengan cara paksa, kalau perlu memakai senjata?
 
@@ -315,7 +304,7 @@ kali dipanggil barulah, akhirnya, ia datang, sambil menyeret kakinya, membawakan
 "Wah," kata pemuda itu. "rupanya kau kira aku tidak pantas makan di sini ya? Bah! Makananmu yang paling enak pun belum
 tentu memenuhi seleraku!"
 
-"Ah, tentu," kata pelayan itu. "Kami pasti akan melayani dengan senang hati, Gong Zhi. Masalahnya adalah,
+"Ah, tentu," kata pelayan itu. "Kami pasti akan melayani dengan senang hati, Gong Zi. Masalahnya adalah,
 kami belum tahu apakah ada yang mau membayar..." 
 
 "Apapun yang aku pesan," desak pemuda itu sambil memandang Guo Jing. "kau mau traktir apa tidak?"
@@ -328,7 +317,7 @@ istimewa. "Kau minum arak?" ia bertanya kepada pemuda itu.
 kami minta empat buah kering, empat buah segar, dua manisan dan asinan, dan juga empat buah yang diawetkan pakai
 madu!"
 
-Tidak menyangka akan mendapat pesanan semacam itu, si pelayan terkejut. "Gong Zhi mau buah dan manisan apa?"
+Tidak menyangka akan mendapat pesanan semacam itu, si pelayan terkejut. "Gong Zi mau buah dan manisan apa?"
 
 "Di tempat kecil ini, di kota kecil yang payah ini," kata si pemuda lagi. "Pasti susah untuk dapat sesuatu yang bagus. 
 Jadi kami memang harus puas dengan apa yang ada. Empat buah kering itu adalah leci, longan, jujube tim, dan gingko.
@@ -340,7 +329,7 @@ si pelayan, ia tidak berani lagi berlagak pintar.
 "Tidak ada ikan segar atau udang segar untuk menemani arak," lanjut si pemuda. "Jadi kami harus puas dengan
 delapan makanan biasa..."
 
-"Gong Zhi mau pesan apa lagi?" tanya si pelayan.
+"Gong Zi mau pesan apa lagi?" tanya si pelayan.
 
 "Tentunya," kata si pemuda lagi. "Kalau tidak kujelaskan sedetil mungkin, kau pasti salah! Berikut adalah delapan 
 hidangan: ayam kukus, kaki bebek goreng, sup lidah ayam, perut rusa dalam arak beras, iga sapi dengan kucai, 
@@ -350,7 +339,7 @@ hidangan sederhana, tidak ada gunanya menyebutkan yang lebih canggih." Mulut si 
 "Delapan jenis makanan itu," kata si pelayan. "agak mahal! Untuk membuat kaki bebek dan sup lidah ayam,
 kita perlu banyak bebek dan ayam."
 
-"Gong Zhi ini yang bayar," kata si pemuda sambil menunjuk Guo Jing. "Maksudmu dia tidak mau bayar, begitu ya?"
+"Gong Zi ini yang bayar," kata si pemuda sambil menunjuk Guo Jing. "Maksudmu dia tidak mau bayar, begitu ya?"
 
 Si pelayan melihat Guo Jing memakai mantel bulu yang sangat mahal. "Kalaupun kau tidak mau bayar," pikirnya.
 "mantel bulu itu sudah cukup untuk melunasi semua harga makanan itu." Ia bertanya lagi dengan nada mendesak,
@@ -361,7 +350,7 @@ tidak berani bertanya apa tepatnya nama-nama bahan makanan lainnya itu, ia takut
 sejumlah makanan yang tidak tersedia di situ. Ia segera pergi dan menyuruh para koki untuk menyediakan
 semua makanan yang terbaik.
 
-"Arak apa yang Gong Zhi suka?" ia kembali untuk bertanya. "Kami punya arak beras putih yang berusia sepuluh
+"Arak apa yang Gong Zi suka?" ia kembali untuk bertanya. "Kami punya arak beras putih yang berusia sepuluh
 tahun. Bagaimana kalau mulai dengan dua porsi?"
 
 "Boleh," jawab si pemuda.
@@ -383,7 +372,7 @@ semua makanan yang dipesan pemuda itu. Si pemuda tanggung minum sangat sedikit, 
 sedikit, dan hanya puas dengan makanan yang kurang berbumbu. Tiba-tiba ia memanggil si pelayan, lalu
 marah-marah. "Arak beras ini usianya lima tahun! Berani benar kau bawa ke sini!"
 
-"Pesanan Gong Zhi agak sulit," kata pengelola rumah makan itu, yang datang untuk minta maaf. "Kami mohon
+"Pesanan Gong Zi agak sulit," kata pengelola rumah makan itu, yang datang untuk minta maaf. "Kami mohon
 maaf. Yang sebenarnya adalah, tempat yang sederhana ini tidak punya arak yang sebagus itu, kami harus
 _meminjamnya_ dari rumah makan yang lebih besar, Rumah Perayaan Abadi. Umumnya, orang _memang_ tidak bisa
 menemukan arak yang tua di Kalgan."
@@ -655,6 +644,12 @@ dada lawan. Si gadis melangkah mundur dengan ringan, lalu tangan kirinya berputa
 lawannya, yang kemudian terjungkal ke tanah. Ia bangkit berdiri dengan tubuh berdebu, dan rasa malu terlihat
 jelas di wajahnya. Ia segera menghilang di tengah keramaian. Para penonton bersorak memuji gadis itu.
 
+<div class="w3-container w3-center">
+    <a href="https://youtube.com/clip/UgkxMcDtayufJm5K_-_PGOMHab2icIAdaeMI" target="_blank">
+        <img src="images/perlombaan-mencari-jodoh.jpg" alt="Perlombaan mencari jodoh" width="100%"/>
+    </a>
+</div>
+
 Ia merapikan beberapa helai rambut yang jatuh menutupi wajahnya, lalu kembali ke dekat umbul-umbul. 
 Guo Jing mengamatinya lebih teliti. Ia berusia sekitar delapan belas atau sembilan belas tahun, sangat anggun,
 dan wajahnya teramat sangat cantik. Tiupan angin membuat umbul-umbul itu berkibar. Di setiap sisinya ada
@@ -743,11 +738,13 @@ dengan mantel bulu yang terlihat sangat mahal.
 "Akhirnya seorang anak muda," pikir Guo Jing. "yang bisa jadi pasangan serasi untuk gadis itu. Untungnya
 si gendut dan biksu tadi tidak ikut bersaing lagi, kalau tidak... kalau tidak..."
 
-"Gong Zhi pasti bercanda," kata Mu Yi, merendah.
+"Gong Zi pasti bercanda," kata Mu Yi, merendah. Anak muda pesolek itu berdandan seperti bangsawan Jin,
+tetapi ia bicara dalam bahasa Han dengan sempurna, karena itu Mu Yi memanggilnya Gong Zi (pangglan umum
+untuk anak laki-laki yang terhormat).
 
 "Apa maksudmu?" tanya pemuda itu.
 
-"Kami hanya pengembara kasar, masa kami berani mengukur kemampuan Gong Zhi? Dan ini juga bukan pertandingan
+"Kami hanya pengembara kasar, masa kami berani mengukur kemampuan Gong Zi? Dan ini juga bukan pertandingan
 silat biasa, karena ini akan menentukan jodoh putri saya. Jadi mohon maaf."
 
 "Sudah berapa lama kau mengadakan perlombaan ini?" tanya pemuda itu.
@@ -768,7 +765,7 @@ dan berpengaruh. Kalau anakku menang, ini bisa menjadi malapetaka bagi kami, kal
 bagaimana mungkin aku bisa mengawinkan anakku dengan orang macam dia?"
 
 "Kami hanya pengembara di dunia persilatan," kata Mu Yi. "Kami mana berani mengukur kekuatan
-melawan Gong Zhi. Kami mohon maaf. Kami akan pergi."
+melawan Gong Zi. Kami mohon maaf. Kami akan pergi."
 
 "Ini perlombaan bergengsi," kata bangsawan muda itu sambil tertawa. "Percayalah, aku tidak akan
 mencelakai anakmu." Ia berpaling kepada gadis itu dan berkata, "Gu Niang (Nona) menang kalau bisa
@@ -783,7 +780,7 @@ dengan emosi. Ia merangkapkan kedua tangannya untuk memberi hormat, yang segera 
 "Anak muda perlente ini dibesarkan di istana," pikir Mu Yi. "Apa dia bisa kungfu? Sebaiknya cepat-cepat
 mengalahkan dia, lalu kita kabur dari sini untuk menghindari kesulitan."
 
-"Baiklah," kata Mu Yi. "Mungkin Gong Zhi ingin melepas mantel dulu?"
+"Baiklah," kata Mu Yi. "Mungkin Gong Zi ingin melepas mantel dulu?"
 
 "Tidak perlu," kata pemuda itu, masih tersenyum.
 
@@ -817,7 +814,7 @@ di waktu senggang mereka bisa pura-pura main 'Lomba Mencari Jodoh' lagi. Pasti s
 Dengan mulut ternganga ia menonton pertandingan itu dengan penuh harap. Tiba-tiba gadis itu mencengkeram
 jubah lawannya, lalu merobeknya dengan paksa. Ia segera melompat mundur, sambil memegang 'hadiah' itu. 
 
-"Gong Zhi," kata Mu Yi. "Kami mohon maaf!" Lalu ia berpaling kepada putrinya. "Ayo kita pergi!"
+"Gong Zi," kata Mu Yi. "Kami mohon maaf!" Lalu ia berpaling kepada putrinya. "Ayo kita pergi!"
 
 "Tidak secepat itu," kata pemuda itu dengan muka kurang senang. "Ini belum selesai!" Ia memegang kedua sisi mantelnya, 
 lalu menariknya kuat-kuat, yang menyebabkan kancing-kancing mantel yang terbuat dari batu pualam itu terlepas.
@@ -839,7 +836,7 @@ muda ini punya jurus tangan kosong dengan variasi canggih. Kalau sampai kami ber
 tidak yakin akan menang melawan dia."
 
 Mu Yi juga sudah bisa memperkirakan hasil akhir pertandingan itu, ia berseru, "Anakku, tidak ada gunanya
-diteruskan. Gong Zhi jauh lebih kuat dari kamu!"
+diteruskan. Gong Zi jauh lebih kuat dari kamu!"
 
 "Anak muda ini punya kungfu yang bagus," pikir Mu Yi. "Dia tidak kelihatan seperti anak dari keluarga
 tertentu yang malas, suka berjudi, dan suka pergi ke pelacuran. Aku mau tanya soal keluarganya. Kalau dia tidak
@@ -859,7 +856,7 @@ Gadis itu tersipu, ia merasa sangat malu dan memohon dengan suara rendah, "Cepat
 "Panggil aku 'sayang', baru aku lepaskan," jawab si pemuda sambil tertawa. Merasa gusar karena ketidaksopanan
 itu, gadis itu meronta, tapi pemuda itu memeluknya dengan erat, ia tidak bisa melepaskan diri.
 
-Mu Yi melangkah maju dan berkata, "Gong Zhi sudah menang, tolong lepaskan anakku!" Tawa pemuda itu
+Mu Yi melangkah maju dan berkata, "Gong Zi sudah menang, tolong lepaskan anakku!" Tawa pemuda itu
 meledak, tapi ia tidak melepaskan gadis itu.
 
 Kehilangan kesabarannya, gadis itu lalu mengirim tendangan ke arah _solar plexus_ dari lawannya, berusaha
@@ -893,7 +890,7 @@ lumayan menarik... tapi urusan menikah, haha... aku harus menolak kehormatan itu
 
 Mu Yi sangat marah, ia tidak bisa bersuara. "Kau... kau..."
 
-"Kau anggap apa Pangeran Muda kami?" kata salah seorang pelayan. "Kau kira Gong Zhi akan menikahi anak perempuan
+"Kau anggap apa Pangeran Muda kami?" kata salah seorang pelayan. "Kau kira Gong Zi akan menikahi anak perempuan
 seorang pesilat kasar dari Jianghu? Mimpi ya? Mimpi!"
 
 Mu Yi sangat marah, tanpa berpikir lagi ia memukul pelayan itu dengan sangat keras. Si bangsawan muda tidak
@@ -902,8 +899,6 @@ kudanya.
 
 "Kau mau mempermainkan kami!" teriak Mu Yi. Ia mencengkeram lengan kiri pemuda itu. "Sampai kapan pun juga,
 anakku tidak boleh menikah dengan orang yang tidak tahu aturan semacam engkau. Ayo kembalikan sepatunya!"
-
-"Lao Qianbei ini dalam bahaya," pikir Guo Jing.
 
 <div class="w3-panel w3-card-4 w3-green">
     <p>
@@ -915,31 +910,601 @@ anakku tidak boleh menikah dengan orang yang tidak tahu aturan semacam engkau. A
     </p>
     <p>
         Sepanjang pertemuan dengan Mu Yi, si bangsawan muda itu tidak pernah menggunakan aturan yang sudah umum
-        tersebut, sedangkan Mu Yi sendiri sepanjang waktu sudah merendahkan diri dengan memanggilnya Gong Zhi,
+        tersebut, sedangkan Mu Yi sendiri sepanjang waktu sudah merendahkan diri dengan memanggilnya Gong Zi,
         yang berarti 'Tuan Muda', yang juga umum dipakai untuk menyapa putra keluarga bangsawan.
     </p>
     <p>
         Kemungkinan Mu Yi memanggilnya dengan sebutan Xiao Wangye (小王爷), yang berarti Pangeran Muda, atau
         bisa jadi 'Raja Muda'. Tetapi karena saat itu ia belum tahu kalau Wanyan Kang adalah seorang Pangeran,
-        putra Raja Muda Zhao, Wanyan Honglie, maka saya kira Gong Zhi akan lebih tepat.
+        putra Raja Muda Zhao, Wanyan Honglie, maka saya kira Gong Zi akan lebih tepat.
     </p>
 </div>
 
-Setelah ini cerita mulai memasuki drama cinta antar Guo Jing dan Huang Rong, dan sepertinya
-kurang seru dan menantang.
+"Dia yang memberikannya kepadaku," kata Pangeran itu sambil tertawa santai. "Kenapa kau yang harus terganggu?
+Aku memenangkan lomba, aku menolak perkawinan, tapi aku menerima hadiah hiburan." Ia memutar tangannya dan
+melepaskan diri dari cengkeraman Mu Yi. 
 
-> Boulder = Batu besar
-> Cape = Tanjung
+"Tidak bisa begitu!" seru Mu Yi, gemetar karena marah. Ia melompat dan menghantam dengan kedua tangannya
+ke arah pelipis lawan. Pemuda itu meletakkan kakinya di pedal kuda, dan mendorong dirinya ke dalam arena.
+
+"Kalau aku bisa mengalahkanmu, Lautouzi (老头子)," katanya sambil tertawa lagi. "kau tidak akan memaksaku
+menjadi menantumu lagi ya?"
+
+Baik panggilan maupun sikap tersebut sangat kurang ajar. Mendengar itu para penonton mendadak diam. Hanya
+beberapa orang berandalan yang masih tertawa.
+
+Tanpa berkata apa-apa lagi, Mu Yi mengencangkan ikat pinggangnya, lalu menyerang pemuda itu. Si pemuda tahu
+bahwa Mu Yi sangat marah, ia tidak berani meremehkan serangan itu. Ia mengelak, lalu membalas dengan pukulan ke arah
+perut lawannya. Mu Yi mengelak, dan membalas dengan telapak tangan ke arah bahunya. Si pemuda berbalik, lalu
+mengulurkan tangan kirinya ke bawah tangan kanan Mu Yi. Gerakan ini sangat keji, dan dilakukan tanpa sepengetahuan
+lawan. Tapi Mu Yi mengangkis dengan tepat, dan menampar pipi Pangeran Muda itu dengan kedua tangannya.
+
+Pada saat itu, apa pun juga cara yang akan dipakainya, Si Pangeran tidak akan bisa mengelak dari tamparan itu.
+Ia cemberut, menggigit bibirnya, dan bermaksud menggunakan teknik lain. Kedua tangannya melayang secepat kilat,
+dan kesepuluh jarinya tertancap di punggung tangan Mu Yi. Ketika ia menarik tangannya, semua ujung jarinya berlumuran
+darah. Para penonton menjerit terkejut. Gadis itu dengan panik segera menolong ayahnya. Ia merobek ujung jubahnya
+untuk membalut luka Mu Yi, yang bercucuran darah.
+
+Mu Yi mendorong putrinya menjauh. "Minggir," katanya. "hari ini kalau bukan aku, pasti dia!"
+
+Muka gadis itu berubah pucat, ia menatap Pangeran itu lekat-lekat, lalu mencabut sebuah belati dengan
+maksud untuk menghujamkannya ke jantung sendiri. Mu Yi terperanjat, dan segera bergerak untuk menghalangi
+maksud anaknya, dan si gadis tidak sempat lagi mengalihkan tikaman itu, belati itu tertancap ke tangan ayahnya.
+
+Para penonton menghela nafas, mereka sangat menyayangkan tontonan yang begitu indah berakhir dengan
+berdarah. Bahkan para berandalan pun ikut berkomentar. Rata-rata dari mereka mengeluh tentang sikap
+tidak sopan Pangeran itu.
+
+Ketika melihat ketidakadilan itu, Guo Jing tidak dapat menahan diri lagi. Ia menyeruak di antara para penonton,
+lalu maju ke depan. "Hei!" tegurnya. "Kalau seperti itu, kau salah!"
+
+Setelah bingung sejenak, akhirnya Si Pangeran membalas, "Ah, salah ya? Kenapa harus benar?" Ppara pelayan 
+Pangeran itu yang melihat pakaian Guo Jing seperti petani, dan mendengar ia bicara dengan aksen Selatan yang
+cukup kental, mulai menertawakannya.
+
+Guo Jing yang tidak mengerti ejekan itu, berkata dengan serius, "Kau harus menikahi gadis ini."
+
+"Kalau aku tidak mau lalu kenapa?"
+
+"Kalau kau tidak mau, lalu kenapa kau ikut bertanding? Di situ tertulis jelas, 'Lomba Mencari Jodoh'!"
+
+"Hei, Nak! Kenapa kau ikut campur?" balas pemuda itu dengan nada mengancam.
+
+"Nona ini bukan hanya cantik," kata Guo Jing. "Kungfunya juga juga sangat bagus. Kenapa kau tidak mau
+menikahinya? Apa kau tidak tahu, dia merasa sangat tersinggung sampai mau bunuh diri?"
+
+"Kau betul-betul tolol, tidak ada gunanya menjelaskan..." kata pemuda itu sambil memutar tumitnya dan
+melangkah pergi.
+
+Guo Jing menahannya. "Hei! Kenapa kau pergi begitu saja?"
+
+"Kau mau apa?"
+
+"Kan aku sudah bilang, kau harus menikahi gadis ini!"
+
+Pemuda itu tertawa, dan ia meneruskan langkahnya untuk pergi dari situ.
+
+Ketika Mu Yi melihat cara Guo Jing campur tangan, ia mengerti bahwa anak muda itu merasa tersinggung melihat
+sikap Si Pangeran, tetapi ia sangat naif dan tidak memahami seluk-beluk dunia persilatan. Ia mendekati Guo Jing 
+dan berkata, "Xiao Xiongdi, jangan pedulikan dia! Selama aku masih bernafas, pasti aku akan membalas sakit hati
+ini!" Lalu ia berseru kepada Si Pangeran, "Setidaknya, tinggalkan namamu!"
+
+"Aku sudah bilang, aku tidak mau memanggilmu 'Ayah Mertua'," jawab pemuda itu dengan kurang ajar. "Kenapa kau
+masih juga menanyakan namaku?"
+
+Merasa sangat kesal, Guo Jing melompat ke depan dan berteriak, "Kalau begitu kembalikan sepatu nona itu!"
+
+"Ini kan bukan urusanmu!" kata Pangeran itu dengan marah. "Kau suka sama nona itu ya?"
+
+Guo Jing menggelengkan kepalanya dan berkata, "Tidak! Mau kembalikan atau tidak?" Si Pangeran mengeraskan
+tangannya, lalu tiba-tiba menampar Guo Jing dengan keras. Guo Jing secara refleks bergerak, menerapkan
+teknik untuk menghindar dan merampas, ia mencekal pergelangan tangan lawannya sambil menyilangkan kedua
+tangannya.
+
+Pangeran itu mencoba menghindar dengan sia-sia. Terkejut dan marah, ia berteriak, "Kau mau mati ya?" Ia
+menendang perut bagian bawah Guo Jing.
+
+Guo Jing meregangkan otot-ototnya dan mendorong Sang Pangeran kembali ke gelanggang. Jelas sekali orang itu
+memiliki ilmu meringankan tubuh yang bagus, bukannya jatuh terjengkang, ia berhasil menjaga keseimbangan
+tubuhnya dan mendarat di atas kedua kaki. Ia melepas mantel brokatnya dan berseru, "Kau tidak mau hidup
+lagi rupanya ya? Kalau punya keberanian, ayo sini lawan aku!"
+
+"Untuk apa aku berkelahi melawanmu?" Guo Jing menggelengkan kepalanya. "Karena kau tidak mau menikah
+dengan nona itu, maka kembalikan sepatunya."
+
+Para penonton yang melihat campur tangan Guo Jing, sangat ingin melihat kemampuannya, dan tidak berharap
+dia mundur begitu saja. Beberapa berandalan bahkan berseru, "Hanya bisa bicara, itu pendekar macam apa?"
+
+Setelah dicekal oleh Guo Jing, Sang Pangeran menyadari bahwa kungfunya tidak lemah, terutama sekali ia
+merasa tenaga dalamnya sangat kuat. Ia dengan senang hati tidak akan bertarung, tapi tentu saja ia
+tidak mau kehilangan muka dengan mengembalikan sepatu bersulam itu begitu saja. Karena itu ia mengambil
+kembali mantelnya, tertawa, dan berbalik untuk meninggalkan tempat itu.
+
+Guo Jing mencekal dari sisi luar mantelnya, dan mengulangi, "Kenapa pergi?"
+
+Tiba-tiba Si Pangeran punya gagasan baru. Ia melemparkan mantelnya ke atas kepala lawannya, lalu mengirimkan
+pukulan ke arah dada. Terjebak dalam lilitan mantel, Guo Jing tidak bisa menghindar. Untungnya ia sempat
+menghabiskan dua tahun penuh berlatih tenaga dalam dengan Ma Yu, jadi pukulan tersebut, meskipun teras sangat
+menyakitkan, tapi tidak sungguh-sungguh melukainya. Terdorong emosi, ia secara beruntun mengirimkan sembilan
+tendangan cepat sambil mengubah-ubah gaya bertarungnya. Teknik ini dikembangkan oleh Han Baoju, yang sudah
+membuatnya berhasil menaklukkan beberapa lawan lain. Meskipun si murid belum bisa menyamai kemampuan Sang Guru,
+dan meskipun ia tidak bisa melihat karena sedang terbelit mantel, tendangan beruntun itu sangat merepotkan
+Si Pangeran, yang berhasil lolos dari tujuh tendangan pertama, namun terkena telak di bagian dada oleh dua
+tendangan berikutnya.
+
+Kedua pemuda itu masing-masing melompat mundur. Guo Jing tidak bisa percaya bahwa lawannya bisa begitu
+licik. "Dia tahu jelas," pikirnya. "bahwa dia sedang memasuki gelanggang untuk 'mencari jodoh'. Dan dia
+menang, tapi menolak untuk menikahi nona itu! Dan bukan cuma itu, waktu aku coba bicara baik-baik, bukan hanya
+dia yang menyerang lebih dahulu, tapi juga memakai cara yang memalukan! Kalau aku tidak pernah latihan 
+tenaga dalam, pasti tulang rusukku patah, dan aku sudah luka dalam!" Sebagai orang yang sederhana dan selalu
+terbuka, selalu hidup di tengah orang-orang yang cenderung baik, maka ia tidak mengerti soal kejahatan
+manusia. Meskipun dalam beberapa tahun belakangan ini, guru-gurunya selalu memperingatkan tentang akal bulus
+dan kelicikan yang akan selalu ada di tengah-tengah rimba persilatan, ia mendengarkan kata-kata tersebut
+seperti mendengarkan dongeng, dan tidak tinggal terlalu lama di benaknya karena memang belum pernah dialaminya
+sendiri. Saat itu ia sangat marah dan bingung, karena tidak bisa mempercayai bahwa tipu muslihat semacam itu
+sungguh-sungguh ada.
+
+Pangeran muda yang marah terkena dua kali tendangan itu, menerjang ke arah Guo Jing, dengan kedua tinjunya
+terlebih dahulu. Guo Jing melawan, tetapi tidak bisa menghindari serangan beruntun yang menghujaninya, ia
+terpukul dan jatuh. Para pelayan tertawa. Sang Pangeran berkata sambil tertawa, "Jadi kau merasa bisa
+membela keadilan dengan ilmu-tiga-jurusmu ya? Pulanglah, dan bilang kepada Shimu supaya mengajarimu dua
+puluh tahun lagi!"
+
+Kata-kata itu sungguh menghina, karena Shimu yang dimaksud adalah 'Istri dari Sang Guru', dengan maksud
+menghina guru Guo Jing. Si Pangeran tentu saja tidak tahu bahwa Guo Jing punya banyak guru, dan salah
+satunya _memang_ perempuan, karena itu Guo Jing sama sekali tidak tersinggung. Ia bangkit berdiri dan 
+menghimpun tenaga ke seluruh tubuhnya, sehingga rasa sakitnya lenyap. "Guruku tidak punya istri." katanya. 
+
+"Kalau begitu suruh dia cepat menikah!"
+
+Guo Jing baru saja ingin menjawab bahwa salah satu gurunya _memang_ perempuan, tapi sayangnya ia tidak
+sempat berbuat begitu. Ia melihat Pangeran itu melangkah pergi, jadi ia buru-buru maju dengan tangan 
+terangkat, dan berseru, "Ayo siap!"
+
+Si Pangeran mengelak, Guo Jing melayangkan sebuah _hook_ kanan ke arah muka, dan ditangkis oleh lawannya.
+Mereka berdua berdiri sambil menahan tangan lawan, sama-sama berusaha mengerahkan tenaga dalam untuk
+mengungguli musuhnya. Guo Jing agak lebih kuat, namun lawannya punya teknik yang lebih baik, maka agak
+sulit memperkirakan siapa yang lebih unggul.
+
+Guo Jing menarik nafas dalam-dalam untuk menghimpun tanaganya, sementara lawannya ternyata mendadak
+melepaskan tekanannya. Guo Jing terjungkal ke depan, dan sementara ia berusaha mengendalikan keseimbangan
+tubuhnya, ia merasakan sebuah pukulan menyerangnya dari belakang. Ia cepat-cepat menghindar, tetapi
+karena keseimbangannya belum sepenuhnya pulih, ia tersandung. Ia menjatuhkan diri ke siku tangannya,
+lalu dengan gesit tubuhnya memantul kembali, dan ketika tubuhnya sedang berputar di udara, ia mengirimkan
+sebuah tendangan kaki kiri. Ketika melihat kecepatannya yang spektakuler dalam membalikkan keadaan itu,
+para penonton bersorak.
+
+Si Pangeran Muda itu bergerak menjauh dan menyerang dengan kedua telapak tangannya. Yang pertama adalah
+tipuan untuk mengecoh lawan, yang kedua adalah serangan sebenarnya. Guo Jing kemudian menggunakan
+teknik 'Mencabut Otot dan Memisahkan Tulang', tangannya berkibar ke segala arah mengincar urat-urat dan
+persendian lawannya. Melihat betapa mengerikan serangan itu, lawannya mengubah taktik, ia menggunakan
+cara yang sama! Tetapi dengan beberapa perbedaan, karena teknik yang digunakan Guo Jing adalah hasil
+ajaran Zhu Cong, yang menyimpang dari ajaran ortodoks dari para ahli kungfu di dataran tengah. Kedua
+teknik yang mereka gunakan memang tampaknya sama, tetapi perbedaannya terletak pada cara mengeksekusi
+serangan tersebut. Yang seorang mengulurkan jari telunjuk dan jari tengah untuk menyerang jalan darah
+Yang Lao, di belakang pergelangan tangan, sedangkan yang lain berusaha mengait buku-buku jari lawan.
+Keduanya saling memahami dan tidak berani mengerahkan seluruh tenaganya, hanya sekedar memperagakan
+satu gerakan dan beralih ke gerakan lain. Setelah bergebrak sekitar empat puluh jurus, mereka masih
+tidak tahu siapa yang lebih unggul.
+
+Salju terus turun, dan lapisan tipis menyelimuti kepala dan bahu dari para penonton yang mengelilingi
+mereka berdua. Mendadak Si Pangeran tampak seperti membuka celah pertahanan di bagian dadanya. Guo Jing
+tidak mau menyia-nyiakan kesempatan itu, dan mengarahkan jari telunjuknya untuk menotok 'Ekor Perkutut'
+lawan. Tetapi ia agak menahan diri ketika menggunakan serangan ini. "Kita tidak pernah bermusuhan,"
+pikirnya. "Aku tidak bisa menggunakan serangan maut!" Ia kemudian sengaja mengalihkan serangannya, dan
+menyentuh titik lain yang tidak penting di tubuh lawannya. Pangeran Muda itu punya cukup waktu untuk
+mencekal pergelangan tangannya dan menariknya, sambil menjegal kakinya, Guo Jing kehilangan keseimbangan,
+dan jatuh lagi.
+
+Tangan Mu Yi baru saja dibalut oleh putrinya, dan ia mengamati pertarungan kedua anak muda itu Ia
+melihat Guo Jing jatuh untuk ketiga kalinya, dan mengerti bahwa anak muda itu tidak punya cukup 
+pengalaman untuk menghadapi pemuda kurang ajar itu. Ia buru-buru membangunkannya dari tanah.
+"Xiao Xiongdi (adik kecil)," katanya. "sudahlah. Tidak ada gunanya berurusan dengan berandalan
+seperti ini lebih lama lagi."
+
+Guo Jing merasa pandangannya berkunang-kunang dan sekujur tubuhnya sakit, tapi ia merasa sangat
+marah. Ia menjauh dari Mu Yi dan menerjang lawannya, dengan pukulan beruntun yang lebih gencar
+lagi. Si Pangeran terkejut melihatnya masih terus menyerang meskipun berkali-kali terkena pukulan
+telak. Ia mundur tiga langkah. "Kau masih juga tidak menyerah?' katanya. Guo Jing tidak menjawab 
+tapi terus menyerang.
+
+"Kalau kau masih tidak mau berhenti," ancam Pangeran itu. "Aku akan terpaksa membunuhmu!"
+
+"Kalau kau tidak mau mengembalikan sepatu itu," balas Guo Jing. "Aku juga tidak bakalan selesai
+denganmu!"
+
+"Tapi nona itu bahkan bukan adikmu," kata Si Pangeran. "Kenapa kau harus ngotot mau jadi adik iparku sih?"
+
+Kalimat 'jadi adik ipar' seseorang, itu mengandung arti menghina di ibukota Kekaisaran Jin itu, tetapi
+Guo Jing sama sekali tidak mengerti.
+
+"Aku tidak kenal dia," kata Guo Jing. "Dan dia juga bukan adikku."
+
+Pangeran itu tidak tahu lagi harus marah atau tertawa. Akhirnya ia berkata, "Ya kalau begitu hati-hatilah,
+tolol!"
+
+Kedua anak puda itu meneruskan pertarungan mereka. Kali ini Guo Jing lebih hati-hati, dan ia tidak jatuh
+ke perangkap yang sama yang sudah disiapkan oleh Pangeran itu. Kenyataannya, kalau dilihat dari segi
+teknik bela diri, Pangeran itu memang lebih baik, tetapi Guo Jing berkelahi dengan cara _barbar_, dan ia
+pantang menyerah. Bahkan setelah terpukul, ia terus maju menyerang dan tidak mau mundur. Ia sudah pernah
+berkelahi dengan cara ini pada saat ia masih kecil, yaitu ketika menghadapi geng Dukhsh. Meskipun sekarang
+ia punya kegesitan yang didapat dari latihan seni bela diri, akan tetapi caranya berkelahi secara mendasar
+masih tetap sama, dan ia secara alamiah memang berkelahi dengan cara _barbar_. Ia sudah lupa anjuran
+gurunya yang keempat, "Kalau tidak mampu melawan, lari!" Di benaknya, _formula_ yang lebih tepat sejak
+semula adalah "Kalau musuh tidak bisa dikalahkan, ngotot!", hanya saja, ia tidak menyadari hal ini.
+
+Tontonan itu menarik minat makin banyak, dan makin banyak penonton. Jalanan itu sudah penuh sesak. Angin
+semakin kencang, dan salju turun semakin lebat, tetapi tak satu penonton pun meninggalkan tempat itu.
+
+Mu Yi yang sudah berpengalaman di dunia persilatan, tahu bahwa kalau pertarungan itu terus seperti ini,
+kerumunan penonton akan menarik perhatian pasukan istana, dan bisa jadi akan memancing mereka untuk
+turun tangan. Ia tahu bahwa mereka sebaiknya tidak mengambil resiko seperti itu. Tapi pemuda itu secara
+sukarela melibatkan diri untuk membantunya, dan ia tidak bisa meninggalkannya saat itu. Ia merasa gelisah.
+Ia menaikkan alisnya dan memandang ke arah kerumunan penonton, dan tiba-tiba ia melihat ada sekelompok
+orang yang sepertinya datang dari dunia persilatan. Sejauh ini ia begitu terpaku pada pertarungan itu
+sehingga ia tidak menyadari kehadiran mereka.
+
+Ia kemudian bergerak perlahan, mendekati para pelayan Si Pangeran yang berdiri berkelompok. Mengamati 
+mereka dari sudut matanya, ia melihat, di antara mereka, tiga karakter dengan ciri-ciri ahli kungfu. 
+Yang pertama mengenakan pakaian biksu merah dan topi emas, itu adalah Biksu Tibet (Lama) yang jangkung. 
+Yang kedua, berukuran sedang, memiliki rambut putih keperakan dan wajah kemerahan berseri-seri dengan 
+kulit halus seperti bayi, tanpa kerutan. Ia mengenakan jubah panjang, tetapi orang tidak tahu apakah 
+itu penganut agama Tao atau Buddha. Yang ketiga bertubuh sangat kecil, tetapi matanya yang seolah 
+berlumuran darah memiliki tatapan tajam, dan ia memiliki kumis kecil yang angkuh.
+
+Kehadiran wajah-wajah yang tidak umum ini mengejutkan Mu Yi. Ia kemudian mendengar salah satu pelayan 
+berkata, "Zhi Shang De (至上德), tolong singkirkan orang bodoh ini dari kami! Jika ini terus berlanjut 
+dan sesuatu yang serius terjadi pada Pangeran muda, kami para pelayan bisa mati!"
+
+Zhi Shang De, atau Sang Kebajikan Tertinggi, adalah nama panggilan untuk Si Lama Tibet itu. Mendengar
+kalimat itu Mu Yi gemetar. "Jadi si bajingan cilik ini seorang pangeran! Kalau terjadi sesuatu pada 
+pangeran itu, malapetaka akan menimpanya. Ternyata semua ahli silat ini adalah bagian dari istana,
+dan para pelayan itu memanggil mereka kemari untuk memohon bantuan bagi si pangeran itu."
+
+Biksu Tibet itu tersenyum tanpa mengatakan apa-apa. Si orang tua tertawa sambil berseru, "Zhi Shang De
+Lingzhi adalah tokoh terkenal di Tibet, dia mana bisa merendahkan diri untuk berkelahi dengan berandalan
+kelas teri macam ini. Itu terlalu merendahkan... Kalaupun terjadi sesuatu, paling buruk adalah Pangeran
+akan mematahkan kaki kalian, tidak sampai membunuh kalian, kan?"
+
+"Lagipula," sela si kecil yang bermata merah tajam. "Pangeran muda lebih unggul dari anak ini, kenapa
+kalian harus takut?" Perawakannya kecil, tetapi suaranya memekakkan telinga. Para penonton di sekitarnya
+melompat pada waktu mendengar ia bicara, dan mereka semua menatapnya. Merasa gugup melihat tatapannya
+yang mengerikan, mereka segera menundukkan kepala. 
+
+"Pangeran Muda kita sudah berlatih keras untuk menguasai ilmu yang satu ini," kata si rambut perak.
+"Kalau kerja keras bertahun-tahun tidak bisa dipamerkan, dia akan merasa penasaran. Justru dia akan jengkel
+kalau ada orang yang membantu."
+
+"Liang Xiansheng," kata si kecil itu. "Kira-kira jurus tangan kosong Pangeran kita ini berasal dari 
+mana ya?"
+
+"Peng Xiong," kata si tua sambil tersenyum. "Mau menguji aku ya? Xiao Wangye (Pangeran Muda) menggunakan
+kombinasi kecepatan dan variasi rumit yang sulit dicari. Kalau aku tidak salah, dia belajar kungfu
+dari seorang Pendeta Tao dari Perguruan Quanzhen."
+
+Mu Yi sekali lagi terkejut. "Mana mungkin anak muda kurang ajar ini belajar dari Quanzhen?"
+
+"Lian Xiansheng punya mata yang tajam," kata si kecil lagi. "Kau tinggal di kaki gunung Yong Baishan,
+menghabiskan waktu untuk bermeditasi dan mempelajari obat-obatan. Orang bilang kau jarang sekali
+menginjakkan kaki di dataran tengah ini, tapi kau tahu banyak tentang ilmusilat dataran tengah, sungguh
+sangat mengagumkan."
+
+"Pujian Peng Xion terlalu tinggi," jawab si orang tua, sambil tersenyum.
+
+"Tapi," kata si kecil lagi. "para pendeta Quanzhen punya sifat yang sangat aneh dan tak terduga. Mana
+mungkin mereka bisa menerima Xiao Wangye sebagai murid, ini agak mengherankan."
+
+"Kalau Pangeran Keenam mau, mana ada orang yang tidak bisa dia rekrut? Seperti contohnya kau sendiri,
+Peng Xiong, kau pendekar terkenal di Shandong dan Shanxi, tapi buktinya sekarang kau sudah jadi bagian
+dari istana Pangeran."
+
+Si kecil mengiyakan. Lalu perhatian mereka kembali ke pertarungan itu. Mereka melihat bahwa Guo Jing sudah
+mengubah gaya bertarungnya lagi, gerakan telapak tangannya berirama pelan, pertahanannya sangat rapat. 
+Si Pangeran berkali-kali mencoba untuk menerobos pertahanannya, namun selalu terpukul mundur.
+
+"Menurutmu," kata si tua, balas menguji si kecil. "dari mana asal kungfu anak muda itu?"
+
+"Kungfunya campur aduk," jawab si kecil setelah ragu sejenak. "orang bisa bilang bahwa dia punya
+beberapa orang guru."
+
+"Ketua Peng benar," sela seorang pria yang berdiri di dekat situ. "Anak itu murid dari Tujuh Orang
+Aneh dari Jiangnan!"
+
+Mu Yi mengamati orang yang baru bicara itu. Ia seorang pria kurus yang berwajah gelap dengan tiga
+benjolan besar di bagian depan kepalanya. "Dia memanggil orang itu 'Ketua Peng', apa mungkin dia
+si bandit Peng Lianhu, yang dijuluki Jagal Bertangan Seribu, yang menyembelih orang tanpa berkedip itu?"
+pikir Mu Yi. "Kalau Tujuh Orang Aneh dari Jiangnan, rasanya sudah lama sekali aku tidak mendengar
+kabar tentang mereka. Apa mungkin mereka masih hidup?"
+
+Pada saat itu, si kurus yang bermuka gelap itu tiba-tiba meraung, "Hei, anak bandel! Akhirnya aku
+menemukanmu!" Ia menghunus sebuah tombak bercabang tiga, menggulung lengan bajunya, lalu terjun
+ke arena pertarungan. Mendengar suara berisik di belakangnya, Guo Jing menoleh, dan seketika itu hidungnya
+berhadapan dengan hidung pria denga tiga benjolan besar di kepalanya, sudah jelas adalah Hou Tonghai,
+paman guru dari Empat Iblis Sungai Kuning. Ia sangat terkejut dan cemas, ia ragu-ragu, tak tahu 
+harus berbuat apa. Si Pangeran dengan cepat memanfaatkan keragu-raguan ini dengan memukul bahunya,
+yang segera membawa Guo Jing kembali ke gelanggang pertarungan.
+
+Para penonton yang melihat Hou Tonghai memasuki areal pertarungan dengan senjata di tangan, merasa bahwa
+ia bermaksud membantu salah satu pihak, dan mereka berpendapat bahwa hal itu tidak pantas, karenanya mereka
+langsung mencemooh. Mu Yi yang sudah tahu bahwa ia adalah bagian dari orang-orang istana, maju selangkah,
+siap menghadapinya seandainya ia bermaksud melakukan sesuatu untuk melawan Guo Jing, meskipun tetap waspada
+karena jumlah musuh jauh lebih banyak. Tetapi Hou Tonghai ternyata bukan marah kepada Guo Jing, ia 
+melabrak ke sisi lain dan masuk ke tengah-tengah para penonton, di mana ia melihat seorang pemuda tanggung
+yang terlihat lemah dan berpakaian compang-camping melompat setelah melihatnya, dan mencoba untuk kabur. 
+Si Naga Berkepala Tiga itu bergegas mengejarnya, diikuti oleh empat orang lain.
+
+Dari sudut matanya Guo Jing melihat bahwa anak muda itu ternyata adalah Huang Rong, teman baru yang belum
+lama dikenalnya di Kalgan. Hou Tonghai mengejarnya dengan senjata di tangan, bersama dengan Empat Iblis 
+Sungai Kuning. Merasa sangat kuatir, ia melompat ke belakang. "Sebentar!" katanya. "Tunggu sebentar, nanti
+kita teruskan lagi!"
+
+Si Pangeran Muda yang sudah lelah merasa tidak berminat lagi untuk melanjutkan pertarungan. Kejadian itu
+sungguh sangat kebetulan. "Kalau kau mengaku kalah," ejeknya. "kau boleh pergi..."
+
+Kuatir akan keselamatan temannya, Guo Jing sudah bersiap untuk membantunya, ketika ia mendengar suara
+langkah kaki di belakangnya. Ternyata Huang Rong yang sudah kembali sambil menenteng sebuah sepatu bekas
+sambil tertawa. Hou Tonghai mengejar sambil berteriak-teriak memanggilnya, dan berusaha menyerangnya
+dengan tombak bermata tiga yang dibawanya. Tapi Huang Rong ternyata sangat gesit, senjata itu selalu
+luput dalam jarak yang sangat tipis. Pemuda tanggung itu dengan lincah menyelinap di antara kerumunan,
+lalu muncul lagi di sisi lain. Pada waktu Hou Tonghai mendekat, orang bisa melihat ada dua bekas telapak
+tangan berwarna hitam di pipinya. Jelas sekali bocak yang kelihatannya lemah itu berhasil menamparnya
+dua kali. Hou Tonghai mendorong semua orang yang menghalangi jalannya, dan akhirnya berhasil menerobos
+kerumunan, tetapi Huang Rong ternyata sudah jauh. Hou Tonghai membuat isyarat dengan tangannya, menunjukkan
+apa yang sedang ada di dalam benaknya. "Kalau aku tidak berhasil menangkap dan mencincangmu," teriaknya,
+meledak-ledak karena marah. "aku tidak mau disebut laki-laki lagi!"
+
+Huang Rong menunggu sampai Hou Tonghai mendekat, baru kemudian lari lagi. Tawa semua orang meledak.
+Pada saat itu, tiga orang pria yang terengah-engah muncul, mereka adalah tiga orang dari Empat Iblis
+Sungai Kuning, tanpa kehadiran Qian Qingjian, yang berjuluk Kapak Pengubur Keluarga.
+
+Melihat tontonak tersebut, Guo Jing sangat terkejut dan sekaligus gembira. Ia berpikir, "Temanku ini pasti
+punya kungfu hebat. Waktu itu, kelihatannya dialah yang menyingkirkan Hou Tonghai, dan juga menggantung
+Empat Iblis Sungai Kuning di atas pohon!" Pihak lawan ternyata juga tidak kurang terkejutnya.
+
+Si Kebajikan Tertinggi Lingzhi bertanya, "Dewa Ginseng, si pengemis cilik itu luar biasa gesit, kira-kira
+dari perguruan mana dia? Kelihatannya Hou Xiong sudah kalah..."
+
+Juragan Gunung Yong Baishan yang berambut putih itu bernama Liang Ziwong, sejak muda sudah mengkonsumsi
+obat-obatan herbal dan ginseng alamiah, yang melindunginya dari proses penuaan. Ia tidak mengenali
+ilmu silat dari si pengemis cilik, jadi ia menggelengkan kepalanya. Waktu aku di luar tembok perbatasan
+(perbatasan antara Utara dan Selatan), aku sering mendengar bahwa Raja Naga dari Kelompok Iblis adalah
+jagoan yang sangat ditakuti. Tidak disangka adik seperguruannya begitu menyedihkan, bahkan tidak bisa
+menangani seorang anak kecil."
+
+Orang yang bertubuh kecil itu memang Peng Lianhu, seperti dugaan Mu Yi, ia teman baik Raja Naga
+dari Kelompok Iblis, yang sering bekerja sama dan dibantunya dalam razia perampokan. 
+Ia mengerutkan kening tanpa bersuara. Ia tahu kungfu Hou Tonghai tidak buruk, dan ia tidak dapat
+menjelaskan mengapa orang itu sampai bisa dipermainkan semudah itu.
+
+Gangguan dari Huang Rong dan Hou Tonghai membuat duel antara Guo Jing dan Pangeran Muda itu terhenti.
+Sang Pangerang jelas unggul atas Guo Jing, karena ia berhasil menjatuhkan musuhnya beberapa kali, tapi
+ia sendiri juga beberapa kali kena pukul dengan telak, jadi sekarang ia sudah sangat lelah. Ia menghapus
+keringat yang membasahi mukanya menggunakan syal yang dipakainya sebagai ikat pinggang. 
+
+Mu Yi yang sudah menyimpan umbul-umbulnya, memegang tangan Guo Jing untuk mengucapkan terima kasih 
+dengan hangat, dan mendesaknya untuk segera meninggalkan tempat itu. Tiba-tiba suara langkah kaki
+kembali terdengar saat Huang Rong dan Hou Tonghai muncul kembali, masih kejar-mengejar. Yang di depan
+memegang dua potong kain, yang kelihatannya pas dengan pakaian pria yang mengejar di belakangnya. Baju
+yang robek itu memperlihatkan dada yang berbulu lebat. Tak lama kemudian, Wu Qinglie dan Ma Qingxiong
+dengan senjata di tangan, mereka mengikuti kedua orang di depannya sambil terengah-engah. Yang menghilang
+adalah Shen Qinggang, yang kelihatannya secara misterius berhasil disingkirkan oleh Huang Rong. Keributan
+itu mengundang tawa dan cemoohan para penonton.
+
+Teriakan terdengar dari arah Barat, ketika puluhan prajurit dengan tongkat anyaman dari rotan di tangan
+berteriak sambil memukuli para penonton supaya minggir dan membuka jalan bagi sebuah tandu besar berwarna
+merah dan keemasan, yang diusung oleh enam orang pria berotot. "Wang Fei (王妃, Sang Puteri — Selir Pangeran)!" 
+seru pelayan dari kubu Si Pangeran Muda.
+
+"Siapa Si Tolol yang kurang ajar, melapor kepada ibuku?" seru Sang Pangeran dengan suara menggelegar, 
+sambil cemberut. Para pelayan yang tidak berani menjawab buru-buru menghampiri tandu itu, yang sudah
+berhenti di sebuah tempat kosong.
+
+<div class="w3-container w3-center">
+    <a href="https://youtube.com/clip/UgkxoZ_39gNmUpk1C2fd5yGqK4sqX1cflDYu" target="_blank">
+        <img src="images/bao-xiruo-sebagai-selir.jpg" alt="Bao Xirou Muncul Sebagai Selir" width="75%"/>
+    </a>
+</div>
+
+Suara wanita yang lembut terdengar dari dalam tandu, "Mengapa berkelahi? Ini sedang hujan salju, dan kau tidak memakai
+mantel. Kalau seperti ini kau bisa demam..."
 
 
+Ketika mendengar suara itu dari kejauhan, Mu Yi seakan-akan disambar petir. "Mana mungkin?" pikirnya, terdiam.
+"Suaranya sangat mirip _dia_! Tapi itu tidak mungkin, dia seorang Putri Kekaisaran Jin... Mungkin aku terlalu
+sering memikirkan istriku, dan aku mulai sinting..." Terlepas dari segalanya, ia tidak bisa menahan diri untuk
+mendekati tandu itu. Ia melihat tangan mungil dengan sebuah saputangan keluar dari dalam tandu itu, lalu menghapus
+keringat dari wajah Si Pangeran Muda, yang mendengarkan kata-kata yang diucapkan dengan suara rendah, tak diragukan
+lagi, sedang menegur dan mencela. "Tapi, _Niang_ (Ibu)..." kata Pangerang Muda itu. "Hai'Er (孩儿, semacam 'ananda',
+sebutan untuk diri sendiri di hadapan orang tua) hanya sekedar main-main... tidak ada yang salah..."
 
+"Cepat pakai mantelmu," kata Sang Putri. "Dan kita pulang..."
 
+"Kenapa suaranya bisa begitu mirip?" pikir Mu Yi, masih tercengang, melihat tangan mungil itu menghilang
+di balik tirai sutra, yang bersulam peoni dengan benang emas. Ia berusaha mengintip, tetapi tidak bisa
+melihat ke balik tirai berwarna terang itu.
 
+Salah seorang pelayan memungut mantel majikannya dan berteriak kepada Guo Jing, "Binatang! Coba lihat
+mantel ini, semua gara-gara kau!" Salah seorang prajurit yang datang bersama Sang Putri mengangkat
+tongkat rotannya dan dengan kasar memukul kepala Guo Jing. Guo Jing menghindar, mencekal tangan dari
+prajurit itu, mengambil tongkatnya, dan kemudian mengganjalnya. Ia terjatuh dan Guo Jing mencambuknya
+dengan tongkat rotan itu, "Kau berani sembarangan menyerang dengan kejam?" teriaknya. Para penonton, yang 
+sebagian sudah sempat dihajar menggunakan tongkat itu, bersorak meriah menghargai tindakannya. Prajurit
+lain berusaha membela temannya dan buru-buru maju, tapi Guo Jing menangkapnya, lalu saling membenturkan
+keduanya dan mendorong mereka pergi.
 
+"Masih mau pamer?" seru Si Pangeran. Ia melompat ke arah Guo Jing, dan keduanya bertarung lagi.
+Sang Putri berseru menyuruhnya untuk menghentikan aksi itu, namun Si Pangeran kelihatannya tidak takut
+kepada ibunya. "Lihat aku, Niang," serunya. "Petani brengsek ini melakukan banyak kejahatan di ibukota! 
+Kalau tidak diberi pelajaran, dia tidak akan menghormati ayahnya!" Ia ingin memamerkan kemampuan terbaiknya,
+dan melipatgandakan serangannya. Guo Jing tidak mampu menangkis telapak tangannya yang ringan dan cepat, 
+terpukul beberapa kali dan dua kali terhuyung-huyung.
 
+Mu Yi sendiri masih terhipnotis oleh tandu itu. Salah satu sudut tirai itu terbuka sedikit, dan ia bisa
+melihat sepasang mata yang penuh perhatian, beberapa helai rambut, dan sebagian wajah seorang ibu, yang
+penuh kelembutan dan kuatir akan keselamatan putranya. Mu Yi diam terpaku.
 
+Gerakan Guo Jing berubah menjadi lebih baik, tetapi ia berhadapan dengan seorang lawan yang punya
+semangat baru. Pangeran Muda itu mengirimkan serangan-serangan yang mematikan, berharap membuat lawannya
+terluka berat, untuk memastikan bahwa pertarungan itu sungguh-sungguh berakhir. Tetapi Guo Jing berkulit
+tebal, dan punya dasar Nei Gong yang baik, ia mampu bertahan terhadap serangan bertubi-tubi itu.
+Terlebih lagi, teknik Pangeran itu masih kurang canggih, tenaganya sangat terbatas karena usianya yang
+muda dan kurang pengalaman. Dalam beberapa kesempatan ia berusaha untuk menyerang Guo Jing menggunakan
+sepuluh jarinya yang membentuk cakar, teknik yang dipakainya untuk melukai Mu Yi, tetapi murid Tujuh
+Orang Aneh dari Jiangnan itu mempertahankan diri menggunakan 'Mencabut Otot dan Memisahkan Tulang'.
+Ketika pertarungan itu mencapai puncaknya, Huang Rong dan Hou Tonghai kembali muncul kejar-mengejar. 
+Kali ini, orang yang terakhir itu seperti memakai sehelai jerami panjang di rambutnya. Biasanya ini
+sebuah tanda bahwa 'benda' itu dijual. Helaian jerami di kepalanya berarti kepala tersebut dijual. Ini
+jelas adalah ulah Huang Rong, yang masih belum disadari Hou Tonghai karena ia terlalu sibuk mengejar
+buruannya. Sisa anggota Empat Iblis Sungai Kuning yang lain ternyata juga sudah menghilang, sudah 
+jelas mereka disingkirkan dengan salah satu cara...
 
+Liang Ziwong dan kawan-kawan berusaha memeras otak untuk menebak identitas Huang Rong. Mereka melihat
+Hou Tonghai berlari dengan cepat, tetapi ia tidak pernah berhasil menyamai bocah berpakaian compang-camping
+itu. "Apa mungkin anak ini anggota Kaipang?" tanya Peng Lianhu, agak mendadak. Pada saat itu Kaipang
+adalah kelompok terkuat yang ada di rimba persilatan. Lian Ziwong mengedutkan mukanya, tetapi tidak
+menjawab. 
 
+Kedua pemuda itu bertarung semakin cepat dan tenaga yang mereka gunakan juga semakin besar. Kadang-kadang
+Guo Jing menerima pukulan telak di bahunya, dan kadang-kadang Si Pangeran terkena tendangan di lututnya.
+Mereka bertarung habis-habisan, mengamuk dan terengah-engah, gangguan kecil saja bisa berakibat cedera
+fatal. Peng Lianhu dan Liang Ziwong sama-sama menyiapkan senjata rahasia mereka untuk melakukan intervensi
+bila perlu. Meskipun Guo Jing sangat keras kepala dan pantang menyerah, tetapi kungfunya masih belum
+cukup tangguh untuk mengatasi Si Pangeran Muda itu. Kedua ahli itu berusaha meyakinkan diri bahwa mereka 
+akan dapat mengendalikan situasi pada saat yang tepat untuk mencegah terjadinya bencana.
 
+Cara Guo Jing tumbuh dewasa sangat sulit dicari tandingannya. Ia lahir dan dibesarkan di padang rumput
+Mongolia, dan menjalani kerasnya kehidupan di sana. Ia telah mengalami perang, dan juga diperkeras oleh
+perang. Sebaliknya, Sang Pangeran, selalu hidup dalam kemewahan, sama sekali tidak mengherankan bahwa dalam
+pertarungan panjang yang brutal dan tak kenal belas kasihan tersebut, ia tersandung ketika mulai lelah.
+Tiba-tiba Guo Jing berteriak keras, mencengkeram kerah baju musuhnya, mengangkatnya tinggi-tinggi dan
+membantingnya dengan kasar ke tanah. Itu bukan salah satu teknik ajaran guru-gurunya maupun Ma Yi, tetapi
+teknik gulat gaya Mongolia yang unik, yang diajarkan oleh guru panahannya, Jebe.
 
+Sang Pangeran segera bereaksi dengan cara melompat begitu menyentuh tanah, dan mencengkeram kaki 
+Guo Jing sehingga keduanya terjatuh. Ia bangkit dengan cepat, merampas tombak panjang dari tangan 
+seorang prajurit, dan menusukkannya ke perut Guo Jing. Guo Jing menggulingkan dirinya ke samping,
+sementara lawannya masih memegang tombak panjang dengan cekatan. Guo Jing berusaha merebut tombak itu,
+tetapi sia-sia.
 
+"Hai'Er," seru Sang Putri. "jangan lukai dia! Cukuplah kalau sudah menang!" Tetapi Si Pangeran yang 
+merasa penasaran untuk menusuk Guo Jing dengan tombak, pura-pura tidak mendengar.
+
+Guo Jing yang melihat ujung tombak berkilau beberapa inci dari hidungnya, menangkis dengan lengannya. Sesuatu
+ambruk di belakangnya. Ia menyambar umbul-umbul Mu Yi. Dengan menggunakan tiang sebagai tombak panjang,
+ia melawan tombak yang berputar-putar itu.
+
+Sekarang keduanya memegang senjata. Guo Jing menggunakan teknik Tongkat Pengusir Setan yang diajarkan
+oleh Ke Zhen'E. Terlepas dari panjangnya tiang umbul-umbul itu yang agak mengganggunya, ia bisa menerapkan
+semua kehalusan teknik yang dikembangkan Ke Zhen'E untuk melawan Mei Chaofeng ini dengan sangat baik.
+Semua gerakannya menggunakan varian, yang kerap kali tak terduga, namun efektif. Terkesiap melihat
+keampuhan senjata itu, lawannya dipaksa untuk bertahan. Tapi ketangkasan Pangeran itu dalam menggunakan
+tombak masih tetap mengesankan.
+
+Ketika Mu Yi melihat Pangeran itu memegang tombak, ia tercengang. Semua jurus yang diperagakannya sesuai
+dengan jurus tombak keluarga Yang. Teknik yang hanya diturunkan dari ayah ke anak ini sangat jarang terlihat,
+juga bahkan di Selatan. Sekarang ia tercengang ketika melihatnya di ibukota Kekaisaran Jin. Terlepas dari
+gerakannya yang gesit, tetapi versi jurus tombak tersebut tidak sepenuhnya ortodox. Kelihatannya seperti
+kehilangan esensinya, seolah-olah ditiru tanpa pengetahuan yang benar dari pemiliknya yang sah. Para penonton
+melihat ayunan tombak dan tiang umbul-umbul yang saling silang, menghamburkan butiran salju ke segala arah.
+
+Sang Putri yang menyaksikan putranya nyaris berkeringat darah, tidak dapat menahan kecemasannya lagi.
+"Hentikan!" serunya. "Hentikan, kalian berdua jangan berkelahi lagi!"
+
+Mendengar kalimat tersebut, Peng Lianhu maju dengan langkah lebar memasuki arena. Ia memukul tiang umbul-umbul
+itu dengan brutal. Guo Jing merasakan sakit yang tajam di tangannya dan melepaskan tiang itu, yang dengan
+segera terbang jauh. Umbul-umbul itu terpentang lebar di atas salju, dan orang bisa membaca dengan jelas
+tulisan di atasnya yang berbunyi 'Lomba Mencari Jodoh'. Sangat terkejut, Guo Jing bahkan tidak sempat
+melihat dengan jelas muka atau bayangan lawannya, ketika ia merasakan datangnya serangan. Ia melompat 
+ke belakang, tetapi terlambat, telapak tangan Peng Lianhu sudah mencapai lengannya. Ia kehilangan
+keseimbangan dan jatuh.
+
+"Xiao Wangye," kata Peng Lianhu sambil tertawa. "Akan kusingkirkan anak muda yang tidak punya otak ini,
+supaya ia tidak bisa mengganggu lagi..." Ia mengangkat telapak tangannya, menarik nafas, dan mengirimkan
+pukulan brutal ke arah kepala Guo Jing. Guo Jing yang masih di atas tanah tahu bahwa ia tidak punya peluang
+sama sekali, kendatipun demikian ia mengangkat lengannya untuk menangkis. Si Kebaikan Tertinggi Lingzhi dan
+Ginseng Abadi Lian Ziwong saling bertukar pandang. Tangan anak muda itu akan hilang. Pukulan Si Jagal
+Bertangan Seribu sangat keji, dan pasti akan menghancurkan lengannya.
+
+Pada saat kritis itu, sebuah teriakan keluar dari antara penonton. "Tahan!" Sesosok bayangan kelabu
+yang memegang sebuah senjata aneh melompat maju dan membungkus pergelangan tangan kanan Peng Lianhu.
+Peng Lianhu menarik dengan paksa, mematahkan dan menghancurkan senjata itu, lalu menyerang dengan
+tangan kirinya dengan segera. Orang itu mengelak dengan merendahkan kepalanya, sambil memegang pinggang
+Guo Jing dan membawanya menjauh. Para penonton melihat seorang Pendeta Tao setengah baya, memakai baju 
+abu-abu, yang membawa sebuah kebutan di tangannya, yang mana sekarang hanya tersisa tangkainya. Helai-helai
+kebutan yang tercabut itu masih tersisa di pergelangan tangan Peng Lianhu. Mereka saling berpandangan.
+Meskipun hanya bergebrak satu jurus, tetapi mereka berdua sudah bisa saling mengukur kemampuan lawan.
+
+"Tidak diragukan lagi, kau adalah Ketua Peng," kata Si Pendeta. "Satu kehormatan besar bisa bertemu hari ini."
+
+"Dao Zhang terlalu sopan," kata Peng Lianhu. "Boleh aku tahu nama Dao Zhang?"
+
+Sang Pendeta, yang sedang ditatap lekat-lekat oleh semua orang, tidak menjawab. Ia melangkahkan kaki kirinya
+ke depan, lalu menariknya kembali. Orang bisa melihat dengan jelas, ditutupi oleh lapisan salju tipis,
+lubang sedalam sepuluh inci. Tekanan sederhana dari kakinya telah melubangi tanah begitu dalamnya, 
+memamerkan kungfunya yang luar biasa.
+
+Peng Lianhu terkejut dan berkata, "Apa benar Dao Zhang adalah 'Dewa Berkaki Besi', Matahari Batu Pualan, Wang?"
+
+"Nah, sekarang Ketua Peng yang berlebihan," jawab Si Pendeta. "Aku memang Wang Chuyi, tapi aku tidak pantas
+dijuluki _Dewa_."
+
+Peng Lianhu, Liang Ziwong, dan juga Si Kebajikan Tertinggi Lingzhi, tahu bahwa Wang Chuyi adalah anggota
+yang terkenal dari Perguruan Quanzhen. Namanya hanya sedikit di bawah popularitas Qiu Chuji. Mereka hanya
+pernah mendengar, tetapi belum pernah bertemu dengannya. Mereka mengamatinya dengan teliti. Ia seorang pria
+yang berperawakan halus, dengan janggut tipis di dagunya. Ima memakai kaus kaki putih yang sangat rapi, bersepatu
+abu-abu, dan terlihat sangat memperhatikan cara berpakaiannya. Kalau tidak menyaksikan sendiri apa yang baru
+saja diperagakannya, tidak akan ada orang yang percaya bahwa dia adalah seseorang yang dijuluki 
+Dewa Berkaki Besi, yang menjejakkan sebelah kaki di atas tebing, dan _terayun seperti daun teratai di angin_,
+menimbulkan kesan sangat dalam bagi banyak pendekar di Hebei dan Shandong.
+
+Wang Chuyi tersenyum sambil menunjuk ke arah Guo Jing dan berkata, "Aku sama sekali tidak mengenal anak
+muda ini. Tapi melihat dia ikut campur dengan gagah dan berani, aku sangat kagum. Itu sebabnya aku mengijinkan
+diriku sendiri memohon kepada Ketua Peng untuk membiarkan dia hidup."
+
+"Permintaan itu terlalu sopan," kata Peng Lianhu. "dan kalau seorang anggota Perguruan Quanzhen yang ikut
+campur, siapa yang tidak akan memenuhi permintaannya?"
+
+"Baiklah," kata Wang Chuyi sambil merangkapkan kedua tangannya. "Terima kasih..."
+
+Setelah berterima kasih kepada Peng Lianhu, Wang Chuyi menanyakan nama Guo Jing. Lalu ia berpaling, ekspresi
+mukanya berubah gelap ketika bertanya kepada Si Pangeran Muda, "Siapa namamu? Siapa nama gurumu?"
+
+Si Pangeran, setelah mendengar nama Wang Chuyi, seketika merasa sakit, kalau bisa ia ingin segera menghilang.
+Tapi mata Wang Chuyi terus mengawasinya. "Namaku Wanyan Kang," katanya, akhirnya. "Aku tidak bisa menyebutkan
+nama guruku."
+
+"Gurumu punya tahi lalat merah di pipi kirinya ya?" tanya Wang Chuyi. Wanyan Kang ingin mengalihkan pertanyaan
+itu dengan kepandaiannya bicara, tapi tatapan mengerikan dari Pendeta itu membuatnya takut. Ia menahan kalimat
+yang sudah di ujung lidahnya, dan menganggukkan kepala. "Sudah kuduga," kata Wang Chuyi. "Kau murid dari
+Qiu Shixiong. Apa yang dikatakan gurumu sebelum mengajarimu ilmu silat?"
+
+Wanyan Kang mengerti bahwa situasi sudah berubah menjadi tidak bisa dipertahankan lagi baginya. Ia berpikir,
+"Kalau Shifu tahu apa yang terjadi hari ini, segalanya bisa berubah jadi bencana."
+
+"Kalau Dao Zhang kenal guruku," kata Wanyan Kang dengan sikap sopan. "Dao Zhang tentu pantas aku hormati.
+Bagaimana kalau singgah sebentar di kediamanku yang sederhana, supaya aku bisa mendengarkan beberapa
+nasihat dari Dao Zhang?" Sebelum Wang Chuyi sempat menjawab, ia berpaling kepada Guo Jing dan berkata
+sambil membungkukkan badan, "Setelah bertarung, barulah persahabatan bisa tumbuh." Ia tersenyum. "Aku
+sangat mengagumi kungfu Guo Xiong. Aku mengundang kalian berdua untuk mampir supaya kita bisa saling
+berkenalan."
+
+"Dan bagaimana soal pernikahan?" tanya Guo Jing sambil menunjuk ke arah Mu Yi dan putrinya.
+
+Wanyan Kang terlihat agak malu. "Soal ini masih perlu direnungkan..."
+
+"Sobat kecil," kata Mu Yi sambil melangkah mendekat dan menarik lengan jubah Guo Jing. "ayo kita pergi.
+Tidak usah memusingkan dia lagi."
+
+Wanyan Kang membungkuk lagi kepada Wang Chuyi, "Dao Zhang, aku akan menunggu di rumah. Dao Zhang hanya
+perlu bertanya di mana tempat kediaman Pangeran Zhao. Cuacanya sangat dingin, segala sesuatu membeku.
+Rasanya ini saat yang tepat untuk duduk bersama di sekeliling api sambil mengagumi salju. Kita harus
+minum-minum untuk merayakan pertemuan ini. Ia menaiki kudanya, yang sedang dipegang oleh pelayannya,
+lalu memacunya melewati kerumunan penonton tanpa kuatir akan menabrak seseorang. Ulahnya membuat
+Wang Chuyi marah. "Sobat kecil," katanya kepada Guo Jing. "Ayo sini sebentar."
+
+"Aku harus menunggu sahabat baikku," kata Guo Jing. Ketika ia mengatakan kalimat itu, ia melihat 
+Huang Rong melompat dari antara kerumunan dan berseru kepadanya, "Jangan kuatir soal aku, aku akan 
+segera menemukanmu!" Ia berbalik dan sosok mungilnya segera menghilang di antara kerumunan. Hou Tonghai,
+Si Naga Berkepala Tiga mengejar. Guo Jing berbalik dan _kowtow_ di atas salju untuk berterima kasih
+kepada Wang Chuyi yang telah menyelamatkan nyawanya. Pendeta itu mengangkatnya dan memegang tangannya.
+Keduanya segera berjalan melewati kerumunan dan berlari ke pinggiran kota.
