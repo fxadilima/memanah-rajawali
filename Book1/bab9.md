@@ -978,7 +978,7 @@ ia bergantian menyerang dan menghindar. Ia berusaha menyikut salah satu cawan Ho
 tapi Hou Tonghai selalu bisa menghindari serangannya.
 
 Liang Ziwong berpikir, "Kungfu anak ini memang patut dipertimbangkan, tapi ia tetap
-bukan tandingan Hou Tonghai. Siapa yang menang atau kalau bukan urusanku." Perhatian utamanya
+bukan tandingan Hou Tonghai. Siapa yang menang atau kalah bukan urusanku." Perhatian utamanya
 adalah pada obat-obatan herbal berharga di dalam ruang penyimpanan obatnya, jadi ia berpaling
 dan keluar dari ruangan itu untuk mencari pencurinya.
 
