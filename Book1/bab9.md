@@ -368,7 +368,7 @@ matamu." Bersamaan dengan itu, ia menjulurkan jari-jarinya dan membuat gerakan s
 mata orang itu. Si Pengurus Rumah gemetar dan bangkit berdiri. Ia menggertakkan giginya, mengabaikan
 rasa sakit yang teramat sangat, dan buru-buru pergi menuju ke gubuk Sang Putri.
 
-Wanyan Kang masih mengobrol dengan ibunya ketika S Pengurus Rumah tiba-tiba muncul di situ,
+Wanyan Kang masih mengobrol dengan ibunya ketika Si Pengurus Rumah tiba-tiba muncul di situ,
 berkeringat dan menangis. Ia mengulangi semua yang diinstruksikan oleh Huang Rong. Sang Putri
 melihat bahwa mukanya sepucat kertas dan tahu bahwa ia sedangan sangat kesakitan. Ia tidak
 menunggu sampai Wanyan Kang menjawab, dan buru-buru menyuruhnya untuk memberikan obat-obatan itu.
