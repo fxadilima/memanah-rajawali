@@ -1,17 +1,4 @@
-# Tombak Besi dan Bajak Rusak
-
-<div class="w3-container w3-center">
-    <a href="https://youtube.com/clip/UgkxlA5dB8FoEIKGWBehf0YkH3jraEsptJMY" target="_blank">
-        <img src="images/bao-xiruo-bertemu-yang-tiexin.jpg" alt="Bao Xirou Bertemu Yang Tiexin" width="75%"/>
-    </a>
-    <div class="w3-container w3-center">
-        <p><em>
-        Selir Pangeran Zhao itu menghela nafas dan berkata, "Sudahlah, memang putraku yang salah sudah
-        mengganggumu dan putrimu..."
-        </em></p>
-    </div>
-</div>
-
+# Tombak Berkarat dan Bajak Rusak
 
 Guo Jing dan Huang Rong kembali ke kediaman Pangeran Zhao dan melompati tembok tinggi untuk memasuki
 halaman. Huang Rong berbisik ke telinga Guo Jing, "Qing Gong-mu bagus sekali!" Guo Jing mengendap-endap
@@ -1044,7 +1031,7 @@ Guo Jing menjawab, "Ya, _wanbei_ orang yang berkelahi dengan pangeran itu tadi s
 Mu Yi bertanya, "Siapa nama ayahmu?"
 
 "Nama almarhum ayahku Xiaotian." jawab Guo Jing lagi. Waktu masih kecil ia tidak tahu siapa nama
-ayahnya. Hanye setelah bertemu dengan Zhu Cong yang mengajarinya membaca dan menulis barulah
+ayahnya. Hanya setelah bertemu dengan Zhu Cong yang mengajarinya membaca dan menulis barulah
 ia bisa membaca nama ayahnya.
 
 Mu Yi berlinang air mata. Ia mengangkat kepalanya dan berkata dengan lembut, "Surga, oh Surga!"
@@ -1459,5 +1446,405 @@ serangan balik dengan jurus Trisula Malam Menggeledah Lautan. Melihat ini Hou To
 berteriak terkejut, "**Ye Sancha Ji Xun Hai**! Da Ge, bocah tengik ini pasti dari — perguruan
 kita!" 
 
+"Omong kosong!" bentak Sha Tongtian. Ia tahu Huang Rong sudah menggoda dan mempermainkan
+Hou Tonghai agak lama sebelumnya. Kelihatannya gadis itu _mencuri_ gerakan tersebut dari
+gebrakan dengan Hou Tonghai sendiri sebelum ini.
+
+Peng Lianhu tidak bisa menahan tawa ketika ia berputar untuk menyerang lagi. Huang Rong
+memiringkan tubuhnya ke kiri, dan tanpa menekuk lutut maupun melangkah tiba-tiba
+ia sudah 'bergeser' ke samping.
+
+Hou Tonghai lagi-lagi berseru, "**Ganti Gaya Tukar Tempat**! Da Ge, kau mengajari dia ya?"
+
+Sha Tongtian juga lagi-lagi membentaknya, "Kau bisa diam tidak? Kau selalu bicara seperti
+orang tolol!" Namun demikian, dalam hati ia diam-diam mengagumi kecerdasan dan keterampilan
+Huang Rong, mampu belajar dasar-dasar gerakan seperti itu hanya dengan melihat sekilas, Meskipun
+cara melakukan gerakan tersebut tidak sepenuhnya tepat, ia sudah bisa menghindari serangan
+maut Peng Lianhu. Ini prestasi yang luar biasa!
+
+Sementara pertarungan itu berlanjut, Huang Rong menyerang menggunakan jurus 
+'Arwah Menghempas Pisau', diikuti dengan 'Arwah Menyambar Cambuk'. Ketika Hou Tonghai
+melihat serangan tersebut dan mendengar anak itu bersuara 'Yi Yi Yi' mengiringi setiap
+pukulan, ia tak dapat menahan diri dan berteriak lagi, "Da Ge, bocah tengik ini _pasti_
+dari perguruan kita..." Kalau tidak melihat muka Sha Tongtian yang semakin murka, berikutnya
+ia pasti akan menyebutkan nama-nama gerakan itu.
+
+Peng Lianhu juga semakin marah. Ia berpikir, "Sejauh ini aku sudah berbaik hati dan menyerang
+dengan hati-hati, tapi anak ini lebih licik dari _Yaonu_ (妖女, 'Tukang Sihir'). Kalau tidak
+menggunakan cara kejam aku tidak akan bisa menebak asal-usul kungfunya."
+
+Setelah mempelajari dasar-dasar ilmu silat, biasanya orang akan memilih gaya dari beberapa
+perguruan lain yang berbeda. Dengan berjalannya waktu ia bisa jadi cukup akrab dengan 
+gerakan-gerakan tersebut. Tetapi dalam pertarungan hidup-mati, mereka akan selalu kembali 
+pada _akar_ dari ilmu yang mereka pelajari sendiri, dan biasanya akan memakai gaya yang 
+paling dikuasainya, atau yang pertama kalinya ia pelajari.
+
+Empat serangan awal Peng Lianhu cukup lunak, dan tidak mengandung maksud untuk melukai
+lawan. Tetapi mulai dari serangan kelima, gerakannya berubah menjadi seperti angin puyuh.
+Ketika para penonton menyaksikan hal itu, mereka jadi agak kuatir. Tak seorang pun tahu
+latar belakang anak itu, dan meskipun ia keras kepala, tak seorang pun punya permusuhan
+pribadi atau ingin melihat seorang anak perempuan yang begitu cantik dan lucu terluka
+parah.
+
+Tak seorang pun — kecuali Hou Tonghai, yang sedang berpikir, "Makin cepat bocah tengik
+ini mati, tentu lebih baik!"
+
+Huang Rong masih terus menyembunyikan ilmunya sendiri dan sekarang menggunakan teknik
+yang ditiru dari Perguruan Wanyan Kang, yaitu Quanzhen, dan juga meminjam 'Tinju Pegunungan Selatan'
+dari Guo Jing. Ia kebetulan melihat kedua gaya itu ketika Guo Jing dan Wanyan Kang bertarung
+sengit di arena 'Mencari Jodoh'. Selanjutnya ia bahkan meminjam teknik Peng Lianhu
+sendiri, yaitu 'Penetrasi Tiga Jurus', yang baru dilihatnya enam jurus yang lalu! Tapi
+sekarang situasinya berkembang menjadi lebih berbahaya lagi. Bahkan di dalam pertarungan
+serius yang menggunakan seluruh kemampuannya sendiri sekali pun, Huang Rong tidak akan
+mampu bertahan, mana mungkin dia terus-terusan memakai akal-akalan meminjam teknik orang
+lain yang hanya dilihat sekilas? Ia bertaruh dengan keyakinan bahwa meskipun Peng Lianhu
+menggunakan jurus-jurus maut, tetapi ia tetap tidak akan sampai hati membunuhnya.
+
+Saat itu Ouyang Ke berpikir, "Nona cilik ini sungguh cerdik. Dia mampu bertahan melawan
+jurus-jurus maut Si Peng itu." Ia berkata keras-keras, "Aiyo! Hati-hati, hati-hati...!
+Kenapa kau tidak mengelak ke kiri?"
+
+Teknik Peng Lianhu memakai campuran yang brilian antara gerakan tipuan dan yang sebenarnya,
+ia bisa memakainya saling bergantian seenaknya. Pada jurus ke delapan ia melancarkan serangan
+tipuan dengan tangan kiri dan serangan asli dengan tangan kanan. Huang Rong menduga bahwa ia akan
+melakukan kebalikannya dalam gerakan selanjutnya, yaitu serangan tipuan tangan kanan, sambil
+menyerang dengan tangan kirinya. Ini berarti ia harus menghindar ke kanan, tetapi setelah
+mendengar ocehan Ouyang Ke, ia segera mengubah niatnya dan melompat ke kiri dengan elegan.
+Perubahan mendadak itu sangat indah, dan ternyata tidak ada orang yang mengenalinya.
+
+Ketika Peng Lianhu mendengar Ouyang Ke berkomentar di saat kritis, ia jadi sangat marah. Ia
+berpikir, "Kau kira aku tidak akan membunuhmu kalau memang perlu ya, anak bodoh!" Julukannya
+Jagal Bertangan Seribu itu tentulah bukan julukan kosong. Perangainya memang sangat kejam 
+kalau sudah marah. Waktu pertama kalinya melihat Huang Rong, ia berpikir bahwa membunuh anak
+yang masih sekecil itu, apalagi dia perempuan, agak memalukan. Tapi sekarang, dalam taruhan
+yang hanya tersisa dua jurus lagi ia belum juga bisa menebak asal-usul anak itu, ia sangat
+marah dan tidak lagi peduli. Ia menerjang dengan 'Mendobrak Pintu dan Memandang Rembulan',
+menggunakan seluruh tenaganya, tangan kiri menggunakan 'Yin', tangan kanan menggunakan 'Yang',
+satu lembut, lainnya keras, secara serentak.
+
+Huang Rong tahu bahwa situasinya sangat genting. Ia melangkah mundur ketika melihat kedua
+tinju datang menerjang ke mukanya. Yang bisa dilakukannya hanya menundukkan kepalanya, 
+menekuk kedua lengannya, mengarahkan kedua sikunya ke depan dan menyerang dada lawan.
+
+Peng Lianhu mengharapkan lawannya akan berusaha menangkis serangan itu dan bermaksud
+meneruskan dengan jurus ke sepuluh. Tetapi ia terperanjat melihat gadis itu sanggup melakukan
+serangan balik melawan serangan ganas itu. Ia sudah setengah jalan dalam serangannya yang
+terakhir, tetapi harus segera menghimpun tenaga dalam untuk menghentikannya, ini seperti
+menarik tali kekang kuda kuat-kuat ketika kuda itu sedang berlari kencang untuk mencegahnya
+masuk jurang. "Kau murid dari Sepasang Iblis!" teriaknya dengan suara gemetar.
+
+Huang Rong mundur beberapa langkah. Ketika Peng Lianhu menyerukan kalimat itu, sebuah
+gelombang kengerian melanda ruangan itu. Semua orang, kecuali Pangeran Zhao, tahu betapa
+mengerikannya Sepasang Iblis. Sekarang bahkan Si Jagal Bertangan Seribu, Peng Lianhu,
+takut untuk menyentuhnya. 
+
+Sebelum Huang Rong bisa mengatakan apa-apa, terdengar suara jeritan memecahkan keheningan
+malam. Itu suara Guo Jing, dan kedengarannya ia sedang dalam bahaya besar. Huang Rong tiba-tiba
+merasa kuatir akan keselamatannya dan mukanya berubah pucat.
+
+***
+
+Tangan dan kaki Guo Jing ditangkap oleh Liang Ziwong. Ia sama sekali tidak bisa bergerak,
+tetapi ketika ia melihat muka Liang Ziwong semakin dekat untuk menggigit lehernya, ia mendadak
+merasakan dorongan tenaga yang sangat kuat, yang timbul akibat rasa putus asa dan panik.
+Ia membuat gerakan 'Ikan Mas Meliuk Ke Belakang' untuk membebaskan diri dan melompat bangkit.
+Liang Ziwong kembali menyerang. Guo Jing mencoba melompat menjauh, tetapi kecepatan Liang Ziwong
+seperti angin dan ia tidak bisa meloloskan diri.
+
+Punggungnya terkena pukulan telak dan itu sama sekali bukan seperti terkena pukulan Wanyan Kang. Pukulan
+itu rasanya seperti menembus sampai ke tulang. Guo Jing merasa sangat ketakutan dan ia tidak menunggu
+sampai datang pukulan berikutnya. Ia terus berlari lurus ke depan. Ilmu meringankan tubuhnya sangat 
+bagus dan ia menggunakannya habis-habisan untuk berlari melewati pepohonan dan bebatuan di kebun
+itu. Liang Ziwong tidak bisa mengimbangi kecepatannya.
+
+Awalnya Guo Jing memang berlari sangat kencang, tetapi setelah beberapa saat ia mulai melambat
+dan ia mulai terengah-engah. Baju di bagian punggungnya berlubang besar dan ia merasa punggungnya
+sangat sakit akibat pukulan telak Liang Ziwong. Ia berpikir bahwa pukulan terakhir dari Liang Ziwong
+itu pastilah sebuah cakaran dan sepertinya sebagian dagingnya terbawa bersama dengan robekan bajunya
+itu. Sekarang ia sangat kuatir dan celingukan mencari-cari tempat persembunyian. Di hadapannya adalah
+jalan menuju gubuk milik Selir Pangeran itu. Ia buru-buru ke sana dengan harapan tidak ada orang
+yang akan mencarinya di situ, dan setelah keadaan agak tenang ia akan bisa melarikan diri. Ia 
+menyandarkan diri ke dinding di bagian belakang gubuk itu dan tidak berani bergerak sedikit pun. 
+Tak lama kemudian ia mendengar suara Liang Ziwong dan Wanyan Kang bersahut-sahutan, semakin mendekat.
+Liang Ziwong sangat marah dan tidak dapat mengendalikan emosinya, sehingga berteriak memanggil.
+
+Guo Jing berpikir dengan cemas, "Kalau aku terus di sini, tinggal tunggu waktu sampai mereka
+menemukan aku. Selir itu kelihatannya baik hati, mungkin dia mau menyelamatkan aku." Karena
+situasinya sangat mendesak, ia tidak punya waktu untuk terlalu banyak berpikir dan ia buru-buru
+menyelinap ke dalam rumah. Di dalam, ia menemukan sebatang lilin menyala di atas meja, di
+tengah-tengah ruangan. Ia memandang sekelilingnya dan melihat sebuah lemari kayu di sudut timur,
+yang langsung dibukanya, lalu masuk bersembunyi di situ. Pintu lemari itu dibiarkannya sedikit
+terbuka untuk membiarkan udara masuk dan supaya ia bisa meliha keluar. Lalu ia mengambil belatinya
+dan mencoba untuk bersikap tenang.
+
+Ia mendengar suara langkah kaki dan melihat Wang Fei itu berjalan perlahan memasuki ruangan. Ia
+duduk di belakang meja sambil memandangi lilin, sepertinya sedang melamun. Tak lama kemudian,
+Wanyan Kang masuk dan bertanya, "_Niang_, apa ada penjahat masuk dan membuatmu takut?"
+
+Wang Fei menggelengkan kepalanya, jadi Wanyan Kang keluar lagi dan meneruskan pencariannya
+ke tempat lain bersama dengan Liang Ziwong.
+
+Sambil berdebar-debar, Guo Jing merasa lega. Ibu Wanyan Kang menutup pintu dan sepertinya ia
+akan beristirahat. Guo Jing berpikir, "Begitu ia meniup lilin, aku akan menyelinap keluar dari
+jendela dan lari. Ah, tidak – rasanya leih baik aku tunggu sebentar di sini, jangan-jangan
+aku kepergok Wanyan Kang dan Si Ubanan itu lagi. Orang gila itu ingin menggigit leherku.
+Itu betul-betul kungfu aneh! Guru-guruku tidak pernah mengajarkan yang seperti itu. Aku harus
+tanya mereka nanti kalau ketemu. Masa berkeliaran sambil mnggigit leher orang! Apa itu?"
+Lalu pikiran lain hinggap di benaknya, "Setelah lama berkelahi dan pergi agak jauh, mustinya
+Huang Rong sekarang sudah pergi. Sebaiknya aku juga langsung pergi, nanti dia jadi bertanya-tanya
+kenapa aku lama sekali."
+
+Tiba-tiba jendela berderit dan terbuka, dan seseorang melompat masuk. Wang Fei dan juga
+Guo Jing sangat terkejut. Ia menjerit tertahan, tetapi Guo Jing mengenali bahwa orang yang
+baru datang itu ternyata Mu Yi, atau saat itu adalah Yang Tiexin. Setelah menyadari hal ini,
+Guo Jing terkesiap. Ia beranggapan bahwa Yang Tiexin dan anaknya sudah melarikan diri dari 
+situ lama sebelumnya.
+
+Ketika Wang Fei itu mengenalinya, ia segera berkata, "Cepat, pergi dari sini, sebelum ada yang
+melihatmu."
+
+[![Yang Tiexin menemui Selir Pangeran](images/bao-xiruo-bertemu-yang-tiexin.jpg)](https://youtube.com/clip/UgkxlA5dB8FoEIKGWBehf0YkH3jraEsptJMY)
+
+
+Yang Tiexin menjawab, "Terima kasih banyak atas segala perhatian _Wang Fei_. Kalau _Zai Xia_ (载下, saya)
+tidak datang sendiri untuk mengucapkan terima kasih, _Zai Xia_ akan menyesal seumur hidup." Kalimat
+yang diucapkannya mengandung semacam sindiran tajam, karena penuh dengan kepahitan.
+
+Si Wang Fei menghela nafas dan berkata, "Sudahlah. Anakku yang bersalah kepada kalian berdua,
+ayah dan anak." Yang Tiexin memandang ke sekeliling dan melihat bahwa kecuali meja, lampu,
+tempat tidur dan lemari, tidak banyak barang-barang lain yang ada di situ. Semuanya terlihat
+sudah tua, bekas pakai dan sangat _familiar_. Ia tiba-tiba merasakan sebuah gelombang kesedihan
+dan ia tak dapat menahan air mata turun menetes di pipinya. Ia mengusap mata dengan lengan bajunya
+dan berjalan menuju ke dinding, di mana tergantung sebatang tombak. Ia menurunkan tombak itu dan melihat
+bahwa tombak itu sudah dipenuhi karat. Ia masih bisa membaca empat karakter 'Tiexin Keluar Yang'
+yang tertera di atas mata tombak itu.
+
+Ia mengetuk gagang tombak itu dengan lembut sambil menghela nafas, "Tombak besi ini sudah berkarat.
+Ini sudah lama tidak dipakai."
+
+Wang Fei berkata dengan lembut, "Tolong jangan sentuh tombak itu."
+
+"Mengapa?" tanya Yang Tiexin.
+
+"Karena tombak itu barang paling berharga yang aku miliki." gumamnya.
+
+Yang Tiexin tiba-tiba marah. "Betulkah?" Ia bertanya dengan nada pahit. Ia berhenti sejenak
+sebelum melanjutkan, "Tombak ini dulunya punya pasangan, tapi hari ini hanya satu yang tersisa."
+
+"Apa?" tanya WangFei terkejut. Tetapi Yang Tiexin tidak menjawab. Ia menggantungkan kembali
+tombak itu ke dinding dan menatap mata bajak yang rusak sambil berkata dengan pikiran menerawang,
+"Mata bajaknya sudah aus. Besok kau panggil si Zhang Mu'Er di desa sebelah Timur untuk
+mengambil beberapa kati besi, mungkin dia bisa memperbaikinya."
+
+Ketika Wang Fei mendengar ini, ia merasa seolah-olah tersambar petir. Untuk sesaat ia tidak bisa
+bersuara, sementara ia mengamati Yang Tiexin lekat-lekat. Akhirnya ia tergagap, "Kau... kau siapa?"
+
+Yang Tiexin menjawab perlahan tetapi jelas, "Aku bilang mata bajaknya sudah aus. Besok kau panggil 
+si Zhang Mu'Er di desa sebelah Timur untuk mengambil beberapa kati besi, mungkin dia bisa 
+memperbaikinya."
+
+Wanita itu merasa kakinya lemas. Ia lagi-lagi tergagap, "Kau... kau siapa? Bagaimana... bagaimana
+kau bisa tahu apa yang dikatakan... dikatakan suamiku pada malam ia meninggal?"
+
+Wang Fei — Selir Pangeran Zhao — adalah Bao Xiruo, istri Yang Tiexin. Ketika Wanyan Honglie
+terluka oleh panah yang dilontarkan Qiu Chuji pada hari itu, di Desa Niu, Bao Xiruo menyelamatkan
+nyawanya. Ketika ia melihat seorang wanita yang begitu cantik telah menyelamatkan nyawanya,
+ia tak bisa berhenti memikirkan Bao Xiruo setelah berhasil melarikan diri malam itu. Ia lalu 
+menyogok Duan Tiande untuk menyuruh prajuritnya menggerebek Desa Niu, supaya ia bisa mengatur
+sebuah aksi 'penyelamatan' bagi Bao Xiruo, dan muncul sebagai pahlawan. Begitu suami dan teman-temannya
+tewas, wanita itu pasti akan mencari 'penyelamatnya' untuk mencari perlindungan. Kalau ia bisa membawanya
+ke Utara, dan cukup sabar menunggu, cepat atau lambat wanita itu pasti akan melupakan harapannya untuk
+pulang, dan setuju untuk menikahinya, dan memulai hidup baru bersamanya.
+
+Selama delapan belas tahun di istana, wajahnya hampir tidak berubah. Sebaliknya, wajah 
+Yang Tiexin yang menjalani kehidupan sangat keras, yang ditemuinya di sepanjang petualangannya
+di jalanan untuk mencari istrinya dan juga Li Ping, berubah dengan sangat drastis. Sekarang,
+ketika mereka berdua kembali bertemu, mula-mula ia tidak dapat mengenali mantan suaminya.
+Setelah sekian lama merindukannya dan begitu berharap untuk bisa bertemu lagi, malam itu,
+yang sebetulnya dalam situasi berbahaya, ia merasa seperti sedang bermimpi.
+
+Yang Tiexin tidak menjawab, ia hanya berjalan mendekati meja dan membuka laci. Di dalamnya,
+ia melihat beberapa perangkat jubah pria berwarna biru, tepat sama seperti yang dulu biasa
+dipakainya. Ia mengambil salah satu sambil berkata, "Bajuku sudah cukup banyak. Kau lelah
+dan harus istirahat sekarang, apalagi kau sedang hamil. Tidak usah membuat baju lagi untuk
+aku." Kata-kata ini sama seperti yang diucapkannya sendiri delapan belas tahun yang lalu,
+saat istrinya sedang hamil.
+
+Bao Xiruo bergegas ke sisinya dan memegang lengan jubahnya. Ketika ia menariknya ke atas,
+ia melihat sebuah bekas luka. Rasa terkejut dan bahagia tiba-tiba meliputinya. Selama 
+delapan belas tahun ia mengira suaminya sudah tewas, dan sekarang melihatnya sedang berdiri
+di hadapannya adalah seperti melihat hantu. Ia segera memeluknya erat-erat dan menangis,
+"Cepat! Cepat bawa aku bersamamu. Kita pergi dari sini sekarang juga. Akan kutunjukkan
+jalan rahasia supaya kita bisa lari tanpa ketahuan. Aku tidak takut hantu. Aku lebih baik
+jadi hantu tapi bersamamu daripada berpisah denganmu lagi."
+
+Yang Tiexin memegang tangan istrinya sementara air mata hangat turun membasahi pipinya.
+Setelah beberapa saat ia bertanya dengan lembut, "Kau kira aku hantu?"
+
+"Aku tidak peduli kau manusia atau hantu, pokoknya aku tidak mau melepaskanmu lagi." Ia terisak.
+"Bagaimana mungkin kau masih hidup? Setelah sekian tahun aku tidak percaya kalau kau masih hidup.
+Di mana... apa..."
+
+Yang Tiexin baru saja membuka mulut untuk menjawab, ketika suara Wanyan Kang tiba-tiba terdengar
+memanggil ibunya dari luar jendela, "_Niang_, kenapa menangis? Kau sedang bicara dengan siapa?"
+
+Bao Xiruo ketakutan. "Tidak apa-apa," sahutnya. "Aku hanya bermimpi."
+
+Wanyan Kang jelas sekali mendengar bahwa ada suara seorang pria sedang berbicara di dalam
+gubuk itu. Ia dengan segera menjadi curiga dan berjalan mengitari gubuk ke arah pintu,
+mengetuk perlahan dan berkata, "_Niang_, aku mau bicara sebentar."
+
+"Besok," kata ibunya. "Kita bicara besok. Sekarang aku sangat lelah, aku ingin tidur."
+
+Ketika Wanyan Kang mendengar ibunya tidak mau membuka pintu, kecurigaannya semakin besar.
+"Aku hanya mau bicara sebentar, lalu aku pergi."
+
+Yang Tiexin tahu bahwa Wanyan Kang sudah bertekad untuk masuk, maka ia berjalan ke arah 
+jendela dengan maksud untuk cepat-cepat lari. Ia berusaha membukanya, tapi ia terkejut
+karena ternyata tidak bisa bergerak. Seseorang telah menutupnya dari luar! Bao Xiruo
+panik. Ia berpikir untuk mengulur waktu sambil terus bicara, sementara Yang Tiexin 
+mencari tempat untuk bersembunyi. Ia buru-buru menunjuk ke arah lemari pakaian dan
+memberi isyarat supaya suaminya segera bersembunyi di situ. Alangkah kagetnya mereka
+ketika membuka pintu lemari dan menemukan Guo Jing di dalamnya! Bao Xiruo tidak dapat
+menahan keterkejutannya dan menjerit pelan.
+
+Ketika mendengarnya, Wanyan Kang menjadi sangat cemas. Ia mengira ada orang sedang 
+berusaha mencelakai ibunya. Jadi ia mulai berusaha mendobrak pintu dengan bahunya.
+Tak ada waktu lagi, Guo Jing memegang tangan Yang Tiexin dan menariknya ke dalam
+lemari dan menutup pintunya tepat pada saat palang pintu depan rumah patah dengan
+suara keras. Wanyan Kang bergegas masuk. Ia melihat wajah ibunya pucat dan ketakutan,
+dan pipinya basah oleh air mata. Tetapi kecuali ibunya ternyata tidak ada orang lain
+di dalam ruangan itu.
+
+"_Niang_, ada apa? Apa yang sudah terjadi?" tanyanya dengan nada cemas.
+
+Bao Xiruo berusaha menenangkan diri sebelum berkata, "Tidak ada apa-apa. Aku cuma
+merasa kurang sehat."
+
+Wanyan Kang bergegas mendekatinya dan berkata, "Niang, aku janji, aku tidak akan
+berbuat bodoh lagi. Tolong jangan kuatir. Aku sudah sering membuat Niang kuatir."
+
+"Baiklah," kata ibunya dengan nada menghibur. "Aku lelah sekali. Tolong biarkan aku 
+beristirahat. Aku sangat lelah dan ingin tidur."
+
+Tapi Wanyan Kang mendengar suaranya bergetar dan berkata, "_Niang_, betulkah tidak ada orang
+ke sini belakangan ini?"
+
+"Siapa?" tanya ibunya.
+
+"Belakangan ini, beberapa orang bandit masuk ke istana."
+
+"Betulkan?" kata ibunya. "Kau juga seharusnya tidur sekarang. Jangan terlalu memikirkan persoalan
+semacam ini."
+
+Wanyan Kang berkata, "Yah, aku yakin para pengawal, meskipun mereka tidak berguna, pasti bisa
+menangani bandit-bandit itu. _Niang_ tidak usah kuatir. Istirahat saja."
+
+Ia sudah hampir meninggalkan ruangan ketika matanya melihat ada ujung jubah pria terselip
+di pintu lemari yang tidak tertutup rapat, meninggalkan celah sangat kecil. Sekarang ia tahu
+bahwa sesuatu yang aneh sungguh terjadi di situ. Ia langsung membatalkan niatnya untuk pergi,
+dan duduk di meja, lalu menuang sedikit teh untuk dirinya sendiri dan meminumnya pelan-pelan
+sambil memikirkan apa yang sebaiknya dilakukan. "Ada seorang pria bersembunyi di lemari, tapi 
+aku tidak tahu apakah ibu sudah tahu tentang hal ini." Ia menyeruput tehnya beberapa kali,
+lalu bangkit berdiri dan pelan-pelan berjalan ke arah dinding di mana tombak Yang Tiexin
+digantungkan. "_Niang_, menurut _Niang_ ilmu tombak Hai'Er tadi siang bagaimana?"
+
+"Aku sudah bilang, aku tidak suka melihatmu menggunakan kungfu untuk menganiaya orang lain,"
+kata Bao Xiruo dengan nada tidak setuju. 
+
+Wanyan Kang menjawab dengan nada tersinggung, "Menganiaya orang? Aku hanya bertanding satu
+lawan satu dalam pertandingan yang adil dengan anak bodoh itu." Ia kemudian mengambil tombak
+itu dari dinding dan memain-mainkan beberapa jurus. Rumbai-rumbai di ujung tombak itu menari-nari
+ketika ia menusuk lurus mengincar tepat ke arah lemari. Kalau tusukan itu sampai menembus pintu,
+Yang Tiexin dan Guo Jing, yang tidak bisa melihat apa yang terjadi, tidak punya harapan untuk
+mengatasinya. Mereka pasti akan tewas. Melihat itu Bao Xiruo pingsan seketika!
+
+Wanyan Kang menghentikan serangannya. Melihat reaksi ibunya ia segera tahu bahwa ibunya
+sudah tahu mengenai orang yang bersembunyi di dalam lemari. Sambil menopang tombak di
+sisi tubuhnya, ia mengangkat ibunya, tapi matanya masih mengawasi lemari untuk mengantisipasi
+adanya suatu gerakan yang mencurigakan.
+
+Pelan-pelan Bao Xiruo sadar dari pingsannya dan ketika ia melihat lemari itu masih tertutup,
+tanpa tanda-tanda berlubang akibat tusukan tombak, ia segera merasakan kelegaan tak terkira.
+Setelah mengalami naik-turunnya emosi selama beberapa jam, ia merasa sekujur tubuhnya sangat
+lemah.
+
+Wanyan Kang sangat marah, "_Niang_, aku ini anakmu atau bukan?" desaknya.
+
+"Tentu saja kau anakku. Kenapa bertanya begitu?"
+
+"Yah, lalu kenapa _Niang_ menyimpan begitu banyak rahasia?"
+
+Bao Xiruo berpikir, "Aku harus memberi tahu dia tentang peristiwa hari ini, supaya dia bisa
+bersatu dengan ayah kandungnya. Setelah itu aku akan bunuh diri, karena aku sudah sangat bersalah
+keppada suamiku. Dalam kehidupan ini aku tidak akan bisa bersatu lagi dengan suamiku
+Tiexin..." Berpikir sampai di sini, ia lagi-lagi mencucurkan air mata, yang sekarang tidak ditahan lagi.
+
+Ketika Wanyan Kang melihat ibunya bertingkah sangat aneh hari ini, ia bahkan tidak tahu
+apa yang harus dipikirkannya. Akhirnya Bao Xiruo berkata, "Coba kau duduk dulu dan dengarkan aku bicara
+baik-baik." Wanyan Kang duduk sesuai perintah ibunya, tetapi ia tetap ada di dekat tombak dan terus
+mengawasi lemari.
+
+Bao Xiruo bertanya, "Kau lihat empat karakter yang tertulis di tombak itu?"
+
+"Waktu masih kecil, aku tanya tentang artinya, tapi _Niang_ tidak mau menjawab apa artinya
+'Yang Tiexin'."
+
+"Nah, sekarang juga akan kukatakan apa artinya."
+
+Yang Tiexin yang bersembunyi di dalam lemari bisa mendengar dengan sangat jelas percakapan
+ibu dan anak itu. Karena secara alamiah ia impulsif, maka ia berpikir, "Dia sekarang adalah
+seorang Wang Fei — Selir dari seorang Pangeran. Bagaimana mungkin dia masih mau tinggal bersama
+aku di gubuk kumuh sebagai istri orang kampung? Dia mau menceritakan siapa aku, apa mungkin
+dia bermaksud menyuruh anaknya membunuh aku?"
+
+Ia mendengar Bao Xiruo melanjutkan, "Tombak ini asalnya dari sebuah tempat yang bernama Desa Niu,
+di Jiangnan, di dekat kota Negeri Song, Lin'an. Aku menyuruh orang untuk menempuh perjalanan
+jauh sampai ke situ untuk mengambilnya. Bajak itu, meja ini, lampu, tempat tidur, lemari, semuanya
+yang ada di sini berasal dari Desa Niu."
+
+Wanyan Kang menyela, "Aku sungguh tidak mengerti mengapa _Niang_ bersikeras untuk tinggal
+di gubuk yang tua dan kumuh seperti ini. Aku bisa memberikan barang-barang yang paling indah
+untuk _Niang_, tapi _Niang_ selalu menolak!"
+
+"Kau bilang tempat ini kumuh. Tapi bagiku ini lebih bagus daripada istana yang dihias paling
+lengkap sekalipun! _Hai'Er_ (Anakku Sayang), kau tidak beruntung — kau belum pernah tinggal bersama
+ayah dan ibumu yang sejati di dalam tempat kumuh seperti itu."
+
+Ketika Yang Tiexin mendengar kalimat itu, ia tiba-tiba merasakan gejolak emosi dan tidak kuasa
+menahan air matanya lagi.
+
+Wanyan Kang tertawa, "_Niang_, semakin bicara, _Niang_ jadi semakin aneh. Mana mungkin ayah bisa
+tinggal di tempat seperti ini?"
+
+Bao Xiruo menghela nafas, "Ayahmu yang malang bertualang ke segala penjuru negeri selama delapan
+belas tahun, tinggal di tengah-tengah _Jianghu_. Dia tidak pernah punya kesempatan untuk hidup
+damai di rumah bahkan untuk sehari."
+
+Ketika Wanyan Kang mendengar ini, matanya terbelalak lebar dan bertanya dengan suara gemetar,
+"_Niang_, sebetulnya _Niang_ mau bilang apa?"
+
+Bao Xiruo bertanya dengan suara tajam, "Kau pikir _siapa_ ayahmu yang sebenarnya?"
+
+Wanyan Kang bingung. Ia berkata, "Ayahku adalah Pangeran Zhao dari Kekaisaran Jin. _Niang_... mengapa
+_Niang_ menanyakan semua ini?"
+
+Bao Xiruo bangkit berdiri dan mengambil tombak itu, menimangnya di tangan, dan dengan berurai
+air mata ia berkata lagi, "Hai'Er, kau tidak tahu, jadi aku tidak bisa menyalahkanmu. Ini...
+ini adalah tombak dari ayahmu yang sejati, yang dia gunakan bertahun-tahun yang lalu..." Sambil
+menunjuk empat karakter yang tertera di tombak itu ia melanjutkan, "Ini adalah nama ayahmu yang 
+sebenarnya!"
+
+Wanyan Kang merasa sekujur tubuhnya gemetar. "_Niang_!" teriaknya. "_Niang_ bicara omong kosong!
+_Niang_ pasti sudah gila. Aku mau panggil tabib."
+
+"Apa aku sungguh omong kosong? Kau bilang kau seorang Jin? Kau seorang Song! Namamu sebenarnya
+bukan Wanyan Kang, sebenarnya Yang — Yang Kang!"
+
+Wanyan Kang _shock_ dan sangat marah. Ia berpaling hendak meninggalkan gubuk itu. "Aku mau tanya
+ayah."
+
+Bao Xiruo memanggil, "Ayahmu ada di sana!" Dengan gagah berani ia melangkah menuju ke arah lemari,
+lalu membuka pintunya dan memegang tangan Yang Tiexin untuk membawanya keluar ke dalam ruangan itu.
 
 
