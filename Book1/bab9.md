@@ -605,7 +605,7 @@ di balik semua _omong kosong_ itu tersembunyi sebuah rahasia yang teramat sangat
        Judul yang pertama, yaitu Pu Sa Man saya temukan melalui Google Translate ditambah sedikit
        logika, karena Buddha akan diucapkan sesuai kata itu sendiri (Pu Sa). Sedangkan Man (蛮) memiliki
        makna yang cukup bervariasi, dan kelihatannya bisa tidak berhubungan dari satu ke lain makna.
-       Salah satunya yang berupa _noun_ , memang adalah 'Barbarian'. Tetapi ketiga karakter itu kalau 
+       Salah satunya yang berupa <em>noun</em>, memang adalah 'Barbarian'. Tetapi ketiga karakter itu kalau 
        disusun dengan urutan di atas seperti tidak bermakna.
     </p>
     <p>
