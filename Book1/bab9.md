@@ -1039,7 +1039,7 @@ yang lemah setelah cedera, seolah-olah nama itu tidak terdaftar di dalam ingatan
 kata itu 'Guo Jing' menyambar otaknya seperti halilintar. Dengan suara gemetar ia bertanya, "Apa?
 Guo Jing? Kau — namamu — margamu Guo?"
 
-Guo Jing menjawab, "Ya, _wanbei_ orang yang berkelahi dengan pangeran itu hari tadi siang."
+Guo Jing menjawab, "Ya, _wanbei_ orang yang berkelahi dengan pangeran itu tadi siang."
 
 Mu Yi bertanya, "Siapa nama ayahmu?"
 
