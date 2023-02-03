@@ -1405,5 +1405,59 @@ Huang Rong segera meluncur keluar dan tertawa. "Haha! Kau terjebak. satu menit y
 kalau aku bisa melewati pintu kau akan mengaku kalah dan akan melepaskan aku. Nah, sekarang aku di luar, kan?
 Apa aku tidak melewati pintu? Kau tidak bisa melanggar janjimu sendiri, kan?"
 
+Meskipun Sha Tongtian tahu behwa Huang Rong menjebaknya, tapi anak itu benar, ia terikat
+oleh kata-katanya sendiri dan tidak bisa mengingkari apa yang sudah dijanjikannya. Ia
+menggaruk kepalanya yang botak dan mukanya merah padam, tapi ia tidak tahu harus berbuat apa.
+
+Di lain pihak, Peng Lianhu tidak mau membiarkan Huang Rong lolos. Ia mendadak melontarkan
+beberapa _fei biao_ (飞镖, senjata rahasia berbentuk anak panah kecil) ke arahnya. 
+Senjata-senjata itu sangat cepat tetapi semuanya mengincar belakang kepala gadis itu, dan
+bukan secara langsung ke arahnya. Namun demikian, ketika menghantam pilar di depan pintu masuk,
+semuanya memantul ke arah gadis itu. Semua _fei biao_ itu terlalu cepat untuk ditangkap oleh
+Huang Rong, sehingga ia tidak punya pilihan selain melompat ke depan untuk menghindarinya.
+_Fei biao_ yang dilontarkan Peng Lianhu ternyata masih terus melaju seperti arus air dan 
+masing-masing memaksanya bergerak ke depan beberapa inci. Sebelum ia sadar, ternyata ia 
+sudah kembali ke dalam ruangan itu lagi.
+
+Tujuan Peng Lianhu sejak awal adalah memaksanya kembali ke dalam ruangan, dan semua orang
+yang melihat aksi itu bersorak memuji keterampilannya. Ia hanya tertawa dan berkata,
+"Apa ini? Kau _masuk_ lagi?"
+
+Huang Rong mengomel dengan wajah muram, "Hm! Pakai senjata rahasia untuk menganiaya
+anak kecil, apanya yang hebat!"
+
+"Siapa yang menganiaya kamu?" tanyanya heran. "Aku bahkan sama sekali tidak menyentuhmu
+atau melukaimu!"
+
+"Kalau begitu biarkan aku pergi," sahut Huang Rong marah.
+
+"Katakan dulu siapa yang mengajarimu kungfu," desaknya.
+
+Huang Rong tersenyum dan berkata, "Aku belajar sendiri sejak di dalam kandungan ibuku!"
+
+Peng Lianhu berkata, "Kalau tidak mau bilang, aku akan cari jalan lain!" Ia mengulurkan 
+tangannya lurus ke arah bahu gadis kecil itu. Huang Rong tidak bergerak atau berusaha
+menangkis serangan itu. Ia tahu Peng Lianhu tidak akan berani bertindak secara tidak 
+tahu malu dengan memukul anak perempuan kecil yang tidak melawan.
+
+Ketika Peng Lianhu melihatnya tidak melawan, ia segera menarik balik pukulannya. "Ayo!
+Tunjukkan kemampuanmu. Bocah tolol! Aku yakin aku mampu mengenali siapa gurumu dalam
+sepuluh jurus." Ia sudah melihat banyak gaya ilmu silat sepanjang hidupnya, dan meskipun
+ia tahu bahwa Huang Rong punya banyak akal bulus, ia merasa yakin bahwa gadis itu tidak 
+akan bisa menyembunyikan kungfunya yang sejati dalam pertarungan yang sebenarnya. Dan
+ia yakin ia tidak membutuhkan lebih dari sepuluh jurus untuk menebaknya.
+
+Huang Rong bertanya, "Dan kalau kau gagak menebak dalam sepuluh jurus?"
+
+"Maka aku akan membiarkan kau pergi." kata Peng Lianhu. Tanpa banyak cincong ia langsung
+menyerang menggunakan 'Penetrasi Tiga Jurus' — disebut begitu karena serangan tersebut
+adalah rangkaian tiga jurus dalam satu serangan.
+
+Huang Rong memutar tubuhnya dan menghindar sambil membentuk lingkaran dengan menggunakan
+ibu jari dan kelingkingnya, meluruskan ketiga jari lainnya membentuk trisula, ia melakukan
+serangan balik dengan jurus Trisula Malam Menggeledah Lautan. Melihat ini Hou Tonghai 
+berteriak terkejut, "**Ye Sancha Ji Xun Hai**! Da Ge, bocah tengik ini pasti dari — perguruan
+kita!" 
+
 
 
