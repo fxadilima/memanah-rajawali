@@ -127,12 +127,12 @@ akan menggeser popularitas Dinasti Song Selatan yang saat itu masih bertahan.
 
 Dalam upaya untuk menyatukan para suku Mongol, Temujin kemudian membangun aliansi
 dengan saudara angkatnya, yaitu Toghrul, atau yang lebih populer dengan sebutan
-Wang Khan atau Ong Khan, dari suku Keraites, yang turun-temurun adalah penganut
+Wang Khan atau Ong Khan, dari suku Keraite, yang turun-temurun adalah penganut
 agama Kristen. Mereka mulai segala upaya tersebut sejak tahun 1184.
 
 Ketika itu bangsa Jin yang menginvasi wilayah Utara Kekaisaran Song menjadi semakin kuat,
 dan yang bertahta sebagai Kaisar Song Selatan adalah Xiao Zong, sedangkan yang 
-menjadi kaisar dalam Dinasti Jin adalah Wanyen Yong, atau Wulu, dengan gelar
+menjadi kaisar dalam Dinasti Jin adalah Wanyan Yong, atau Wulu, dengan gelar
 Kaisar Shizong dari Jin. Ia menjadi kaisar setelah Wanyan Liang, atau Digunai,
 yang merebut tahta dari keluarganya, berusaha membunuhnya di tengah upaya untuk menginvasi
 wilayah Song Selatan dan menyatukannya dengan wilayah Utara yang mereka kuasai. 
@@ -177,5 +177,27 @@ Pada saat itu para pendeta Tao dari aliran Quanzhen yang didirikan oleh Wang Cho
 sangat aktif dalam membela rakyat yang tertindas, khususnya yang diakibatkan oleh
 invasi bangsa Jin di wilayah Utara.
 
+## Catatan Mengenai Peristilahan
 
-\- FX. Adi Lima
+Istilah-istilah Tionghoa yang dipakai dalam tulisan ini memakai [sistem romanisasi dengan gaya Wade-Giles](https://en.wikipedia.org/wiki/Wade%E2%80%93Giles), dan tentunya berdasarkan bahasa Mandarin yang netral, bukan seperti
+yang bisa dibaca dalam karya-karya penulis legendaris Indonesia seperti Kho Ping Hoo atau Gan KL, yang
+cenderung memakai dialek Hokkian.
+
+Beberapa istilah sudah terlanjur melekat di hati dan pikiran masyarakat Indonesia, baik mereka adalah
+pecinta cerita silat atau bukan, dan belum tentu seorang keturunan Tionghoa. Contoh nyata adalah 'Kaipang',
+atau biasa ditulis 'Partai Pengemis'. Istilah tersebut juga sering ditulis Kay Pang atau Kai Pang, pendeknya
+cara penulisan ini sudah menjadi semacam tradisi, dan sulit digantikan. Karena alasan ini saya tetap mempertahankan
+cara penulisan yang lama, dan sudah populer.
+
+Sebenarnya bahasa Mandarin untuk istilah tersebut adalah 丐帮, dan mengikuti gaya Wade-Giles akan menjadi
+'Gai Bang', tetapi kalau di sepanjang novel ini dituliskan seperti itu, saya kira akan cukup mengganggu,
+karena para pembaca setia cerita silat (termasuk yang bukan karya Jin Yong) sudah terbiasa membacanya sebagai
+Kaipang atau Kai Pang. Karakter pertama 'Kai' atau 'Gai' (丐) artinya adalah 'Pengemis' atau 'Beggars',
+sedangkan karakter kedua 'Bang' atau 'Pang' (帮) bermakna 'Geng', yang secara umum sama saja dengan 'Kelompok'
+atau 'Partai', organisasi, dsb. Tetapi 'Partai' mengandung konotasi politik, sedangkan 'Geng' memang mengandung
+konotasi negatif. Tetapi justru sebenarnya kehadiran Kaipang sendiri _memang_ agak negatif, yaitu bagi pemerintah
+di jaman itu, karena kehadiran mereka biasanya cenderung mengacaukan suatu tatanan yang dibangun oleh pemerintah.
+Dalam konteks ini kita bisa melihat bahwa Ketua Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
+
+
+— FX. Adi Lima
