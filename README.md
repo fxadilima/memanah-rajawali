@@ -9,7 +9,7 @@ which in turn was published by Hong Kong Commercial Daily from 1957, January 1 -
 Because I am _not_ quite familiar with Chinese writings, then I can only translate the story from the English version.
 
 To view the novel outside of GitHub, we may need some _simple_, and yet effective HTML and JavaScript, which is included
-here. I do not use fancy codes to transform the **Markdown** text, just enough to give us convenient and nice text,
+here. I do not use fancy codes to transform the **Markdown** text, just enough to give us convenience and nice text,
 with all references videos (if any), and also some screenshots I get from dramas here and there.
 
 ## Downloading
