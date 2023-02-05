@@ -272,9 +272,6 @@ yang lain melihat Huang Rong menipu Ouyang Ke dengan cerdik, dan tidak bisa mena
         <p><em>Raut wajahnya berubah saat ia teringat, berteriak, "Rompi Kulit Landak... Rompi Kulit Landak!"</em></p>
         </div>
     </div>
-    <p>
-    Cuplikan adegan yang sama <a href="" target="_blank">dari versi 1994</a> agak lebih akurat
-    </p>
 </div>
 
 Huang Rong baru saja hendak mencapai pintu ketika terdengar suara dahsyat dari atas dan
