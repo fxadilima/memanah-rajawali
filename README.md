@@ -12,6 +12,14 @@ To view the novel outside of GitHub, we may need some _simple_, and yet effectiv
 here. I do not use fancy codes to transform the **Markdown** text, just enough to give us convenience and nice text,
 with all references videos (if any), and also some screenshots I get from dramas here and there.
 
+## Server
+
+Convenient reading, we should use some HTTP server, in this repository I added a server.js that you can use with node.js or
+some other platform like NW.js (previously, Node Webkit), PHP, or something else. This will enable you to do *fetch* from
+the *client*, then transform the resulting text into HTML.
+
+Please note though, this is not the best server in the world, obviously.
+
 ## Downloading
 
 The entire book can be downloaded by clicking the download button, and choose to download the ZIP.
