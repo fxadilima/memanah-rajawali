@@ -13,7 +13,7 @@ berkuasa adalah Dinasti Song Selatan, dengan ibukotanya Lin'an.
 
 Pada saat itu wilayah padang rumput di bagian Utara Tiongkok terbagi menjadi
 beberapa konfederasi dari suku-suku nomad seperti Naiman, Khamag Mongol, Merkit,
-Keraites, dan juga Tatar. Sedangkan di sebelah Selatan, Dinasti Song sendiri
+Keraite, dan juga Tatar. Sedangkan di sebelah Selatan, Dinasti Song sendiri
 mulai dari tahun 1184 sudah kehilangan kendali atas wilayah Utara mereka, yang jatuh
 ke tangan suku Jurchen, yang akhirnya mendirikan Dinasti Jin.
 
@@ -29,10 +29,10 @@ ke tangan suku Jurchen, yang akhirnya mendirikan Dinasti Jin.
 Dalam perkembangan nama Jurchen ini nantinya akan berganti menjadi Manchu.
 
 Jurchen adalah bagian  dari Dinasti Liao (907- 1125), sebuah kekaisaran yang dipimpin oleh suku Khitan. 
-Bagi para penggemar cerita silat, suku ini dipopulerkan oleh seorang ketua Kaypang 
-bernama Xiao Feng, yang awalnya selalu percaya bahwa dirinya adalah seorang 
-suku Han, dan memang dibesarkan oleh keluarga dari suku Han, dalam cerita berjudul 
-**Demi Gods and Semi Devils**, yang mengambil setting dalam era lebih awal Dinasti Song. 
+Bagi para penggemar cerita silat, suku ini dipopulerkan oleh seorang ketua Kaipang 
+bernama Xiao Feng — yang awalnya selalu percaya bahwa dirinya adalah seorang 
+suku Han, dan memang dibesarkan oleh keluarga dari suku Han — dalam cerita berjudul 
+**Demi Gods and Semi Devils**, yang mengambil _setting_ dalam era Dinasti Song lebih awal dari cerita ini sendiri. 
 Wilayah asal mereka adalah daerah Timur Laut Tiongkok yang sekarang, dan meskipun berlainan wilayah, mereka adalah
 termasuk suku semi-nomad dari Utara. Dengan demikian kita bisa menyimpulkan bahwa
 rentang waktu dalam cerita **Demi Gods and Semi Devils** adalah sebelum tahun 1125,
@@ -166,7 +166,7 @@ Wang Chuyi ke istana untuk berkotbah. Hal ini sempat menimbulkan pertanyaan
 di hati sebagian orang dalam Perguruan Quanzhen sendiri. Menurut beberapa sumber sejarah,
 Pendeta Qiu Chuji juga diundang dalam acara tersebut. Meskipun demikian, baik dalam
 novel ini sendiri maupun dalam catatan sejarah, kita bisa melihat bahwa akhirnya
-Qiu Chuji lebih cenderung berpihak kepada Genghis Khan, dan bukan Dinasti Jin.
+Qiu Chuji lebih cenderung mendukung Genghis Khan, dan bukan Dinasti Jin.
 
 Buku pertama dari Trilogi Rajawali ini mengawali cerita di era kekuasaan Kaisar
 Ning Zong dari Song, yang mewarisi tahta dari ayahnya, Kaisar Guang Zong. Sementara
@@ -185,19 +185,19 @@ cenderung memakai dialek Hokkian.
 
 Beberapa istilah sudah terlanjur melekat di hati dan pikiran masyarakat Indonesia, baik mereka adalah
 pecinta cerita silat atau bukan, dan belum tentu seorang keturunan Tionghoa. Contoh nyata adalah 'Kaipang',
-atau biasa ditulis 'Partai Pengemis'. Istilah tersebut juga sering ditulis Kay Pang atau Kai Pang, pendeknya
-cara penulisan ini sudah menjadi semacam tradisi, dan sulit digantikan. Karena alasan ini saya tetap mempertahankan
-cara penulisan yang lama, dan sudah populer.
+atau biasa diterjemahkan menjadi 'Partai Pengemis'. Istilah tersebut juga sering ditulis Kay Pang atau 
+Kai Pang, pendeknya cara penulisan ini sudah menjadi semacam tradisi, dan sulit digantikan. Karena 
+alasan ini saya tetap mempertahankan cara penulisan yang lama, dan sudah populer.
 
-Sebenarnya bahasa Mandarin untuk istilah tersebut adalah 丐帮, dan mengikuti gaya Wade-Giles akan menjadi
-'Gai Bang', tetapi kalau di sepanjang novel ini dituliskan seperti itu, saya kira akan cukup mengganggu,
-karena para pembaca setia cerita silat (termasuk yang bukan karya Jin Yong) sudah terbiasa membacanya sebagai
-Kaipang atau Kai Pang. Karakter pertama 'Kai' atau 'Gai' (丐) artinya adalah 'Pengemis' atau 'Beggars',
-sedangkan karakter kedua 'Bang' atau 'Pang' (帮) bermakna 'Geng', yang secara umum sama saja dengan 'Kelompok'
-atau 'Partai', organisasi, dsb. Tetapi 'Partai' mengandung konotasi politik, sedangkan 'Geng' memang mengandung
-konotasi negatif. Tetapi justru sebenarnya kehadiran Kaipang sendiri _memang_ agak negatif, yaitu bagi pemerintah
-di jaman itu, karena kehadiran mereka biasanya cenderung mengacaukan suatu tatanan yang dibangun oleh pemerintah.
-Dalam konteks ini kita bisa melihat bahwa Ketua Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
-
+Sebenarnya bahasa Mandarin untuk istilah tersebut adalah 丐帮. Kalau kita secara konsisten mengikuti gaya 
+Wade-Giles akan menjadi 'Gai Bang'. Tetapi kalau di sepanjang novel ini dituliskan seperti itu, saya kira 
+akan cukup mengganggu, karena para pembaca setia cerita silat (termasuk yang bukan karya Jin Yong) sudah 
+terbiasa membacanya sebagai Kaipang atau Kai Pang. Karakter pertama 'Kai' atau 'Gai' (丐) artinya adalah 
+'Pengemis' atau 'Beggars', sedangkan karakter kedua 'Bang' atau 'Pang' (帮) bermakna 'Geng', yang secara 
+umum sama saja dengan 'Kelompok' atau 'Partai', organisasi, dsb. Tetapi 'Partai' mengandung konotasi politik, 
+sedangkan 'Geng' memang mengandung konotasi negatif. Tetapi justru sebenarnya kehadiran Kaipang sendiri 
+_memang_ agak negatif — yaitu bagi pemerintah di jaman itu — karena kehadiran mereka biasanya cenderung 
+mengacaukan suatu tatanan yang dibangun oleh pemerintah. Dalam konteks ini kita bisa melihat bahwa Ketua 
+Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 
 — FX. Adi Lima

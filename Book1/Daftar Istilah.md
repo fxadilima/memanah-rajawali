@@ -98,6 +98,10 @@ Wu Gong (武功) = Ilmu silat.
 
 Di Zi (弟子, dibaca: 'teecu' menurut gaya Kho Ping Hoo)
 
+Nu Da Wang (Raja Besar Perempuan), di sini istilah 'Da Wang' yang secara literal berarti 'Raja Besar' biasa dipakai orang
+untuk memanggil seorang Kepala Perampok, sedangkan 'Nu' artinya adalah 'Perempuan'. 
+
+
 ## Tanda Baca
 
 Karakter _dash_ pendek: —
