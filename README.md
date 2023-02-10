@@ -20,6 +20,9 @@ the *client*, then transform the resulting text into HTML.
 
 Please note though, this is not the best server in the world, obviously.
 
+To use Node Webkit, you must [download an appropriate version for your OS](https://nwjs.io/downloads/), then place the entire contents of this
+repository into the same folder.
+
 ## Downloading
 
 The entire book can be downloaded by clicking the download button, and choose to download the ZIP.
