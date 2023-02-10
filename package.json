@@ -1,5 +1,5 @@
 {
-  "name": "step1",
+  "name": "memanah-burung-rajawali",
   "main": "http://localhost:3000",
   "node-main": "server.js",
   "node-remote": "http://localhost:3000",
