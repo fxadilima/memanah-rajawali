@@ -7,7 +7,7 @@ meskipun dari sisi gambar tentu saja kalah dibandingkan versi 2017 pada gambar b
 <div class="w3-row-padding w3-container">
   <div class="w3-col s12 l6 m6">
     <a href="https://youtube.com/clip/UgkxvqDPs1b2mwtdUaFhT_tJANPCkyE6Ds8x" target="_blank">
-        <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci" width="100%"/>
+        <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci"/>
     </a>
   </div>
   <div class="w3-container w3-col s12 l6 m6">
