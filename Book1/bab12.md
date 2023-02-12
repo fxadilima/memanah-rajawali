@@ -1,18 +1,21 @@
-# Kebanggaan Sang Naga
+# Bab 12
+## Kebanggaan Sang Naga
 
 [Ilustrasi video dari versi 2003](https://youtube.com/clip/UgkxOdvTKvPbGCzbi2fD0hOUW4JNa7r6yiCL) ini agak lebih akurat,
 meskipun dari sisi gambar tentu saja kalah dibandingkan versi 2017 pada gambar berikut.
 
-<div class="w3-container w3-center">
+<div class="w3-row-padding w3-container">
+  <div class="w3-col s12 l6 m6">
     <a href="https://youtube.com/clip/UgkxvqDPs1b2mwtdUaFhT_tJANPCkyE6Ds8x" target="_blank">
         <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci" width="100%"/>
     </a>
-    <div class="w3-container w3-center">
-        <p><em>
-        Wajah Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan tangannya,
-        membiarkan Wanyan Kang memegang tangannya. Kepalanya makin tertunduk
-        </em></p>
-    </div>
+  </div>
+  <div class="w3-container w3-col s12 l6 m6">
+    <p><em>
+      Wajah Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan tangannya,
+      membiarkan Wanyan Kang memegang tangannya. Kepalanya makin tertunduk
+    </em></p>
+  </div>
 </div>
 
 ***
@@ -91,7 +94,7 @@ macam masakan lagi yang siap untuk kau cicipi. Bagaimana kalau ikut kami saja?"
 "Siapa nama _Qianbei_?" tanya Guo Jing.
 
 "Margaku Hong," jawab pengemis itu. "Dan aku anak ke tujuh di keluargaku. Kalian anak-anak muda ini
-boleh panggil aku [Qigong](#qigong)."
+boleh panggil aku Qigong [^qigong]."
 
 "Ternyata _memang_ dia," pikir Huang Rong. "Dewa Pengemis Sembilan Jari! Tapi dia kelihatannya
 lebih muda dari Pendeta Qiu, masa dia satu generasi dengan guru Tujuh Pendekar Quanzhen? Hm!
@@ -117,7 +120,7 @@ Qigong tak tahan lagi. Ia menggaruk-garuk kepalanya, menggosok-gosok pipinya, ba
 dan lagi, rasanya seakan-akan sedang berada di atas bara api. "Aku memang begini," katanya, mengaku kepada
 Guo Jing. "Aku punya sifat rakus yang tidak menyenangkan. Kalau sudah kepingin makan, aku langsung
 melupakan segala-galanya!" Ia membuka telapak tangannya untuk menunjukkan keempat jarinya. "Kata orang kuno,
-[telunjuk goyang-goyang](#shizhi). Alangkah benarnya ucapan itu! Setiap kali aku melihat atau mencium bau
+telunjuk goyang-goyang[^shizhi]. Alangkah benarnya ucapan itu! Setiap kali aku melihat atau mencium bau
 makanan yang _asli_ atau istimewa, telunjukku yang sebelah kanan gemetaran terus. Gara-gara itu, aku pernah 
 mengacaukan satu urusan penting. Lalu aku jadi sangat marah, maka kuambil pisau, terus kupotong jari itu!"
 Guo Jing terperanjat, sementara Qigong melanjutkan, "Tapi sayangnya sia-sia saja jariku hilang, karena
@@ -128,7 +131,7 @@ di atas meja. Di situ terdapat tiga mangkuk nasi, sebuah cawan arak, dan dua man
 hidangan utama. Guo Jing mencium aroma lezat yang sangat mengundang selera. Di salah satu mangkuk
 terdapat sekumpulan sate daging berukuran besar. Terlepas dari aromanya, tidak tampak ada keistimewaan 
 lainnya. Mangkuk lainnya berisi sup bening yang berwarna hijau seperti batu pualam, di atasnya 
-terapung banyak buah _cherry_ dan sepuluh kelopak bunga berwarna merah muda. Di bawahnya ada rebung 
+terapung banyak buah ceri dan sepuluh kelopak bunga berwarna merah muda. Di bawahnya ada rebung 
 muda yang masih segar. Perpaduan ketiga warna merah-putih-hijau itu sungguh enak dipandang. Indera 
 penciuman jadi ikut serta karena sup itu mengeluarkan aroma bunga teratai yang lembut.
 
@@ -198,8 +201,8 @@ sangat erat dengan seorang pria sejati."
 "Oh," kata Qigong. "Berarti ini adalah 'Pria sejati dan Kecantikan'?"
 
 "Nah, bagaimana dengan burung perkutut?" kata Huang Rong. "Sebenarnya, semuanya itu kembali lagi ke syair pertama
-dalam Kitab Kidung Pujian, yang berakhir dengan 'Pria sejati itu sedang berteman baik'. Jadi sup ini bernama
-Liangyou Tang (良友汤, Sup Teman Baik)."
+dalam Kitab Kidung Pujian, yang berakhir dengan 'Pria sejati itu sedang mencari teman baik'. Jadi sup ini bernama
+[Sup Mencari Kebaikan](#haoqiutang)."
 
 Qigong tertawa terbahak-bahak. "Karena ada sup yang begini kompleks dan aneh, maka bagus juga kalau namanya
 juga kompleks dan aneh. Bagus, bagus sekali! Kau sendiri juga seorang anak yang kompleks dan aneh, aku jadi
@@ -285,8 +288,8 @@ melangkah mundur sambil tersenyum.
 
 "Ayahmu hebat," kata Hong Qigong dengan nada dingin. "Untuk apa kau menyuruhku mengajar anak bodoh ini?"
 
-Huang Rong terrkejut. "Menurut ayahku," pikirnya. "Sejak ia menciptakan kungfu Dewa Pedang Pulau Bunga Persik
-ini, ia sendiri pun tidak pernah menggunakannya, bagaimana mungkin Hong _Lao Qianbei_ menhgenalinya?" Ia mendesak,
+Huang Rong terkejut. "Menurut ayahku," pikirnya. "Sejak ia menciptakan kungfu Dewa Pedang Pulau Bunga Persik
+ini, ia sendiri pun tidak pernah menggunakannya, bagaimana mungkin Hong _Lao Qianbei_ mengenalinya?" Ia mendesak,
 "Qigong, kau kenal ayahku?"
 
 "Sudah pasti, dia Si Sesat Timur, aku Pengemis Utara. Masa kami tidak pernah mengadu ilmu silat?"
@@ -344,6 +347,120 @@ Qiu Chuji adalah yang paling kuat... Tapi, sudah pasti mereka tidak akan bisa me
 Zhou Botong." Ketika mendengar nama ini, Huang Rong terkejut. Ia bermaksud mengatakan sesuatu, lalu berhenti
 sendiri.
 
+Guo Jing yang cukup puas mendengarkan pembicaraan mereka tiba-tiba menyela, "Itu benar, Ma Dao Zhang
+bilang mereka punya seorang paman guru, tapi dia tidak menyinggung siapa nama pendeta Tao ini."
+
+"Zhou Botong _bukan_ penganut Tao," sahut Hong Qigong. "Ia orang awam, yang diajar langsung oleh kakak
+seperguruannya, Wang Chongyang — eh, anak bodoh, kau kelihatannya agak canggung! Apa ayah mertuamu, yang 
+begitu baik dan pintar itu, sungguh menghargaimu?" Guo Jing, yang tidak merasa punya ayah mertua, tergagap,
+ia tidak tahu bagaimana harus menanggapi.
+
+"Ayahku belum ketemu dia," kata Huang Rong sambil tersenyum. "Kalau kau baik hati dan sudi memberikan
+petunjuk, maka ayahku akan sedikit menghargai dia."
+
+"Bajingan cilik," gerutu Qigong. "bahkan sepersepuluh kungfu ayahnya pun belum becus, tapi sudah mewarisi
+segala akal bulus dan kepintarannya! Tidak usah menjilat, aku tidak suka pujianmu! Lagipula, aku tidak 
+pernah punya murid! Siapa mau murid goblok begitu? Kau suruh aku mengajari suami cilikmu! Bah, pengemis
+tua ini tidak mau ditipu!"
+
+Huang Rong menundukkan kepala, mukanya merah. Ia tidak pernah berniat belajar kungfu. Ayahnya sendiri
+sangat tangguh, tapi ia tak pernah serius belajar dari ayahnya, mengapa ia harus belajar dari Qigong?
+Tapi kungfu Guo Jing tidak cukup bagus, dan keenam gurunya menganggapnya _Xiao Yaonu_ (Penyihir Perempuan Cilik),
+jadi ia senang bisa bertemu dengan seorang ahli seperti Qigong. Ia berharap orang tua itu akan mewariskan
+sedikit ilmunya kepada kekasihnya, jadi Guo Jing tidak perlu takut di hadapan guru-gurunya dan juga 
+Qiu Chuji dengan semua jajaran pendeta Tao itu, seperti tikus bertemu kucing. Qigong sangat rakus dan
+suka bercanda, tetapi ia tidak bodoh. Ternyata selama ini Qigong sudah mengendus maksudnya.
+
+Sambil bergumam sendiri, pengemis tua itu pergi tanpa menoleh sedikit pun ke belakang. Kedua anak muda
+itu berdiri diam lama sekali.
+
+"Rong'Er," kata Guo Jing, akhirnya. "_Lao Qianbei_ itu punya sifat yang sangat unik!" Huang Rong mendengar 
+suara berdesir di antara dedaunan, di atas mereka, dan menyadari bahwa Qigong telah mengambil jalan melingkar
+untuk kembali ke situ secara diam-diam, ke atas pohon.
+
+"Dia orang baik," katanya kemudian. "Dan kungfunya jauh lebih kuat dari ayahku."
+
+"Dia belum menunjukkan ilmunya," kata Guo Jing dengan suara keras, ia bertanya-tanya. "Kau tahu dari mana?"
+
+"Ayahku yang bilang."
+
+"Tepatnya dia bilang apa?"
+
+"Dia bilang, di dunia sekarang ini, hanya ada satu orang yang bisa mengalahkannya, dan itu adalah
+Si Dewa Pengemis Sembilan Jari, Hong Qigong. Untungnya, karena _Lao Qianbei_ itu selalu bertualang,
+maka mereka jarang ketemu untuk duel."
+
+Kenyataannya, setelah ia pergi, Qigong menggunakan ilmu meringankan tubuhnya yang luar biasa itu
+dan kembali ke atas pohon, jauh di atas kepala kedua anak muda itu. Ia ingin mendengarkan pembicaraan
+mereka dan meyakinkan diri bahwa mereka bukan dikirim oleh Huang Yaoshi untuk mencuri ilmunya. Ocehan
+Huang Rong membuatnya bangga. "Jadi Huang Yaoshi tidak pernah mau mengakui keunggulanku," pikirnya.
+"Tapi dalam hati bagaimana pun juga dia tetap mengagumi aku!" Padahal semuanya itu hanya karangan 
+Huang Rong.
+
+"Aku tidak belajar apa pun yang hebat dari ayahku," lanjut Huang Rong. "Tapi itu semuanya salahku.
+Aku terlalu suka bersenang-senang dan tidak pernah berminat belajar. Beruntung bisa ketemu Hong Lao Qianbei
+dan kalau dia mau mengajariku, pasti akan jauh lebih baik daripada belajar dari ayahku. Sayangnya aku
+menyinggung perasaannya, meskipun aku tidak bermaksud begitu." Lalu ia mulai terisak. Mula-mula ia hanya
+berpura-pura, dan Guo Jing berusaha menghiburnya. Lalu ia memikirkan kematian ibunya, kekerasan ayahnya,
+dan mulai sungguh-sungguh menangis. Qigong yang di atas pohon hampir yakin.
+
+"Kudengar ayahku bilang," lanjut Huang Rong sambil terisak-isak. "bahwa Hong Lao Qianbei punya ilmu 
+luar biasa yang belum ada tandingannya, bahkan Wang Chongyang juga segan. Disebut... disebut... apa ya?
+Aku lupa... Lagipula sudah di ujung mulut selama ini, aku sebetulnya ingin mohon supaya dia mau mengajarimu,
+itu disebut..." Sebetulnya ia sama sekali tak tahu ilmu apa itu, jadi hanya mengoceh bertele-tele.
+
+Mendengarnya ragu-ragu, seperti berusaha menemukan nama yang tidak juga ketemu, Qigong tidak tahan
+lagi dan berteriak sambil melompat turun dari atas pohon itu. "Itu disebut Delapan Belas Jurus Penakluk Naga!"
+Guo Jing dan Huang Rong melompat kaget, yang satu sungguh-sungguh kaget, lainnya hanya pura-pura.
+
+"Ah, Hong Lao Qianbei," seru Huang Rong. "Bagaimana kau bisa di atas pohon? Terbang ya? Ya betul, itu
+Delapan Belas Jurus Penakluk Naga! Tepat sekali! Bagaimana aku bisa lupa? Ayahku bilang kungfu yang paling
+dikaguminya di dunia ini adalah Delapan Belas Jurus Penakluk Naga!"
+
+Qigong sangat senang. "Kalau begitu ayahmu mengerti kebenaran! Aku percaya setelah Wang Chongyang meninggal,
+dia menganggap dirinya yang paling kuat di dunia ini!" Ia berbalik ke arah Guo Jing. "Sebetulnya kungfumu
+tidak kalah dengan pacar kecilmu ini. Masalahnya hanya jurus tangan kosongmu itu sama sekali tidak tepat
+sasaran." Ia berpaling lagi kepada Huang Rong dan memerintah, "[Yatou](#yatou), kau kembali ke penginapan!"
+
+Huang Rong menyadari bahwa ia akan memberi pelajaran kepada Guo Jing, maka ia pun pergi dengan puas.
+Qigong berkata dengan serius kepada Guo Jing, "Kau berlutut dan berjanji, bahwa tanpa seijinku kau tidak 
+akan meneruskan kungfuku kepada siapa pun juga, termasuk perempuan kecilmu itu!"
+
+Guo Jing sangat malu. "Kalau Rong'Er memaksa, lalu bagaimana aku harus menolak?" pikirnya. Ia berkata, "Qianbei,
+aku tidak mau belajar darimu. Memangnya kenapa kalau kungfunya lebih bagus dari aku?"
+
+"Dan kenapa tidak mau?" tanya Hong Qigong.
+
+"Kalau dia menyuruhku mengajarinya, aku tidak bisa menolak tanpa menyinggung perasaannya, dan aku tidak bisa
+menerima tanpa menyinggung perasaanmu."
+
+"Meskipun pikiranmu sangat sederhana," kata Hong Qigong sambil tertawa. "Kau punya hati yang baik, dan kau
+bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut [Naga Angkuh Punya Penyelasan](#kanglongyouhui).
+Aku membayangkan bahwa meskipun Huang Youshi sangat ingin meniru ilmuku, tapi dia terlalu bangga akan dirinya sendiri,
+jadi dia tidak akan melakukannya. Dalam banyak hal ilmu kami berbeda sama sekali. Aku tidak bisa belajar ilmunya,
+dan dia juga tidak bisa belajar ilmuku..." Sambil berkata begitu ia menekuk lutut kirinya, berputar dan meluruskan
+lengannya, membuat lingkaran dengan tangan yang di atas dan mendorong keluar dengan sebelah tangan lainnya. Telapak
+tangannya menyentuh pohon pinus besar, dan 'Kreekkk', pohon itu patah! Guo Jing berdiri terpaku, ia terkejut melihat
+kekuatan pukulan itu.
+
+"Pohon ini tidak bisa bergerak," kata Qigong. "Kalau ini manusia, jelas dia akan mencoba menghindar, kesulitan
+dari teknik ini adalah menyerang dengan tepat sehingga lawan bagaimana pun juga tidak bisa menghindarinya, dan
+juga harus kuat, maka begitu pukulanmu mendarat, 'krekkk', lawan langsung roboh seperti pinus ini!" Ia mengulangi
+peragaan itu dua kali, lalu menjelaskan secara rinci bagaimana memusatkan dan mengerahkan tenaga dalam. Itu
+hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan waktu lebih dari satu jam. 
+
+***
+
+### Daftar Istilah
+
+[^qigong]: 
+    Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu
+    sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'.
+    Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
+
+[^shizhi]: 
+    Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan',
+    sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
 
 
 <div class="w3-panel w3-card-4 w3-border-green w3-leftbar">
@@ -399,6 +516,32 @@ sendiri.
     Niu Bi (牛鼻), makna literalnya adalah 'Hidung Kerbau'. Sebenarnya ini adalah salah satu kata-kata kasar yang
     dipakai untuk memaki seseorang — kira-kira setara dengan 'brengsek', 'kurang ajar', 'bajingan', dsb.
   </li>
+  <li id="yatou">Ya Tou (丫头) adalah istilah yang dipakai untuk memanggil anak perempuan, selain itu juga biasa
+  dipakai untuk pembantu perempuan.</li>
+  <li id="haoqiutang">Hao Qiu Tang (好求汤, Sup Mencari Kebaikan, Good Seeking Soup)</li>
+  <li id="kanglongyouhui">
+    Empat karakter Kang Long You Hui (康龙有悔), punya arti literal masing-masing: 'Kang' yang paling umum dipakai
+    untuk melengkapi istilah 'Sehat', seperti dalam Jian Kang (健康), tetapi juga bisa berarti 'Damai' atau 
+    'Peaceful', makna inilah yang dipakai dalam konteks tersebut. Seekor Naga yang merasa dirinya tinggi akan 
+    bersikap sombong, tetapi karena menyesalinya maka ia akan merasa damai. Berikutnya 'Long' berarti 'Naga', 
+    'You' bisa diartikan 'ada', atau 'punya'. 'Hui' di sini diambil dari Houhui 后悔 (menyesal). Demi 
+    mempertahankan estetika, saya menerjemahkan semuanya menjadi 'Naga Angkuh Punya Penyesalan'.
+  </li>
   </ul>
 </div>
 
+<div class="w3-row-padding" id="pelajaran-pertama">
+  <div class="w3-col s12 l6 m6">
+    <a href="https://youtube.com/clip/Ugkxfwd1ThoQHmfmGTvFUXGNljqu4Ui7sP7t" target="_blank">
+      <img src="images/jurus-pertama.jpg" alt="Jurus Pertama" width="100%">
+    </a>
+  </div>
+  <div class="w3-col s12 l6 m6">
+    <div class="w3-container">
+      <p><em>
+      "Meskipun pikiranmu sangat sederhana," kata Hong Qigong sambil tertawa. "Kau punya hati yang baik, dan kau
+      bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut Naga Angkuh Punya Penyelasan."
+      </em></p>
+    </div>
+  </div>
+</div>
