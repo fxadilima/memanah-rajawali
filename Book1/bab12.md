@@ -94,7 +94,7 @@ macam masakan lagi yang siap untuk kau cicipi. Bagaimana kalau ikut kami saja?"
 "Siapa nama _Qianbei_?" tanya Guo Jing.
 
 "Margaku Hong," jawab pengemis itu. "Dan aku anak ke tujuh di keluargaku. Kalian anak-anak muda ini
-boleh panggil aku Qigong [^qigong]."
+boleh panggil aku Qigong[^qigong]."
 
 "Ternyata _memang_ dia," pikir Huang Rong. "Dewa Pengemis Sembilan Jari! Tapi dia kelihatannya
 lebih muda dari Pendeta Qiu, masa dia satu generasi dengan guru Tujuh Pendekar Quanzhen? Hm!
@@ -202,7 +202,7 @@ sangat erat dengan seorang pria sejati."
 
 "Nah, bagaimana dengan burung perkutut?" kata Huang Rong. "Sebenarnya, semuanya itu kembali lagi ke syair pertama
 dalam Kitab Kidung Pujian, yang berakhir dengan 'Pria sejati itu sedang mencari teman baik'. Jadi sup ini bernama
-[Sup Mencari Kebaikan](#haoqiutang)."
+Sup Mencari Kebaikan[^haoqiutang]."
 
 Qigong tertawa terbahak-bahak. "Karena ada sup yang begini kompleks dan aneh, maka bagus juga kalau namanya
 juga kompleks dan aneh. Bagus, bagus sekali! Kau sendiri juga seorang anak yang kompleks dan aneh, aku jadi
@@ -453,28 +453,17 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
 
 ### Daftar Istilah
 
-[^qigong]: 
-    Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu
-    sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'.
-    Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
+[^qigong]: Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'. Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
 
-[^shizhi]: 
-    Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan',
-    sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
+[^shizhi]: Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan' sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
 
+[^haoqiutang]: Hao Qiu Tang (好求汤, Sup Mencari Kebaikan, Good Seeking Soup).
+
+***
 
 <div class="w3-panel w3-card-4 w3-border-green w3-leftbar">
   <h3>Daftar Istilah</h3>
   <ul>
-  <li id="qigong">
-  Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu
-  sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'.
-  Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
-  </li>
-  <li id="shizhi">
-  Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan',
-  sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
-  </li>
   <li>
     <div id="meihua" class="w3-row-padding w3-container">
       <div class="w3-col s3 l1 m2">
@@ -518,7 +507,6 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
   </li>
   <li id="yatou">Ya Tou (丫头) adalah istilah yang dipakai untuk memanggil anak perempuan, selain itu juga biasa
   dipakai untuk pembantu perempuan.</li>
-  <li id="haoqiutang">Hao Qiu Tang (好求汤, Sup Mencari Kebaikan, Good Seeking Soup)</li>
   <li id="kanglongyouhui">
     Empat karakter Kang Long You Hui (康龙有悔), punya arti literal masing-masing: 'Kang' yang paling umum dipakai
     untuk melengkapi istilah 'Sehat', seperti dalam Jian Kang (健康), tetapi juga bisa berarti 'Damai' atau 
