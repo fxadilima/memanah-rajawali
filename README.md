@@ -25,8 +25,10 @@ repository into the same folder.
 
 ## Compatibility Issues
 
-If you read it directly on GitHub, some formats may not be compatible (eg. _footnotes_), I'm going to fix this as soon as I can, but unfortunately
-I am still busy translating, so it may not be soon enough.
+If you do not read it directly on GitHub, some formats may not be compatible (eg. _footnotes_), I'm going to fix this as soon as I can, but unfortunately
+I am still busy translating, so it may not be soon enough. But if you instead read it on GitHub, then some links to the videos, which display an image, the position
+of the image may not be pleasant to look at, as it uses w3.css styles _not_ available directly for GitHub viewer. Some HTML _containers_ which rely on those
+styles are also not displayed correctly.
 
 You can still use my **reader.html** here, and load the appropriate files directly. It works.
 
