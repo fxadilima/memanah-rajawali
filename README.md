@@ -23,6 +23,13 @@ Please note though, this is not the best server in the world, obviously.
 To use Node Webkit, you must [download an appropriate version for your OS](https://nwjs.io/downloads/), then place the entire contents of this
 repository into the same folder.
 
+## Compatibility Issues
+
+If you read it directly on GitHub, some formats may not be compatible (eg. _footnotes_), I'm going to fix this as soon as I can, but unfortunately
+I am still busy translating, so it may not be soon enough.
+
+You can still use my **reader.html** here, and load the appropriate files directly. It works.
+
 ## Downloading
 
 The entire book can be downloaded by clicking the download button, and choose to download the ZIP.
