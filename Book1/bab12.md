@@ -467,7 +467,7 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
   <li>
     <div id="meihua" class="w3-row-padding w3-container">
       <div class="w3-col s3 l1 m2">
-        <img src="images/plum-flower.jpg" alt="Bunga Prem" width="100%">
+        <img src="images/plum-flower.jpg" alt="Bunga Prem">
       </div>
       <div class="w3-col s9 l11 m10">
         <p>
@@ -521,7 +521,7 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
 <div class="w3-row-padding" id="pelajaran-pertama">
   <div class="w3-col s12 l6 m6">
     <a href="https://youtube.com/clip/Ugkxfwd1ThoQHmfmGTvFUXGNljqu4Ui7sP7t" target="_blank">
-      <img src="images/jurus-pertama.jpg" alt="Jurus Pertama" width="100%">
+      <img src="images/jurus-pertama.jpg" alt="Jurus Pertama">
     </a>
   </div>
   <div class="w3-col s12 l6 m6">
