@@ -681,25 +681,25 @@ namaku Tiexin."
 
 "Dia kakek buyutku," jawab Yang Tiexin.
 
-Si pendeta segera merangkapkan kedua tangannya untuk memberi hormat. "Kelihatannya aku
+Si Pendeta segera merangkapkan kedua tangannya untuk memberi hormat. "Kelihatannya aku
 salah paham kepada kalian berdua. Tadinya kukira kalian bajingan, tidak tahunya keturunan
 patriot. Maaf. Boleh aku tahu juga nama sahabat ini?"
 
 "Aku bernarga Guo, namaku Xiaotian," jawab Guo Xiaotian.
 
 Yang Tiexin menambahkan, "Dia saudara angkatku, juga keturunan pendekar Guo Sheng
-dari gunung Liang." Si pendeta segera menanggapi, "Pendeta hina ini bersikap kasar
+dari gunung Liang." Si Pendeta segera menanggapi, "Pendeta hina ini bersikap kasar
 dan terburu-buru, maafkan aku." Ia membungkuk sekali lagi.
 
 Guo Xiaotian dan Yang Tiexin merangkap kedua tangan mereka dan balas menghormat.
 "Dao Zhang silakan masuk untuk menikmati tiga cawan lagi." Yang Tiexin dengan tenang memungut
-kembali tombaknya. Si pendeta tersenyum, "Aku memang ingin minum dengan kalian."
+kembali tombaknya. Si Pendeta tersenyum, "Aku memang ingin minum dengan kalian."
 
 Bao Xiruo kuatir suaminya terluka, tapi ketika melihat mereka bertiga sudah saling membungkuk
 untuk saling memberi hormat dalam dama, ia merasa lega, dan membereskan meja supaya
 mereka bisa duduk ngobrol di situ.
 
-Ketika ditanya soal namanya, si pendeta menjawab, "Namaku Qiu Chuji..."
+Ketika ditanya soal namanya, Si Pendeta menjawab, "Namaku Qiu Chuji..."
 
 Yang Tiexin dan Guo Xiaotian terlompat dan berseru, "Ah ya!"
 
@@ -1121,7 +1121,7 @@ dari arah Utara dan Selatan. Bao Xiruo terkesiap, lalu bangun dan duduk di tempa
 Yang Tiexin melompat berdiri dan berpakaian. Suara kuda itu semakin dekat, diikuti
 gonggongan anjing dari rumah-rumah penduduk desa. Yang Tiexin menjawab, "Kita dikepung."
 
-Terkejut, Baoxiruo kembali bertanya, "Mengapa?"
+Terkejut, Bao Xiruo kembali bertanya, "Mengapa?"
 
 "Aku tidak tahu." kata Yang Tiexin. Ia mengulurkan pisau pemberian Qiu Chuji
 kepada istrinya, "Pegang ini, untuk melindungi diri." Ia lalu melihat keluar dari jendela.
@@ -1252,7 +1252,7 @@ Guo Xiaotian mengayunkan sepasang tombak pendeknya untuk melindungi istrinya,
 sambil menerjang ke depan ke arah kerumunan. Melihat ketangguhan kedua pria itu,
 para prajurit tidak berani mendekat. Jadi mereka mulai menyerang mereka dengan panah.
 
-Yang Tiexin melarikan kudanya ke sisi Li Ping, lalu ia melompat turun. "Da Sao,
+Yang Tiexin melarikan kudanya ke sisi Li Ping, lalu ia melompat turun. "[Da Sao](#da-sao "Kakak ipar"),
 cepat naik!"
 
 Li Ping berkata dengan nada cemas, "Ini tidak bagus."
@@ -1292,7 +1292,7 @@ Delapan orang datang dan mengikat keempat orang itu dengan tangan di belakang
 punggung.
 
 Yang Tiexin mengangkat kepala dan menyeringai. Pemimpin pasukan itu mengangkat
-cambuk kudanya, lalu melecut Yang Tiexin tepat di mukanya. "Pngkhianat keparat!
+cambuk kudanya, lalu melecut Yang Tiexin tepat di mukanya. "Pengkhianat keparat!
 Kau mau mati ya!" Bilur cambuk terlihat di muka Yang Tiexin mulai dari dahi 
 sampai ke lehernya.
 
@@ -1395,7 +1395,7 @@ untuk membunuh prajurit itu.
 
 Ia cepat-cepat berlari mendekat, dan melihat bahwa wanita yang terduduk di tanah itu
 ternyata istrinya. Terkejut dan girang melihat suaminya, Bao Xiruo langsung memeluknya.
-Yang Tiexin langsung bertanya, "Da Sao di mana?"
+Yang Tiexin langsung bertanya, "[Da Sao](#da-sao "Kakak ipar") di mana?"
 
 "Di depan," jawab Bao Xiruo. "dengan... dengan lebih banyak prajurit."
 
@@ -1893,6 +1893,8 @@ aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
         kehilangan separuh wilayah mereka, dan Jendral Yue Fei dihukum mati. Jendral Yue Fei adalah
         pujaan rakyat Song.
     </dd>
+    <dt id="da-sao"><strong>Da Sao</strong></dt>
+    <dd>(大嫂) Kakak ipar perempuan, istri dari kakak laki-laki.</dd>
 </dl>
 
 [^anekdot-senjata]: Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata yang dipakai itu, tetapi saya tidak melihat bagaimana cara kelucuan tersebut bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir dari anekdot tersebut cukup penting. Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah, yang bisa dipakai untuk menangkis hanyalah batok kepala kita sendiri. Artinya adalah _mati_.
