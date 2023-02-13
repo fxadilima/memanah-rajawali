@@ -1730,7 +1730,7 @@ pernah makan makanan semewah itu. Akhirnya ia merasa kurang nyaman saat sarapan.
 Setelah selesai makan, pelayan kamar datang membawa bungkusan. Saat itu Yan Lie
 sudah meninggalkan kamar. "Apa ini?" tanya Bao Xiruo.
 
-Pelayan itu menjawab, "Gong Zhi (Tuan Muda) keluar segera setelah matahari terbit.
+Pelayan itu menjawab, "[Gong Zi](#gongzi "Tuan Muda") keluar segera setelah matahari terbit.
 Dia membeli pakaian baru untuk Fu Ren. Dia menyuruhku mengantarkan pakaian ini supaya
 Fu Ren bisa ganti pakaian." Setelah bicara ia meletakkan bungkusan itu di atas meja,
 lalu keluar.
@@ -1899,6 +1899,8 @@ aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
     <dd>(先生, baca: Xiānshēng) adalah panggilan hormat yang ditujukan kepada seorang pria dewasa, setara dengan 'Pak' atau 'Tuan'.</dd>
     <dt id="furen"><strong>Fu Ren</strong></dt>
     <dd>(夫人) setara dengan 'Bu'atau 'Nyonya', umumnya dipakai untuk menyapa seorang wanita yang sudah menikah.</dd>
+    <dt id="gongzi"><strong>Gong Zi</strong></dt>
+    <dd>(公子) hampir sama seperti Xiansheng, tetapi Gong Zi biasanya digunakan untuk anak muda yang lebih terhormat.</dd>
 </dl>
 
 [^anekdot-senjata]: Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata yang dipakai itu, tetapi saya tidak melihat bagaimana cara kelucuan tersebut bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir dari anekdot tersebut cukup penting. Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah, yang bisa dipakai untuk menangkis hanyalah batok kepala kita sendiri. Artinya adalah _mati_.
