@@ -3,14 +3,13 @@
 
 [Ilustrasi video dari versi 2003](https://youtube.com/clip/UgkxOdvTKvPbGCzbi2fD0hOUW4JNa7r6yiCL) ini agak lebih akurat,
 meskipun dari sisi gambar tentu saja kalah dibandingkan versi 2017 pada gambar berikut.
-
 <div class="w3-row-padding w3-container">
   <div class="w3-col s12 l6 m6">
     <a href="https://youtube.com/clip/UgkxvqDPs1b2mwtdUaFhT_tJANPCkyE6Ds8x" target="_blank">
-        <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci"/>
+        <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci" width="100%">
     </a>
   </div>
-  <div class="w3-container w3-col s12 l6 m6">
+  <div class="w3-col s12 l6 m6">
     <p><em>
       Wajah Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan tangannya,
       membiarkan Wanyan Kang memegang tangannya. Kepalanya makin tertunduk
@@ -339,7 +338,7 @@ Perguruan Quanzhen, Wang Chongyang. Tapi sejak kematiannya, sangat sulit untuk m
 di dunia persilatan!"
 
 "Perguruan Quanzhen?" kata Huang Rong. "Di situ ada pendeta yang benama Qiu, lainnya bernama Wang,
-lalu yang lain lagi Ma. Mereka semuanya Pendeta Tao [hidung kerbau](#niubi). Kurasa kungfu mereka
+lalu yang lain lagi Ma. Mereka semuanya Pendeta Tao hidung kerbau[^niubi]. Kurasa kungfu mereka
 agak payah! Kalau mereka bertarung, kalau bukan keracunan ya pasti cedera dalam dua atau tiga jurus."
 
 "Oh ya? Mereka tak diragukan lagi adalah murid-murid Wang Chongyang. Kelihatannya di antara semua muridnya,
@@ -420,7 +419,7 @@ dikaguminya di dunia ini adalah Delapan Belas Jurus Penakluk Naga!"
 Qigong sangat senang. "Kalau begitu ayahmu mengerti kebenaran! Aku percaya setelah Wang Chongyang meninggal,
 dia menganggap dirinya yang paling kuat di dunia ini!" Ia berbalik ke arah Guo Jing. "Sebetulnya kungfumu
 tidak kalah dengan pacar kecilmu ini. Masalahnya hanya jurus tangan kosongmu itu sama sekali tidak tepat
-sasaran." Ia berpaling lagi kepada Huang Rong dan memerintah, "[Yatou](#yatou), kau kembali ke penginapan!"
+sasaran." Ia berpaling lagi kepada Huang Rong dan memerintah, "Yatou[^yatou], kau kembali ke penginapan!"
 
 Huang Rong menyadari bahwa ia akan memberi pelajaran kepada Guo Jing, maka ia pun pergi dengan puas.
 Qigong berkata dengan serius kepada Guo Jing, "Kau berlutut dan berjanji, bahwa tanpa seijinku kau tidak 
@@ -435,7 +434,7 @@ aku tidak mau belajar darimu. Memangnya kenapa kalau kungfunya lebih bagus dari 
 menerima tanpa menyinggung perasaanmu."
 
 "Meskipun pikiranmu sangat sederhana," kata Hong Qigong sambil tertawa. "Kau punya hati yang baik, dan kau
-bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut [Naga Angkuh Punya Penyelasan](#kanglongyouhui).
+bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut Naga Angkuh Punya Penyelasan[^kanglongyouhui].
 Aku membayangkan bahwa meskipun Huang Youshi sangat ingin meniru ilmuku, tapi dia terlalu bangga akan dirinya sendiri,
 jadi dia tidak akan melakukannya. Dalam banyak hal ilmu kami berbeda sama sekali. Aku tidak bisa belajar ilmunya,
 dan dia juga tidak bisa belajar ilmuku..." Sambil berkata begitu ia menekuk lutut kirinya, berputar dan meluruskan
@@ -451,43 +450,25 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
 
 ***
 
-### Daftar Istilah
-
-[^qigong]: Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'. Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
-
-[^shizhi]: Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan' sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
-
-[^haoqiutang]: Hao Qiu Tang (好求汤, Sup Mencari Kebaikan, Good Seeking Soup).
-
-***
-
 <div class="w3-panel w3-card-4 w3-border-green w3-leftbar">
   <h3>Daftar Istilah</h3>
-  <ul>
-  <li>
-    <div id="meihua" class="w3-row-padding w3-container">
-      <div class="w3-col s3 l1 m2">
-        <img src="images/plum-flower.jpg" alt="Bunga Prem">
-      </div>
-      <div class="w3-col s9 l11 m10">
-        <p>
+  <dl>
+    <dt id="meihua">Mei Hua</dt>
+    <dd>
         Bunga <em>prem</em>, atau Mei Hua (梅花) berasal dari sebelah selatan Sungai Yangtze. Kalau sudah matang,
         daging buahnya akan berwarna kuning, kulit buahnya yang hijau juga akan semakin menguning seiring dengan tingkat kematangannya. Terkadang ada yang bersemu merah. Tanaman ini memang dibudidayakan untuk diambil bunga dan buahnya. Di jaman modern ini kita biasa menikmatinya sebagai <em>manisan</em>, yang umumnya disertakan dalam sebuah <em>parcel</em> untuk menyambut Tahun Baru Imlek.
-        </p>
-      </div>
-    </div>
-  </li>
-  <li id="shijing">
-    Shi Jing (诗經) adalah buku yang berisi kumpulan sajak, syair atau puisi, yang adalah bagian dari Si Shu Wu Jing 
+    </dd>
+    <dt id="shijing">Shi Jing</dt>
+    <dd>Shi Jing (诗經) adalah buku yang berisi kumpulan sajak, syair atau puisi, yang adalah bagian dari Si Shu Wu Jing 
     (四書五經, Empat Kitab dan Lima Pelajaran Klasik — Four Books and Five Classics. Ini semua adalah mata pelajaran 
     <em>wajib</em> bagi semua pelajar di jaman itu. Empat Pelajaran Klasik lainnya adalah:
-    <ol>
-      <li>Yi Jing (易經, Kitab Perubahan), yang juga sering ditulis I Ching menurut sistem <em>romanisasi</em> lain. Ini sering disebutkan dalam semua cerita silat.</li>
-      <li>Shu Jing (書經, <em>Books of Documents</em> atau Kitab Sejarah)</li>
-      <li>Li Ji (禮記, Kitab Ritual)</li>
-      <li>Chun Qiu (春秋, Kitab Sejarah Musim Semi dan Musim Gugur). Ini menceritakan tentang Dinasti Zhou yang mulai
-      terpecah dalam era di mana Konfusius hidup dan berkarya.</li>
-    </ol>
+      <ol>
+        <li>Yi Jing (易經, Kitab Perubahan), yang juga sering ditulis I Ching menurut sistem <em>romanisasi</em> lain. Ini sering disebutkan dalam semua cerita silat.</li>
+        <li>Shu Jing (書經, <em>Books of Documents</em> atau Kitab Sejarah)</li>
+        <li>Li Ji (禮記, Kitab Ritual)</li>
+        <li>Chun Qiu (春秋, Kitab Sejarah Musim Semi dan Musim Gugur). Ini menceritakan tentang Dinasti Zhou yang mulai
+        terpecah dalam era di mana Konfusius hidup dan berkarya.</li>
+      </ol>
     Dan Empat 'Buku' yang dimaksud adalah:
     <ol>
       <li>Da Xue (Tradisional: 大學, Disederhanakan: 大学, secara literal bermakna 'Pelajaran Besar' atau *Great Learning*).
@@ -497,31 +478,20 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
       kutipan kata-kata yang pernah diucapkan oleh Konfusius semasa hidupnya.</li>
       <li>Meng Zi (孟子, atau Mencius), berisi pokok-pokok ajaran Mensius, yang sudah dianggap sebagai penerus ajaran Konfusius, dan bahkan mengembangkannya ke arah yang berbeda. Sangat berbeda dengan Lun Yu yang cukup singkat dan padat, ajaran Mensius dipenuhi dialog dan prosa yang panjang.</li>
     </ol>
-    <p>
-      Perhatikan bahwa di sini kita agak sulit membedakan antara 'Buku', 'Kitab' atau 'Pelajaran'. Para penulis sejarah modern seringkali menata ulang semua ini dan memperbaiki istilah yang agak membingungkan itu. Tetapi kelihatannya perubahan yang dibuat justru semakin membingungkan.
-    </p>
-  </li>
-  <li id="niubi">
-    Niu Bi (牛鼻), makna literalnya adalah 'Hidung Kerbau'. Sebenarnya ini adalah salah satu kata-kata kasar yang
+    </dd>
+  <dt id="niubi">Niu Bi</dt>
+    <dd>Niu Bi (牛鼻), makna literalnya adalah 'Hidung Kerbau'. Sebenarnya ini adalah salah satu kata-kata kasar yang
     dipakai untuk memaki seseorang — kira-kira setara dengan 'brengsek', 'kurang ajar', 'bajingan', dsb.
-  </li>
-  <li id="yatou">Ya Tou (丫头) adalah istilah yang dipakai untuk memanggil anak perempuan, selain itu juga biasa
-  dipakai untuk pembantu perempuan.</li>
-  <li id="kanglongyouhui">
-    Empat karakter Kang Long You Hui (康龙有悔), punya arti literal masing-masing: 'Kang' yang paling umum dipakai
-    untuk melengkapi istilah 'Sehat', seperti dalam Jian Kang (健康), tetapi juga bisa berarti 'Damai' atau 
-    'Peaceful', makna inilah yang dipakai dalam konteks tersebut. Seekor Naga yang merasa dirinya tinggi akan 
-    bersikap sombong, tetapi karena menyesalinya maka ia akan merasa damai. Berikutnya 'Long' berarti 'Naga', 
-    'You' bisa diartikan 'ada', atau 'punya'. 'Hui' di sini diambil dari Houhui 后悔 (menyesal). Demi 
-    mempertahankan estetika, saya menerjemahkan semuanya menjadi 'Naga Angkuh Punya Penyesalan'.
-  </li>
-  </ul>
+    </dd>
+  </dl>
 </div>
+
+***
 
 <div class="w3-row-padding" id="pelajaran-pertama">
   <div class="w3-col s12 l6 m6">
     <a href="https://youtube.com/clip/Ugkxfwd1ThoQHmfmGTvFUXGNljqu4Ui7sP7t" target="_blank">
-      <img src="images/jurus-pertama.jpg" alt="Jurus Pertama">
+      <img src="images/jurus-pertama.jpg" alt="Jurus Pertama" width="100%">
     </a>
   </div>
   <div class="w3-col s12 l6 m6">
@@ -533,3 +503,16 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
     </div>
   </div>
 </div>
+
+***
+
+[^qigong]: Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'. Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
+
+[^shizhi]: Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan' sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
+
+[^haoqiutang]: Hao Qiu Tang (好求汤, Sup Mencari Kebaikan, Good Seeking Soup).
+
+[^kanglongyouhui]: Empat karakter Kang Long You Hui (康龙有悔), punya arti literal masing-masing: 'Kang' yang paling umum dipakai untuk melengkapi istilah 'Sehat', seperti dalam Jian Kang (健康), tetapi juga bisa berarti 'Damai' atau 'Peaceful', makna inilah yang dipakai dalam konteks tersebut. Seekor Naga yang merasa dirinya tinggi akan bersikap sombong, tetapi karena menyesalinya maka ia akan merasa damai. Berikutnya 'Long' berarti 'Naga', 'You' bisa diartikan 'ada', atau 'punya'. 'Hui' di sini diambil dari Houhui 后悔 (menyesal). Demi mempertahankan estetika, saya menerjemahkan semuanya menjadi 'Naga Angkuh Punya Penyesalan'.
+
+[^yatou]: Ya Tou (丫头) adalah istilah yang dipakai untuk memanggil anak perempuan, selain itu juga biasa dipakai untuk pembantu perempuan.
+
