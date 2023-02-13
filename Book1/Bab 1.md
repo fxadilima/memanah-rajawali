@@ -139,12 +139,8 @@ yang terjadi, karena memang belum cukup signifikan untuk melindungi rakyat Song 
 kemungkinan serbuan musuh. Tambahan lagi, era di mana mereka hidup saat itu sudah cukup jauh
 dari era Kaisar Xiao Zong sendiri.
 
-Uraian Zhang Shiwu juga menyinggung soal **Insiden Jing Kang** (靖康事變) Jin Kang Shi Bian,
-yang berakhir dengan ditawannya mantan Kaisar Hui Zong dan Kaisar Qin Zong yang sedang berkuasa saat itu,
-dan akhirnya membuat Kekaisaran Song kehilangan separuh wilayah mereka, dan akhirnya 
-Jendral Yue Fei pun dihukum mati bersama jajarannya.
-
-Insiden ini tentu saja sudah diketahui oleh Guo Xiaotian dan Yang Tiexin, dari cerita-cerita yang
+Uraian Zhang Shiwu juga menyinggung soal [Insiden Jing Kang](#insiden-jingkang "Peristiwa ditawannya 2 kaisar Song"),
+yang tentu saja sudah diketahui oleh Guo Xiaotian dan Yang Tiexin, dari cerita-cerita yang
 beredar secara turun-temurun. Cerita tersebut akan terus berlanjut selama berabad-abad,
 dan akhirnya menjadi bagian dari sejarah sampai saat ini dengan Jendral Yue Fei
 sebagai tokoh sentral.
@@ -291,7 +287,7 @@ Yang Tiexin membayar makanan dan minuman mereka, lalu mengajak Guo Xiaotian pula
 berdua bertetangga. Hanya jalan sedikit mereka pun sampai di rumah.
 
 Istri Guo Xiaotian, Li, sedang mengejar ayam. "Kalian berdua pasti pergi minum-minum lagi ya?
-Yang [Xiongdi](#xiongdi "Adik laki-laki (兄弟)"), kenapa tidak kau ajak istrimu kesini 
+Yang [Xiongdi](#xiongdi "Adik laki-laki"), kenapa tidak kau ajak istrimu kesini 
 untuk makan bersama, hari ini kita akan masak ayam."
 
 Yang Tiexin tertawa, "Baiklah! Rasanya kami berdua akan mengganggu kalian lagi. Kami
@@ -1463,22 +1459,7 @@ sejenis ini. Karena beratnya senjata itu, penggunanya harus memiliki otot punggu
 sebelah atas yang sangat kuat. Namun demikian, para tentara Jin sangat menyukai senjata
 ini, karena bangsa Jin hidup di puncak dingin membeku di Liaodong, jadi mereka sangat
 kuat. Kalau digunakan di medan perang, senjata seperti ini sangat menguntungkan karena
-beratnya.
-
-<div class="w3-panel w3-card-4">
-    <h5>Catatan</h5>
-    <p>
-    Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata
-    yang dipakai itu, tetapi saya tidak melihat bagaimana cara kelucuan tersebut 
-    bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir
-    dari anekdot tersebut cukup penting.
-    </p>
-    <p>
-    Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah,
-    yang bisa dipakai untuk menangkis hanyalah batok kepala kita sendiri. Artinya
-    adalah <em>mati</em>.
-    </p>
-</div>
+beratnya[^anekdot-senjata].
 
 Setelah beberapa saat bertarung dengan orang ini, Yang Tiexin yang teringat diskusinya
 dengan Guo Xiaotian jadi curiga. Melihat teknik yang digunakan, orang ini jelas adalah
@@ -1904,7 +1885,18 @@ aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
 
 <dl>
     <dt id="xiongdi"><strong>Xiong Di</strong></dt>
-    <dd>Arti literalnya adalah 'Adik' (laki-laki).</dd>
+    <dd>(兄弟) Arti literalnya adalah 'Adik laki-laki'.</dd>
+    <dt id="insiden-jingkang"><strong>Insiden Jing Kang</strong></dt>
+    <dd>
+        Jin Kang Shi Bian (靖康事變), inti peristiwa adalah ditawannya mantan Kaisar Hui Zong,
+        dan Kaisar Qin Zong yang sedang berkuasa saat itu, dan akhirnya membuat Kekaisaran Song 
+        kehilangan separuh wilayah mereka, dan Jendral Yue Fei dihukum mati. Jendral Yue Fei adalah
+        pujaan rakyat Song.
+    </dd>
 </dl>
 
-    
+[^anekdot-senjata]: 
+    Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata yang dipakai itu, tetapi saya tidak melihat 
+    bagaimana cara kelucuan tersebut bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir dari anekdot tersebut 
+    cukup penting. Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah, yang bisa dipakai untuk menangkis hanyalah 
+    batok kepala kita sendiri. Artinya adalah _mati_.
