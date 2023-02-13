@@ -1577,7 +1577,7 @@ Dari wajahnya jelas pemuda itu sadar bahwa ia tidak punya pilihan lain kecuali
 menjawab, dan ia mengangguk pelan. "Pendekar Yang tewas di tangan para prajurit 
 keparat itu." Ia menggelengkan kepalanya dan menghela nafas.
 
-Bao Xiruo merasa hatinya dirobek-robek, dan ia pinsan seketika. Ketika akhirnya sadar,
+Bao Xiruo merasa hatinya dirobek-robek, dan ia pingsan seketika. Ketika akhirnya sadar,
 barulah tangisnya meledak.
 
 Orang itu menghiburnya dengan lembut. Sambil terisak-isak, Bao Xiruo bertanya lagi, "Dia...
@@ -1689,10 +1689,10 @@ aku akan mencari si keparat Duan Tiande itu, dan membunuhnya."
 Bao Xiruo orang yang sangat lembut dan tidak mementingkan diri sendiri. Ia jarang
 sekali punya pendapat pribadi. Ditambah lagi, saat ini ia merasa sangat sendirian
 di dunia ini. Ia melihat bahwa Yan Lie bisa mengatur segala hal dengan rapi, ia
-merasa sangat teharu. Ia berkata, "Yan Xiansheng (Tuan Yan), aku tidak tahu bagaimana
+merasa sangat terharu. Ia berkata, "[Yan Xiansheng](#xiansheng "Tuan Yan"), aku tidak tahu bagaimana
 harus membalas kebaikanmu."
 
-YanLie menjawab dengan mantap, "Fu Ren, hidupku ini adalah karena diselamatkan oleh
+YanLie menjawab dengan mantap, "[Fu Ren](#furen "Nyonya"), hidupku ini adalah karena diselamatkan oleh
 Fu Ren. Meskipun aku harus melompat masuk ke dalam minyak mendidih, atau hancur jadi debu,
 aku akan terus melayanimu seumur hidupku."
 
@@ -1895,6 +1895,10 @@ aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
     </dd>
     <dt id="da-sao"><strong>Da Sao</strong></dt>
     <dd>(大嫂) Kakak ipar perempuan, istri dari kakak laki-laki.</dd>
+    <dt id="xiansheng"><strong>Xian Sheng</strong></dt>
+    <dd>(先生, baca: Xiānshēng) adalah panggilan hormat yang ditujukan kepada seorang pria dewasa, setara dengan 'Saudara'.</dd>
+    <dt id="furen"><strong>Fu Ren</strong></dt>
+    <dd>(夫人) setara dengan 'Bu'atau 'Nyonya', umumnya dipakai untuk menyapa seorang wanita yang sudah menikah.</dd>
 </dl>
 
 [^anekdot-senjata]: Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata yang dipakai itu, tetapi saya tidak melihat bagaimana cara kelucuan tersebut bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir dari anekdot tersebut cukup penting. Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah, yang bisa dipakai untuk menangkis hanyalah batok kepala kita sendiri. Artinya adalah _mati_.
