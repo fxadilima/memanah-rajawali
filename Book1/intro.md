@@ -143,7 +143,7 @@ yang dilakukan oleh Wanyang Liang menjadi kembali antipati kepada bangsa Jin[^ke
 
 Sebagai penganut Taoisme, Kaisar Shizong pada tahun 1187 sempat mengundang
 salah seorang murid dari pendiri Perguruan Quanzhen, Wang Chongyang, yang bernama
-Wang Chuyi ke istana untuk berkotbah. Hal ini sempat menimbulkan pertanyaan
+Wang Chuyi ke istana untuk berkotbah[^wangchuyi]. Hal ini sempat menimbulkan pertanyaan
 di hati sebagian orang dalam Perguruan Quanzhen sendiri. Menurut beberapa sumber sejarah,
 Pendeta Qiu Chuji juga diundang dalam acara tersebut. Meskipun demikian, baik dalam
 novel ini sendiri maupun dalam catatan sejarah, kita bisa melihat bahwa akhirnya
@@ -191,14 +191,17 @@ Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 [^2]: Di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang.
 
 [^kebijakan-sosial]: 
-    Kebijakan sosial ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
+    **Kebijakan sosial** ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
     Jurchen yang akhirnya kembali menguasai wilayah pusat setelah berhasil menggulingkan
     Dinasti Ming, dan mendirikan Dinasti Qing. Tidak seperti sebelumnya, proses asimilasi
     etnis tersebut sangat sukses dan pemerintahan Dinasti Qing berlangsung selama ratusan
     tahun, dengan struktur sosial yang cukup mencolok berbeda dengan Dinasti pendahulunya.
 
 [^qiuchuji]:
-    Pendeta Qiu Chuji adalah seorang tokoh spiritual beraliran Taoisme yang _memang_ ada dan
+    **Pendeta Qiu Chuji** adalah seorang tokoh spiritual beraliran Taoisme yang _memang_ ada dan
     pernah hidup dalam sejarah, tepat di era seperti dalam cerita. Ia juga _sungguh-sungguh_
     adalah anggota dari Aliran Quanzhen, dan _memang_ sempat sangat dekat dengan Genghis Khan.
 
+[^wangchuyi]:
+    **Pendeta Wang Chuyi**, seperti saudara seperguruannya, Qiu Chuji, juga adalah seorang tokoh
+    Aliran Quanzhen yang pernah hidup dalam sejarah.
