@@ -1896,7 +1896,7 @@ aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
     <dt id="da-sao"><strong>Da Sao</strong></dt>
     <dd>(大嫂) Kakak ipar perempuan, istri dari kakak laki-laki.</dd>
     <dt id="xiansheng"><strong>Xian Sheng</strong></dt>
-    <dd>(先生, baca: Xiānshēng) adalah panggilan hormat yang ditujukan kepada seorang pria dewasa, setara dengan 'Saudara'.</dd>
+    <dd>(先生, baca: Xiānshēng) adalah panggilan hormat yang ditujukan kepada seorang pria dewasa, setara dengan 'Pak' atau 'Tuan'.</dd>
     <dt id="furen"><strong>Fu Ren</strong></dt>
     <dd>(夫人) setara dengan 'Bu'atau 'Nyonya', umumnya dipakai untuk menyapa seorang wanita yang sudah menikah.</dd>
 </dl>
