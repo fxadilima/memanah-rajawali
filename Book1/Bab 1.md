@@ -518,14 +518,14 @@ Guo Xiaotian bicara, "Pendeta itu bisa kungfu. Kelihatannya seperti seorang terh
 
 "Betul!" kata Yang Tiexin. "Ayo kita undang dia, sekaligus berkenalan sambil minum-minum."
 
-Saat itu si pendeta sudah berjalan kurang lebih 2 zhang dari tempat mereka (1 zhang
+Saat itu Si Pendeta sudah berjalan kurang lebih 2 zhang dari tempat mereka (1 zhang
 kita-kira adalah 3,3 meter). Mereka berdua suka mencari kenalan baru dan berteman
-dengan siapa saja, karena itu mereka dengan segera menuju ke tepat si pendeta. Kelihatannya
+dengan siapa saja, karena itu mereka dengan segera menuju ke arah Si Pendeta. Kelihatannya
 Qing Gong pendeta itu sangat bagus, meskipun dia hanya berjalan tetapi mereka harus
 berlari untuk mengejarnya.
 
-"Dao Zhang, tolong berhenti!" panggil Yang Tiexin. "Cuaca begini buruk, kenapa Dao Zhang
-tidak mampir dulu sambil minum-minum supaya lebih hangat."
+"Dao Zhang[^daozhang], tolong berhenti!" panggil Yang Tiexin. "Cuaca begini buruk, kenapa 
+Dao Zhang tidak mampir dulu sambil minum-minum supaya lebih hangat."
 
 Pendeta itu menengok, lalu mengejek. Dalam sekejap ia sudah berdiri di hadapan
 Yang Tiexin. "Kau suruh aku berhenti, mau apa? Terus terang saja." katanya dengan
@@ -538,7 +538,7 @@ tidak menanggapi. Guo Xiaotian merangkapkan kedua tangannya untuk memberi hormat
 Karena itu kami memberanikan diri untuk mengundang Dao Zhang datang bergabung. Maafkan
 kami kalau Dao Zhang tersinggung." katanya dengan sopan.
 
-Si pendeta menjawab, agak lantang, "Baiklah, baiklah! Kau mau minum, mari kita minum!"
+Si Pendeta menjawab, agak lantang, "Baiklah, baiklah! Kau mau minum, mari kita minum!"
 
 Caranya menjawab membuat Yang Tiexin lebih gusar, ia lalu mencekal pergelangan tangan
 si pendeta sambil berkata, "Kau masih belum bilang siapa namamu."
@@ -577,7 +577,7 @@ untuk minum bersama. Kenapa kami harus mencoba mencelakai Dao Zhang? Kalau kau t
 bicara dengan nada begini, maka sebaiknya pergi sekarang! Kami bukannya kelebihan arak
 jelek dan makanan busuk yang tidak bisa kami buang!"
 
-Si pendeta mengabaikannya, lalu membuka topinya dan melemparkannya ke lantai. Guo Xiaotian
+Si Pendeta mengabaikannya, lalu membuka topinya dan melemparkannya ke lantai. Guo Xiaotian
 dan Yang Tiexin menatapnya dengan teliti. Pendeta itu kira-kira 30 tahunan. Mukanya kotak 
 dan kemerahan, alisnya melengkung. Matanya bersinar cerah dan sangat tajam. Berikutnya
 ia membuka bungkusan kulit di punggungnya, lalu melemparkannya ke atas meja.
@@ -585,14 +585,14 @@ ia membuka bungkusan kulit di punggungnya, lalu melemparkannya ke atas meja.
 Yang Tiexin dan Guo Xiaotian melompat kaget, ternyata isi bungkusan itu adalah kepala manusia.
 Bao Xiruo menjerit ngeri dan berlari ke belakang rumah.
 
-Si pendeta menggoyangkan bungkusan itu dan mengeluarkan dua benda lagi dari dalamnya.
+Si Pendeta menggoyangkan bungkusan itu dan mengeluarkan dua benda lagi dari dalamnya.
 Isinya jantung dan hati. Sudah jelas bukan hati dan jantung babi, ini organ dalam
 manusia.
 
 Yang Tiexin merogoh bajunya untuk memastikan belatinya masih ada. "Pendeta bangsat!"
 ia berteriak sambil mengeluarkan pisaunya dan menikam dada si pendeta.
 
-Si pendeta terkekeh, "Cakar Elang, jadi sekarang kau mau berkelahi ya?" Ia memukul 
+Si Pendeta terkekeh, "Cakar Elang, jadi sekarang kau mau berkelahi ya?" Ia memukul 
 pergelangan tangan Yang Tiexin perlahan dengan tangan kirinya. Yang Tiexin merasa sakit
 dan tangannya mati rasa, jari-jarinya kehilangan tenaga. Sebelum ia sadar, pisaunya
 sudah berhasil direbut.
@@ -605,7 +605,7 @@ adalah 'Tangan Kosong Merebut Pisau' adalah sebuah jurus yang hanya pernah ia de
 di dunia ini.
 
 Ia dengan segera mengangkat bangku yang didudukinya, dan bersiap seandainya si pendeta
-bermaksud menikam saudaranya dengan belati tersebut. Tapi si pendeta hanya mengabaikan
+bermaksud menikam saudaranya dengan belati tersebut. Tapi Si Pendeta hanya mengabaikan
 mereka berdua. Ia lalu memotong-motong jantung dan hati manusia di atas meja itu menjadi
 beberapa bagian kecil. Tiba-tiba ia mengaum keras, begitu kerasnya sehingga menggetarkan
 atap rumah. Ia mengangkat tangan kanannya, lalu menghempaskannya ke bawah dengan keras
@@ -626,7 +626,7 @@ Melihat situasi memburuk, Guo Xiaotian segera pulang untuk mengambil sepasang to
 Ketika ia kembali, ternyata si pendeta masig berdiri diam dengan pedang di tangan, 
 masih dalam sarungnya.
 
-"Hunus pedangmu!" bentak Yang Tiexin. Si pendeta menjawab, "Meskipun kalian maju
+"Hunus pedangmu!" bentak Yang Tiexin. Si Pendeta menjawab, "Meskipun kalian maju
 berdua, aku tetap akan memakai tangan kosong."
 
 Yang Tiexin memberi tanda bahwa ia siap mulai, lalu langsung merangsek ke depan
@@ -653,13 +653,13 @@ dengan segenap tenanganya, memperlihatkan tontonan yang luar biasa. Tapi setelah
 seluruh, 72 jurus dari ilmu tombaknya, akhirnya ia putus asa dan merasa sangat marah.
 
 Ia memutar tubuh, lalu berjalan pergi sambil membawa tombaknya. Seperti yang sudah
-diduga, si pendeta mengejarnya secepat kilat. Yang Tiexin membentak keras, memegang
+diduga, Si Pendeta mengejarnya secepat kilat. Yang Tiexin membentak keras, memegang
 tombak dengan kedua tangannya, lalu tiba-tiba ia memutar tubuhnya sambil menusuk ke belakang
 tepat ke muka si pendeta. Ini gerakan yang sangat berbahaya. Dulu sebelum Yang Zaixin
 berubah aliansi ke Song, ia menggunakan jurus ini untuk melawan Yue Fei, dan ia berhasil
 membunuh Yue Fan, adik kandung Yue Fei.
 
-Ketika melihat tiba-tiba mata tombak sudah di depan hidungnya, si pendeta langsung
+Ketika melihat tiba-tiba mata tombak sudah di depan hidungnya, Si Pendeta langsung
 memuji, "Bagus sekali! Bagus!" Dengan menepuk kedua tangannya ia berhasil menjepit
 mata tombak. Yang Tiexin mendorong tombak dengan kuat, tapi ternyata tombak itu
 sama sekali tidak bergerak. Terkesiap, ia pun berusaha menarik kembali tombaknya
@@ -667,11 +667,11 @@ dengan sekuat tenaga, tapi tombak itu seolah-olah tertimpa sebuah gunung, tanpa
 celah sedikitpun untuk keluar. Mukanya memerah setelah berusaha menarik tiga kali
 dengan sia-sia.
 
-Akhirnya si pendeta tertawa, medadak telapak kanannya menghantam pegangan tombak
+Akhirnya si pendeta tertawa, mendadak telapak kanannya menghantam pegangan tombak
 dengan kecepatan seperti angin. Yang Tiexin merasa pangkal jempol dan telunjuknya
 mati rasa, dan dengan segera ia melepaskan tombak ke tanah yang diselimuti salju.
 
-Si pendeta tersenyum dan berkata, "Kau betul-betul menggunakan Ilmu Tombak Keluarga Yang.
+Si Pendeta tersenyum dan berkata, "Kau betul-betul menggunakan Ilmu Tombak Keluarga Yang.
 Maafkan aku kalau sempat bersikap kasar. Kalau boleh aku ingin tahu siapa namamu."
 
 Yang Tiexin masih belum pulih dari _shock_, ia menjawab seenaknya. "Aku bermarga Yang,
@@ -1895,8 +1895,6 @@ aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
     </dd>
 </dl>
 
-[^anekdot-senjata]: 
-    Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata yang dipakai itu, tetapi saya tidak melihat 
-    bagaimana cara kelucuan tersebut bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir dari anekdot tersebut 
-    cukup penting. Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah, yang bisa dipakai untuk menangkis hanyalah 
-    batok kepala kita sendiri. Artinya adalah _mati_.
+[^anekdot-senjata]: Narasi di atas diikuti oleh sebuah anekdot dari rakyat Song tentang senjata yang dipakai itu, tetapi saya tidak melihat bagaimana cara kelucuan tersebut bisa diterjemahkan dengan baik ke dalam bahasa Indonesia. Tetapi kesimpulan akhir dari anekdot tersebut cukup penting. Intinya adalah: Karena beratnya, sekali senjata tersebut menghujam ke bawah, yang bisa dipakai untuk menangkis hanyalah batok kepala kita sendiri. Artinya adalah _mati_.
+
+[^daozhang]: Dào Zhang (道长, bisa juga ditulis Dào cháng) adalah panggilan umum untuk seorang pendeta Tao, terlepas dari jabatan yang dipegangnya dalam sebuah perguruan, organisasi, ataupun hirarki kepemimpinan Tao lainnya.
