@@ -291,8 +291,8 @@ Yang Tiexin membayar makanan dan minuman mereka, lalu mengajak Guo Xiaotian pula
 berdua bertetangga. Hanya jalan sedikit mereka pun sampai di rumah.
 
 Istri Guo Xiaotian, Li, sedang mengejar ayam. "Kalian berdua pasti pergi minum-minum lagi ya?
-Yang Xiongdi, kenapa tidak kau ajak istrimu kesini untuk makan bersama, hari ini
-kita akan masak ayam."
+Yang <dfn title="Xiongdi = Adik laki-laki">Xiongdi</dfn>, kenapa tidak kau ajak istrimu kesini 
+untuk makan bersama, hari ini kita akan masak ayam."
 
 Yang Tiexin tertawa, "Baiklah! Rasanya kami berdua akan mengganggu kalian lagi. Kami
 sebetulnya punya banyak ayam dan bebek, tapi kami tidak tega berpisah dengan mereka
