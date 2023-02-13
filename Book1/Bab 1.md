@@ -291,7 +291,7 @@ Yang Tiexin membayar makanan dan minuman mereka, lalu mengajak Guo Xiaotian pula
 berdua bertetangga. Hanya jalan sedikit mereka pun sampai di rumah.
 
 Istri Guo Xiaotian, Li, sedang mengejar ayam. "Kalian berdua pasti pergi minum-minum lagi ya?
-Yang <dfn title="Xiongdi = Adik laki-laki">Xiongdi</dfn>, kenapa tidak kau ajak istrimu kesini 
+Yang [Xiongdi](#xiongdi "Adik laki-laki (兄弟)"), kenapa tidak kau ajak istrimu kesini 
 untuk makan bersama, hari ini kita akan masak ayam."
 
 Yang Tiexin tertawa, "Baiklah! Rasanya kami berdua akan mengganggu kalian lagi. Kami
@@ -1901,3 +1901,10 @@ Bao Xiruo mengangguk. "Jangan terlalu banyak buang uang." katanya.
 aku ingin buang lebih banyak uang juga tidak bisa." kata Yan Lie.
 
 ***
+
+<dl>
+    <dt id="xiongdi"><strong>Xiong Di</strong></dt>
+    <dd>Arti literalnya adalah 'Adik' (laki-laki).</dd>
+</dl>
+
+    
