@@ -112,5 +112,7 @@ berupa salah ketik, atau lainnya, kalau memang ada). Cerita asli karya Jin Yong 
 cerita bersambung dalam surat kabar Hong Kong Commercial Daily, mulai dari 1 Januari 1957 — 19 Mei 1959. Cerita hasil
 saduran saya ini pun demikian, hanya saja, saat ini ditampilkan oleh **GitHub**.
 
-[^yingxiong]: Ying Xiong (英雄), dalam konteks cerita silat umumnya bermakna 'Pendekar', meskipun arti literalnya adalah 'Pahlawan'.
+[^yingxiong]: 
+    Ying Xiong (英雄), dalam konteks cerita silat umumnya bermakna 'Pendekar', meskipun 
+    arti literalnya adalah 'Pahlawan'.
 
