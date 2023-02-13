@@ -204,7 +204,7 @@ masih dua puluhan, tapi punggungnya agak bongkok, dan ada beberapa helai rambut 
 di kepalanya. Dari belakang ia terlihat seperti orang tua.
 
 Zhang Shiwu sudah berusia lima puluhan, meskipun ia terlihat lebih muda dengan
-potongan tubuh yang kurus dan ramping. Ia saling pandang dengan kedua ngobrolnya
+potongan tubuh yang kurus dan ramping. Ia saling pandang dengan kedua teman ngobrolnya
 dalam diam.
 
 "Itu betul sekali," katanya setelah beberapa saat. "Pandanganmu sangat tajam, Pak.
