@@ -15,21 +15,12 @@ Pada saat itu wilayah padang rumput di bagian Utara Tiongkok terbagi menjadi
 beberapa konfederasi dari suku-suku nomad seperti Naiman, Khamag Mongol, Merkit,
 Keraite, dan juga Tatar. Sedangkan di sebelah Selatan, Dinasti Song sendiri
 mulai dari tahun 1184 sudah kehilangan kendali atas wilayah Utara mereka, yang jatuh
-ke tangan suku Jurchen, yang akhirnya mendirikan Dinasti Jin.
-
-<div class="w3-panel w3-card-4">
-  <h5>Catatan</h5>
-  <p>
-    Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah
-    Kekaisaran setelah Dinasti Han ambruk, yang dipimpin oleh cucu dari Sima Yi,
-    yaitu Sima Yan.
-  </p>
-</div>
+ke tangan suku Jurchen, yang akhirnya mendirikan Dinasti Jin[^1].
 
 Dalam perkembangan nama Jurchen ini nantinya akan berganti menjadi Manchu.
 
 Jurchen adalah bagian  dari Dinasti Liao (907- 1125), sebuah kekaisaran yang dipimpin oleh suku Khitan. 
-Bagi para penggemar cerita silat, suku ini dipopulerkan oleh seorang ketua Kaipang 
+Bagi para penggemar cerita silat, suku ini dipopulerkan oleh seorang ketua Kai Pang 
 bernama Xiao Feng — yang awalnya selalu percaya bahwa dirinya adalah seorang 
 suku Han, dan memang dibesarkan oleh keluarga dari suku Han — dalam cerita berjudul 
 **Demi Gods and Semi Devils**, yang mengambil _setting_ dalam era Dinasti Song lebih awal dari cerita ini sendiri. 
@@ -39,7 +30,7 @@ rentang waktu dalam cerita **Demi Gods and Semi Devils** adalah sebelum tahun 11
 karena pada saat itu Dinasti Liao dan suku Khitan masih ada dan berjaya.
 
 Pada tanggal 9 Januari 1127, Jurchen menginvasi istana Kekaisaran Song di Bianjing 
-ibukota Dinasti Song Utara (di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang), 
+ibukota Dinasti Song Utara[^bianjing], 
 dan mereka berhasil menyandera 2 kaisar sekaligus, yaitu Kaisar Hui Zong, yang saat
 itu sudah pensiun dan menyandang gelar Taishang Huang, dan Kaisar Qin Zong, yang 
 mewarisi tahta ayahnya. Sebenarnya dalam realita pelimpahan tahta ini terjadi 
@@ -102,7 +93,8 @@ ditangkap oleh suku Tatar bersama dengan putra Khabul Khan, yaitu Todo'en Otchig
 ketika melamar putri dari kepala suku Tatar untuk dikawinkan dengan putranya Qadaan Taishi.
 Ambaghai adalah paman dari Yesugai, ayah kandung Temujin.
 
-[Ambaghai mengalami penyiksaan fisik](https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK "Cuplikan adegan Ambaghai ditangkap oleh suku Tatar") ketika ditangkap oleh suku Tatar. 
+[Ambaghai mengalami penyiksaan fisik](https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK "Cuplikan adegan Ambaghai ditangkap oleh suku Tatar") 
+ketika ditangkap oleh suku Tatar. 
 
 Sebenarnya kejadian tersebut adalah hasil rancangan para pemimpin Dinasti Jin yang saat
 itu dipimpin oleh Wanyan Dan, atau lebih dikenal sebagai Kaisar Xizong,
@@ -147,18 +139,7 @@ Setelah naik tahta, Wulu sebagai Kaisar Shizong menurunkan gelar Wanyan Liang ya
 sudah tewas menjadi Pangeran Yang dari Hailing. Ia secara otomatis juga bersikap oposisi
 terhadap kebijakan sistem berpakaian dan segala kebudayaan masyarakat Song. Dengan
 demikian sebagian masyarakat Song Utara yang sebelumnya sempat tergerak oleh perubahan
-yang dilakukan oleh Wanyang Liang menjadi kembali antipati kepada bangsa Jin.
-
-<div class="w3-panel w3-card-4">
-    <h3>Catatan</h3>
-    <p>
-    Kebijakan sosial ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
-    Jurchen yang akhirnya kembali menguasai wilayah pusat setelah berhasil menggulingkan
-    Dinasti Ming, dan mendirikan Dinasti Qing. Tidak seperti sebelumnya, proses asimilasi
-    etnis tersebut sangat sukses dan pemerintahan Dinasti Qing berlangsung selama ratusan
-    tahun, dengan struktur sosial yang cukup mencolok berbeda dengan Dinasti pendahulunya.
-    </p>
-</div>
+yang dilakukan oleh Wanyang Liang menjadi kembali antipati kepada bangsa Jin[^kebijakan-sosial].
 
 Sebagai penganut Taoisme, Kaisar Shizong pada tahun 1187 sempat mengundang
 salah seorang murid dari pendiri Perguruan Quanzhen, Wang Chongyang, yang bernama
@@ -166,7 +147,7 @@ Wang Chuyi ke istana untuk berkotbah. Hal ini sempat menimbulkan pertanyaan
 di hati sebagian orang dalam Perguruan Quanzhen sendiri. Menurut beberapa sumber sejarah,
 Pendeta Qiu Chuji juga diundang dalam acara tersebut. Meskipun demikian, baik dalam
 novel ini sendiri maupun dalam catatan sejarah, kita bisa melihat bahwa akhirnya
-Qiu Chuji lebih cenderung mendukung Genghis Khan, dan bukan Dinasti Jin.
+Qiu Chuji lebih cenderung mendukung Genghis Khan, dan bukan Dinasti Jin[^qiuchuji].
 
 Buku pertama dari Trilogi Rajawali ini mengawali cerita di era kekuasaan Kaisar
 Ning Zong dari Song, yang mewarisi tahta dari ayahnya, Kaisar Guang Zong. Sementara
@@ -179,7 +160,9 @@ invasi bangsa Jin di wilayah Utara.
 
 ## Catatan Mengenai Peristilahan
 
-Istilah-istilah Tionghoa yang dipakai dalam tulisan ini memakai [sistem romanisasi dengan gaya Wade-Giles](https://en.wikipedia.org/wiki/Wade%E2%80%93Giles), dan tentunya berdasarkan bahasa Mandarin yang netral, bukan seperti
+Istilah-istilah Tionghoa yang dipakai dalam tulisan ini memakai 
+[sistem romanisasi dengan gaya Wade-Giles](https://en.wikipedia.org/wiki/Wade%E2%80%93Giles), 
+dan tentunya berdasarkan bahasa Mandarin yang netral, bukan seperti
 yang bisa dibaca dalam karya-karya penulis legendaris Indonesia seperti Kho Ping Hoo atau Gan KL, yang
 cenderung memakai dialek Hokkian.
 
@@ -201,3 +184,21 @@ mengacaukan suatu tatanan yang dibangun oleh pemerintah. Dalam konteks ini kita 
 Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 
 — FX. Adi Lima
+
+[^1]: Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah
+  Kekaisaran setelah Dinasti Han ambruk, yang dipimpin oleh cucu dari Sima Yi, yaitu Sima Yan.
+
+[^2]: Di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang.
+
+[^kebijakan-sosial]: 
+    Kebijakan sosial ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
+    Jurchen yang akhirnya kembali menguasai wilayah pusat setelah berhasil menggulingkan
+    Dinasti Ming, dan mendirikan Dinasti Qing. Tidak seperti sebelumnya, proses asimilasi
+    etnis tersebut sangat sukses dan pemerintahan Dinasti Qing berlangsung selama ratusan
+    tahun, dengan struktur sosial yang cukup mencolok berbeda dengan Dinasti pendahulunya.
+
+[^qiuchuji]:
+    Pendeta Qiu Chuji adalah seorang tokoh spiritual beraliran Taoisme yang _memang_ ada dan
+    pernah hidup dalam sejarah, tepat di era seperti dalam cerita. Ia juga _sungguh-sungguh_
+    adalah anggota dari Aliran Quanzhen, dan _memang_ sempat sangat dekat dengan Genghis Khan.
+
