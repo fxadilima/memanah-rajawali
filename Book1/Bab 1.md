@@ -97,7 +97,7 @@ dan Zhao Shen naik tahta sebagai Kaisar Xiao Zong. Mulai dari Gao Zong, Kekaisar
 Song hanya tinggal separuh wilayah mereka yang sebenarnya, dan ibukota berpindah ke Lin'an.
 
 Ketika Guo Xiaotian, Yang Tiexin, dan Zhang Shiwu sedang berbicara santai di kedai
-itu, Kaisar Xiao Zong sedang berkuasa di Song Selatan, dan bangsa Jin masih terus
+itu, Kaisar Ning Zong sedang berkuasa di Song Selatan, dan bangsa Jin masih terus
 mengganggu wilayah mereka dari waktu ke waktu. Lin'an yang dipilih sebagai ibukota
 Song Selatan, sebenarnya berada cukup dekat dengan daerah Selatan wilayah yang dikuasai
 oleh Jin. Karena itulah gangguan dari para tentara Jin sangat terasa bagi rakyat.
@@ -121,7 +121,7 @@ akhirnya Hui Zong dan Qin Zong ditawan oleh Jin, mereka memang pantas mendapat h
 seperti itu. Tapi bagaimana dengan jutaan rakyat Song? Mereka tidak melakukan apa pun
 yang pantas dihukum seperti tindakan tentara Jin ini."
 
-Pada saat itu Gao Zong sudah pensiun sebagai kaisar, dan ia masih tetap hidup
+Pada saat Xiao Zong bertahta, Gao Zong sudah pensiun sebagai kaisar, dan ia masih tetap hidup
 di istana dengan gelar Taishang Huang.
 
 Setelah Zhao Shen bertahta sebagai Kaisar Xiao Zong, sebenarnya ia melakukan beberapa
@@ -134,9 +134,10 @@ di era pemerintahan Xiao Zong.
 
 Tetapi orang-orang semacam Zhang Shiwu, yang sudah terlanjur bersimpati kepada Yue Fei
 dan jajarannya di era sebelumnya, dan juga merasakan sendiri penindasan yang terjadi
-ketika balatentara Jin memasuki wilayah mereka, tentu saja gagal melihat perubahan
+sebagai akibat dari berkuasanya bangsa Jin di wilayah mereka, tentu saja gagal melihat perubahan
 yang terjadi, karena memang belum cukup signifikan untuk melindungi rakyat Song dari
-kemungkinan serbuan musuh.
+kemungkinan serbuan musuh. Tambahan lagi, era di mana mereka hidup saat itu sudah cukup jauh
+dari era Kaisar Xiao Zong sendiri.
 
 Uraian Zhang Shiwu juga menyinggung soal **Insiden Jing Kang** (靖康事變) Jin Kang Shi Bian,
 yang berakhir dengan ditawannya mantan Kaisar Hui Zong dan Kaisar Qin Zong yang sedang berkuasa saat itu,
