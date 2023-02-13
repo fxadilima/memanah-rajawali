@@ -1,11 +1,6 @@
 {
   "name": "memanah-burung-rajawali",
-  "main": "http://localhost:3000",
-  "node-main": "server.js",
+  "main": "index.html",
   "node-remote": "http://localhost:3000",
-  "scripts": "start nw .",
-  "dependencies": {
-    "marked": "^4.1.1",
-    "prismjs": "^1.29.0"
-  }
+  "scripts": {"start": "nw ."}
 }
