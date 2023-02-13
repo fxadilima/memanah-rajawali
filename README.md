@@ -21,7 +21,8 @@ the *client*, then transform the resulting text into HTML.
 Please note though, this is not the best server in the world, obviously.
 
 To use Node Webkit, you must [download an appropriate version for your OS](https://nwjs.io/downloads/), then place the entire contents of this
-repository into the same folder.
+repository into the same folder. This approach is really, generaly, recommended. This will greatly reduce the requirement to write a *good* server,
+just to enable us to access local files using something like 'fetch()'.
 
 ## Compatibility Issues
 
