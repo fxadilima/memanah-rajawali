@@ -1638,7 +1638,7 @@ ketahuan para prajurit itu."
 Bao Xiruo menangis dan menjawab, "Suamiku sudah tewas, bagaimana aku bisa terus hidup.
 Kau saja yang melarikan diri dan jangan pedulikan aku."
 
-Yan Lie menjawab dengan wajah kaku, "Fu Ren (Nyonya), suamimu tewas dibunuh bangsat-bangsat
+Yan Lie menjawab dengan wajah kaku, "[Fu Ren](#furen "Nyonya"), suamimu tewas dibunuh bangsat-bangsat
 itu, dan kematiannya belum dibalas. Tapi kau tidak berusaha membawa bajingan-bajingan 
 itu ke pengadilan, dan hanya cari mati. Waktu masih hidup suamimu adalah seorang
 pendekar. Rasanya dia tidak akan tenang kalau tahu soal ini di alam baka."
