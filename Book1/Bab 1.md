@@ -1827,7 +1827,7 @@ tolong katakan saja. Tidak ada yang tidak akan kulakukan untuk Fu Ren."
 
 Melihat betapa dia sangat mendukung, Bao Xiruo merasa tidak enak karena ragu-ragu.
 Selain bunuh diri, rasanya ia tidak bisa menemukan jalan keluar lain. Merasa tidak
-punya pilihan lain, ia menundukkan kepala dan berkata, "Kau saja yang megurusnya."
+punya pilihan lain, ia menundukkan kepala dan berkata, "Kau saja yang mengurusnya."
 
 Yan Lie sangat gembira, "Aku akan selalu berterima kasih Fu Ren sudah menyelamatkan 
 aku. Fu ren..." Bao Xiruo memotongnya, "Kau tidak perlu lagi menyebut soal itu."
