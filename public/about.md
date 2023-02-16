@@ -83,6 +83,8 @@ Gunakan tombol 'Code' (berwarna hijau), lalu pilih tombol 'Download ZIP'.
 semua file **Markdown** dengan benar melalui _browser_ Anda. Meskipun tidak wajib, saya menganjurkan Anda menggunakan
 **Google Chrome**. Yang ditampilkan oleh halaman tersebut adalah sebuah halaman kosong yang hanya berisi sebuah
 **Menu Bar** dengan tombol 'Open'. Gunakan menu tersebut untuk menemukan file berekstensi '.md' Anda.
+Tentunya Anda juga bebas memakai _framework_ lainnya, seperti yang saya gunakan dalam 
+[delployment di netlify](https://contekan-2022.netlify.app/buku/sdyxz/bab2).
 2. Untuk secara otomatis menampilkan keseluruhan cerita, Anda tetap _perlu_ menjalankan sebuah HTTP Server,
 meskipun proses mengakses file-file tersebut hanya melalui tombol-tombol dari klien. Ada banyak cara untuk melakukan
 hal ini. Kita bisa memanfaatkan _internal HTTP Server_ milik PHP, atau membuat sebuah skrip sederhana yang akan
