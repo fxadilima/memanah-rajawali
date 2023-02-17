@@ -3,6 +3,12 @@
 
 ![Insiden Di Tengah Badai Salju](https://res.cloudinary.com/drzjshskk/image/upload/e_contrast:85,q_auto:best/v1676662508/sdyxz/originals/ch01_qqa6or.jpg)
 
+_Akhirnya si pendeta tertawa, mendadak telapak kanannya menghantam pegangan tombak
+dengan kecepatan seperti angin. Yang Tiexin merasa pangkal jempol dan telunjuknya
+mati rasa, dan dengan segera ia melepaskan tombak ke tanah yang diselimuti salju._
+
+***
+
 Di masa itu, di dekat kota Lin'an, sebelah Timur wilayah Jin, dua orang pemuda
 yang bersahabat karib sedang minum arak sambil menikmati cerita rakyat di sebuah
 kedai, di pinggiran kota.
@@ -622,7 +628,7 @@ keras, "Bajingan tengik! Hari ini Pinto akan melanggar larangan membunuh!"
 Yang Tiexin begitu marahnya sampai tidak bisa bicara. Ia meraih tombaknya yang
 tersandar di sudut ruangan dan melompat keluar. "Ayo! Coba kau jajal Ilmu Tombak Keluarga Yang."
 
-Si pendeta terkekeh, "Kau pikir kau cukup layak memakai Ilmu Tombak Keluarga Yang,
+Si Pendeta terkekeh, "Kau pikir kau cukup layak memakai Ilmu Tombak Keluarga Yang,
 hanya karena kesombongan palsu begini?" Ia melangkah keluar begitu selesai bicara.
 
 Melihat situasi memburuk, Guo Xiaotian segera pulang untuk mengambil sepasang tombak pendeknya.
