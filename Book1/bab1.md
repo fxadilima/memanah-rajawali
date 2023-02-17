@@ -1425,8 +1425,8 @@ dengan paksa, lalu menerjang ke arah para prajurit itu dengan tombaknya. Setelah
 kira-kira sepuluh langkah ia menengok ke belakang dan melihat istrinya menangis
 di tengah debu yang beterbangan, dan sekelompok prajurit sudah berkerumun di sekitarnya.
 
-Sambil menghapus air mata, darah, dan keringat di wajahnya, Yang Tiexin segala pikiran
-untuk menyelamatkan diri jauh-jauh, dan hanya berpikir tentang menyelamatkan saudara
+Sambil menghapus air mata, darah, dan keringat di wajahnya, Yang Tiexin menepis segala 
+pikiran untuk menyelamatkan diri jauh-jauh, dan hanya berpikir tentang menyelamatkan saudara
 iparnya, supaya kakak angkatnya memiliki keturunan.
 
 Setelah mengejar beberapa saat, akhirnya ia mendapatkan seekor kuda. Setelah menginterogasi
