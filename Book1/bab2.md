@@ -467,31 +467,9 @@ ini semua ada apa."
 
 Si Sastrawan yang kelihatan miskin dan bertele-tele itu menenggak secawan arak, lalu
 melanjutkan, sambil masih menggeleng-gelengkan kepalanya, "Orang kaya hina... sudahlah...
-Yu Huang Da Di akan murka!" Sambil mengutip kalimat itu ia mengeluarkan beberapa
-tail emas dan perak dari sakunya, dan meletakkannya di atas meja. Semuanya terdiri
-dari delapan tail perak dan dua tail emas.
-
-<div class="w3-panel w3-card-4">
-    <h3>Catatan</h3>
-    <p>
-    Dua karakter Huangdi (皇帝) dipakai Kaisar Qin Shi Huang sebagai julukan untuk
-    dirinya sendiri, yang secara umum bisa diartikan sebagai 'Kaisar', dan sejak saat
-    itu istilah ini mulai dipakai orang. Karakter 'Di' (帝) yang dipakai di sini
-    tidak pengacu kepada sosok penguasa tertinggi di muka bumi, melainkan sosok
-    'Mahadewa' dari mitologi pantheon dalam Dinasti Shang. Sedangkan karakter Huang (皇)
-    artinya adalah 'kuning', gabungan keduanya mengacu ke sosok mitologi Tiongkok kuno
-    yang secara internasional dikenal sebagai 'Yellow Emperor'.
-    </p>
-    <p>
-    Yu Huang Da Di (玉皇大帝) adalah nama yang dipakai untuk sosok yang secara
-    internasional dikenal sebagai 'Jade Emperor'. 
-    </p>
-    <p>
-    Kutipan Si Sastrawan nyentrik di atas secara umum bertujuan untuk mengatakan bahwa sosok
-    Mahadewa dengan otoritas tertinggi atas manusia yang dipercayai masyarakat
-    pada saat itu akan murka.
-    </p>
-</div>
+[Yu Huang Da Di](#yu-huang-da-di "Sosok yang dikenal sebagai 'Jade Emperor'.") akan murka!" 
+Sambil mengutip kalimat itu ia mengeluarkan beberapa tail emas dan perak dari sakunya, dan 
+meletakkannya di atas meja. Semuanya terdiri dari delapan tail perak dan dua tail emas.
 
 Dari bentuk dan warna uang itu Wanyan Honglie tahu bahwa semua itu miliknya, tetapi
 ia tidak marah. Sebaliknya, ini bahkan membangkitkan rasa ingin tahunya, "Menyelinap ke
@@ -514,7 +492,7 @@ terdengar suara dari bawah tangga, "Amitoufu (阿眯头佛, salam dalam agama Bu
 
 "Biksu Jiaomu sudah datang." kata Si Buta.
 
-Kamimat yang sama diulangi, bersamaan dengan munculnya seorang biksu tua yang penampilannya
+Kalimat yang sama diulangi, bersamaan dengan munculnya seorang biksu tua yang penampilannya
 memang mirip dengan Jiaomu (kayu bakar). Biksu itu berusia sekitar 40 tahun, mengenakan
 jubah warna kuning, tangannya memegang sepoting kayu yang di salah satu ujungnya sudah
 terbakar menjadi arang berwarna hitam. Tidak jelas apa gunanya benda itu.
@@ -1875,4 +1853,20 @@ Saking takutnya, Duan Tiande dengan segera meraih tangan Li Ping dan membawanya 
 secepat mungkin. Li Ping berteriak-teriak minta tolong, tapi teriakannya terdengar
 makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
-
+<dl>
+    <dt id="yu-huang-da-di"><strong>Yu Huang Da Di</strong></dt>
+    <dd>
+        Dua karakter Huangdi (皇帝) dipakai Kaisar Qin Shi Huang sebagai julukan untuk
+        dirinya sendiri, yang secara umum bisa diartikan sebagai 'Kaisar', dan sejak saat
+        itu istilah ini mulai dipakai orang. Karakter 'Di' (帝) yang dipakai di sini
+        tidak pengacu kepada sosok penguasa tertinggi di muka bumi, melainkan sosok
+        'Mahadewa' dari mitologi pantheon dalam Dinasti Shang. Sedangkan karakter Huang (皇)
+        artinya adalah 'kuning', gabungan keduanya mengacu ke sosok mitologi Tiongkok kuno
+        yang secara internasional dikenal sebagai 'Yellow Emperor'.
+        Yu Huang Da Di (玉皇大帝) adalah nama yang dipakai untuk sosok yang secara
+        internasional dikenal sebagai 'Jade Emperor'. 
+        Kutipan Si Sastrawan nyentrik di atas secara umum bertujuan untuk mengatakan bahwa sosok
+        Mahadewa dengan otoritas tertinggi atas manusia yang dipercayai masyarakat
+        pada saat itu akan murka.
+    </dd>
+</dl>
