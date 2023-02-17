@@ -1853,6 +1853,8 @@ Saking takutnya, Duan Tiande dengan segera meraih tangan Li Ping dan membawanya 
 secepat mungkin. Li Ping berteriak-teriak minta tolong, tapi teriakannya terdengar
 makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
+***
+
 <dl>
     <dt id="yu-huang-da-di"><strong>Yu Huang Da Di</strong></dt>
     <dd>
