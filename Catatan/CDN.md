@@ -15,3 +15,4 @@ Perhatikan bahwa _table_ tersebut bisa saja sengaja dibuat tidak memiliki _heade
 
 Cara ini tetap bisa kita pakai untuk menampilkan daftar yang berisi _link_ video, atau bahkan hanya sekedar ganbar,
 kecuali kalau kita sudah puas dengan _default_, yaitu semua gambar akan ditampilkan oleh GitHub dengan _align left_.
+Cara ini bisa kita pakai juga untuk menampilkan _link_ video.
