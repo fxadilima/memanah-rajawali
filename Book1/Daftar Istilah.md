@@ -1,3 +1,14 @@
+# Nama Orang
+
+Guo Jing (郭靖), tokoh utama cerita ini.
+Huang Rong (黄蓉), tokoh utama cerita ini.
+
+Jiangnan Qi Guai (江南七怪) = Tujuh Orang Aneh dari Jiangnan (Selatan Sungai Yangtze)
+
+## Nama-nama Jurus
+
+Xiang Long Shiba Zhang (降龙十八掌) = 18 Jurus Penakluk Naga.
+
 # Nama Panggilan
 
 Diē (爹, dibaca: Tiē) = 'Ayah'.
@@ -5,12 +16,14 @@ Diē (爹, dibaca: Tiē) = 'Ayah'.
 Zai Xia (载下) = istilah dalam bentuk orang ketiga tunggal untuk diri sendiri,
 umumnya dipakai untuk merendahkan diri. 
 
-Xiao Nuzi (小女子) = little girl, istilah yang juga dipakai seorang gadis untuk merendahkan diri
-di hadapan orang yang dipandang tinggi.
+Xiao Nuzi (小女子) = little girl, istilah yang juga dipakai seorang gadis untuk merendahkan 
+diri di hadapan orang yang dipandang tinggi.
 
 Ya Tou (丫头), Gu Niang (姑娘) bisa berarti 'girl', tapi punya efek berbeda.
 Umumnya Yatou digunakan dalam panggilan lebih akrab, karena juga bisa berarti 'budak' atau
 'pelayan', sedangkan Guniang akan lebih sering diterjemahkan menjadi 'Nona'.
+
+Nu Wawa (女娃娃) = anak perempuan kecil
 
 Gong Zi (公子), istilah umum untuk 'Tuan Muda', perhatikan, ini bukan ditulis Gong Zhi
 Gong Zhu (公主), Tuan Putri (Princess)
@@ -30,6 +43,8 @@ Cui Xin Zhang (摧心掌) = Telapak Penghancur Jantung, ilmu andalan Mei Chaofen
 
 ## Istilah Lain
 
+Xiao Gui (小鬼) = 'Setan Cilik'.
+
 Wulin (武林) = 'Martial Art' atau seni bela diri
 
 Jie Chu Ren Cai (杰出人才) = Outstanding Talent
@@ -43,8 +58,7 @@ Lianjin Shu (炼金术) = Alchemy = Alkimia (Ilmu kimia abad pertengahan).
 Pai (派) => Kelompok atau Group. Contoh gamblang pemakaiannya adalah Shaolin Pai, diterjemahkan
 menjadi 'Sekolah Shaolin'.
 
-Kaipang atau Gai Bang (丐帮) diterjemahkan menjadi Gang of Beggars, Partai Pengemis, Kelompok Pengemis.
-
+Kai Pang atau Gai Bang (丐帮) diterjemahkan menjadi Gang of Beggars, Partai Pengemis, Kelompok Pengemis.
 Bang (帮) = Geng, sebenarnya maknanya kurang lebih sama dengan 'group', tapi dengan konotasi
 agak negatif.
 
@@ -62,7 +76,7 @@ Hushuo Badao (胡说八道) = 'Omong Kosong'
 Huyan (胡言) = Omong Kosong.
 Huyan Luanyu (胡言乱语) = melantur.
 Shagua (傻瓜) = bodoh.
-Feihua (废话) = nonsense
+Feihua (废话) = nonsense, bullshit, dsb
 Xiang Feihua (想废话) = Talking nonsense, bicara asal-asalan, contohnya Zhou Dian sering mengucapkan ini,
 bahkan di depan Zhang Sanfeng.
 
@@ -96,11 +110,47 @@ Jiang Cheng Fei Hua = Diterjemahkan menjadi River Town Flying Blossom
 
 Wu Gong (武功) = Ilmu silat.
 
-Di Zi (弟子, dibaca: 'teecu' menurut gaya Kho Ping Hoo)
+Di Zi (弟子, dibaca: 'teecu', menurut gaya Kho Ping Hoo)
 
 Nu Da Wang (Raja Besar Perempuan), di sini istilah 'Da Wang' yang secara literal berarti 'Raja Besar' biasa dipakai orang
 untuk memanggil seorang Kepala Perampok, sedangkan 'Nu' artinya adalah 'Perempuan'. 
 
+Hunzhang (混账) = Ini bisa diartikan sama dengan Hundan (混蛋), tetapi agak lebih halus. Kira-kira semacam
+'Lancang!' atau 'Kurang ajar!', atau 'Asshole!'.
+
+Hundan (混蛋) = Bajingan, dibaca: hùndàn.
+Hundan (昏蛋) = dibaca: hūndàn (bedakan dengan yang di atas), anehnya istilah ini diterjemahkan menjadi 'Faint' atau
+'Pingsan' oleh Google Translate.
+
+Chùsheng (畜生) = 'Beast!', kata-kata ini dipakai Song Yuanqiao untuk memaki anaknya sendiri yang dianggap berkelakuan
+binatang.
+
+Bu Yao Lian (不要脸) = literal: 'Tidak mau muka', artinya kurang lebih 'Tidak tahu malu', atau seseorang yang dengan
+bebas melakukan sesuatu yang akan membua malu diri sendiri.
+
+fàng pì (放屁) = Kentut!
+
+bì zuǐ, (闭嘴) = Shut up!
+
+Chi Bao Fan Mei Shi Gan (吃飽飯沒事干) = Sudah makan, tidak ada kerjaan.
+
+Gān (干) = Literal: 'Kering'; Contoh: Nǐ xiǎng gàn ma 你想干嘛 = 'Kau mau apa?'
+Berikut ini juga mengandung 'Gan':
+Shénme (什麼) = What; Contoh: Nǐ xiǎng gàn shénme 你想干什麼 ? = Kau mau ngapain?
+
+Meiyong (沒用, baca: méiyòng) = Tidak berguna; contoh: meiyong de dongxi 沒用的東西
+
+Nándào (难道) = Could it be? Contoh: Dia bukan orang baik, kalau begitu _kau_ orang baik ya?
+                Tā bùshì hǎorén, _nándào_ nǐ shì hǎorén ma? (他不是好人，难道你是好人吗 ?)
+
+Nan Guai (难怪, Nán Guài) = 'Tidak heran', 'Tidak aneh', 'No wonder', dsb.
+
+Na nǐ xiǎng zěnme yàng (那你想怎么样) = Then what _do_ you want? Lalu kau mau apa?
+
+Ji Ran Ru Ci (既然如此) = 'Kalau begitu,...'  
+
+
+[Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
 ## Tanda Baca
 

@@ -4,7 +4,7 @@
 |   :---:   | :---   |
 | ![Ilustrasi Bab 2](https://res.cloudinary.com/drzjshskk/image/upload/q_auto:best/v1676666031/sdyxz/originals/ch02_hrww24.jpg) | _Tubuh Han Baoju sebetulnya berada di perut kuda, dengan kaki kirinya di pedal, dan kaki kanan bersama dengan kedua tangannya memegang tong, menjaga keseimbangannya di atas pelana. Kuda itu sangat cepat dan stabil, seolah-olah tangga itu hanya sebidang tanah datar._     |
 
-## Tujuh Orang Aneh Dari Selatan
+## Tujuh Orang Aneh Dari Jiangnan
 
 Pada saat Yan Lie berjalan keluar, ia berpapasan dengan seorang pelajar setengah
 baya yang sedang berjalan masuk, menyeret kakinya sambil terus menguap. Ia seperti
@@ -111,7 +111,7 @@ Yan Lie mengeluarkan sebuah amplop dari sakunya, lalu meletakkannya di atas meja
 memandang ke langit-langit kamar dan berkata, "Bawa ini ke Gai Yuncong, coba lihat dia
 mau datang apa tidak."
 
-Si pemimpin mengambil amplop itu, lalu membaca tulisan yang tertera di atasnya, ia 
+Si Pemimpin mengambil amplop itu, lalu membaca tulisan yang tertera di atasnya, ia 
 mmundur selangkah karena terkejut. Tidak pasti barang itu asli atau tidak, ia berbisik
 kepada temannya, "Jaga dia, jangan biarkan dia lari." Ia segera meluncur pergi.
 
@@ -573,7 +573,7 @@ untuk minum-minum di Paviliun Dewa Mabuk ini. Aku tahu pasti biksu juga mengunda
 teman lainnya, dan ternyata memang benar. Aku sudah lama mengagumi Tujuh Pendekar dari
 Selatan. Aku beruntung hari ini bisa berkenalan."
 
-Biksu Jiaomu berpaling kepada Tujuh Pendekar Selatan, "Ini pendeta Changchun Zi Qiu Chuji,
+Biksu Jiaomu berpaling kepada Tujuh Pendekar Selatan[^jiang-nan-qi-guai], "Ini pendeta Changchun Zi Qiu Chuji,
 dari aliran Quanzhen. Aku yakin kalian semua sudah dengar sendiri tadi." Ia lalu
 menunjuk kepada Si Buta. "Ini ketua dari Tujuh Pendekar, Ke Daxia (Pendekar Ke), Ke Zhen'E."
 Ia lalu melanjutkan dengan keenam orang lainnya.
@@ -1870,3 +1870,6 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
         pada saat itu akan murka.
     </dd>
 </dl>
+
+[^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
+
