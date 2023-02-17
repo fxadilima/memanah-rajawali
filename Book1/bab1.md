@@ -1,4 +1,7 @@
-# Insiden Ditengah Badai Salju
+# Bab 1
+## Insiden Di Tengah Badai Salju
+
+![Insiden Di Tengah Badai Salju](https://res.cloudinary.com/drzjshskk/image/upload/e_contrast:85,q_auto:best/v1676662508/sdyxz/originals/ch01_qqa6or.jpg)
 
 Di masa itu, di dekat kota Lin'an, sebelah Timur wilayah Jin, dua orang pemuda
 yang bersahabat karib sedang minum arak sambil menikmati cerita rakyat di sebuah
