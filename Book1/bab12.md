@@ -1,7 +1,7 @@
 # Bab 12
 ## Kebanggaan Sang Naga
 
-[![Ilustrasi Bab 12](images/originals/ch12.jpg)](#ilustrasi-bab12)
+[![Ilustrasi Bab 12](/images/originals/ch12.jpg)](#ilustrasi-bab12)
 
 Huang Rong siap untuk memotong ayam itu ketika mereka mendengar suara dari arah belakang,
 "Porsi ketiga. Aku mau pantatnya!"
