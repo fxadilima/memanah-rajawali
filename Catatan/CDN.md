@@ -13,3 +13,4 @@ lebih baik — dengan cara berikut.
 
 Perhatikan bahwa _table_ tersebut sengaja dibuat tidak memiliki _header_.
 
+Cara ini bisa kita pakai juga untuk menampilkan _link_ video.
