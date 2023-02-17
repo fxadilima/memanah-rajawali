@@ -1816,7 +1816,7 @@ Dengan marah Biksu Jiaomu menegur, "Kau mau dengar tidak? Letakkan... letakkan p
 Duan Tiande tertawa terbahak-bahak, "Letakkan pedangku? Lalu apa? Langsung dapat 
 pencerahan, gitu ya?" Ia mengangkat pedangnya, dan mengayunkannya ke arah Qiu Chuji.
 
-Myrka, Biksu Jiaomu menghinpun seluruh tenaganya lagi dan melemparkan potongan kayu 
+Murka, Biksu Jiaomu menghimpun seluruh tenaganya lagi dan melemparkan potongan kayu 
 yang terbakar di tangannya ke arah Duan Tiande sekuat tenaga. Duan Tiande mencoba 
 menghindar, tetapi kungfunya tidak cukup baik dan kena di pinggir mulutnya, merontokkan 
 tiga giginya. Dalam kesakitan dan terhina, Duan Tiande, mengabaikan fakta bahwa dia 
@@ -1825,7 +1825,7 @@ kepala biksu itu. Namun, seorang biksu kecil yang berada tepat di sampingnya men
 lengan kanannya dan menyelamatkan nyawa si biksu, sementara yang lain mencengkeram kerah 
 bajunya. Dengan marah, Duan Tiande mengayunkan pedangnya ke belakang dan menjatuhkannya 
 ke atas kedua biksu itu. Meskipun Qiu Chuji, Jiaomu, dan semua Orang Aneh adalah 
-ahli kungfu, mereka terluka parah atau jauh dari situ dan tidak dapat melakukan 
+jago kungfu, mereka terluka parah atau jauh dari situ dan tidak dapat melakukan 
 apa pun untuk menghentikannya.
 
 Li Ping berteriak, "Bajingan! Hentikan! Hentikan!" Dia diseret ke mana-mana oleh 
@@ -1837,7 +1837,7 @@ karena seragamnya. Semua orang cukup terkejut ketika ia tiba-tiba menyerang Duan
 
 Karena buta, pendengaran Ke Zhen'E sangat sensitif dan tahu bahwa Li Ping sebenarnya 
 perempuan begitu ia mendengar suaranya. Ia menoleh ke Jiaomu, "Biksu Jiaomu, kami 
-semua akan mati demi kau. Ternyata betul-betul ada perenpuan yang disembunyikan di 
+semua akan mati demi kau. Ternyata betul-betul ada perempuan yang disembunyikan di 
 kuilmu!"
 
 Sesaat setelah terkejut, akhirnya Biksu Jiaomu mulai memahami apa yang sebenarnya
