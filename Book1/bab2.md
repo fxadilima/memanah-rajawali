@@ -1859,14 +1859,14 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
         Dua karakter Huangdi (皇帝) dipakai Kaisar Qin Shi Huang sebagai julukan untuk
         dirinya sendiri, yang secara umum bisa diartikan sebagai 'Kaisar', dan sejak saat
         itu istilah ini mulai dipakai orang. Karakter 'Di' (帝) yang dipakai di sini
-        tidak pengacu kepada sosok penguasa tertinggi di muka bumi, melainkan sosok
-        'Mahadewa' dari mitologi pantheon dalam Dinasti Shang. Sedangkan karakter Huang (皇)
+        tidak mengacu kepada sosok penguasa tertinggi di muka bumi, melainkan sosok
+        'Mahadewa' dari mitologi panteon dalam Dinasti Shang. Sedangkan karakter Huang (皇)
         artinya adalah 'kuning', gabungan keduanya mengacu ke sosok mitologi Tiongkok kuno
         yang secara internasional dikenal sebagai 'Yellow Emperor'.
         Yu Huang Da Di (玉皇大帝) adalah nama yang dipakai untuk sosok yang secara
         internasional dikenal sebagai 'Jade Emperor'. 
         Kutipan Si Sastrawan nyentrik di atas secara umum bertujuan untuk mengatakan bahwa sosok
-        Mahadewa dengan otoritas tertinggi atas manusia yang dipercayai masyarakat
+        Mahadewa dengan <em>otoritas tertinggi atas manusia</em> yang dipercayai masyarakat
         pada saat itu akan murka.
     </dd>
 </dl>
