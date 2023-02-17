@@ -1,4 +1,10 @@
-# Tujuh Orang Aneh Dari Selatan
+# Bab 2
+
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 2](https://res.cloudinary.com/drzjshskk/image/upload/q_auto:best/v1676666031/sdyxz/originals/ch02_hrww24.jpg) | _Tubuh Han Baoju sebetulnya berada di perut kuda, dengan kaki kirinya di pedal, dan kaki kanan bersama dengan kedua tangannya memegang tong, menjaga keseimbangannya di atas pelana. Kuda itu sangat cepat dan stabil, seolah-olah tangga itu hanya sebidang tanah datar._     |
+
+## Tujuh Orang Aneh Dari Selatan
 
 Pada saat Yan Lie berjalan keluar, ia berpapasan dengan seorang pelajar setengah
 baya yang sedang berjalan masuk, menyeret kakinya sambil terus menguap. Ia seperti
