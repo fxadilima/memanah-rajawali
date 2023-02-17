@@ -785,7 +785,7 @@ Sangat terkejut, Huang Rong mengamati bahwa Liang Ziwong, kaki terbentang dengan
 
 [^xiang-long-shiba-zhang]: Xiang Long Shiba Zhang (降龙十八掌, **18 Jurus Penakluk Naga**). Ilmu ini adalah ciri khas dari Hong Qigong, dan sejauh ini hanya dia sendiri yang menguasainya.
 
-[^babao]: **Delapan Harta Karun** (八宝, atau Ba Bao), adalah delapan simbol yang seringkali dilukiskan dalam karya-karya seni Tiongkok kuno, termasuk <a href="https://en.wikipedia.org/wiki/File:91643_SMVK_OM_objekt_118348_(2).jpg)" target="_blank">dalam uang logam</a>. Penjelasannya bisa dibaca pada [daftar berikut](#delapan-harta-karun "Daftar Delapan Harta Karun").
+[^babao]: **Delapan Harta Karun** (八宝, atau Ba Bao), adalah delapan simbol yang seringkali dilukiskan dalam karya-karya seni Tiongkok kuno, termasuk dalam uang logam. Penjelasannya bisa dibaca pada [daftar berikut](#delapan-harta-karun "Daftar Delapan Harta Karun").
 
 ##### Delapan Harta Karun
 1. Bao Zhu (宝珠), mutiara yang menyala. Melambangkan terkabulnya sebuah harapan.
