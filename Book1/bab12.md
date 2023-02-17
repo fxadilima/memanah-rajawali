@@ -1,23 +1,7 @@
 # Bab 12
 ## Kebanggaan Sang Naga
 
-[Ilustrasi video dari versi 2003](https://youtube.com/clip/UgkxOdvTKvPbGCzbi2fD0hOUW4JNa7r6yiCL) ini agak lebih akurat,
-meskipun dari sisi gambar tentu saja kalah dibandingkan versi 2017 pada gambar berikut.
-<div class="w3-row-padding w3-container">
-  <div class="w3-col s12 l6 m6">
-    <a href="https://youtube.com/clip/UgkxvqDPs1b2mwtdUaFhT_tJANPCkyE6Ds8x" target="_blank">
-        <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci" width="100%">
-    </a>
-  </div>
-  <div class="w3-col s12 l6 m6">
-    <p><em>
-      Wajah Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan tangannya,
-      membiarkan Wanyan Kang memegang tangannya. Kepalanya makin tertunduk
-    </em></p>
-  </div>
-</div>
-
-***
+[![Ilustrasi Bab 12](images/originals/ch12.jpg)](#ilustrasi-bab12)
 
 Huang Rong siap untuk memotong ayam itu ketika mereka mendengar suara dari arah belakang,
 "Porsi ketiga. Aku mau pantatnya!"
@@ -157,7 +141,7 @@ Guo Jing betul-betul tercengang. "Membuat sate itu bukan pekerjaan mudah!" katan
 tertentu, daging rusa dan sapi lain lagi... di situ ada berapa banyak variasi, itu yang aku tidak tahu."
 
 "Kalau urutan variasinya tidak dihitung," kata Huang Rong sambil tersenyum. "ada dua puluh lima variasi,
-yang berhubungan dengan lima kali lima kelopak bunga [prem](#meihua). Sama seperti sate itu melambangkan
+yang berhubungan dengan lima kali lima kelopak [bunga prem](#meihua). Sama seperti sate itu melambangkan
 sebuah seruling, masakan ini juga punya nama — kita sebut saja 'Bunga Prem Jatuh Ke Alunan Seruling Giok'.
 Variasi yang kau tanyakan tadi berarti ada semacam urutan penempatan untuk hasil ujian. Qigong, kau lulus
 ujian, kau memang seorang ahli makanan!"
@@ -409,7 +393,9 @@ Aku lupa... Lagipula sudah di ujung mulut selama ini, aku sebetulnya ingin mohon
 itu disebut..." Sebetulnya ia sama sekali tak tahu ilmu apa itu, jadi hanya mengoceh bertele-tele.
 
 Mendengarnya ragu-ragu, seperti berusaha menemukan nama yang tidak juga ketemu, Qigong tidak tahan
-lagi dan berteriak sambil melompat turun dari atas pohon itu. "Itu disebut Delapan Belas Jurus Penakluk Naga!"
+lagi dan berteriak sambil melompat turun dari atas pohon itu. "Itu disebut 
+Delapan Belas Jurus Penakluk Naga![^xiang-long-shiba-zhang]"
+
 Guo Jing dan Huang Rong melompat kaget, yang satu sungguh-sungguh kaget, lainnya hanya pura-pura.
 
 "Ah, Hong Lao Qianbei," seru Huang Rong. "Bagaimana kau bisa di atas pohon? Terbang ya? Ya betul, itu
@@ -447,6 +433,266 @@ dari teknik ini adalah menyerang dengan tepat sehingga lawan bagaimana pun juga 
 juga harus kuat, maka begitu pukulanmu mendarat, 'krekkk', lawan langsung roboh seperti pinus ini!" Ia mengulangi
 peragaan itu dua kali, lalu menjelaskan secara rinci bagaimana memusatkan dan mengerahkan tenaga dalam. Itu
 hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan waktu lebih dari satu jam. 
+
+Guo Jing tidak pintar, akan tetapi ia punya dasar tenaga dalam yang bagus. Mempelajari  kungfu semacam ini, yang
+terdiri dari rangkaian gerakan sederhana, tetapi membutuhkan tenaga yang kuat, sangat cocok baginya. Ia berlatih
+dengan cermat, dan dua jam kemudian ia sudah menguasai sebagian besar teknik ini.
+
+"Gerakan Si Cilik itu," kata Hong Qigong. "lebih banyak tipuan daripada serangan yang sesungguhnya. Kalau kau
+mencoba mengikutinya, ia akan berputar-putar di sekelilingmu seolah-olah kau seekor keledai dungu, dan kau akan
+selalu kalah. Kau tidak akan pernah bisa secepat dia. Kalau kau pikir setelah sekian banyak serangan tipuan, maka
+selanjutnya pasti yang sebenarnya, tapi ternyata tidak, selanjutnya tetap akan _palsu_. Nah setelah itu kau mengira
+serangan berikutnya palsu lagi, tapi ternyata dia akan mengirimkan pukulan yang serius, dan kau langsung dalam bahaya!"
+Guo Jing mengangguk setuju.
+
+"Karena itu, untuk mengatasi dia cara yang paling cerdik adalah, kita tidak mau tahu apakah serangan itu
+tipuan atau bukan. Begitu dia menyerang, kau dengan segera mengirimkan Kang Long You Hui yang kau pelajari ini.
+Berhadapan dengan kekuatan seranganmu, ia akan terpaksa mundur dan bertahan, dengan begitu segala tipuannya
+akan seperti jatuh ke dalam air."
+
+"Dan selanjutnya?" tanya Guo Jing.
+
+"Apa maksudmu 'selanjutnya'?" sahut Hong Qigong. "Dasar goblok! Kau kira dia mampu bertahan terhadap pukulan
+yang kuajarkan barusan?"
+
+"Tapi kalau dia tidak mampu bertahan," kata Guo Jing, kuatir. "bukankah dia bisa terluka?"
+
+Qigong menggelengkan kepalanya dan menghela nafas. "Jika orang hanya mengirimkan pukulan sepenuh tenaga dan 
+tidak bisa menyerang secara terukur. Jika orang tidak dapat mengendalikan berat-ringan kekuatannya, kekerasan
+atau kelembutannya, bagaimana orang dapat menganggap dirinya _menguasai_ Delapan Belas Jurus Penakluk Naga?"
+
+Guo Jing sungguh ingin menyetujui hal itu, tetapi ia lalu mengambil keputusan berdasarkan dalam hati, "Karena
+aku belum bisa mengendalikan tenaga pukulanku dengan sempurna, maka aku tidak akan bertarung dengan Rong'Er!"
+
+"Kau tidak percaya?" kata Hong Qigong. "Nah, kalau begitu cobalah sendiri!"
+
+Guo Jing mengambil posisi, menirukan gaya Hong Qigong. Ia memilih sebatang pohon pinus yang agak ramping, lalu
+memukulnya dengan keras. Pohon itu bergetar, tetapi sama sekali tidak patah, apalagi roboh.
+
+"Dasar tolol," kata Qigong. "Buat apa kau mengguncangkan pohon ini? Mau menangkap tupai atau menjatuhkan biji
+pinus?" Muka Guo Jing memerah karena malu, ia tertawa dengan lagak menyangkal, tak tahu bagaimana harus menjawab.
+
+"Tadi sudah kuberi contoh," kata Hong Qigong lagi. "Kita perlu menempatkan lawan sedemikian rupa, supaya dia tidak
+bisa mundur atau melarikan diri. Pukulanmu barusan sebenarnya sudah cukup kuat, tapi pohon pinus ini hanya perlu
+goyang-goyang sedikit, dan dia jadi tidak kena sepenuh tenaga. Yang penting di sini adalah, kau harus belajar
+pendekatan yang benar, dan memukul sedemikian rupa sehingga si pohon tidak bisa bergerak, supaya kau bisa langsung
+mematahkannya."
+
+Penjelasan ini mencerahkan Guo Jing, "Kalau begitu," katanya dengan gembira. "serangan itu harus sangat cepat,
+dan dikirim sedemikian rupa, sehingga lawan tidak sempat bertahan."
+
+Qigong menatapnya dengan muram, "Itu sudah pasti. Kau sudah sangat lama berusaha sampai berdarah-darah, hanya
+untuk memahami prinsip _ini_? Wah, orang betul-betul bisa bilang kau ini _tidak pintar_. Karena pukulan ini
+dikenal sebagai 'Naga Angkuh Punya Penyesalan' — intinya bukan pada kata 'Angkuh', tapi justru pada kata 
+'Penyesalan' itu. Kalau orang berkonsentrasi pada kekerasan murni — tenaga kasar — maka sedikit otot sudah
+cukup. Kalau itu benar, bagaimana jurus ini bisa dikagumi Huang Yaoshi? Ini seperti ungkapan kuno, 'Naga
+yang angkuh itu sendiri menyesal, kelebihannya tidak akan bertahan lama'. Itu alasannya kalau ada pengiriman, 
+harus selalu ada yang dipertahankan. Kalau kau mengirim sepuluh tenaga, penting untuk mempertahankan dua puluh
+tenaga di dalam dirimu. Pada hari ketika kau sungguh _tahu_ bagaimana menghargai konsep tentang 'Penyesalan',
+maka kau akan bisa bilang bahwa kau sudah memahami tiga puluh persen dari jurus ini. Seperti arak tua yang bagus,
+perlu waktu untuk matang. Mula-mula rasanya memang tidak terlalu kuat, tetapi setelah matang, akan sungguh-sungguh
+menyuguhkan rasa yang memabukkan. Itu menjelaskan arti kata 'Penyesalan'."
+
+Guo Jing tidak mengerti apa-apa tentang masalah ini, tetapi ia mencoba menghafalnya untuk merenungkannya nanti. 
+Untuk belajar kungfu, ia selalu memakai metode yang sama, 'Kalau orang lain bisa mencernanya di pagi hari, 
+aku sepuluh hari!' Kemudian ia berkonsentrasi mempelajari pukulan itu. Awalnya, pohon pinus itu menyerap setiap 
+pukulan yang diterimanya. Menjelang akhir, pukulan ini menjadi semakin kuat, tetapi pohon itu semakin tidak berguncang. 
+Ia menyadari bahwa ia telah maju dan agak senang. Telapak tangannya menjadi merah dan bengkak, tetapi ia 
+tidak mengobatinya dan terus berlatih dengan tekad bulat, tidak pernah santai.
+
+Hong Qigong yang awalnya tertawa melihat kegigihannya, sudah berbaring di tanah dan mendengkur pulas. Guo Jing
+merasa jauh lebih nyaman setelah ia berhasil menguasai tenaganya — untuk mengirim serangan dan mempertahankannya.
+Ia memusatkan tenaga ke arah titik 'Dan Tian', ia mendorong telapak tangannya ke depan dengan keras, lalu dengan
+segera menariknya, begitu bagus sehingga pohon itu tidak bergerak sama sekali. Dengan senang pemuda itu mengulangi
+cara yang sama, sambil mengumpulkan tenaga di ujung telapak tangannya. Ia mendengar suara 'kreekk!', dan pohon
+pinus kecil itu patah.
+
+"Bagus!" jerit Huang Rong yng melihat dari kejauhan. Ia pelan-pelan mendekat sambil membawa keranjang belanjaan yang
+berat.
+
+Bahkan sebelum membuka mata, Hong Qigong sudah mencium aroma lezat dari makanan yang dibawanya. "Baunya enak! 
+Baunya sangat enak!” teriaknya, melompat berdiri. Ia merebut keranjang dari tangan gadis itu dan membuka tutupnya. 
+Ia melihat sepiring paha kodok panggang, bebek yang sangat gemuk cocok untuk Delapan Harta Karun[^babao], dan 
+semangkuk besar mie. Dengan girang ia menerkam makanan itu, terus memuji sambil melahapnya. Tapi karena mulutnya 
+penuh, orang tidak mengerti apapun yang dikatakannya. Dalam sekejap mangkuk berisi paha kodok dan bebek itu 
+licin bersih. Menyadari bahwa Guo Jing belum makan, pengemis tua itu merasa agak malu. "Ayo, makanlah," katanya.
+"mie ini lumayan..." Dan karena merasa sangat tidak enak, ia menambahkan, "Mie ini bahkan lebih enak daripada bebek!"
+
+Huang Rong tertawa dan berkata, "Hong Lao Qianbei masih belum mencicipi masakanku yang terbaik."
+
+Saking terkejut dan girangnya, pengemis tua itu langsung bertanya, "Masakan apa? Masakan apa lagi?"
+
+"Kau tidak mungkin menyebutkan semuanya," kata Huang Rong. "Misalnya, tumis kol, tahu kukus, telur rebus,
+irisan daging..."
+
+Sebagai _ahli makan_ yang berpengetahuan luas, Hong Qigong tahu persis bahwa seorang juru masak sejati baru akan
+menunjukkan bakatnya dalam menghidangkan masakan yang paling sederhana. Seperti juga dalam seni bela diri, 
+cara yang sangat menakjubkan dalam melakukan gerakan paling sederhana menunjukkan ciri khas seorang pendekar
+kelas atas. Kata-kata Huang Rong tadi membuatnya begitu senang, sehingga ekspresi mukanya hampir-hampir memohon.
+"Bagus, bagus," katanya. "Aku selalu bilang kau ini si cilik yang berani. Jadi kau mau supaya aku yang beli kol 
+dan tahu ya?"
+
+"Buang-buang waktumu," kata Huang Rong sambil tertawa. "Apa yang kau beli juga belum tentu cocok."
+
+"Cukup adil," kata Hong Qigong. "Hanya kau sendiri yang bisa memilih semua bahanmu."
+
+"Barusan," kata Huang Rong. "Kulihat dia mematahkan pohon pinus. Dia sudah lebih kuat dari aku."
+
+"Wah, sama sekali tidak," protes Qigong. "Bocah ini jauh dari sasaran. Batang pohon itu seharusnya terpotong rapi.
+Coba kau lihat, semuanya bengkok-bengkok seperti mata gergaji, kasar sekali. Kungfunya sungguh payah! Selain itu,
+pohon ini sangat kurus, mirip tongkat — bukan, malah mirip tusuk gigi! Anak ini jauh sekali dari sasaran!"
+
+"Tapi kalau dia menyerangku dengan jurus ini, aku tidak akan bisa membela diri," bantah Huang Rong. "Ini semuanya
+salahmu! Lain kali kalau dia menggangguku, bagaimana aku bisa melawan?"
+
+Hong Qigong yang ingin supaya dia kembali bersikap normal, tidak ingin mengganggunya lebih jauh, ia bisa melihat
+kelicikan bocah kecil itu. "Jadi menurutmu aku harus bagaimana?"
+
+"Ajari aku sesuatu yang bisa mengalahkannya. Setelah itu aku akan memasak untukmu."
+
+"Baiklah, kita sepakat," kata Qigong. “Dia hanya belajar satu jurus, mudah untuk mengalahkannya. Aku akan mengajarimu
+teknik _melarikan diri_ yang disebut Xiao Yao You[^xiao-yao-you] untuk mengatasi ini." Tidak lama setelah selesai berbicara, 
+ia bangkit untuk memperagakannya. Ia melompat ke kanan dan ke kiri, dengan anggun dan gesit, sementara lengan 
+bajunya yang besar berkibar.
+
+Huang Rong cepat belajar, diam-diam mengingat setiap gerakan. Ketika orang tua itu menyelesaikan rangkaiannya, ia sudah 
+setengah mempelajarinya. Setelah ia memberikan semua instruksi tambahan, tidak butuh lebih dari dua jam bagi gadis itu 
+untuk melakukan dengan sempurna tiga puluh enam gerakan _Xiao You You_ itu. Akhirnya ia melakukan gerakan itu 
+bersama-sama Hong Qigong. Mereka bergerak bersama dan melompat bersamaan, yang satu ke kanan, yang lain ke kiri, 
+berputar-putar seperti burung layang-layang giok dan meluncur seperti elang besar di langit. Pada akhir dari 
+tiga puluh enam gerakan, mereka mendarat dengan kaki mereka pada waktu yang bersamaan. Sambil saling memandang, 
+mereka tertawa terbahak-bahak dan Guo Jing bertepuk tangan dengan penuh semangat.
+
+"Si kecil ini seratus kali lebih pintar dari kau," kata Hong Qigong kepada Guo Jing.
+
+"Gerakan dan variasinya begitu banyak," kata Guo Jing kagum sambil menggaruk kepalanya. "Bagaimana dia bisa belajar secepat 
+itu? Dan bagaimana dia bisa tidak lupa? Aku, waktu belajar gerakan kedua, aku sudah lupa yang pertama!"
+
+Qigong tertawa terbahak-bahak, "Memang kau benar-benar tidak bisa mempelajari Xiao Yao You ini! Bahkan jika kau hafal 
+langkah-langkahnya, dalam prakteknya kau tidak punya semangat untuk melangkah seperti itu! Kau akan melakukannya dengan 
+susah payah dan kikuk, belajar teknik ini akan menjadi beban berat bagimu!”
+
+"Kau benar!" Guo Jing dengan tertawa mengakui.
+
+"Xiao Yao You ini," kata Hong Qigong, "kupelajari waktu aku masih muda. Aku ajarkan kepada si kecil ini karena jurus itu 
+pasti akan memperkuat gaya kungfu dia. Sebetulnya ini tidak cocok dengan gaya kungfuku saat ini, makanya aku tidak lagi
+menggunakannya selama sepuluh tahun terakhir." Yang ingin dikatakannya adalah bahwa Xiao Yao You sebetulnya jauh lebih
+lemah ketimbang Delapan Belas Jurus Penakluk Naga.
+
+Huang Rong sangat senang. "Hong Lao Qianbei, kalau kalah lagi, pasti dia tidak senang. Tolong ajari dia beberapa jurus lain." 
+Ia sendiri tidak punya niat untuk belajar, dan itu hanya dalih untuk mendorong pengemis tua itu untuk memberi lebih banyak 
+pelajaran pada kekasihnya. Jika benar-benar ingin belajar kungfu, ia memiliki seorang guru besar hebat dalam diri ayahnya, 
+yang keterampilannya tidak akan pernah bisa ia pelajari sepenuhnya.
+
+"Bocah bodoh ini," kata Hong Qigong. "Dia bahkan belum sepenuhnya mencerna satu pukulan yang kuajarkan. Dia menggigit lebih 
+dari yang bisa dia kunyah! Selama kau menyiapkan banyak makanan untukku, aku akan mengabulkan semua keinginanmu!"
+
+"Ya sudah," kata Huang Rong sambil tersenyum. "Aku ke pasar dulu." Hong Qigong tertawa terbahak-bahak dan kembali ke
+penginapan, meninggalkan Guo Jing sendirian di hutan pinus, di mana ia kembali berlatih dengan tekun dan gigih sampai
+jauh malam.
+
+Malam itu, Huang Rong memang menyiapkan sepiring kol dan sepiring penuh tahu untuk Qigong. Ia dengan hati-hati memilih 
+kol yang paling empuk, lalu menggorengnya dengan minyak ayam dan suwiran kaki bebek. Tapi sepiring penuh tahu itu 
+benar-benar luar biasa – ia memotong ham menjadi dua dan kemudian membuat dua puluh empat rongga bulat kecil di mana 
+ia meletakkan bola-bola tahu, sebelum menutup ham dan mulai mengukusnya. Di akhir proses memasak, rasa ham sudah meresap
+ke dalam tahu, sedangkan hamnya sendiri tidak ada. Setelah mencicipi hidangan ini, Hong Qigong tentu saja kegirangan. 
+Tahu kukus ini punya nama yang terinspirasi oleh puisi Tang dan disebut [Malam Bulan Purnama di Dua Puluh Empat Jembatan]. 
+
+[Malam Bulan Purnama di Dua Puluh Empat Jembatan]: #libai-dufu "Ini mengacu pada puisi yang dibuat selama dinasti Tang (618-907 M). Penyair paling terkenal di zaman itu adalah Li Bai (kadang-kadang dikenal sebagai Li Po) dan Du Fu."
+
+Jika gadis itu tidak punya ilmu keluarga yang disebut Menyaring Inti Bunga Anggrek, sepuluh jarinya yang gesit dan halus 
+akan tidak mampu memotong tahu yang rapuh menjadi dua puluh empat bola kecil . Untuk melakukannya dibutuhkan kehalusan 
+yang sama besarnya dengan mengukir karakter di atas sebutir beras atau mengukir gambar kapal di atas kulit kacang. Memotong 
+tahu menjadi kotak-kotak memang mudah, tetapi mana ada bulan purnama berbentuk persegi?
+
+Setelah makan malam, masing-masing pergi tidur. Hong Qigong heran melihat Guo Jing dan Huang Rong pergi ke kamar yang 
+terpisah. "Hah? Bukankah kalian suami istri? Kenapa kau tidak tidur di kamar yang sama?"
+
+Huang Rong, yang bercanda dengannya tanpa ragu, merasa malu. Pipinya memerah dan terlihat kesal ia berkata, "Qianbei, 
+kalau kau terus omong kosong, aku tidak mau masak besok!"
+
+"Apa?" Hong heran. "Kapan aku omong kosong?" Setelah merenung sejenak, ia menyadari, "Aku memang sudah tua dan pikun," 
+katanya sambil tertawa. "Kau jelas berpakaian seperti seorang gadis dan bukan seorang istri. Karena itu kalian bertunangan
+secara diam-diam, tanpa persetujuan orang tua, atau mak comblang, atau upacara perkawinan. Jangan kuatir, aku akan 
+menjadi perantaramu. Jika ayahmu tidak menerima, aku akan menantangnya untuk berduel dan kita akan bertarung — astaga — 
+selama tujuh hari tujuh malam jika perlu, sampai dia menyerah!"
+
+Huang Rong justru kuatir akan masalah ini, dan dia takut ayahnya tidak akan menyukai Guo Jing. Kata-kata pengemis tua 
+itu membuatnya gembira dan ia kembali ke kamarnya, wajahnya berseri-seri.
+
+Keesokan harinya, Guo Jing kembali ke hutan pinus saat fajar. Ia berlatih sekitar dua puluh putaran dengan banyak 
+keringat dan bersukacita atas kemajuan yang dicapainya. Tiba-tiba ia mendengar suara berbicara di antara pepohonan.
+
+"Shifu," sebuah suara berkata, "kita pasti sudah jalan lebih dari tiga puluh li kali ini, kan?"
+
+"Memang," jawab suara lain, "kemajuanmu dalam ketahanan sudah lumayan..."
+
+Suara ini terasa sangat akrab bagi Guo Jing, yang kemudian melihat empat orang muncul, yang pertama berambut putih dan 
+kulit kemerahan. Itu tidak lain adalah musuh nomor satunya, Liang Ziweng, Si Dewa Ginseng! Ia diam-diam menggigil 
+dan melangkah pergi. Tapi Liang Ziweng sudah mengenalinya. "Kau pikir mau kemana?" serunya sambil melompat ke depan 
+untuk mengejar. Tiga pria lainnya adalah muridnya. Melihat guru mereka mengejar musuh, mereka berpencar untuk 
+mengepung pemuda itu.
+
+"Amannya, aku harus keluar dari hutan pinus dan kembali ke penginapan," kata Guo Jing pada dirinya sendiri, sambil 
+berlari lebih cepat lagi. Tapi murid pertama Liang Ziweng menghalangi jalannya dan berteriak, sambil menyilangkan 
+kedua telapak tangannya, "Bajingan kecil, berlutut!"
+
+Ia menyerang dengan teknik _qinna_ (tangkap dan kendalikan) yang diajarkan oleh gurunya dan berusaha untuk mencengkeram 
+dada Guo Jing. Pemuda itu menekuk kaki kirinya sedikit, dengan tangan terentang ke dalam dia membuat lingkaran dengan 
+telapak tangan kanannya dan menyerang dengan kuat. Pukulan yang baru saja dia pelajari, Naga Angkuh Punya Penyesalan. 
+Lawannya merasakan tenaga yang tiba-tiba menerpa dan berusaha untuk menghindarinya, tetapi tenaga itu sangat kuat 
+sehingga mematahkan lengannya dan melemparkannya sejauh 1 zhang (sekitar 3,3m) atau lebih, membuatnya kehilangan 
+kesadaran. Guo Jing tidak pernah percaya bahwa pukulannya akan sekuat itu, tetapi tidak bisa menunggu lebih lama,
+dan melanjutkan pelariannya.
+
+Terkejut dan kesal, Liang Ziweng melompat ke hadapannya. Guo Jing baru saja meninggalkan pohon pinus ketika ia menemukan
+Si Dewa Ginseng di depannya. Sangat ketakutan, ia mengambil posisi dan meluncurkan sekali lagi jurus Naga Angkuh Punya
+Penyesalan yang baru dipelajarinya. Liang Ziweng tidak mengenal jurus ini, tetapi setelah merasakan kekuatannya, ia 
+tahu bahwa ia tidak dapat menanganinya. Ia harus berguling ke tanah untuk menghindarinya. Guo Jing mengambil 
+kesempatan untuk melarikan diri lagi.
+
+Saat Liang Ziwong pulih, pemuda itu sudah sampai di depan penginapan. Guo Jing berteriak, "Rong'Er, celaka! Itu 
+si jahat yang mau minum darahku!"
+
+Huang Rong menjulurkan kepalanya ke luar jendela. "Bagaimana tua bangka itu bisa ada di sini?" ia bertanya pada 
+dirinya sendiri. "Tidak apa-apa. Aku akan mencoba _Xiao Yao You_ baru ini." Ia berseru, "Jing ge ge, jangan takut 
+dengan tua bangka itu. Hadapi saja. Aku akan datang untuk membantumu, dan kita akan memberinya pelajaran yang bagus!"
+
+"Rong'er tidak tahu kekuatan monster tua ini," kata Guo Jing pada dirinya sendiri. "itu sebabnya ia berbicara  
+seenaknya." Tapi Liang Ziweng sudah melompatinya. Dalam menghadapi kekerasan serangan itu, pemuda itu tidak punya 
+pilihan lain selain meluncurkan sekali lagi Naga Angkuh Punya Penyesalan. Liang Ziweng berputar dan mengelak beberapa 
+kaki ke samping, tetapi lengannya yang terulur hampir tersentuh oleh kekuatan telapak tangan dan meninggalkan rasa 
+terbakar dan menyakitkan. Dewa Ginseng itu diam-diam ketakutan, kagum bahwa anak ini dalam waktu beberapa bulan 
+telah berkembang pesat. "Ini pasti," pikirnya, "karena darah ular yang mahal itu." Pikiran ini menguasainya, dan 
+ia melompat lagi untuk menyerang. Guo Jing membela diri lagi dengan pukulan yang sama. Sadar bahwa ia tidak mampu 
+melawan, Liang Ziweng mundur. Memperhatikan bahwa anak muda itu tampaknya tidak punya pukulan menakutkan lainnya 
+untuk mengunggulinya, ketakutan Liang berkurang. "[Shazi]," teriaknya. "Kau _cuma_ bisa satu pukulan itu ya?"
+
+[Shazi]: #shazi "Anak bodoh"
+
+Guo Jing masuk tepat ke dalam perangkapnya, "Bahkan dengan satu pukulan ini," jawabnya. "Kau tetap tidak akan bisa 
+menghindarinya!" Ia maju, dan meluncurkan sekali lagi Kang Long You Hui. Liang Ziweng mengelak dan melompat ke 
+belakang Guo Jing untuk menyerangnya. Ia berbalik dan berusaha menyerang lagi dengan cara yang sama, tetapi 
+lawannya sekali lagi menyelinap di belakangnya. Pemuda itu, yang hanya tahu bagaimana melakukan serangan frontal, 
+benar-benar terganggu dan tidak bisa menghadapinya.
+
+Melihatnya di ambang kekalahan, Huang Rong berseru, "Jing ge ge, biar yang aku melawannya!" Ia melompat ke depan 
+dan menempatkan diri di antara kedua orang itu, menyerang Liang Ziweng dengan telapak tangan dan tendangannya. 
+Lian Ziweng membalas serangan itu. Guo Jing mundur dua langkah untuk mengawasi mereka. Huang Rong telah mempelajari 
+dengan baik teknik Xiao Yao You yang luar biasa itu, tetapi selain fakta bahwa ia sudah mempelajarinya, terlalu dini 
+untuk sungguh-sungguh menguasainya. Liang Ziweng sebenarnya jauh lebih kuat dari dia. Oleh karena itu, tanpa 
+perlindungan yang diberikan oleh rompi kulitnya, ia pasti sudah terkena beberapa pukulan dan pasti sudah lama terluka. 
+Bahkan sebelum mengerahkan tiga puluh enam gerakan penuh dari Xiao Yao You, ia sudah kehilangan akal. Murid-murid 
+Liang Ziweng, sambil mendukung kakak seperguruan mereka yang terluka, mengamati pertarungan tersebut dan melihat 
+guru mereka menang, terus bersorak untuk memberikan semangat kepadanya.
+
+***
+
+**Last**.
+
+Guo Jing bersiap untuk membantu Huang Rong ketika tiba-tiba Hong Qigong terdengar berteriak dari balik jendela, "Pukulan berikutnya disebut 'Anjing Jahat Menghalangi Jalan'!"
+
+Sangat terkejut, Huang Rong mengamati bahwa Liang Ziwong, kaki terbentang dengan kuat dalam 'Sikap Kuda' dan tinjunya direntangkan secara horizontal, memang mengambil sikap 'Si Harimau Jahat Menghalangi Jalan'. Dia tidak bisa menahan diri untuk tidak tertawa di dalam. "Hong mengubah nama pukulan ini, tapi bagaimana dia bisa menebak bahwa itu akan menjadi yang itu?"
 
 ***
 
@@ -488,8 +734,8 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
 
 ***
 
-<div class="w3-row-padding" id="pelajaran-pertama">
-  <div class="w3-col s12 l6 m6">
+<div class="w3-row-padding">
+  <div class="w3-col s12 l6 m6" id="pelajaran-pertama">
     <a href="https://youtube.com/clip/Ugkxfwd1ThoQHmfmGTvFUXGNljqu4Ui7sP7t" target="_blank">
       <img src="images/jurus-pertama.jpg" alt="Jurus Pertama" width="100%">
     </a>
@@ -498,7 +744,7 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
     <div class="w3-container">
       <p><em>
       "Meskipun pikiranmu sangat sederhana," kata Hong Qigong sambil tertawa. "Kau punya hati yang baik, dan kau
-      bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut Naga Angkuh Punya Penyelasan."
+      bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut Naga Angkuh Punya Penyesalan."
       </em></p>
     </div>
   </div>
@@ -506,13 +752,52 @@ hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan w
 
 ***
 
+<div class="w3-row-padding">
+  <div class="w3-col s12 l6 m6" id="ilustrasi-bab12">
+    <a href="https://youtube.com/clip/UgkxvqDPs1b2mwtdUaFhT_tJANPCkyE6Ds8x" target="_blank">
+      <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci" width="100%">
+    </a>
+  </div>
+  <div class="w3-col s12 l6 m6">
+    <p><em>
+      Wajah Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan tangannya,
+      membiarkan Wanyan Kang memegang tangannya. Kepalanya makin tertunduk
+    </em></p>
+  </div>
+</div>
+
+<p>
+  <a href="https://youtube.com/clip/UgkxOdvTKvPbGCzbi2fD0hOUW4JNa7r6yiCL" target="_blank">
+    Ilustrasi video dari versi 2003</a> ini agak lebih akurat, meskipun dari sisi gambar tentu saja 
+    kalah dibandingkan versi 2017 di atas.
+</p>
+
+
 [^qigong]: Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'. Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
 
 [^shizhi]: Istilah bahasa mandarin untuk jari telunjuk adalah Shi Zhi (食指), di mana karakter Shi adalah 'makanan' sedangkan Zhi adalah 'jari'. Dengan demikian bisa diterjemahkan secara literal menjadi 'Jari Makanan'.
 
 [^haoqiutang]: Hao Qiu Tang (好求汤, Sup Mencari Kebaikan, Good Seeking Soup).
 
-[^kanglongyouhui]: Empat karakter Kang Long You Hui (康龙有悔), punya arti literal masing-masing: 'Kang' yang paling umum dipakai untuk melengkapi istilah 'Sehat', seperti dalam Jian Kang (健康), tetapi juga bisa berarti 'Damai' atau 'Peaceful', makna inilah yang dipakai dalam konteks tersebut. Seekor Naga yang merasa dirinya tinggi akan bersikap sombong, tetapi karena menyesalinya maka ia akan merasa damai. Berikutnya 'Long' berarti 'Naga', 'You' bisa diartikan 'ada', atau 'punya'. 'Hui' di sini diambil dari Houhui 后悔 (menyesal). Demi mempertahankan estetika, saya menerjemahkan semuanya menjadi 'Naga Angkuh Punya Penyesalan'.
+[^kanglongyouhui]: Empat karakter Kang Long You Hui (康龙有悔), punya arti literal masing-masing: 'Kang' yang paling umum dipakai untuk melengkapi istilah 'Sehat', seperti dalam Jian Kang (健康), tetapi juga bisa berarti 'Damai' atau 'Peaceful', makna inilah yang dipakai dalam konteks tersebut. Seekor Naga yang merasa dirinya tinggi akan bersikap sombong, tetapi karena menyesalinya maka ia akan merasa damai. Berikutnya 'Long' berarti 'Naga', 'You' bisa diartikan 'ada', atau 'punya'. 'Hui' di sini diambil dari Houhui 后悔 (menyesal). Demi mempertahankan estetika, saya menerjemahkan semuanya menjadi '**Naga Angkuh Punya Penyesalan**'.
 
 [^yatou]: Ya Tou (丫头) adalah istilah yang dipakai untuk memanggil anak perempuan, selain itu juga biasa dipakai untuk pembantu perempuan.
+
+[^xiang-long-shiba-zhang]: Xiang Long Shiba Zhang (降龙十八掌, **18 Jurus Penakluk Naga**). Ilmu ini adalah ciri khas dari Hong Qigong, dan sejauh ini hanya dia sendiri yang menguasainya.
+
+[^babao]: **Delapan Harta Karun** (八宝, atau Ba Bao), adalah delapan simbol yang seringkali dilukiskan dalam karya-karya seni Tiongkok kuno, termasuk <a href="https://en.wikipedia.org/wiki/File:91643_SMVK_OM_objekt_118348_(2).jpg)" target="_blank">dalam uang logam</a>. Penjelasannya bisa dibaca pada [daftar berikut](#delapan-harta-karun "Daftar Delapan Harta Karun").
+
+##### Delapan Harta Karun
+1. Bao Zhu (宝珠), mutiara yang menyala. Melambangkan terkabulnya sebuah harapan.
+2. Fang Sheng (方胜), melambangkan kebahagiaan perkawinan dan menangkal pengaruh jahat. Simbol ini biasanya terlihat 
+dalam upacara perkawinan, sebagai 'Double Happiness' (双喜, Shuangxi). Karakter kedua (喜) biasanya akan dicetak dua kali,
+maka menjadi (囍). Istilah bahasa Inggris lainnya yang sering dipakai adalah 'Double Lozenges'.
+3. Qing (磬), atau 'Musical Stone', melambangkan kehidupan yang adil dan benar.
+4. Sepasang Cula Badak, atau Xijiao (犀角). Melambangkan kebahagiaan.
+5. Sepasang koin, atau Shuang Qian (双钱), melambangkan kemakmuran.
+6. Batangan emas atau perak, Ding (锭).
+7. Shanhu (珊瑚), atau batu karang (Coral).
+8. Ruyi (如意), semacam tongkat kerajaan yang melambangkan harapan.
+
+[^xiao-yao-you]: **Xiao Yao You** (逍遥游). Karakter pertama dan kedua jika digabungkan akan bermakna _carefree_, atau 'bebas'. Tetapi bisa juga diartikan 'riang'. Sedangkan karakter ketiga 'You' (游) punya makna literal '_traveling_', atau bisa kita terjemahkan secara bebas menjadi berjalan-jalan. Istilah ini kurang lebih bermakna 'Berjalan-jalan Dengan Bebas dan Riang Gembira'. Karena terlalu panjang dan dari segi estetika tidak enak dibaca maupun diucapkan, maka saya membiarkannya seperti itu. (Terjemahan bahasa Inggris dari fans menerjemahkannya menjadi 'Wandering Strides', yang saya kira agak kurang sesuai).
 
