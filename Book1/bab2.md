@@ -522,12 +522,11 @@ Misi Wanyan Honglie sebagai utusan ke Negeri Song adalah memaksa para pejabat So
 sehingga pada saat mereka menyerang negeri itu, mereka punya orang dalam yang bisa
 diandalkan untuk membantu mereka meraih kemenangan.
 
-Utusan dari Song, Wang Daojian, yang menemaninya pergi dari Yanjing (di jaman modern
-adalah Beijing), sangat korup dan serakah. Ia secara diam-diam sudah membangun aliansi
-dengan Dinasti Jin. Waktu mereka tiba di Lin'an, dialah orang bekerja keras untuk 
-Wanyan Honglie. Tapi di luar dugaan, ia kemudian tewas di tangan pendeta Tao ini. 
-Bahkan kepala, jantung, dan hatinya hilang. Terkejut dan takut bahwa rencananya sudah 
-terbongkar, Wanyan Honglie kemudian memimpin para pengawalnya, atas petunjuk para
+Utusan dari Song, Wang Daojian, yang menemaninya pergi dari [Yanjing], sangat korup dan serakah. 
+Ia secara diam-diam sudah membangun aliansi dengan Dinasti Jin. Waktu mereka tiba di Lin'an, 
+dialah orang bekerja keras untuk Wanyan Honglie. Tapi di luar dugaan, ia kemudian tewas di 
+tangan pendeta Tao ini. Bahkan kepala, jantung, dan hatinya hilang. Terkejut dan takut bahwa 
+rencananya sudah terbongkar, Wanyan Honglie kemudian memimpin para pengawalnya, atas petunjuk para
 pengawal terbaik di Lin'an, melacak keberadaan si pembunuh. Ketika mengejar sampai ke 
 Desa Niu, mereka bertemu dengan Qiu Chuji. Di luar dugaan ternyata pendeta Tao ini adalah
 seorang ahli kungfu. Wanyan Honglie belum bergerak sama sekali ketika bahunya tertembus
@@ -1935,6 +1934,8 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [^biksu-jiaomu]: Nama **Jiao Mu** (焦木) ini secara literal berarti 'Kayu Hangus'.
 
 [^gelar-qiu-chuji]: Gelar Qiu Chuji bermakna 'Musim Semi Abadi', atau Chang Chunji (长春季). Sebenarnya karakter Chang (长) di sini bisa bermakna 'Panjang' atau 'Lama'. Karenanya istilah dalam bahasa Inggris 'Everlasting Spring' terasa lebih sesuai.
+
+[Yanjing]: #yanjing "Di jaman modern adalah kota Beijing"
 
 
 
