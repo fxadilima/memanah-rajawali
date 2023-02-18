@@ -1,6 +1,6 @@
 # Memanah Burung Rajawali
 
-![Cover](https://res.cloudinary.com/drzjshskk/image/upload/v1676693955/sdyxz/originals/roch-00_q7aktw.jpg)
+![Cover](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg)
 
 Contains Indonesian translation of Jin Yong novel, Divine Eagle Shooting Heroes (She Diao Ying Xiong Zhuan, 射鵰英雄傳)
 
