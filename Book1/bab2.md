@@ -371,7 +371,7 @@ kabut tipis, dan beberapa perahu kecil meluncur pelan di sekitar danau. Daun-dau
 hijau menutupi setengah dari areal danau itu. Melihat pemandangan seperti itu ia merasa
 sangat santai dan tenang. Jiaxing adalah kota terkenal di jaman kuno negara bagian Yue,
 Buah plum yang tumbuh di sini sangat manis dan enak, seperti arak terbaik. Di tengah era
-[Musim Semi dan Musim Gugur](), tempat ini bernama [Zuili]. Di sinilah tempatnya
+[Musim Semi dan Musim Gugur], tempat ini bernama [Zuili]. Di sinilah tempatnya
 saat itu Raja Yue, Guo Jian mengalahkan Raja Wu, He Lu. Tempat ini adalah titik di mana
 para wisatawan dan pedagang dari kedua negara bertemu.
 
