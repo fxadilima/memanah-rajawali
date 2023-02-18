@@ -399,8 +399,7 @@ dipenuhi kayu bakar ke atas bahunya, lalu turun mengikuti gadis itu. Mereka berd
 memasuki paviliun. Ketika melihat si gendut, gadis itu menyapa dengan gembira, 
 "San Ge (Kakak Ketiga)!" Ia lalu duduk di sebelahnya.
 
-Si gendut balas menyapa kedua orang itu, "Si Di (Adik Keempat), Qi Mei (Adik Ketujuh),
-kalian datang kepagian." 
+Si gendut balas menyapa kedua orang itu, "Si Di, Qi Mei, kalian datang kepagian."[^sidi-dan-qimei]
 
 Ketika Wanyan Honglie berusaha mengukur kedua orang yang baru datang itu, ia menebak
 bahwa si gadis itu kira-kira berusia tujuh atau delapan belas tahun, tubuhnya langsing,
@@ -1902,4 +1901,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Da Ge]: #dage "(大哥) Kakak laki-laki tertua. Versi Kho Ping Hoo atau Gan KL adalah 'Toako'. istilah 'Ge' di sini sama dengan 'Koko', yang jauh lebih populer dan banyak digunakan di Indonesia."
 
+[^sidi-dan-qimei]: Adik Keempat (laki-laki), dan adik ketujuh (perempuan). [Baca lebih lanjut...](#panggilan-persaudaraan).
 
