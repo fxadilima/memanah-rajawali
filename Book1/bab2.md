@@ -1893,6 +1893,10 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
            Biao Di (表弟), dan Biao Mei (表妹) untuk perempuan.
         </p>
     </dd>
+    <dt id="laughing-budha"><strong>Budha Tertawa</strong></dt>
+    <dd>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1676747919/sdyxz/originals/laughing-budha_f7zux4.jpg" alt="Budha Tertawa" title="Budha Tertawa">
+    </dd>
 </dl>
 
 [Musim Semi dan Musim Gugur]: #spring-and-autumn-period "Sebuah era dalam Dinasti Zhou, di mana Konfusius hidup dan berkarya. Era ini adalah permulaan dari perpecahan Dinasti Zhou"
@@ -1941,7 +1945,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Budha Tersenyum]: #xiaofu "Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛), punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'."
 
-[^jilaihud]: Julukan Zhang Ahsheng, yaitu Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛). Karakter ini sendiri punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'. Perilaku Zhang Ahsheng maupun potongannya yang tinggi besar memang mirip karakter ini, meskipun tak pernah digambarkan bahwa Si Budha Tertawa punya dada berbulu lebat atau berotot. Zhang Ahsheng adalah pribadi yang tak pernah serius. Kecuali soal otot, Zhange Ahsheng memang sangat cocok dengan karakter berikut.
-
-
+[^jilaihud]: Julukan Zhang Ahsheng, yaitu Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛). Karakter ini sendiri punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'. Perilaku Zhang Ahsheng maupun potongannya yang tinggi besar memang mirip karakter ini, meskipun tak pernah digambarkan bahwa Si Budha Tertawa punya dada berbulu lebat atau berotot. Zhang Ahsheng adalah pribadi yang tak pernah serius. Kecuali soal otot, Zhange Ahsheng memang sangat cocok dengan [karakter berikut](#laughing-budha).
 
