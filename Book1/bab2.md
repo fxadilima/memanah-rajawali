@@ -399,7 +399,7 @@ dipenuhi kayu bakar ke atas bahunya, lalu turun mengikuti gadis itu. Mereka berd
 memasuki paviliun. Ketika melihat si gendut, gadis itu menyapa dengan gembira, 
 "San Ge (Kakak Ketiga)!" Ia lalu duduk di sebelahnya.
 
-Si gendut balas menyapa kedua orang itu, "Si Di, Qi Mei, kalian datang kepagian."[^sidi-dan-qimei]
+Si gendut balas menyapa kedua orang itu, "[Si Di], [Qi Mei], kalian datang kepagian."
 
 Ketika Wanyan Honglie berusaha mengukur kedua orang yang baru datang itu, ia menebak
 bahwa si gadis itu kira-kira berusia tujuh atau delapan belas tahun, tubuhnya langsing,
@@ -420,7 +420,7 @@ itu seharusnya terbuat dari besi atau logam berat lainnya. Sebuah kapak kayu teg
 di pinggangnya, mata kapak itu bergerigi.
 
 Keduanya baru saja duduk, ketika terdengar suara langkah kaki dari anak tangga, dan
-dua orang lain muncul di situ. "Wu Ge (Kakak Kelima), Liu Ge (Kakak Keenam)! Kalian barengan ya?"
+dua orang lain muncul di situ. "[Wu Ge], [Liu Ge]! Kalian barengan ya?"
 gadis itu menyambut keduanya dengan meriah. Orang pertama yang baru datang itu tinggi besar,
 setidaknya 130 atau 140 kg. Ia memakai celemek di pinggangnya. Tubuhnya secara alamiah berminyak,
 dan bagian atas bajunya terbuka, memamerkan dadanya yang berbulu lebat, lengan bajunya
@@ -438,11 +438,11 @@ seorang buta yang berpakaian compang-camping. Kelihatannya berusia 40 tahunan, b
 tipis, tulang pipinya menonjol. Mukanya kelabu, seperti penuh kebencian dan kemarahan.
 Kelima orang yang duduk di seputar meja itu berdiri dan menyapa, "Da Ge (Kakak tertua)!"
 
-Gadis itu mengetuk bagian atas sebuah kursi, "Da Ge, silakan duduk di sini."
+Gadis itu mengetuk bagian atas sebuah kursi, "[Da Ge], silakan duduk di sini."
 
-Orang buta itu menjawab, "Baiklah. Apa Er Di (Adik Kedua) sudah datang?"
+Orang buta itu menjawab, "Baiklah. [Er Di] sudah datang?"
 
-Orang yang mirip tukang jagal itu menjawab, "Er Ge sudah sampai di Jiaxing. Dia pasti
+Orang yang mirip tukang jagal itu menjawab, "[Er Ge] sudah sampai di Jiaxing. Dia pasti
 sebentar lagi datang."
 
 Gadis itu tertawa, "Barusan diomongin! (peribahasa: Shuo Cao Cao, Cao Cao Laile/'Speak of The Devil')"
@@ -1902,4 +1902,14 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Da Ge]: #dage "(大哥) Kakak laki-laki tertua. Versi Kho Ping Hoo atau Gan KL adalah 'Toako'. istilah 'Ge' di sini sama dengan 'Koko', yang jauh lebih populer dan banyak digunakan di Indonesia."
 
 [^sidi-dan-qimei]: Adik Keempat (laki-laki), dan adik ketujuh (perempuan). Baca lebih lanjut mengenai [panggilan persaudaraan](#panggilan-persaudaraan).
+
+[Si Di]: #sidi "Si Di (四弟),  adik laki-laki keempat."
+
+[Qi Mei]: #qimei "Qi Mei (七妹), adik perempuan ketujuh."
+
+[Wu Ge]: #wuge "Wu Ge (五哥), kakak laki-laki kelima."
+
+[Liu Ge]: #liuge "Liu Ge (六哥), kakak laki-laki keenam."
+
+[Er Di]: #erdi "Er Di (二弟), adik laki-laki kedua."
 
