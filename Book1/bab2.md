@@ -1931,7 +1931,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
 
-[^furen]: **Fu Ren** (夫人, baca: Fūrén), Nyonya atau 'Ibu', istilah umum untuk menyapa seorang perempuan yang sudah menikah. Google Translate menerjemahkannya menjadi 'Wanita', tetapi ini akan _keliru_ kalau wanita tersebut _belum menikah_.
+[^furen]: **Fu Ren** (夫人, baca: Fūrén), Nyonya atau 'Ibu', istilah umum untuk menyapa seorang perempuan yang sudah menikah. Di masa itu, seorang suami juga bisa memanggil istrinya dengan sebutan ini. Google Translate menerjemahkannya menjadi 'Wanita', tetapi ini akan _keliru_ kalau wanita tersebut _belum menikah_.
 
 [^peribahasa-1]: Seperti istilah sehari-hari "Barusan dibicarakan!", '_Shou Cao Cao, Cao Cao Lai Le_ (说曹操 ， 曹操来了)'. Ini adalah sebuah peribahasa atau _anekdot_ dengan memakai nama orang _kuno_ yang dianggap sebagai tokoh antagonis di jaman itu, yaitu 'Cao Cao', Maknanya kurang lebih sama seperti ungkapan bahasa Inggris 'Speak of the devil!'.
 
