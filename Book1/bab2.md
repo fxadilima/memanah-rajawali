@@ -1459,7 +1459,7 @@ juga semakin tidak mau mundur atau kelihatan takut. Kalau Qiu Chuji bukan pendek
 terkenal, ironisnya, situasi ini akan jauh lebih mudah untuk diselesaikan dan mungkin 
 sudah selesai saat itu.
 
-Han Baoju berseru, "Biao Mei (adik sepupu), ayo kita duluan." 
+Han Baoju berseru, "[Biao Mei], ayo kita duluan." 
 
 Ia adalah kakak sepupu pertama Han Xiaoying dari pihak ayahnya, dan dari mereka bertujuh, 
 yang paling tidak sabaran. Dalam satu gerakan, cambuk 'Naga Emas' yang ada di pinggangnya 
@@ -1948,4 +1948,6 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Budha Tersenyum]: #xiaofu "Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛), punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'."
 
 [^jilaihud]: Julukan Zhang Ahsheng, yaitu Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛). Karakter ini sendiri punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'. Perilaku Zhang Ahsheng maupun potongannya yang tinggi besar memang mirip karakter ini, meskipun tak pernah digambarkan bahwa Si Budha Tertawa punya dada berbulu lebat atau berotot. Zhang Ahsheng adalah pribadi yang tak pernah serius. Kecuali soal otot dan tampang tukang jagal, Zhange Ahsheng memang sangat cocok dengan [karakter berikut](#laughing-budha).
+
+[Biao Mei]: #biaomei "Biao Mei (表妹), adik sepupu perempuan."
 
