@@ -444,19 +444,18 @@ Orang buta itu menjawab, "Baiklah. [Er Di] sudah datang?"
 Orang yang mirip tukang jagal itu menjawab, "[Er Ge] sudah sampai di Jiaxing. Dia pasti
 sebentar lagi datang."
 
-Gadis itu tertawa, "Barusan diomongin![^peribahasa-1]"
-Terdengar suara langkah kaki diseret dari tangga.
+Gadis itu tertawa, "Barusan diomongin![^peribahasa-1]" Terdengar suara langkah kaki diseret dari tangga.
 
-Sama sekali di luar dugaan Wanyan Honglie, ia tidak sempat menduga apapun. Yang muncul
-dari tangga adalah si sastrawan lusuh yang ditemuinya di penginapan sebelum ini.
-Sebuah dugaan melintas dibenaknya, "Jangan-jangan dialah yang mengambil semua uangku..."
+Sama sekali di luar dugaan Wanyan Honglie, ia melongo dan tak tahu bagaimana seharusnya berpikir. 
+Yang muncul dari tangga adalah si sastrawan lusuh yang ditemuinya di penginapan sebelum ini.
+Sebuah dugaan melintas dibenaknya, "Jangan-jangan _dia_ yang mengambil semua uangku..."
 Bertepatan dengan naiknya emosi, ia melihat orang itu tersenyum ke arahnya dan menjulurkan
 lidah untuk melucu, setelah itu barulah ia menyapa teman-temannya yang lain. 
 Kelihatannya ia urutan kedua dari mereka semua. Wanyan Honglie berspekulasi, "Kelihatannya
 mereka semua ahli kungfu, kalau saja aku bisa merekrut mereka, ini akan jadi sebuah
 dukungan yang luar biasa besar bagi segala upaya kita. Soal uang yang dicuri itu,
-sebetulnya bukan masalah besar, bisa saja aku memaafkannya. Senaiknya kita lihat dulu,
-ini semua ada apa."
+sebetulnya bukan masalah besar, bisa saja aku memaafkannya. Sebaiknya kita lihat dulu,
+ada apa di balik acara ini."
 
 Si Sastrawan yang kelihatan miskin dan bertele-tele itu menenggak secawan arak, lalu
 melanjutkan, sambil masih menggeleng-gelengkan kepalanya, "Orang kaya hina... sudahlah...
@@ -476,18 +475,18 @@ di seputar dua meja lainnya, yang saat itu masih kosong. Karena para tamu itu ma
 datang, maka mereka bertujuh hanya minum arak sekedarnya sambil mengobrol, dan belum
 ada makanan yang disajikan juga.
 
-Namun demikian, di atas kedua meja yang lain itu, masing-masing hanya ada sepasang sumpit, artinya
-adalah hanya akan ada dua orang tamu. Wanyan Honglie berpikir, "Tujuh Orang Nyentik ini
-sedang menunggu tamu, entah tamu nyentrik macam apa lagi yang akan muncul."
+Namun demikian, di atas kedua meja yang lain itu, masing-masing hanya ada sepasang sumpit, 
+artinya adalah hanya akan ada dua orang tamu. Wanyan Honglie berpikir, "Tujuh Orang Nyentik ini
+sedang menunggu tamu, entah tamu _nyentrik_ macam apa lagi yang akan muncul."
 
 Setelah menunggu kira-kira selama waktu yang diperlukan untuk satu periuk air mendidih,
-terdengar suara dari bawah tangga, "Amitoufu (阿眯头佛, salam dalam agama Budha)."
+terdengar suara dari bawah tangga, "[Amitoufu]."
 
 "Biksu Jiaomu sudah datang." kata Si Buta.
 
 Kalimat yang sama diulangi, bersamaan dengan munculnya seorang biksu tua yang penampilannya
-memang mirip dengan Jiaomu (kayu bakar). Biksu itu berusia sekitar 40 tahun, mengenakan
-jubah warna kuning, tangannya memegang sepoting kayu yang di salah satu ujungnya sudah
+memang mirip dengan [Jiaomu]. Biksu itu berusia sekitar 40 tahun, mengenakan
+jubah warna kuning, tangannya memegang sepotong kayu yang di salah satu ujungnya sudah
 terbakar menjadi arang berwarna hitam. Tidak jelas apa gunanya benda itu.
 
 Setelah ketujuh orang itu dan si biksu saling menyapa seperti adat kebiasaan saat itu,
@@ -1930,6 +1929,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [^peribahasa-1]: Seperti istilah sehari-hari "Barusan dibicarakan!", '_Shou Cao Cao, Cao Cao Lai Le_ (说曹操 ， 曹操来了)'. Ini adalah sebuah peribahasa atau _anekdot_ dengan memakai nama orang _kuno_ yang dianggap sebagai tokoh antagonis di jaman itu, yaitu 'Cao Cao', Maknanya kurang lebih sama seperti ungkapan bahasa Inggris 'Speak of the devil!'.
 
+[Amitoufu]:  #amitoufu "Amitoufu (阿眯头佛), salam dalam agama Budha. Kalau mengikuti gaya Kho Ping Hoo, ini biasa diterjemahkan menjadi 'Amitabha', dan memang bahasa Sansekerta untuk ini adalah 'Amitabha' (अमिताभ). Sebenarnya ini adalah nama seorang tokoh penting agama Budha, yang di dalam beberapa Kitab Suci agama Budha digambarkan sebagai seorang mantan Raja bernama Dharmakara. Karena konteks cerita ini, maka kalau diucapkan oleh tokoh seperti Biksu Jiaomu, sebaiknya ditulis 'Amitoufu', yang lebih mirip suara yang diucapkannya."
 
-
+[Jiaomu]: #jiaomu "Jiao Mu (焦木) Secara literal berarti 'Kayu Hangus'."
 
