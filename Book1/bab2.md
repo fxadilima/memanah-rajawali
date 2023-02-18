@@ -403,7 +403,7 @@ Si gendut balas menyapa kedua orang itu, "[Si Di], [Qi Mei], kalian datang kepag
 Ketika Wanyan Honglie berusaha mengukur kedua orang yang baru datang itu, ia menebak
 bahwa si gadis itu kira-kira berusia tujuh atau delapan belas tahun, tubuhnya langsing,
 matanya besar, dengan bulu mata lentik dan panjang, kulitnya seputih salju. Jelas sekali
-ia penduduk lokal dari sebelah Selatan Sungai Yangtze. Ia memegang dayung tembaga itu 
+ia penduduk lokal dari sebelah [Selatan Sungai Yangtze]. Ia memegang dayung tembaga itu 
 di tangan kiri, dan melepas topinya dengan tangan kanan, memamerkan kepalanya yang
 berambut hitam, lembut berkilau. Wanyan Honglie berpikir, "Meskipun gadis ini tidak
 secantik Bao Fu Ren, tapi dia tetaplah sangat menarik."
@@ -1923,5 +1923,8 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [^nuerhong]: Nu'Er Hong (女儿红) adalah nama untuk arak merah dari wilayah Shaoxing, propinsi Zhejiang. Istilah ini punya arti literal 'Anak Perempuan Merah', di mana Nu'Er itu bermakna seperti dalam Wo De Nu'Er (我的女儿), atau 'Anak perempuan saya'."
 
 [Xiansheng]: #xiansheng "Panggilan sopan yang umum untuk seorang laki-laki. Kurang lebih seperti 'Pak Han', atau 'Saudara Han'."
+
+[Selatan Sungai Yangtze]: #jiangnan "Wilayah ini dikenal sebagai Jiangnan (江南), yang secara literal memang berarti 'Sebelah Selatan Sungai'. Sungai yang dimaksud di sini adalah Sungai Yangtze. Jiangnan terletak tepat di bagian Selatan sungai itu. Daerah ini adalah kampung halaman Ketujuh Orang Aneh, karenanya julukan mereka adalah Jiangnan Qi Guai (Tujuh Orang Aneh dari Jiangnan)."
+
 
 
