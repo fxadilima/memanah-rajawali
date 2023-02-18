@@ -1924,7 +1924,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Xiansheng]: #xiansheng "Panggilan sopan yang umum untuk seorang laki-laki. Kurang lebih seperti 'Pak Han', atau 'Saudara Han'."
 
-[jiangnan]: Wilayah ini dikenal sebagai Jiangnan (江南), yang secara literal memang berarti 'Sebelah Selatan Sungai'. Sungai yang dimaksud di sini adalah Sungai Yangtze. Jiangnan terletak tepat di bagian Selatan sungai itu. Daerah ini adalah kampung halaman Ketujuh Orang Aneh, karenanya julukan mereka adalah Jiangnan Qi Guai (Tujuh Orang Aneh dari Jiangnan).
+[jiangnan]: #jiangnan Wilayah ini dikenal sebagai Jiangnan (江南), yang secara literal memang berarti 'Sebelah Selatan Sungai'. Sungai yang dimaksud di sini adalah Sungai Yangtze. Jiangnan terletak tepat di bagian Selatan sungai itu. Daerah ini adalah kampung halaman Ketujuh Orang Aneh, karenanya julukan mereka adalah Jiangnan Qi Guai (Tujuh Orang Aneh dari Jiangnan).
 
 
 
