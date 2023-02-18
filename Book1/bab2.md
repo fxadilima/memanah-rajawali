@@ -516,7 +516,7 @@ diikuti oleh suara dua anak tangga berikutnya patah.
 
 Untuk beberapa saat Wanyan Honglie tidak yakin akan apa yang dilihatnya, seorang pendeta
 Tao sedang menaiki tangga sambil membawa sebuah tong besar yang terbuat dari tembaga.
-Setelah melihat sekali lagi, ia merasa ketakutan, pendeta itu adalah Changchun Zi, Qiu Chuji[^gelar-qiu-chuji].
+Setelah melihat sekali lagi, ia merasa ketakutan, pendeta itu adalah Chang Chunji[^gelar-qiu-chuji], Qiu Chuji.
 
 Misi Wanyan Honglie sebagai utusan ke Negeri Song adalah memaksa para pejabat Song,
 sehingga pada saat mereka menyerang negeri itu, mereka punya orang dalam yang bisa
