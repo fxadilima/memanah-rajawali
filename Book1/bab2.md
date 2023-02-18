@@ -62,11 +62,7 @@ Yan Lie menambahkan sebuah tendangan ke pantatnya, pemilik penginapan itu terjun
 keluar kamar.
 
 Karena terkejut, Bao Xiruo mengusulkan, "Ayo pergi, kita tidak bisa tinggal di sini
-lagi."
-
-[Ilustrasi drama](https://youtube.com/clip/UgkxlO6SQZVF62GUsdm0BB3oM1dWl6dqEjqz) ketika Yan Lie
-kehilangan uangnya, tidak betul-betul tepat sama seperti urutan peristiwa dalam
-novel Jin Yong ini. Tetapi dialog dan peristiwa yang terjadi masih cukup _representatif_.
+lagi." 
 
 Yan Lie tersenyum. "Jangan kuatir. Kalau kita tidak punya uang, ya kita minta uang
 dari mereka." Ia mengambil kursi dan duduk di dekat pintu. Tak lama kemudian si pemilik
@@ -1869,6 +1865,15 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
         Kutipan Si Sastrawan nyentrik di atas secara umum bertujuan untuk mengatakan bahwa sosok
         Mahadewa dengan <em>otoritas tertinggi atas manusia</em> yang dipercayai masyarakat
         pada saat itu akan murka.
+    </dd>
+    <dt id="ilustrasi-drama-1" title="Ilustrasi drama ketika Yan Lie kehilangan uangnya.">
+        <strong>Yan Lie kehilangan uang.</strong>
+    </dl>
+    <dd>
+        <a href="https://youtube.com/clip/UgkxlO6SQZVF62GUsdm0BB3oM1dWl6dqEjqz" 
+           target="_blank">Cuplikan adegan dari versi 2003</a> ketika Yan Lie kehilangan uangnya ini 
+           tidak betul-betul tepat sama seperti urutan peristiwa dalam novel Jin Yong ini. 
+           Tetapi dialog dan peristiwa yang terjadi masih cukup representatif.
     </dd>
 </dl>
 
