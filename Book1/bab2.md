@@ -1875,6 +1875,23 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
            tidak betul-betul tepat sama seperti urutan peristiwa dalam novel Jin Yong ini. 
            Tetapi dialog dan peristiwa yang terjadi masih cukup representatif.
     </dd>
+    <dt id="urutan-persaudaraan"><strong>Panggilan Persaudaraan</strong></dt>
+    <dd>
+        Bahasa Mandarin untuk angka 1 — 10 adalah <strong>一、二、三、四、五、六、七、八、九、十</strong>,
+        dibaca: '<em>Yī, èr, sān, sì, wǔ, liù, qī, bā, jiǔ, shí</em>'. Dalam memanggil saudara, urutan ini
+        tinggal ditambahkan ke panggilan 'Ge' untuk kakak laki-laki, atau 'Jie' untuk kakak perempuan.
+        Misalnya <strong>Er Ge</strong> (二哥) adalah 'kakak kedua' (laki-laki), atau <strong>Er Jie</strong> (二姐) 
+        untuk perempuan, karena 'Jie' (姐) adalah 'kakak'. Ini <em>sama saja</em> dengan dialek Hokkian di Indonesia 'Cik',
+        atau bahasa Mandarin dengan gaya <em>romanisasi</em> ala Kho Ping Hoo atau Gan KL 'Ci'. Sering juga ditulis 'Cie'.
+        Demikian juga untuk 'adik'. 'Qi Di' (七弟) untuk 'Adik Laki-laki Ketujuh', atau Qi Mei (七妹) untuk
+        'Adik Perempuan Ketujuh'.
+        <p>
+           Sedikit berbeda untuk saudara seperguruan, yang memakai istilah 'Shi' (师), dan menjadi 'Shi Ge' 
+           (师哥) untuk 'Kakak seperguruan laki-laki', dan 'Shi Jie' (师姐) untuk perempuan. Istilah Xiong (兄),
+           yang bermakna literal 'saudara laki-laki' bisa jadi digunakan oleh beberapa penulis untuk menggantikan
+           'Ge', karenanya akan menjadi 'Shi Xiong' (师兄).
+        </p>
+    </dd>
 </dl>
 
 [^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
@@ -1882,3 +1899,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Musim Semi dan Musim Gugur]: #spring-and-autumn-period "Sebuah era dalam Dinasti Zhou, di mana Konfusius hidup dan berkarya. Era ini adalah permulaan dari perpecahan Dinasti Zhou"
 
 [Zuili]: #zuili "Arti literalnya kurang lebih adalah 'Buah Prem Mabuk', atau 'Drunken Plum'."
+
+[Da Ge]: #dage "(大哥) Kakak laki-laki tertua. Versi Kho Ping Hoo atau Gan KL adalah 'Toako'. istilah 'Ge' di sini sama dengan 'Koko', yang jauh lebih populer dan banyak digunakan di Indonesia."
+
+
