@@ -1901,5 +1901,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Da Ge]: #dage "(大哥) Kakak laki-laki tertua. Versi Kho Ping Hoo atau Gan KL adalah 'Toako'. istilah 'Ge' di sini sama dengan 'Koko', yang jauh lebih populer dan banyak digunakan di Indonesia."
 
-[^sidi-dan-qimei]: Adik Keempat (laki-laki), dan adik ketujuh (perempuan). [Baca lebih lanjut...](#panggilan-persaudaraan).
+[^sidi-dan-qimei]: Adik Keempat (laki-laki), dan adik ketujuh (perempuan). Baca lebih lanjut mengenai [panggilan persaudaraan](#panggilan-persaudaraan).
 
