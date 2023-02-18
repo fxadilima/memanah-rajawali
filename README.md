@@ -1,5 +1,7 @@
 # Memanah Burung Rajawali
 
+![Cover](https://res.cloudinary.com/drzjshskk/image/upload/v1676693955/sdyxz/originals/roch-00_q7aktw.jpg)
+
 Contains Indonesian translation of Jin Yong novel, Divine Eagle Shooting Heroes (She Diao Ying Xiong Zhuan, 射鵰英雄傳)
 
 I am trying to translate this novel into Indonesian based on the English version, which actually is _fan translated_,
