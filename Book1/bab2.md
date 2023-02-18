@@ -335,9 +335,8 @@ lalu menepuk-nepuk pinggiran atas kendi itu beberapa kali. Lalu dengan santai ia
 mengambil bagian atas kendi itu, menyulapnya menjadi sebuah cawan arak raksasa.
 Kuda itu kemudian berdiri di atas kedua kaki belakangnya sambil meringkik panjang,
 sebelum turun lagi dan minum arak dari dalam cawan raksasa itu. Dari aromanya yang manis,
-Wanyan Honglie bisa menebak bahwa arak itu adalah Nu'er Hong (terjemahan literalnya
-adalah 'Anak Perempuan Merah') dari wilayah Shaoxing, propinsi Zhejiang. Dari aromanya,
-arak itu jelas sudah disimpan lebih dari 10 tahun.
+Wanyan Honglie bisa menebak bahwa arak itu adalah Nu'Er Hong[^nuerhong], dari wilayah Shaoxing.
+Dari aromanya, arak itu jelas sudah disimpan lebih dari 10 tahun.
 
 Si gendut pendek itu kemudian kembali ke restoran dalan melemparkan sebuah lantakan
 perak raksasa ke meja pemilik restoran. "Siapkan tiga meja dengan makanan terbaik.
@@ -397,7 +396,7 @@ di dekat paviliun, lalu melompat turun dari perahu dengan ringan.
 Pria yang duduk di tengah perahu itu meletakkan sebuah tongkat yang di kedua ujungnya
 dipenuhi kayu bakar ke atas bahunya, lalu turun mengikuti gadis itu. Mereka berdua
 memasuki paviliun. Ketika melihat si gendut, gadis itu menyapa dengan gembira, 
-"San Ge (Kakak Ketiga)!" Ia lalu duduk di sebelahnya.
+"[San Ge]!" Ia lalu duduk di sebelahnya.
 
 Si gendut balas menyapa kedua orang itu, "[Si Di], [Qi Mei], kalian datang kepagian."
 
@@ -1876,9 +1875,11 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
     </dd>
     <dt id="urutan-persaudaraan"><strong>Panggilan Persaudaraan</strong></dt>
     <dd>
-        Bahasa Mandarin untuk angka 1 — 10 adalah <strong>一、二、三、四、五、六、七、八、九、十</strong>,
-        dibaca: '<em>Yī, èr, sān, sì, wǔ, liù, qī, bā, jiǔ, shí</em>'. Dalam memanggil saudara, urutan ini
-        tinggal ditambahkan ke panggilan 'Ge' untuk kakak laki-laki, atau 'Jie' untuk kakak perempuan.
+        Bahasa Mandarin untuk angka 1 — 10 adalah <strong>(一、二、三、四、五、六、七、八、九、十)</strong>,
+        dibaca: '<em>Yī, èr, sān, sì, wǔ, liù, qī, bā, jiǔ, shí</em>'. Sedangkan angka 0 adalah 'Ling' (零).
+        Tentu saja tidak ada saudara di urutan ke-0.
+        Dalam memanggil saudara, urutan ini tinggal ditambahkan ke panggilan 'Ge' untuk kakak laki-laki, 
+        atau 'Jie' untuk kakak perempuan.
         Misalnya <strong>Er Ge</strong> (二哥) adalah 'kakak kedua' (laki-laki), atau <strong>Er Jie</strong> (二姐) 
         untuk perempuan, karena 'Jie' (姐) adalah 'kakak'. Ini <em>sama saja</em> dengan dialek Hokkian di Indonesia 'Cik',
         atau bahasa Mandarin dengan gaya <em>romanisasi</em> ala Kho Ping Hoo atau Gan KL — 'Ci'. Sering juga ditulis 'Cie'.
@@ -1889,6 +1890,10 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
            (师哥) untuk 'Kakak seperguruan laki-laki', dan 'Shi Jie' (师姐) untuk perempuan. Istilah Xiong (兄),
            yang bermakna literal 'saudara laki-laki' bisa jadi digunakan oleh beberapa penulis untuk menggantikan
            'Ge', karenanya akan menjadi 'Shi Xiong' (师兄).
+        </p>
+        <p>
+           Demikian juga berlaku untuk saudara sepupu , atau 'Biao' (表). Yang laki-laki, dan lebih muda akan dipanggil
+           Biao Di (表弟), dan Biao Mei (表妹) untuk perempuan.
         </p>
     </dd>
 </dl>
@@ -1901,8 +1906,6 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Da Ge]: #dage "(大哥) Kakak laki-laki tertua. Versi Kho Ping Hoo atau Gan KL adalah 'Toako'. istilah 'Ge' di sini sama dengan 'Koko', yang jauh lebih populer dan banyak digunakan di Indonesia."
 
-[^sidi-dan-qimei]: Adik Keempat (laki-laki), dan adik ketujuh (perempuan). Baca lebih lanjut mengenai [panggilan persaudaraan](#panggilan-persaudaraan).
-
 [Si Di]: #sidi "Si Di (四弟),  adik laki-laki keempat."
 
 [Qi Mei]: #qimei "Qi Mei (七妹), adik perempuan ketujuh."
@@ -1914,4 +1917,9 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Er Di]: #erdi "Er Di (二弟), adik laki-laki kedua."
 
 [Er Ge]: #erge "Er Ge (二哥), kakak laki-laki kedua."
+
+[San Ge]: #sange "San Ge (三哥), kakak ketiga."
+
+[^nuerhong]: Nu'Er Hong (女儿红) adalah nama untuk arak merah dari wilayah Shaoxing, propinsi Zhejiang. Istilah ini punya arti literal 'Anak Perempuan Merah', di mana Nu'Er itu bermakna seperti dalam Wo De Nu'Er (我的女儿), atau 'Anak perempuan saya'."
+
 
