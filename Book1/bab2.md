@@ -1913,3 +1913,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Er Di]: #erdi "Er Di (二弟), adik laki-laki kedua."
 
+[Er Ge]: #erge "Er Ge (二哥), kakak laki-laki kedua."
+
