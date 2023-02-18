@@ -1679,8 +1679,8 @@ Dengan hanya tersisa Ke Zhen'E dan Zhu Cong yang masih tidak terluka dan kondisi
 lain masih belum bisa dipastikan, bagaimana mungkin salah satu dari mereka akan 
 membiarkan dia lolos? Maka Ke Zhen’E mengangkat tongkat besinya dan berdiri di 
 depan pintu, menghalangi jalan keluarnya. Putus asa untuk bisa lolos dengan cara apa 
-pun, Qiu Chuji mengulurkan pedangnya tepat ke wajah Ke Zhen'E. Julukan Ke Zhen'E, 
-[Fei Tian Bian Fu] bukan muncul tanpa alasan, jadi ia dengan mudah mendengar apa 
+pun, Qiu Chuji mengulurkan pedangnya tepat ke wajah Ke Zhen'E. Julukan Ke Zhen'E —
+[Fei Tian Bian Fu] — bukan muncul tanpa alasan, jadi ia dengan mudah mendengar apa 
 yang sedang terjadi dan menangkis pedang dengan tongkatnya, 
 hampir menjatuhkan pedang dari tangan Qiu Chuji. Terkejut, Qiu Chuji berkata pada 
 dirinya sendiri, "Seberapa kuat tenaga dalam orang buta ini? Apa mungkin lebih kuat 
