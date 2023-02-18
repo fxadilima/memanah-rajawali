@@ -1470,26 +1470,9 @@ Qiu Chuji memutar pergelangan tangannya, menyebabkan cambuk malah mengenai tong.
 Kemudian dia memutar tubuhnya sedikit ke samping dan membiarkan pedang melewati 
 sisinya.
 
-Di akhir era [Musim Semi dan Musim Gugur], negara bagian Yue dan Wu adalah musuh bebuyutan. 
-Raja negara bagian Yue, Gou Qian, untuk mengingatkan dirinya sendiri akan kekalahan 
-yang memalukan dan memotivasi diri untuk menang, menyiksa diri dengan tidur di ranjang 
-jerami dan mencicipi sebuah kantong empedu yang digantungkan di langit-langit setiap hari. 
-Namun demikian, Raja Wu memiliki seorang jenderal yang bernama Wu Tzushi, murid Sun-Tze, 
-yang adalah seorang jendral besar, pelatih hebat dan ahli strategi. Melihat pasukannya 
-masih bukan tandingan musuh, Gou Qian semakin tertekan. Suatu hari, seorang gadis 
-cantik dengan ilmu pedang yang luar biasa tiba-tiba muncul di perbatasan Yue. Saking 
-senangnya, Gou Qian segera memintanya untuk mengajarkan ilmunya kepada para prajuritnya, dan 
-akhirnya bisa mengalahkan tentara Wu. Jiaxing, sebagai titik temu kedua negara, 
-adalah tempat di mana beberapa pertempuran terjadi. Tidak mengherankan jika 
-seluruh ilmu pedang diturunkan di wilayah ini. Masalah utama adalah semua ilmu
-pedang itu dirancang untuk digunakan secara lebih efektif di medan perang. Sebagian 
-besar digunakan untuk menebas banyak tentara dan menjatuhkan kuda di kerumunan. 
-Itu tidak cukup gesit dan lincah ketika digunakan untuk melawan jago kungfu di dunia 
-persilatan. Baru di akhir Dinasti Tang teknik pedang ini diperbaiki oleh seorang 
-pendekar pedang jenius dari daerah ini. Pendekar pedang ini membuat gerakannya jauh 
-lebih kompleks dan lebih cepat. Meskipun Han Xiaoying belum sepenuhnya menguasai 
-seluruh bagian yang diajarkan gurunya, tapi ia masih cukup mematikan. Julukannya 
-'Pendekar Pedang Nona Yue' sudah menjelaskan hal ini.
+Meskipun Han Xiaoying belum sepenuhnya menguasai seluruh bagian yang diajarkan gurunya, 
+tapi ia masih cukup mematikan. Julukannya Pendekar [Pedang Nona Yue](#yue-nu-xia "Yue Nu Xia, atau Pendekar Wanita Yue") 
+sudah menjelaskan hal ini.
 
 Dalam beberapa langkah, Qiu Chuji sudah membaca pola permainannya dan memutuskan 
 untuk mengalahkan kecepatannya dengan lebih cepat lagi. Dia cepat, Qiu Chuji bahkan 
@@ -1894,6 +1877,27 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
     <dt id="laughing-budha"><strong>Budha Tertawa</strong></dt>
     <dd>
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1676747919/sdyxz/originals/laughing-budha_f7zux4.jpg" alt="Budha Tertawa" title="Budha Tertawa">
+    </dd>
+    <dt id="yue-nu-xia"><strong>Pedang Nona Yue</strong></dt>
+    <dd>
+        Di akhir era Musim Semi dan Musim Gugur, negara bagian Yue dan Wu adalah musuh bebuyutan. 
+        Raja negara bagian Yue, Gou Qian, untuk mengingatkan dirinya sendiri akan kekalahan 
+        yang memalukan dan memotivasi diri untuk menang, menyiksa diri dengan tidur di ranjang 
+        jerami dan mencicipi sebuah kantong empedu yang digantungkan di langit-langit setiap hari. 
+        Namun demikian, Raja Wu memiliki seorang jenderal yang bernama Wu Tzushi, murid Sun-Tze, 
+        yang adalah seorang jendral besar, pelatih hebat dan ahli strategi. Melihat pasukannya 
+        masih bukan tandingan musuh, Gou Qian semakin tertekan. Suatu hari, seorang gadis 
+        cantik dengan ilmu pedang yang luar biasa tiba-tiba muncul di perbatasan Yue. Saking 
+        senangnya, Gou Qian segera memintanya untuk mengajarkan ilmunya kepada para prajuritnya, dan 
+        akhirnya bisa mengalahkan tentara Wu. Jiaxing, sebagai titik temu kedua negara, 
+        adalah tempat di mana beberapa pertempuran terjadi. Tidak mengherankan jika 
+        seluruh ilmu pedang diturunkan di wilayah ini. Masalah utama adalah semua ilmu
+        pedang itu dirancang untuk digunakan secara lebih efektif di medan perang. Sebagian 
+        besar digunakan untuk menebas banyak tentara dan menjatuhkan kuda di kerumunan. 
+        Itu tidak cukup gesit dan lincah ketika digunakan untuk melawan jago kungfu di dunia 
+        persilatan. Baru di akhir Dinasti Tang teknik pedang ini diperbaiki oleh seorang 
+        pendekar pedang jenius dari daerah ini. Pendekar pedang ini membuat gerakannya jauh 
+        lebih kompleks dan lebih cepat. Julukan Han Xiaoying mengacu kepada Jurus Pedang Nona Yue ini.
     </dd>
 </dl>
 
