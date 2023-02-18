@@ -126,8 +126,8 @@ dua hakim yang brilian seperti kalian untuk menyelidiki kasus ini."
 Gai Yuncong dengan segera mengangguk, "Ya, tentu saja." Ia melambaikan tangannya
 kepada dua orang pengikutnya, yang dengan cepat bangkit mendekat sambil masing-masing
 membawa sebuah baki dengan kedua tangan mereka. Salah satu baki itu nampak berkilau kuning
-karena yuan bao emas (lantakan emas berbentuk perahu) di atasnya. Yang satunya, tak
-perlu disebutkan lagi, tentu saja yuan bao perak.
+karena [yuan bao] emas di atasnya. Yang satunya, tak perlu disebutkan lagi, tentu saja 
+[yuan bao] perak.
 
 Gao Yuncong angkat bicara, "Karena ada maling-maling kurang ajar di wilayah saya,
 maka ini juga adalah kesalahan saya. Saya mohon Yang Mulia sudi menerima kompensasi
@@ -147,14 +147,14 @@ Yan Lie tidak menjawab, ia hanya menggelengkan kepala dan melambaikan tangan ber
 Kedua orang itu segera memimpin yang lainnya pergi.
 
 Si pengelola membisu ketakutan ketika pemilik penginapan itu menyeretnya memasuki kamar.
-Si pemilik berlutut dan kowtow (bersujud) meminta ampun bagi mereka berdua. Dia bilang
+Si pemilik berlutut dan _kowtow_ (bersujud) meminta ampun bagi mereka berdua. Dia bilang
 bahwa seandainya mereka dibiarkan hidup, maka mereka akan menerima hukuman apapun yang
 akan diberikan kepada mereka. Yan Lie mengambil sebatang yuan bao perak dari bakinya,
 lalu melemparkannya ke lantai, tersenyum sambil berkata, "Ambillah, ini hadiah. Dan
 pergilah dari hadapanku."
 
 Si pengelola tidak percaya apa yang dilihatnya, tetapi si pemilik melihat di raut muka
-Yan Lie tidak ada maksud buruk, jadi ia lalu mengambil batangan perak itu, kowtow dua kali,
+Yan Lie tidak ada maksud buruk, jadi ia lalu mengambil batangan perak itu, _kowtow_ dua kali,
 dan buru-buru menyeret di pengelola pergi dari situ karena takut Yan Lie berubah pikiran.
 
 Bao Xiruo nyaris tidak bisa mempercayai semua yang dilihatnya. "Keajaiban macam
