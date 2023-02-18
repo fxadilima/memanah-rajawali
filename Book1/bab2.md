@@ -31,7 +31,7 @@ Yan Lie makin gusar, ia tahu omongan itu ditujukan kepada dirinya.
 
 Setelah mendengar komentar si pelajar, pengelola penginapan itu memandang ke arah
 Yan Lie, ia mau tidak mau sedikit curiga. Ia berjalan ke arah Yan Lie sambil sedikit
-menguap, tersenyum, lalu berkata, "Xiansheng, tolong jangan tersinggung, ini bukannya
+menguap, tersenyum, lalu berkata, "[Xiansheng], tolong jangan tersinggung, ini bukannya
 saya tidak sopan..." Yan Lie membungkuk dan menjawab, "Nah, terima saja uang ini!"
 Ia merogoh saku bajunya untuk mengeluarkan uang, dan terkejut. Ia setidaknya punya
 empat atau lima puluh tail perak di sakunya, tapi sekarang sama sekali tidak ada.
