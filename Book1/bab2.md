@@ -1937,5 +1937,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Yanjing]: #yanjing "Di jaman modern adalah kota Beijing"
 
-[Daxia]: #daxia "Da Xia (大俠), arti literalnya adalah 'Pahlawan Besar'm dalam konteks ini adalah 'Pendekar'."
+[Daxia]: #daxia "Da Xia (大俠), arti literalnya adalah 'Pahlawan Besar', dalam konteks ini adalah 'Pendekar'."
 
