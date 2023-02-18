@@ -482,7 +482,7 @@ sedang menunggu tamu, entah tamu _nyentrik_ macam apa lagi yang akan muncul."
 Setelah menunggu kira-kira selama waktu yang diperlukan untuk satu periuk air mendidih,
 terdengar suara dari bawah tangga, "[Amitoufu]."
 
-"Biksu Jiaomu sudah datang." kata Si Buta.
+"Biksu Jiaomu[^biksu-jiaomu] sudah datang." kata Si Buta.
 
 Kalimat yang sama diulangi, bersamaan dengan munculnya seorang biksu tua yang penampilannya
 memang mirip dengan [Jiaomu]. Biksu itu berusia sekitar 40 tahun, mengenakan
@@ -1932,4 +1932,6 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Amitoufu]:  #amitoufu "Amitoufu (阿眯头佛), salam dalam agama Budha. Kalau mengikuti gaya Kho Ping Hoo, ini biasa diterjemahkan menjadi 'Amitabha', dan memang bahasa Sansekerta untuk ini adalah 'Amitabha' (अमिताभ). Sebenarnya ini adalah nama seorang tokoh penting agama Budha, yang di dalam beberapa Kitab Suci agama Budha digambarkan sebagai seorang mantan Raja bernama Dharmakara. Karena konteks cerita ini, maka kalau diucapkan oleh tokoh seperti Biksu Jiaomu, sebaiknya ditulis 'Amitoufu', yang lebih mirip suara yang diucapkannya."
 
 [Jiaomu]: #jiaomu "Jiao Mu (焦木) Secara literal berarti 'Kayu Hangus'."
+
+[^biksu-jiaomu]: Nama **Jiao Mu** (焦木) ini secara literal berarti 'Kayu Hangus'.
 
