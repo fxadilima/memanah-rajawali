@@ -406,7 +406,7 @@ matanya besar, dengan bulu mata lentik dan panjang, kulitnya seputih salju. Jela
 ia penduduk lokal dari sebelah Selatan Sungai Yangtze[^jiangnan]. 
 Ia memegang dayung tembaga itu di tangan kiri, dan melepas topinya dengan tangan kanan, 
 memamerkan kepalanya yang berambut hitam, lembut berkilau. Wanyan Honglie berpikir, 
-"Meskipun gadis ini tidak secantik Bao Fu Ren, tapi dia tetaplah sangat menarik."
+"Meskipun gadis ini tidak secantik Bao Fu Ren[^furen], tapi dia tetaplah sangat menarik."
 
 Pria yang membawa kayu bakar itu kira-kira berusia 30 tahun, berpakaian hijau dengan
 sabuk dari anyaman jerami melingkar di pinggangnya. Ia juga memakai sandal dari jerami.
@@ -415,7 +415,7 @@ kayu bakarnya di lantai, dan menyandarkan pikulannya ke atas meja. Tiba-tiba mej
 turun beberapa sentimeter setelah pikulan itu ada di atasnya. Wanyan Honglie terkejut,
 rasanya tidak ada yang aneh dengan pikulan itu. Warnanya hitam mulus, sedikit melengkung
 di bagian tengahnya, dan tutup di kedua ujungnya. Kalau harus seberat itu, maka pikulan
-itu seharusnya terbuat dari besi atau logam berat lainnya. Sebuah kapak kayu tegantung
+itu seharusnya terbuat dari besi atau logam berat lainnya. Sebuah kapak kayu tergantung
 di pinggangnya, mata kapak itu bergerigi.
 
 Keduanya baru saja duduk, ketika terdengar suara langkah kaki dari anak tangga, dan
@@ -435,7 +435,7 @@ Tiba-tiba terdengar suara dentingan yang teratur dari luar, seperti suara logam 
 Suara dentingan itu pelan-pelan mendekati naik melalui tangga, diikuti oleh munculnya
 seorang buta yang berpakaian compang-camping. Kelihatannya berusia 40 tahunan, bibirnya
 tipis, tulang pipinya menonjol. Mukanya kelabu, seperti penuh kebencian dan kemarahan.
-Kelima orang yang duduk di seputar meja itu berdiri dan menyapa, "Da Ge (Kakak tertua)!"
+Kelima orang yang duduk di seputar meja itu berdiri dan menyapa, "[Da Ge]!"
 
 Gadis itu mengetuk bagian atas sebuah kursi, "[Da Ge], silakan duduk di sini."
 
@@ -444,7 +444,7 @@ Orang buta itu menjawab, "Baiklah. [Er Di] sudah datang?"
 Orang yang mirip tukang jagal itu menjawab, "[Er Ge] sudah sampai di Jiaxing. Dia pasti
 sebentar lagi datang."
 
-Gadis itu tertawa, "Barusan diomongin! (peribahasa: Shuo Cao Cao, Cao Cao Laile/'Speak of The Devil')"
+Gadis itu tertawa, "Barusan diomongin![^peribahasa-1]"
 Terdengar suara langkah kaki diseret dari tangga.
 
 Sama sekali di luar dugaan Wanyan Honglie, ia tidak sempat menduga apapun. Yang muncul
@@ -1898,8 +1898,6 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
     </dd>
 </dl>
 
-[^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
-
 [Musim Semi dan Musim Gugur]: #spring-and-autumn-period "Sebuah era dalam Dinasti Zhou, di mana Konfusius hidup dan berkarya. Era ini adalah permulaan dari perpecahan Dinasti Zhou"
 
 [Zuili]: #zuili "Arti literalnya kurang lebih adalah 'Buah Prem Mabuk', atau 'Drunken Plum'."
@@ -1925,4 +1923,13 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Xiansheng]: #xiansheng "Panggilan sopan yang umum untuk seorang laki-laki. Kurang lebih seperti 'Pak Han', atau 'Saudara Han'."
 
 [^jiangnan]: **Selatan Sungai Yangtze**, wilayah ini dikenal sebagai Jiangnan (江南), yang secara literal memang berarti 'Sebelah Selatan Sungai'. Sungai yang dimaksud di sini adalah Sungai Yangtze. Jiangnan terletak tepat di bagian Selatan sungai itu. Daerah ini adalah kampung halaman Ketujuh Orang Aneh, karenanya julukan mereka adalah Jiangnan Qi Guai[^jiang-nan-qi-guai] (Tujuh Orang Aneh dari Jiangnan).
+
+[^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
+
+[^furen]: **Fu Ren** (夫人, baca: Fūrén), Nyonya atau 'Ibu', istilah umum untuk menyapa seorang perempuan yang sudah menikah. Google Translate menerjemahkannya menjadi 'Wanita', tetapi ini akan _keliru_ kalau wanita tersebut _belum menikah_.
+
+[^peribahasa-1]: Seperti istilah sehari-hari "Barusan dibicarakan!", '_Shou Cao Cao, Cao Cao Lai Le_ (说曹操 ， 曹操来了)'. Ini adalah sebuah peribahasa atau _anekdot_ dengan memakai nama orang _kuno_ yang dianggap sebagai tokoh antagonis di jaman itu, yaitu 'Cao Cao', Maknanya kurang lebih sama seperti ungkapan bahasa Inggris 'Speak of the devil!'.
+
+
+
 
