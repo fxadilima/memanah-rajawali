@@ -516,8 +516,7 @@ diikuti oleh suara dua anak tangga berikutnya patah.
 
 Untuk beberapa saat Wanyan Honglie tidak yakin akan apa yang dilihatnya, seorang pendeta
 Tao sedang menaiki tangga sambil membawa sebuah tong besar yang terbuat dari tembaga.
-Setelah melihat sekali lagi, ia merasa ketakutan, pendeta itu adalah Changchun Zi 
-(Musim Semi Abadi) Qiu Chuji.
+Setelah melihat sekali lagi, ia merasa ketakutan, pendeta itu adalah Changchun Zi, Qiu Chuji[^gelar-qiu-chuji].
 
 Misi Wanyan Honglie sebagai utusan ke Negeri Song adalah memaksa para pejabat Song,
 sehingga pada saat mereka menyerang negeri itu, mereka punya orang dalam yang bisa
@@ -1934,4 +1933,8 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Jiaomu]: #jiaomu "Jiao Mu (焦木) Secara literal berarti 'Kayu Hangus'."
 
 [^biksu-jiaomu]: Nama **Jiao Mu** (焦木) ini secara literal berarti 'Kayu Hangus'.
+
+[^gelar-qiu-chuji]: Gelar Qiu Chuji bermakna 'Musim Semi Abadi', atau Chang Chunji (长春季). Sebenarnya karakter Chang (长) di sini bisa bermakna 'Panjang' atau 'Lama'. Karenanya istilah dalam bahasa Inggris 'Everlasting Spring' terasa lebih sesuai.
+
+
 
