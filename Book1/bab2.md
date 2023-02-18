@@ -240,7 +240,7 @@ lagi."
 Bao Xiruo menyela lagi, "Terus apa kata Menteri Han?"
 
 Wanyan Honglie menjawab dengan bangga, "Dia bisa bilang apa lagi? Begitu aku keluar dari
-wilayah Lin'an, semua sutra dan perak sudah ada di bagian Utara sungai. Haha...!"
+wilayah Lin'an, semua sutra dan perak sudah ada di bagian Utara sungai[^utara-sungai]. Haha...!"
 
 Melihat Bao Xiruo menundukkan kepalanya tanpa menanggapi, Wanyan Honglie melanjutkan, "sebetulnya
 semua urusan upeti ini tidak perlu aku, seorang utusan yang manapun pasti bisa melakukannya.
@@ -1926,6 +1926,8 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Xiansheng]: #xiansheng "Panggilan sopan yang umum untuk seorang laki-laki. Kurang lebih seperti 'Pak Han', atau 'Saudara Han'."
 
 [^jiangnan]: **Selatan Sungai Yangtze**, wilayah ini dikenal sebagai Jiangnan (江南), yang secara literal memang berarti 'Sebelah Selatan Sungai'. Sungai yang dimaksud di sini adalah Sungai Yangtze. Jiangnan terletak tepat di bagian Selatan sungai itu. Daerah ini adalah kampung halaman Ketujuh Orang Aneh, karenanya julukan mereka adalah Jiangnan Qi Guai[^jiang-nan-qi-guai] (Tujuh Orang Aneh dari Jiangnan).
+
+[^utara-sungai]: **Utara Sungai Yangtze**, kebalikan dari Jiangnan, di masa itu daerah ini dikuasai oleh Dinasti Jin.
 
 [^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
 
