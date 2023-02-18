@@ -1868,6 +1868,3 @@ Saking takutnya, Duan Tiande dengan segera meraih tangan Li Ping dan membawanya 
 secepat mungkin. Li Ping berteriak-teriak minta tolong, tapi teriakannya terdengar
 makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
-[Musim Semi dan Musim Gugur]: #spring-and-autumn-period "Sebuah era dalam Dinasti Zhou, di mana Konfusius hidup dan berkarya. Era ini adalah permulaan dari perpecahan Dinasti Zhou"
-
-[Zuili]: #zuili "Arti literalnya kurang lebih adalah 'Buah Prem Mabuk', atau 'Drunken Plum'."

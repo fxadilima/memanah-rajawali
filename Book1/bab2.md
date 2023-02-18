@@ -371,8 +371,7 @@ kabut tipis, dan beberapa perahu kecil meluncur pelan di sekitar danau. Daun-dau
 hijau menutupi setengah dari areal danau itu. Melihat pemandangan seperti itu ia merasa
 sangat santai dan tenang. Jiaxing adalah kota terkenal di jaman kuno negara bagian Yue,
 Buah plum yang tumbuh di sini sangat manis dan enak, seperti arak terbaik. Di tengah era
-Musim Semi dan Musim Gugur (Spring and Autumn Period, jaman perpecahan di era Dinasti Zhou)
-tempat ini bernama Zuili (artinya kurang lebih: Drunken Plum). Di sinilah tempatnya
+[Musim Semi dan Musim Gugur](), tempat ini bernama [Zuili]. Di sinilah tempatnya
 saat itu Raja Yue, Guo Jian mengalahkan Raja Wu, He Lu. Tempat ini adalah titik di mana
 para wisatawan dan pedagang dari kedua negara bertemu.
 
@@ -1875,3 +1874,6 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [^jiang-nan-qi-guai]: **Tujuh Orang Aneh dari Selatan** yang dimaksud di sini adalah _Selatan Sungai Yang Tze_. Daerah tersebut lebih dikenal luas sebagai _Jiangnan_. Dari sisi estetika barangkali lebih baik kita tulis 'Jiangnan Qi Quai' (江南七怪). Istilah ini untuk selanjutnya akan dipakai secara bergantian dengan 'Tujuh Orang Aneh dari Jiangnan'.
 
+[Musim Semi dan Musim Gugur]: #spring-and-autumn-period "Sebuah era dalam Dinasti Zhou, di mana Konfusius hidup dan berkarya. Era ini adalah permulaan dari perpecahan Dinasti Zhou"
+
+[Zuili]: #zuili "Arti literalnya kurang lebih adalah 'Buah Prem Mabuk', atau 'Drunken Plum'."
