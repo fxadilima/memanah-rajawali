@@ -342,7 +342,7 @@ Si gendut pendek itu kemudian kembali ke restoran dalan melemparkan sebuah lanta
 perak raksasa ke meja pemilik restoran. "Siapkan tiga meja dengan makanan terbaik.
 Yang dua boleh pakai daging dan arak. Yang satunya jangan."
 
-Si pemilik restoran tersenyum dan berkata, "Dengan segera, Han Xiansheng. Kami baru
+Si pemilik restoran tersenyum dan berkata, "Dengan segera, Han [Xiansheng]. Kami baru
 menerima empat ekor ikan Sao Lu dari Sungai Song. Itu sangat enak kalau disajikan
 dengan arak. Silakan ambil kembali uangnya, Han Xiansheng. Belakangan saja."
 
@@ -1921,5 +1921,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [San Ge]: #sange "San Ge (三哥), kakak ketiga."
 
 [^nuerhong]: Nu'Er Hong (女儿红) adalah nama untuk arak merah dari wilayah Shaoxing, propinsi Zhejiang. Istilah ini punya arti literal 'Anak Perempuan Merah', di mana Nu'Er itu bermakna seperti dalam Wo De Nu'Er (我的女儿), atau 'Anak perempuan saya'."
+
+[Xiansheng]: #xiansheng "Panggilan sopan yang umum untuk seorang laki-laki. Kurang lebih seperti 'Pak Han', atau 'Saudara Han'."
 
 
