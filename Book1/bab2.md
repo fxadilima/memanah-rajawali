@@ -563,9 +563,9 @@ untuk minum-minum di Paviliun Dewa Mabuk ini. Aku tahu pasti biksu juga mengunda
 teman lainnya, dan ternyata memang benar. Aku sudah lama mengagumi Tujuh Pendekar dari
 Selatan. Aku beruntung hari ini bisa berkenalan."
 
-Biksu Jiaomu berpaling kepada Tujuh Pendekar Selatan[^jiang-nan-qi-guai], "Ini pendeta Changchun Zi Qiu Chuji,
-dari aliran Quanzhen. Aku yakin kalian semua sudah dengar sendiri tadi." Ia lalu
-menunjuk kepada Si Buta. "Ini ketua dari Tujuh Pendekar, Ke Daxia (Pendekar Ke), Ke Zhen'E."
+Biksu Jiaomu berpaling kepada Tujuh Pendekar Selatan[^jiang-nan-qi-guai], "Ini pendeta 
+Chang Chunji, Qiu Chuji, dari aliran Quanzhen. Aku yakin kalian semua sudah dengar sendiri tadi." 
+Ia lalu menunjuk kepada Si Buta. "Ini ketua dari Tujuh Pendekar, Ke [Daxia] — Ke Zhen'E."
 Ia lalu melanjutkan dengan keenam orang lainnya.
 
 Wanyan Honglie berusaha mengingat semua nama yang disebutkan dengan sebaik-baiknya.
@@ -1937,5 +1937,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Yanjing]: #yanjing "Di jaman modern adalah kota Beijing"
 
-
+[Daxia]: #daxia "Da Xia (大俠), arti literalnya adalah 'Pahlawan Besar'm dalam konteks ini adalah 'Pendekar'."
 
