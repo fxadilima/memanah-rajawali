@@ -573,7 +573,7 @@ Nomor dua adalah orang yang mencuri uangnya, 'Sastrawan Tangan Ajaib', Zhu Cong.
 adalah si gendut yang datang paling awal, 'Dewa Kuda', Han Baoju. Orang yang membawa
 kayu bakar itu nomor empat, namanya adalah 'Penebang Kayu dari Pegunungan Selatan',
 Nan Xiren. Yang kelima adalah orang yang mirip tukang jagal, [Budha Tersenyum], 
-Zhang Ahsheng. Pria kecil yang mirip pedagang itu bernama Qian Jinfa, julukannya 
+Zhang Ahsheng[^jilaihud]. Pria kecil yang mirip pedagang itu bernama Qian Jinfa, julukannya 
 kira-kira berarti 'Pendekar Siluman dari Kota Ramai'. Dan gadis itu adalah 
 'Pedang Nona Yue', Han Xiaoyin. Kelihatannya urutan mereka adalah berdasarkan usia.
 
@@ -1941,5 +1941,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Budha Tersenyum]: #xiaofu "Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛), punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'."
 
-
+[^jilaihud]: Julukan Zhang Ahsheng, yaitu Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛). Karakter ini sendiri punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'. Perilaku Zhang Ahsheng maupun potongannya yang tinggi besar memang mirip karakter ini, meskipun tak perbah digambarkan bahwa Si Budha Tertawa punya dada berbulu lebat atau berotot. Zhang Ahsheng adalah pribadi yang tak pernah serius.
 
