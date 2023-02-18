@@ -572,7 +572,7 @@ Wanyan Honglie berusaha mengingat semua nama yang disebutkan dengan sebaik-baikn
 Nomor dua adalah orang yang mencuri uangnya, 'Sastrawan Tangan Ajaib', Zhu Cong. Berikutnya
 adalah si gendut yang datang paling awal, 'Dewa Kuda', Han Baoju. Orang yang membawa
 kayu bakar itu nomor empat, namanya adalah 'Penebang Kayu dari Pegunungan Selatan',
-Nan Xiren. Yang kelima adalah orang yang mirip tukang jagal, 'Buddda Tersenyum', 
+Nan Xiren. Yang kelima adalah orang yang mirip tukang jagal, [Budha Tersenyum], 
 Zhang Ahsheng. Pria kecil yang mirip pedagang itu bernama Qian Jinfa, julukannya 
 kira-kira berarti 'Pendekar Siluman dari Kota Ramai'. Dan gadis itu adalah 
 'Pedang Nona Yue', Han Xiaoyin. Kelihatannya urutan mereka adalah berdasarkan usia.
@@ -1938,4 +1938,8 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [Yanjing]: #yanjing "Di jaman modern adalah kota Beijing"
 
 [Daxia]: #daxia "Da Xia (大俠), arti literalnya adalah 'Pahlawan Besar', dalam konteks ini adalah 'Pendekar'."
+
+[Budha Tersenyum]: #xiaofu "Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛), punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'."
+
+
 
