@@ -1478,7 +1478,7 @@ Dalam beberapa langkah, Qiu Chuji sudah membaca pola permainannya dan memutuskan
 untuk mengalahkan kecepatannya dengan lebih cepat lagi. Dia cepat, Qiu Chuji bahkan 
 lebih cepat. Menggunakan lengan kanannya untuk memblokir cambuk Han Baoju, tangan 
 kirinya terulur untuk merebut pedang secara paksa dari tangan Han Xiaoying. Dalam 
-sekejap, Han Xiaoying dipaksa mundur ke sisi patung Buddha di kuil.
+sekejap, Han Xiaoying dipaksa mundur ke sisi patung Budha di kuil.
 
 Nan Xiren dan Zhang Ahsheng menyerbu dan menyerang dari kedua sisi. Nan Xiren 
 tidak bersuara, dan membiarkan tongkatnya yang bersuara. Tapi Zhang Ahsheng 
@@ -1576,7 +1576,7 @@ Qiu Chuji. Qiu Chuji berpikir, "Jadi, tampaknya biksu ini adalah ahli totokan."
 Ia memasang sikap waspada terhadap si biksu.
 
 Ke Zhen'E tahu dari semua teriakan bahwa saudara-saudaranya terluka, jadi ia 
-meraih tongkat besinya dan hendak menyerang ketika Quan Jinfa berteriak, "Da Ge, 
+meraih tongkat besinya dan hendak menyerang ketika Quan Jinfa berteriak, "[Da Ge], 
 pakai senjata rahasiamu! Pertama di 'Jin', lalu pilih 'Xiao Guo'!" Bahkan sebelum 
 suaranya mereda, dua senjata rahasia terbang langsung ke dahi dan pinggul kanan 
 Qiu Chuji.
@@ -1589,7 +1589,7 @@ memiliki sudut di keempat sisinya seperti berlian, tetapi ketajamannya tak terta
 oleh senjata sejenis yang dibuat oleh siapapun. Ia belajar menggunakannya setelah 
 ia buta karena senjata itu berat, memudahkan dia untuk menembak dengan akurat. 
 Setelah menjatuhkan senjata rahasia itu dengan tong, Qiu Chuji benar-benar merasakan 
-tong itu berguncang! Dia berpikir, "Luar biasa, betul-betul kuat!"
+tong itu berguncang! Ia berpikir, "Luar biasa, betul-betul kuat!"
 
 Sekarang semua Orang Aneh lainnya sudah tersingkir. Quan Jinfa masih terus berteriak, "'Zhong Fu', 
 sekarang 'Lie'!…. Bagus, sekarang Pendeta Tao pindah ke 'Ming Yi'..." Dia sudah 
@@ -1610,10 +1610,10 @@ ia mengangkat kedua tangannya dan menembakkan empat senjata, masing-masing di po
 di sebelah kiri 'Tong Ren'.
 
 Tidak menduga bahwa Ke Zhen'E akan tiba-tiba menggunakan tipuan, Qiu Chuji mengambil 
-langkah besar ke kiri dan menghindari posisi 'Tong Ren' ketika dua orang tiba-tiba 
+langkah lebar ke kiri dan menghindari posisi 'Tong Ren' ketika dua orang tiba-tiba 
 berteriak kesakitan. Bahu kanan Qiu Chuji terkena, tetapi senjata yang mengarah ke 
 posisi 'Matahari' mengenai punggung Han Xiaoying. Terkejut dan senang, Ke Zhen'E 
-berteriak, "Qi Mei, cepat kesini!"
+berteriak, "[Qi Mei], cepat kesini!"
 
 Menyadari bahwa kakaknya melapisi senjata itu dengan racun mematikan, Han Xiaoying 
 segera bergegas ke sisinya. Ke Zhen'E mengeluarkan pil kecil berwarna kuning dari 
@@ -1679,9 +1679,9 @@ Dengan hanya tersisa Ke Zhen'E dan Zhu Cong yang masih tidak terluka dan kondisi
 lain masih belum bisa dipastikan, bagaimana mungkin salah satu dari mereka akan 
 membiarkan dia lolos? Maka Ke Zhen’E mengangkat tongkat besinya dan berdiri di 
 depan pintu, menghalangi jalan keluarnya. Putus asa untuk bisa lolos dengan cara apa 
-pun, Qiu Chuji mengulurkan pedangnya tepat ke wajah Ke Zhen'E. Julukan Ke Zhen'E 
-'Kelelawar Terbang Melonjak Menembus Langit' muncul karena suatu alasan, jadi dia 
-dengan mudah mendengar apa yang sedang terjadi dan menangkis pedang dengan tongkatnya, 
+pun, Qiu Chuji mengulurkan pedangnya tepat ke wajah Ke Zhen'E. Julukan Ke Zhen'E, 
+[Fei Tian Bian Fu] bukan muncul tanpa alasan, jadi ia dengan mudah mendengar apa 
+yang sedang terjadi dan menangkis pedang dengan tongkatnya, 
 hampir menjatuhkan pedang dari tangan Qiu Chuji. Terkejut, Qiu Chuji berkata pada 
 dirinya sendiri, "Seberapa kuat tenaga dalam orang buta ini? Apa mungkin lebih kuat 
 dari aku?" Ia segera menyambung dengan tusukan lain, yang ditangkis lagi. Tapi 
@@ -1950,4 +1950,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 [^jilaihud]: Julukan Zhang Ahsheng, yaitu Budha Tertawa, atau Budha Tersenyum, Xiao Fu (笑佛). Karakter ini sendiri punya banyak nama alternatif. Nama lainnya adalah 'Pang Fu' (胖佛), yang bermakna Budha Gendut, atau Kuai Le Fu (快乐佛) — di Indonesia istilah ini adalah 'Ji Lai Hud', yang bermakna 'Budha Bahagia'. Perilaku Zhang Ahsheng maupun potongannya yang tinggi besar memang mirip karakter ini, meskipun tak pernah digambarkan bahwa Si Budha Tertawa punya dada berbulu lebat atau berotot. Zhang Ahsheng adalah pribadi yang tak pernah serius. Kecuali soal otot dan tampang tukang jagal, Zhange Ahsheng memang sangat cocok dengan [karakter berikut](#laughing-budha).
 
 [Biao Mei]: #biaomei "Biao Mei (表妹), adik sepupu perempuan."
+
+[Fei Tian Bian Fu]: #fei-tian-bian-fu "Fei Tian Bian Fu (飞天蝙蝠), bermakna 'Kelelawar Terbang'."
+
 
