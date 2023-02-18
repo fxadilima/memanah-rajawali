@@ -1953,4 +1953,5 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
 
 [Fei Tian Bian Fu]: #fei-tian-bian-fu "Fei Tian Bian Fu (飞天蝙蝠), bermakna 'Kelelawar Terbang'."
 
+[yuan bao]: #yuanbao "Yuan Bao (元宝), lantakan emas atau perak yang berbentuk perahu, berfungsi sebagai alat tukar."
 
