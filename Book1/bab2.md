@@ -1882,8 +1882,8 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
         tinggal ditambahkan ke panggilan 'Ge' untuk kakak laki-laki, atau 'Jie' untuk kakak perempuan.
         Misalnya <strong>Er Ge</strong> (二哥) adalah 'kakak kedua' (laki-laki), atau <strong>Er Jie</strong> (二姐) 
         untuk perempuan, karena 'Jie' (姐) adalah 'kakak'. Ini <em>sama saja</em> dengan dialek Hokkian di Indonesia 'Cik',
-        atau bahasa Mandarin dengan gaya <em>romanisasi</em> ala Kho Ping Hoo atau Gan KL 'Ci'. Sering juga ditulis 'Cie'.
-        Demikian juga untuk 'adik'. 'Qi Di' (七弟) untuk 'Adik Laki-laki Ketujuh', atau Qi Mei (七妹) untuk
+        atau bahasa Mandarin dengan gaya <em>romanisasi</em> ala Kho Ping Hoo atau Gan KL — 'Ci'. Sering juga ditulis 'Cie'.
+        Demikian juga untuk 'adik' — 'Qi Di' (七弟) untuk 'Adik Laki-laki Ketujuh', atau Qi Mei (七妹) untuk
         'Adik Perempuan Ketujuh'.
         <p>
            Sedikit berbeda untuk saudara seperguruan, yang memakai istilah 'Shi' (师), dan menjadi 'Shi Ge' 
