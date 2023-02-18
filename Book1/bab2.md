@@ -575,7 +575,7 @@ kayu bakar itu nomor empat, namanya adalah 'Penebang Kayu dari Pegunungan Selata
 Nan Xiren. Yang kelima adalah orang yang mirip tukang jagal, [Budha Tersenyum], 
 Zhang Ahsheng[^jilaihud]. Pria kecil yang mirip pedagang itu bernama Qian Jinfa, julukannya 
 kira-kira berarti 'Pendekar Siluman dari Kota Ramai'. Dan gadis itu adalah 
-'Pedang Nona Yue', Han Xiaoyin. Kelihatannya urutan mereka adalah berdasarkan usia.
+'Pendekar Pedang Nona Yue', Han Xiaoying. Kelihatannya urutan mereka adalah berdasarkan usia.
 
 Selama biksu Jiaomu memperkenalkan mereka semua, Qiu Chuji memberi hormat dengan cara
 membungkuk sedikit, tetapi tangannya yang memegang tong tidak pernah diturunkan, dan
@@ -1470,17 +1470,15 @@ Qiu Chuji memutar pergelangan tangannya, menyebabkan cambuk malah mengenai tong.
 Kemudian dia memutar tubuhnya sedikit ke samping dan membiarkan pedang melewati 
 sisinya.
 
-Di akhir era Musim Semi dan Musim Gugur (**Spring and Autumn Period**, istilah untuk 
-periode kedua dalam Dinasti Zhou, yang saat itu terpecah-belah), negara bagian Yue 
-dan Wu adalah musuh bebuyutan. Raja negara bagian Yue, Gou Qian, untuk mengingatkan 
-dirinya sendiri akan kekalahan yang memalukan dan memotivasi diri untuk menang, 
-menyiksa diri dengan tidur di ranjang jerami dan mencicipi sebuah kantong empedu 
-yang digantungkan di langit-langit setiap hari. Namun demikian, Raja Wu 
-memiliki seorang jenderal yang bernama Wu Tzushi, murid Sun-Tze, yang adalah seorang 
-jendral besar, pelatih hebat dan ahli strategi. Melihat pasukannya masih bukan tandingan 
-musuh, Gou Qian semakin tertekan. Suatu hari, seorang gadis cantik dengan ilmu pedang 
-yang luar biasa tiba-tiba muncul di perbatasan Yue. Saking senangnya, Gou Qian 
-segera memintanya untuk mengajarkan ilmunya kepada para prajuritnya, dan 
+Di akhir era [Musim Semi dan Musim Gugur], negara bagian Yue dan Wu adalah musuh bebuyutan. 
+Raja negara bagian Yue, Gou Qian, untuk mengingatkan dirinya sendiri akan kekalahan 
+yang memalukan dan memotivasi diri untuk menang, menyiksa diri dengan tidur di ranjang 
+jerami dan mencicipi sebuah kantong empedu yang digantungkan di langit-langit setiap hari. 
+Namun demikian, Raja Wu memiliki seorang jenderal yang bernama Wu Tzushi, murid Sun-Tze, 
+yang adalah seorang jendral besar, pelatih hebat dan ahli strategi. Melihat pasukannya 
+masih bukan tandingan musuh, Gou Qian semakin tertekan. Suatu hari, seorang gadis 
+cantik dengan ilmu pedang yang luar biasa tiba-tiba muncul di perbatasan Yue. Saking 
+senangnya, Gou Qian segera memintanya untuk mengajarkan ilmunya kepada para prajuritnya, dan 
 akhirnya bisa mengalahkan tentara Wu. Jiaxing, sebagai titik temu kedua negara, 
 adalah tempat di mana beberapa pertempuran terjadi. Tidak mengherankan jika 
 seluruh ilmu pedang diturunkan di wilayah ini. Masalah utama adalah semua ilmu
@@ -1491,7 +1489,7 @@ persilatan. Baru di akhir Dinasti Tang teknik pedang ini diperbaiki oleh seorang
 pendekar pedang jenius dari daerah ini. Pendekar pedang ini membuat gerakannya jauh 
 lebih kompleks dan lebih cepat. Meskipun Han Xiaoying belum sepenuhnya menguasai 
 seluruh bagian yang diajarkan gurunya, tapi ia masih cukup mematikan. Julukannya 
-"Gadis Pedang Yue" sudah menjelaskan hal ini.
+'Pendekar Pedang Nona Yue' sudah menjelaskan hal ini.
 
 Dalam beberapa langkah, Qiu Chuji sudah membaca pola permainannya dan memutuskan 
 untuk mengalahkan kecepatannya dengan lebih cepat lagi. Dia cepat, Qiu Chuji bahkan 
