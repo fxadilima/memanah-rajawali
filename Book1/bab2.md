@@ -1868,7 +1868,7 @@ makin lama makin jauh, sampai akhirnya tak terdengar lagi.
     </dd>
     <dt id="ilustrasi-drama-1" title="Ilustrasi drama ketika Yan Lie kehilangan uangnya.">
         <strong>Yan Lie kehilangan uang.</strong>
-    </dl>
+    </dt>
     <dd>
         <a href="https://youtube.com/clip/UgkxlO6SQZVF62GUsdm0BB3oM1dWl6dqEjqz" 
            target="_blank">Cuplikan adegan dari versi 2003</a> ketika Yan Lie kehilangan uangnya ini 
