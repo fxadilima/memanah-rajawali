@@ -67,7 +67,7 @@ dapat dihindari. Jadi, dengan rasa hormat, ia menoleh ke Ke Zhen'E, "Ke [Xiong](
 bagaimana menurutmu?"
 
 Temperamen Ke Zhen'E dari awal memang buruk. Setelah matanya dibutakan, jadi lebih 
-buruk. Fakta bahwa Qiu Chuji sendirian menjatuhkan gabungan dari bereka bertujuh, 
+buruk. Fakta bahwa Qiu Chuji sendirian menjatuhkan gabungan dari mereka bertujuh, 
 pada kenyataannya adalah sesuatu yang dianggapnya sebagai salah satu hal yang paling 
 memalukan dalam hidupnya. Ditambah dengan fakta bahwa rasa sakit di kakinya akibat 
 luka pedang masih berdenyut, ia hampir tidak bisa menahan amarahnya. Ia mencibir 
