@@ -9,6 +9,11 @@ Jiangnan Qi Guai (江南七怪) = Tujuh Orang Aneh dari Jiangnan (Selatan Sungai
 
 Xiang Long Shiba Zhang (降龙十八掌) = 18 Jurus Penakluk Naga.
 
+Jiu Yin Baigu Zhao (九陰白骨爪) adalah salah satu ilmu yang terdapat di dalam Kitab Sembilan Bulan,
+Jiu Yin Zhen Jing (九阴真经). Nama ini saya terjemahkan menjadi 'Sembilan Jurus Cakar Tengkorak Putih',
+entah bisa dibenarkan ataukan tidak. Ilmu ini mula-mula dipopulerkan oleh Mei Chaofeng dan suaminya,
+yang kitabnya mereka curi dari Pulau Persik. Bahkan Huang Yaoshi sendiri tidak mempelajari ilmu ini.
+
 # Nama Panggilan
 
 Gege (哥哥) = Koko (kakak laki-laki).
