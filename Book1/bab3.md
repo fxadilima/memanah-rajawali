@@ -319,7 +319,7 @@ ia berhenti dan menarik napas. Kemudian ia berlari ke tepi sungai terdekat dan m
 ke perahu pertama yang dilihatnya. Mengambil pedangnya dan meletakkannya di leher 
 nelayan, ia memerintahkan pria itu untuk mulai menggerakkan perahu. Sungai dan kanal 
 di Jiangnan padat seperti jaring laba-laba dan perahu adalah alat transportasi sehari-hari. 
-Umum seperti kuda dan kereta ada di Utara. Karenanya ada pepatah: 'Orang Utara menunggang 
+Transportasi umum seperti kuda dan kereta ada di Utara. Karenanya ada pepatah: 'Orang Utara menunggang 
 kuda, orang Selatan naik perahu.' Duan Tiande memasang lagak segalak mungkin, dan berpakaian 
 seperti pejabat, bagaimana mungkin nelayan itu berani tidak patuh? Ia segera membuka 
 dok dan mengarahkan perahu ke luar kota.
