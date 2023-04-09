@@ -11,6 +11,8 @@ Xiang Long Shiba Zhang (降龙十八掌) = 18 Jurus Penakluk Naga.
 
 # Nama Panggilan
 
+Gege (哥哥) = Koko (kakak laki-laki).
+
 Diē (爹, dibaca: Tiē) = 'Ayah'.
 
 Zai Xia (载下) = istilah dalam bentuk orang ketiga tunggal untuk diri sendiri,
@@ -149,6 +151,7 @@ Na nǐ xiǎng zěnme yàng (那你想怎么样) = Then what _do_ you want? Lalu 
 
 Ji Ran Ru Ci (既然如此) = 'Kalau begitu,...'  
 
+Xiong (兄) = panggilan umum untuk saudara laki-laki, atau orang lain yang dianggap saudara.
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
