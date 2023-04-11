@@ -9,117 +9,251 @@
 
 Sederet orang turun gunung. Setelah berjalan beberapa saat, tiba-tiba mereka mendengar raungan binatang buas di depan mereka. Han Baoju melompat ke atas kuda kuningnya, dan pergi untuk melihat apa yang terjadi. Setelah berlari beberapa saat, kuda kuning itu tiba-tiba berhenti dan tidak ada desakan yang bisa membuatnya bergerak.
 
-Mengetahui dalam hatinya bahwa ada sesuatu yang aneh di depan, dia berdiri di sanggurdi dan melihat ke kejauhan; dia bisa melihat sekelompok orang dengan beberapa macan tutul mencakar bumi. Mengetahui ketakutan kuda kuning terhadap macan tutul, dia melompat dan memegang cambuk Naga Emasnya. Ke depan, dia melihat bahwa kedua macan tutul itu telah menemukan sesosok tubuh. Melanjutkan beberapa langkah lagi, dia melihat bahwa tubuh itu adalah Tong Shi Chen Xuanfeng. Daerah dari tulang selangka ke perut bagian bawahnya berantakan berlumuran darah, seolah-olah kulitnya telah dipotong.
+Mengetahui dalam hatinya bahwa ada sesuatu yang aneh di depan, ia berdiri di sanggurdi dan melihat ke kejauhan, ia bisa
+melihat sekelompok orang dengan beberapa macan tutul mencakar bumi. Mengetahui ketakutan kuda kuning terhadap macan tutul, 
+ia melompat dan memegang cambuk Naga Emasnya. Ke depan, ia melihat bahwa kedua macan tutul itu telah menemukan sesosok 
+tubuh. Melanjutkan beberapa langkah lagi, ia melihat bahwa tubuh itu adalah Tong Shi, Chen Xuanfeng. Daerah dari tulang 
+selangka ke perut bagian bawahnya berantakan berlumuran darah, seolah-olah kulitnya telah disayat.
 
-Terkejut, dia berpikir, “Dia dibunuh oleh bocah itu tadi malam dengan belati yang ditusukkan ke pusarnya, jadi mengapa mayatnya ada di sini? Karena dia sudah mati, mengapa ada orang yang melakukan ini pada mayatnya? apa arti di baliknya? Apakah 'Pembunuh Kembar Angin Kegelapan' memiliki musuh lain di padang pasir dengan kebencian yang begitu kuat?"
+Terkejut, ia berpikir, "Dia dibunuh oleh bocah itu tadi malam dengan belati yang ditusukkan ke pusarnya, jadi mengapa 
+mayatnya ada di sini? Karena dia sudah mati, mengapa ada orang yang melakukan ini pada mayatnya? Apa arti di baliknya? Apakah 
+'Pembunuh Kembar Angin Kegelapan' memiliki musuh lain di padang pasir dengan kebencian yang begitu kuat?"
 
-Tidak lama kemudian, Zhu Cong dan yang lainnya tiba. Tidak ada yang bisa memahami alasan di balik mutilasi tersebut. Mereka melihat mayat Chen Xuanfeng, yang wajahnya masih menunjukkan ekspresi garang, yang menyebabkan getaran ketakutan pada semua orang. Memikirkan kembali pertarungan mengerikan tadi malam di perbukitan tandus, mereka tahu, jika bukan karena keberuntungan Guo Jing yang terkena belatinya, hasilnya mungkin akan sangat berbeda. Memikirkannya saja membuat hati mereka merinding.
+Tidak lama kemudian, Zhu Cong dan yang lainnya tiba. Tidak ada yang bisa memahami alasan di balik mutilasi tersebut. 
+Mereka melihat mayat Chen Xuanfeng, yang wajahnya masih menunjukkan ekspresi garang, yang menyebabkan getaran ketakutan 
+pada semua orang. Memikirkan kembali pertarungan mengerikan tadi malam di perbukitan tandus, mereka tahu, jika bukan 
+karena keberuntungan Guo Jing yang menggunakan belatinya, hasilnya mungkin akan sangat berbeda. Memikirkannya saja 
+membuat hati mereka merinding.
 
-Saat ini, kedua macan tutul sedang mengunyah mayat tersebut. Di satu sisi, ada seorang anak laki-laki di atas kuda dengan keras mendesak pawang macan tutul untuk menyeret macan tutul itu pergi. Memutar kepalanya, dia melihat Guo Jing, dan berteriak padanya, "Ha! Jadi kamu bersembunyi di sini. Kamu tidak punya nyali untuk membantu Tolui bertarung, sungguh teman yang tidak berguna!" Itu adalah putra Senggum, Dukhsh.
+Saat ini, kedua macan tutul sedang mengunyah mayat tersebut. Di satu sisi, ada seorang anak laki-laki di atas kuda 
+dengan keras mendesak pawang macan tutul untuk menyeret macan tutul itu pergi. Memutar kepalanya, ia melihat Guo Jing, 
+dan berteriak padanya, "Ha! Jadi kau bersembunyi di sini. Kau tidak punya nyali untuk membantu Tolui bertarung, 
+sungguh teman yang tidak berguna!" Itu adalah putra Senggum, Dukhsh.
 
-"Kalian semua melawan Tolui lagi? Di mana dia?" khawatir, Guo Jing bertanya.
+"Kalian semua melawan Tolui lagi? Di mana dia?" tanya Guo Jing kuatir.
 
-"Aku mengambil macan tutul untuk memakannya. Sebaiknya kamu menyerah sekarang, atau aku akan melibatkanmu juga," jawab Dukhsh dengan sombong. Dia telah melihat 'Enam Orang Aneh dari Selatan' di satu sisi, jika bukan karena mereka, Dukhsh pasti sudah mengirim macan tutul untuk menyerang Guo Jing.
+"Aku mengambil macan tutul untuk memakannya. Sebaiknya kau menyerah sekarang, atau aku akan melibatkanmu juga," jawab 
+Dukhsh dengan sombong. Ia telah melihat Enam Orang Aneh dari Jiangnan di satu sisi, jika bukan karena mereka, Dukhsh 
+pasti sudah mengirim macan tutul untuk menyerang Guo Jing.
 
 Guo Jing bersikeras, "Di mana Tolui?"
 
-Mengabaikannya, Dukhsh berteriak keras, "Macan tutul akan memakan Tolui sekarang!" saat dia membawa pawang macan tutul pergi. Seorang pawang macan tutul menasihatinya, "Tuan kecil, bocah itu adalah putra Temujin Khan." Dukhsh segera memukul pawang macan tutul dengan tebasan cemeti tunggangannya sambil berteriak, "Apa yang harus ditakuti? Beraninya dia mengangkat tangannya untuk memukulku hari ini? Minggir!" Pawang macan tutul, tidak berani melanggar perintahnya, mengikuti Dukhsh. Pawang macan tutul lainnya takut hal ini dapat menyebabkan beberapa masalah yang tidak dapat diubah; dia berbalik dan berlari sambil berteriak, "Saya akan memberi tahu Temujin Khan." Dia pergi sebelum Dukhsh bisa menghentikannya. Dukhsh berkata dengan getir, "Baik, saat Paman Temujin datang, sudah terlambat! Lalu kita akan lihat solusi seperti apa yang dia berikan." Dia mencambuk kudanya, memaksa kelompok itu untuk bergerak lebih cepat.
+Mengabaikannya, Dukhsh berteriak keras, "Macan tutul akan memakan Tolui sekarang!" saat ia membawa pawang macan tutul 
+pergi. Seorang pawang macan tutul menasihatinya, "Tuan kecil, bocah itu adalah putra Temujin Khan." Dukhsh segera memukul
+pawang macan tutul dengan tebasan cemeti tunggangannya sambil berteriak, "Apa yang harus ditakuti? Beraninya dia mengangkat
+tangannya untuk memukulku hari ini? Minggir!" Pawang macan tutul, tidak berani melanggar perintahnya, mengikuti Dukhsh.
+Pawang macan tutul lainnya takut hal ini dapat menimbulkan beberapa masalah serius, ia berbalik dan berlari sambil berteriak, 
+"Aku akan memberi tahu Temujin Khan." Ia pergi sebelum Dukhsh bisa menghentikannya. Dukhsh berkata dengan getir, "Baik, 
+saat Paman Temujin datang, sudah terlambat! Lalu kita akan lihat solusi seperti apa yang dia berikan." Dia mencambuk kudanya, 
+memaksa kelompok itu untuk bergerak lebih cepat.
 
-Meskipun Guo Jing sangat takut pada macan tutul, dia lebih mengkhawatirkan keselamatan saudara angkatnya. Dia berkata kepada Han Xiaoying, "Shifu, Dukhsh akan membuat macan tutul memakan saudara angkatku. Aku perlu memberitahunya agar dia bisa melarikan diri."
+Meskipun Guo Jing sangat takut pada macan tutul, ia lebih mengkhawatirkan keselamatan saudara angkatnya. Ia berkata kepada 
+Han Xiaoying, "Shifu, Dukhsh akan membuat macan tutul memakan saudara angkatku. Aku perlu memberitahunya supaya dia bisa 
+melarikan diri."
 
-"Jika kamu bergegas ke sana, mungkinkah macan tutul akan memakanmu juga? Apakah kamu tidak takut?" Han Xiaoying bertanya.
+"Jika kamu bergegas ke sana, mungkin macan tutul akan memakanmu juga? Apakah kamu tidak takut?" Han Xiaoying bertanya.
 
-Dia menjawab, "Saya takut."
+Dia menjawab, "Aku takut."
 
-"Apakah kamu masih pergi?"
+"Kamu masih mau pergi?"
 
 Setelah ragu-ragu selama sepersekian detik, Guo Jing menegaskan, "Aku tetap pergi!" sebelum melarikan diri dengan cepat.
 
-Karena luka Zhu Cong masih sakit, dia diam-diam berbaring di leher kudanya. Memperhatikan hati ksatria Guo Jing, dia merenung, "Anak ini mungkin tidak terlalu pintar, tapi bagaimanapun dia adalah orang yang layak untuk generasi kita."
+Karena luka Zhu Cong masih sakit, ia diam-diam berbaring di leher kudanya. Memperhatikan sikap ksatria Guo Jing, ia 
+merenung, "Anak ini mungkin tidak terlalu pintar, tapi bagaimanapun dia adalah orang yang layak untuk generasi kita."
 
-Han Xiaoying menjawab, "Persepsi saudara keempat benar! Ayo selamatkan mereka."
+Han Xiaoying menjawab, "Persepsi kakak keempat benar! Ayo selamatkan mereka."
 
-Quan Jinfa memperingatkan yang lain, "Tuan kecil ini memelihara macan tutul di rumah; dia pasti putra seorang jenderal penting. Sebaiknya kita berhati-hati untuk tidak membuat masalah, karena kita bertiga terluka."
+Quan Jinfa memperingatkan yang lain, "Tuan kecil ini memelihara macan tutul di rumah, dia pasti putra seorang jenderal 
+penting. Sebaiknya kita berhati-hati untuk tidak membuat masalah, karena kita bertiga terluka."
 
-Han Baoju menggunakan kung fu ringannya untuk menangkap, mengangkat, dan meletakkan Guo Jing di pundaknya. Meski Han Baoju bertubuh kecil dengan kaki yang pendek, ia masih bisa bergerak dengan sangat cepat. Bagi Guo Jing, duduk di atas bahunya yang gemuk dan kokoh seperti menunggangi kuda perang yang bagus, cepat dan stabil. Han Baoju bergegas ke sisi 'Pemburu Angin', dan dengan lompatan besar, dia membawa Guo Jing bersamanya ke punggung kuda. Dalam beberapa saat, mereka berhasil menyusul Dukhsh dan pawang macan tutul. Setelah berpacu sebentar, mereka melihat sepuluh anak atau lebih mengelilingi Tolui. Itu adalah geng Dukhsh yang mengikuti perintahnya. Mereka tidak berusaha menyerangnya, hanya berusaha mencegah Tolui pergi.
+Han Baoju menggunakan ilmu meringankan tubuhnya untuk menangkap, mengangkat, dan meletakkan Guo Jing di pundaknya. 
+Meski Han Baoju bertubuh kecil dengan kaki yang pendek, ia masih bisa bergerak dengan sangat cepat. Bagi Guo Jing, 
+duduk di atas bahunya yang gemuk dan kokoh seperti menunggangi kuda perang yang bagus, cepat dan stabil. Han Baoju 
+bergegas ke sisi 'Pemburu Angin', dan dengan lompatan besar, ia membawa Guo Jing bersamanya ke punggung kuda. Dalam 
+beberapa saat, mereka berhasil menyusul Dukhsh dan pawang macan tutul. Setelah berpacu sebentar, mereka melihat 
+sepuluh anak atau lebih mengelilingi Tolui. Itu adalah geng Dukhsh yang mengikuti perintahnya. Mereka tidak berusaha 
+menyerangnya, hanya berusaha mencegah Tolui pergi.
 
-Setelah diajari tiga jurus terampil oleh Zhu Cong, Tolui telah melatih jurus-jurus itu malam itu sampai dia terbiasa dengan semuanya. Datang pagi, dia tidak dapat menemukan Guo Jing atau meminta saudara laki-laki ketiganya Ogedai untuk membantunya. Tolui dengan berani pergi melawan Dukhsh sendirian. Dukhsh telah membawa sekitar sepuluh bala bantuan. Melihatnya sendirian agak mengejutkannya. Ketika Tolui meminta agar mereka hanya bertarung satu lawan satu dan tidak menyerangnya sebagai satu kelompok, Dukhsh langsung setuju. Dia berpikir bahwa tidak mungkin Tolui bisa mengalahkannya. Tapi begitu mereka mulai bertarung, Tolui terus menggunakan tiga jurus yang diajarkan Zhu Cong kepadanya, dan hebatnya, dia berhasil melakukan Dukhsh terbaik. Meskipun tiga gerakan yang diajarkan Zhu Cong kepadanya sederhana, sebenarnya itu adalah inti dari teknik 'Tinju Kosong'. Selain itu, karena ketiga jurus ini tidak memiliki perubahan yang rumit, Tolui, yang sangat cerdas, segera mengambilnya. Jadi ketika dia menggunakannya, anak-anak Mongolia lainnya bukanlah tandingannya. Orang Mongolia sangat mementingkan menepati janji. Karena mereka telah setuju untuk bertarung satu lawan satu saja dan meskipun mereka kesal, mereka tidak dapat berbuat apa-apa. Tolui membuat Dukhsh jatuh dua kali, bahkan memukul hidungnya. Dukhsh sangat marah, jadi dia lari untuk mendapatkan macan tutul berburu ayahnya.
+Setelah diajari tiga jurus terampil oleh Zhu Cong, Tolui telah melatih jurus-jurus itu malam itu sampai ia terbiasa 
+dengan semuanya. Datang pagi, ia tidak dapat menemukan Guo Jing atau meminta saudara laki-laki ketiganya Ogedai untuk 
+membantunya. Tolui dengan berani pergi melawan Dukhsh sendirian. Dukhsh telah membawa sekitar sepuluh bala bantuan. 
+Melihatnya sendirian agak mengejutkannya. Ketika Tolui meminta agar mereka hanya bertarung satu lawan satu dan tidak 
+menyerangnya sebagai satu kelompok, Dukhsh langsung setuju. Ia berpikir bahwa tidak mungkin Tolui bisa mengalahkannya. 
+Tapi begitu mereka mulai bertarung, Tolui terus menggunakan tiga jurus yang diajarkan Zhu Cong kepadanya, dan hebatnya, 
+dia berhasil mengatasi Dukhsh dengan baik. Meskipun tiga gerakan yang diajarkan Zhu Cong kepadanya sederhana, sebenarnya 
+itu adalah inti dari ilmu tangan kosong. Selain itu, karena ketiga jurus ini tidak memiliki perubahan yang rumit, 
+Tolui, yang sangat cerdas, segera mengambilnya. Jadi ketika ia menggunakannya, anak-anak Mongolia lainnya bukanlah 
+tandingannya. Orang Mongolia sangat mementingkan menepati janji. Karena mereka telah setuju untuk bertarung satu lawan 
+satu saja dan meskipun mereka kesal, mereka tidak dapat berbuat apa-apa. Tolui membuat Dukhsh jatuh dua kali, bahkan memukul 
+hidungnya. Dukhsh sangat marah, jadi ia lari untuk mengambil macan tutul ayahnya.
 
-Setelah menang sendirian melawan begitu banyak anak, Tolui sangat bangga pada dirinya sendiri. Itu sebabnya dia berdiri dengan tenang di tengah anak-anak di sekitarnya, bahkan tidak berpikir untuk melarikan diri. Tanpa dia ketahui, masalah besar akan datang.
+Setelah menang sendirian melawan begitu banyak anak, Tolui sangat bangga pada dirinya sendiri. Itu sebabnya dia berdiri 
+dengan tenang di tengah anak-anak di sekitarnya, bahkan tidak berpikir untuk melarikan diri. Tanpa diketahuinya, 
+masalah besar akan datang.
 
-Dari kejauhan, Tolui mendengar teriakan samar Guo Jing, "Tolui, Tolui, lari sekarang. Dukhsh membawa macan tutulnya untuk memakanmu!"
+Dari kejauhan, Tolui mendengar teriakan samar Guo Jing, "Tolui, Tolui, lari sekarang. Dukhsh membawa macan tutulnya 
+untuk memakanmu!"
 
-Tolui kaget dan berusaha keluar dari lingkaran. Tapi anak-anak di sekitarnya terus menghalanginya; tidak ada cara baginya untuk melarikan diri. Segera Enam Orang Aneh dari Selatan, bersama dengan Dukhsh, tiba satu demi satu. Mengikuti mereka, pawang macan tutul membawa macan tutul ke sana. Meskipun Enam Orang Aneh dari Selatan dapat mencegah bahaya yang akan datang dengan menangkap Dukhsh, mereka tidak ingin membuat lebih banyak masalah. Mereka juga ingin melihat bagaimana Tolui dan Guo Jing menghadapi bahaya, jadi mereka tidak menawarkan bantuan apapun.
+Tolui kaget dan berusaha keluar dari lingkaran. Tapi anak-anak di sekitarnya terus menghalanginya; tidak ada cara baginya 
+untuk melarikan diri. Segera Enam Orang Aneh dari Jiangnan, bersama dengan Dukhsh, tiba satu demi satu. Mengikuti mereka, 
+pawang macan tutul membawa macan tutul ke sana. Meskipun Enam Orang Aneh dari Jiangnan dapat mencegah bahaya yang akan datang 
+dengan menangkap Dukhsh, mereka tidak ingin membuat lebih banyak masalah. Mereka juga ingin melihat bagaimana Tolui dan Guo 
+Jing menghadapi bahaya, jadi mereka tidak menawarkan bantuan apapun.
 
-Tiba-tiba, mereka mendengar suara banyak kuda datang seperti angin. Seseorang berteriak sekuat tenaga, "Jangan biarkan macan tutul pergi, jangan lepaskan macan tutul!" Muqali, Boroqul dan 'Empat As' lainnya telah tiba. Ketika mereka mendengar laporan pawang macan tutul, mereka tidak punya cukup waktu untuk memberi tahu Temujin, dan buru-buru bergegas ke tempat kejadian. Temujin, Ong Khan, Jamuka, Senggum dan yang lainnya berada di kamp Mongolia mengobrol dengan Wanyan Honglie dan saudaranya. Mendengar laporan pawang macan tutul, mereka terkejut dan berlari keluar ger dan melompat ke atas kudanya.
+Tiba-tiba mereka mendengar suara banyak kuda datang seperti angin. Seseorang berteriak sekuat tenaga, "Jangan biarkan macan 
+tutul pergi, jangan lepaskan macan tutul!" Muqali, Boroqul dan Empat As lainnya tiba. Ketika mereka mendengar laporan 
+pawang macan tutul, mereka tidak punya cukup waktu untuk memberi tahu Temujin, dan buru-buru bergegas ke tempat kejadian. 
+Temujin, Ong Khan, Jamuka, Senggum dan yang lainnya berada di kemah Mongolia mengobrol dengan Wanyan Honglie dan saudaranya. 
+Mendengar laporan pawang macan tutul, mereka terkejut dan berlari keluar _ger_ dan melompat ke atas kudanya.
 
-"Cepat beri tahu mereka bahwa saya memerintahkan Dukhsh untuk tidak melakukan ini. Penting agar putra Temujin Khan tidak terluka," perintah Ong Khan. Anak buahnya menunggang kuda mereka yang paling bersemangat ke tempat yang bermasalah.
+"Cepat beri tahu mereka bahwa _aku_ memerintahkan Dukhsh untuk _tidak_ melakukan ini. Penting agar putra Temujin Khan tidak 
+terluka," perintah Ong Khan. Anak buahnya menunggang kuda mereka yang paling bersemangat ke tempat terjadinya masalah.
 
-Karena Wanyan Hongxi tidak bisa melihat macan tutul bertarung melawan manusia kemarin, dia masih merasa bosan. Mendengar ini, dia merasakan kegembiraan meningkat dan berdiri sambil berseru, "Ayo kita lihat!"
+Karena Wanyan Hongxi tidak bisa melihat macan tutul bertarung melawan manusia kemarin, dia masih merasa bosan. Mendengar ini, 
+dia merasakan kegembiraan meningkat dan berdiri sambil berseru, "Ayo kita lihat!"
 
-Wanyan Honglie berspekulasi, "Jika macan tutul Senggum benar-benar membunuh putra Temujin, maka keluarga mereka tidak akan lagi bersahabat. Setelah itu terjadi, mereka mungkin akan mulai berkelahi. Siapa tahu, mungkin kedua belah pihak akan menderita kerugian besar dan sangat lemah. Itu pasti akan terjadi keberuntungan untuk negara Jin saya!"
+Wanyan Honglie berspekulasi, "Jika macan tutul Senggum benar-benar membunuh putra Temujin, maka keluarga mereka tidak akan 
+lagi bersahabat. Setelah itu terjadi, mereka mungkin akan mulai bermusuhan. Siapa tahu, mungkin kedua belah pihak akan 
+menderita kerugian besar dan sangat lemah. Itu pasti akan jadi keberuntungan untuk Kekaisaran Jin!"
 
-Wanyan bersaudara, Ong Khan, Senggum, Jamuka dan yang lainnya tiba di tempat kejadian, hanya untuk melihat bahwa rantai kedua macan tutul pemburu telah dilepaskan. Macan tutul berjongkok di tanah dengan suara geraman rendah dari tenggorokan mereka. Di depan macan tutul berdiri dua anak, Tolui dan adik angkatnya Guo Jing. Temujin dan 'Empat As' miliknya mengangkat busur dan mengarahkannya ke macan tutul; mereka siap beraksi. Meski Temujin melihat putra bungsunya dalam situasi berbahaya, ia juga tahu bahwa kedua macan tutul pemburu itu sangat berharga bagi Senggum. Senggum telah menangkap macan tutul ketika mereka masih muda; dia membesarkan dan melatih mereka sampai mereka tumbuh kuat dan ganas. Karena itu tidak dapat dicapai dengan mudah dan memakan banyak waktu, Temujin merasa jika macan tutul tidak menyerang, dia tidak akan menyakiti mereka.
+Wanyan bersaudara, Ong Khan, Senggum, Jamuka dan yang lainnya tiba di tempat kejadian, hanya untuk melihat bahwa rantai kedua 
+macan tutul pemburu telah dilepaskan. Macan tutul berjongkok di tanah dengan suara geraman rendah dari tenggorokan mereka. Di 
+depan macan tutul berdiri dua anak, Tolui dan adik angkatnya Guo Jing. Temujin dan Empat As miliknya mengangkat busur dan 
+mengarahkannya ke macan tutul, mereka siap beraksi. Meski Temujin melihat putra bungsunya dalam situasi berbahaya, ia juga 
+tahu bahwa kedua macan tutul pemburu itu sangat berharga bagi Senggum. Senggum telah menangkap macan tutul ketika mereka 
+masih muda, ia membesarkan dan melatih mereka sampai mereka tumbuh kuat dan ganas. Karena hal itu tidak dapat dicapai dengan 
+mudah dan memakan banyak waktu, Temujin merasa jika macan tutul tidak menyerang, ia juga tidak akan menyakiti mereka.
 
-Melihat orang banyak berdatangan dan mengandalkan pemujaan kakek dan ayahnya untuknya, Dukhsh merasa lebih berani. Dia terus mendesak macan tutul untuk menyerang.
+Melihat orang banyak berdatangan, dan mengandalkan dukungan kakek dan ayahnya untuk dirinya, Dukhsh merasa lebih berani. Ia 
+terus mendesak macan tutul untuk menyerang.
 
 Ong Khan lalu berteriak, "Hentikan ini sekarang!"
 
-Suara kuku terdengar saat seseorang menunggang kuda merah tiba. Di atas kuda itu ada seorang wanita paruh baya, berpakaian bulu macan tutul, dan di pelukannya, seorang gadis kecil. Itu istri Temujin, ibu Tolui.
+Suara kuku terdengar saat seseorang menunggang kuda merah tiba. Di atas kuda itu ada seorang wanita paruh baya, berpakaian 
+bulu macan tutul, dan di pelukannya, seorang gadis kecil. Itu istri Temujin, ibu Tolui.
 
-Dia sedang mengobrol di kamp dengan istri Senggum. Ketika dia mendengar berita itu, dia segera bergegas keluar bersama putrinya Hua Zheng. Melihat bahayanya, dia terkejut sekaligus khawatir. Dia berteriak, "Cepat, tembak panahnya!" Dengan semua fokusnya pada putranya, dia tanpa sadar meletakkan putrinya di tanah, melupakan keselamatannya.
+Ia sedang mengobrol di kemah dengan istri Senggum. Ketika mendengar berita itu, ia segera bergegas keluar bersama putrinya, 
+Hua Zheng. Melihat bahaya, ia terkejut sekaligus kuatir. Ia berteriak, "Cepat, tembak panahnya!" Dengan semua 
+fokus tertuju kepada putranya, tanpa sadar ia meletakkan putrinya di tanah, melupakan keselamatannya.
 
-Sebagai seorang gadis kecil berusia empat tahun, bagaimana Hua Zheng bisa mengetahui sifat ganas macan tutul? Dia dengan senang hati melompat ke sisi kakaknya. Melihat macan tutul dengan bulunya yang berwarna-warni, dia teringat akan anjing pemburu kakak keduanya, Ogedai. Dia mengulurkan tangannya, ingin menepuk kepala macan tutul. Kerumunan terkejut, dan berteriak padanya untuk berhenti; tapi itu sudah terlambat. Kedua macan tutul itu, sudah gugup dan gelisah, menggeram pada saat yang sama, dan melompat ke depan dengan ganas. Khawatir, kerumunan memanggil dengan kesusahan.
+Sebagai seorang gadis kecil berusia empat tahun, Hua Zheng tentu saja tidak tahu keganasan macan tutul. Ia dengan 
+senang hati melompat ke sisi kakaknya. Melihat macan tutul dengan bulunya yang berwarna-warni, ia teringat akan anjing 
+pemburu kakak keduanya, Ogedai. Ia mengulurkan tangannya, ingin menepuk kepala macan tutul. Kerumunan terkejut, dan 
+berteriak padanya untuk berhenti, tapi sudah terlambat. Kedua macan tutul itu, sudah gugup dan gelisah, menggeram pada 
+saat yang sama, dan melompat ke depan dengan ganas. Semua orang berteriak ngeri.
 
-Meskipun Temujin telah mengarahkan panahnya, kemunculan Hua Zheng yang tiba-tiba adalah sesuatu yang tidak diharapkan oleh siapa pun. Dalam sekejap mata, macan tutul berada di udara. Hua Zheng memblokir bidikan Temujin di tempat strategis di kepala macan tutul tempat mereka harus dipukul untuk memastikan pembunuhan instan. Tembakan Temujin sekarang hanya akan melukai macan tutul, dan itu akan semakin memperburuknya. 'Four Aces' melempar busur mereka dan menghunus pisau mereka. Saat mereka bergerak maju, mereka melihat Guo Jing berguling ke depan untuk menjemput Hua Zheng; pada saat yang sama salah satu cakar depan macan tutul ada di bahu Guo Jing. 'Four Aces' mengangkat pisau mereka, hanya untuk mendengar beberapa suara samar. Ketika suara-suara itu berlalu, kedua macan tutul itu tiba-tiba jatuh sambil menggeram dan berguling-guling dari satu sisi ke sisi lain. Setelah beberapa saat, mereka tidak bergerak.
+Meskipun Temujin telah mengarahkan panahnya, kemunculan Hua Zheng yang tiba-tiba adalah sesuatu yang tidak diharapkan oleh 
+siapa pun. Dalam sekejap mata, macan tutul berada di udara. Hua Zheng memblokir bidikan Temujin di tempat strategis di kepala 
+macan tutul tempat mereka harus ditembak untuk memastikan kematian secepatnya. Tembakan Temujin sekarang hanya akan melukai 
+macan tutul, dan itu akan semakin memperburuk keadaan. Empat As melempar busur mereka dan menghunus pisau. Saat mereka 
+bergerak maju, mereka melihat Guo Jing berguling ke depan untuk menjemput Hua Zheng, pada saat yang sama salah satu cakar 
+depan macan tutul ada di bahu Guo Jing. Empat As mengangkat pisau mereka, hanya untuk mendengar beberapa suara samar. 
+Ketika suara-suara itu berlalu, kedua macan tutul itu tiba-tiba jatuh sambil menggeram dan berguling-guling dari satu sisi ke 
+sisi lain. Setelah beberapa saat, mereka tidak bergerak.
 
-Boroqul maju untuk mencari tahu apa yang terjadi. Dia melihat darah mengalir dari dahi macan tutul. Jelas sekali bahwa seorang master kung fu telah menggunakan senjata tersembunyi untuk memukul otak macan tutul. Dia berbalik dan melihat enam orang Han yang tenang berdiri di satu sisi menonton adegan yang sedang berlangsung. Dia tahu bahwa senjata tersembunyi telah dilemparkan oleh mereka. Istri Temujin buru-buru mengambil Hua Zheng yang sekarang sedang menangis dari lengan Guo Jing dan menarik Tolui ke dadanya saat dia mencoba menghibur Hua Zheng.
+Boroqul maju untuk mencari tahu apa yang terjadi. Ia melihat darah mengalir dari dahi macan tutul. Jelas sekali bahwa 
+seorang ahli kungfu telah menggunakan senjata rahasia untuk menembak otak macan tutul. Ia berbalik dan melihat enam 
+orang Han yang dengan tenang berdiri di satu sisi menonton adegan yang sedang berlangsung. Ia tahu bahwa senjata tersembunyi 
+telah dilemparkan oleh salah seorang dari mereka. Istri Temujin buru-buru mengambil Hua Zheng yang sekarang sedang menangis 
+dari lengan Guo Jing dan menarik Tolui ke dadanya, sambil mencoba menghibur Hua Zheng.
 
 Senggum bertanya dengan marah, "Siapa yang membunuh macan tutul?"
 
-Kerumunan tetap diam dan tidak ada yang menjawab. Ke Zhen'E telah mendengar geraman macan tutul, dan takut macan tutul itu akan menyakiti Guo Jing, telah melemparkan empat proyektil dengan ujung beracun. Karena tindakan itu hanya membutuhkan lambaian tangan, dan karena mata semua orang terfokus pada macan tutul, tidak ada orang yang benar-benar melihat siapa yang menembak mereka.
+Kerumunan tetap diam dan tidak ada yang menjawab. Ke Zhen'E telah mendengar geraman macan tutul, dan takut macan tutul itu 
+akan menyakiti Guo Jing, ia melontarkan empat senjata rahasia dengan ujung beracun. Karena tindakan itu hanya membutuhkan 
+lambaian tangan, dan karena mata semua orang tertuju pada macan tutul, tidak ada orang yang benar-benar melihat siapa yang 
+menembak mereka.
 
-Temujin tersenyum dan berkata, "Kakak Senggum, saya akan membalas Anda dengan empat macan tutul yang baik saat kita kembali, dan saya akan menambahkan delapan pasang elang hitam."
+Temujin tersenyum dan berkata, "Kakak Senggum, aku akan membalasmu dengan empat macan tutul yang terbaik saat kita kembali, 
+dan aku juga akan menambahkan delapan pasang elang hitam."
 
-Senggum sangat marah ketika mendengar itu, tapi dia tetap diam. Saat ini, Ong Khan dengan marah memarahi Dukhsh. Merasa terhina menerima perlakuan ini di depan orang banyak, dia mencoba menangkis kesalahan dari dirinya sendiri. Dalam keadaan marah dia berbaring di tanah dan mulai berguling dan memukul, menangis dan berteriak. Ong Khan dengan keras memerintahkannya untuk berhenti, tapi dia tidak peduli.
+Senggum sangat marah ketika mendengar itu, tapi tetap diam. Saat ini, Ong Khan dengan emosi memarahi Dukhsh. Merasa 
+terhina menerima perlakuan ini di depan orang banyak, Dukhsh mencoba menangkis semua tudingan. Dalam keadaan 
+marah ia berbaring di tanah dan mulai berguling dan memukul, menangis dan berteriak. Ong Khan dengan keras memerintahkannya 
+untuk berhenti, tapi ia tidak peduli.
 
-Karena Temujin masih berterima kasih atas apa yang telah dilakukan Ong Khan untuknya di masa lalu, dia merasa sayang untuk memutuskan persahabatan kedua keluarga karena masalah sekecil itu. Dia tersenyum dan membungkuk untuk mengambil Dukhsh. Dukhsh masih menangis dan berteriak dan berusaha sekuat tenaga untuk memberontak, tetapi tidak bisa. Masih tersenyum, Temujin mencoba untuk menyelamatkan situasi, "Ayah tiri, anak-anak hanya bermain, tidak perlu marah. Saya pikir dia adalah anak yang baik dan saya berpikir untuk menikahkan putri saya dengannya. Apa yang harus dilakukan menurutmu?"
+Karena Temujin masih berterima kasih atas apa yang telah dilakukan Ong Khan untuknya di masa lalu, ia merasa sayang untuk 
+memutuskan persahabatan kedua keluarga karena masalah sekecil itu. Ia tersenyum dan membungkuk untuk mengambil Dukhsh. 
+Dukhsh masih menangis dan berteriak dan berusaha sekuat tenaga untuk memberontak, tetapi tidak bisa. Masih tersenyum, Temujin 
+mencoba untuk menyelamatkan situasi, "Ayah tiri, anak-anak hanya bermain, tidak perlu marah. Aku pikir dia anak yang 
+baik dan aku berniat untuk menikahkan putriku dengan dia. Apa yang harus dilakukan menurutmu?"
 
-Ong Khan melihat bahwa Hua Zheng memiliki mata seperti embun yang berkilauan, dan kulit seperti bayi domba, cantik dan imut, dan hatinya merasa bahagia. Sambil tertawa, dia berkata, "Apa yang salah dengan itu? Mari kita menjalin hubungan yang lebih dekat; aku akan menunangkan cucu tertuaku dengan putramu Jochi."
+Ong Khan melihat bahwa Hua Zheng memiliki mata seperti embun yang berkilauan, dan kulit seperti bayi domba, cantik dan imut, dan hatinya merasa bahagia. Sambil tertawa, ia berkata, "Apa yang salah dengan itu? Mari kita menjalin hubungan yang lebih dekat, aku akan menunangkan cucu tertuaku dengan putramu Jochi."
 
-Temujin setuju, "Terima kasih Ayah Tiri!" Dia berbalik dan berkata kepada Senggum, “Kakak Senggum, kita sekarang adalah mertua!”
+Temujin setuju, "Terima kasih Ayah Tiri!" Ia berbalik dan berkata kepada Senggum, "Kakak Senggum, kita sekarang jadi
+besan!"
 
-Senggum selalu merasa statusnya lebih tinggi dari Temujin. Dia sudah cemburu pada Temujin, namun memandang rendah dia. Meskipun dia tidak senang menjadi menantu Temujin, dia tidak bisa melawan keinginan ayahnya. Dia hanya bisa tersenyum lemah.
+Senggum selalu merasa statusnya lebih tinggi dari Temujin. Ia cemburu pada Temujin, namun memandang rendah dia. Meskipun 
+tidak senang menjadi besan Temujin, ia tidak bisa melawan keinginan ayahnya. Ia hanya bisa tersenyum lemah.
 
-Pada titik ini, Wanyan Honglie memperhatikan 'Enam Orang Aneh dari Selatan', dan dia terkejut. "Apa yang mereka lakukan di sini? Aku yakin mereka mengejarku. Aku ingin tahu apakah pendeta Tao yang temperamental dengan nama keluarga Qiu juga ada di sekitar sini?" dia bertanya pada dirinya sendiri. Karena dia saat ini mendapat perlindungan dari banyak prajurit, dia tidak takut pada mereka. Tetapi jika dia memberi perintah untuk menangkap mereka, dia takut hal itu akan menimbulkan masalah. 'Six Freaks' sedang mendengarkan percakapan Temujin dan yang lainnya dan bahkan tidak memperhatikannya. Dia berbalik dan bergerak ke belakang kerumunan tentara, sementara pada saat yang sama memikirkan cara untuk menangani masalah tersebut. Adapun pertunangan keluarga Ong Khan dan Temujin, dia tidak terlalu memikirkannya.
+Pada titik ini, Wanyan Honglie memperhatikan Enam Orang Aneh dari Jiangnan, dan ia terkejut. "Apa yang mereka lakukan di 
+sini? Aku yakin mereka mengejarku. Aku ingin tahu apa Pendeta Tao temperamental bermarga Qiu itu juga ada di 
+sekitar sini?" ia bertanya pada diri sendiri. Karena saat ini ia mendapat perlindungan dari banyak prajurit, ia tidak 
+takut pada mereka. Tetapi jika ia memberi perintah untuk menangkap mereka, ia takut hal itu akan menimbulkan masalah. Enam 
+Orang Aneh sedang mendengarkan percakapan Temujin dan yang lainnya dan bahkan tidak memperhatikannya. Ia berbalik dan 
+bergerak ke belakang kerumunan tentara, sementara pada saat yang sama memikirkan cara untuk menangani masalah tersebut. Soal
+pertunangan keluarga Ong Khan dan Temujin, ia tidak terlalu memikirkannya.
 
-Temujin tahu bahwa Enam Orang Aneh dari Jiangnan yang menyelamatkan nyawa putrinya, dan dia menunggu Ong Khan dan yang lainnya pergi, sebelum memerintahkan Boroqul untuk menghadiahi mereka dengan bulu dan emas. Dia kemudian mengulurkan tangannya untuk membelai bagian atas kepala Guo Jing dan berulang kali memujinya atas keberanian dan keberaniannya. Temujin berkata bahwa mempertaruhkan nyawanya sendiri untuk menyelamatkan orang lain, adalah sesuatu yang tidak akan dilakukan oleh semua orang dewasa, apalagi anak kecil. Ketika dia bertanya kepada Guo Jing mengapa dia begitu berani, Guo Jing hanya berdiri diam karena dia tidak dapat menemukan jawaban. Setelah merenung beberapa lama, dia berkata, “Macan tutul akan memakan manusia.”
+Temujin tahu bahwa Enam Orang Aneh dari Jiangnan yang menyelamatkan nyawa putrinya, dan ia menunggu Ong Khan dan yang 
+lainnya pergi, sebelum memerintahkan Boroqul untuk menghadiahi mereka dengan bulu dan emas. Ia kemudian mengulurkan 
+tangannya untuk membelai bagian atas kepala Guo Jing dan berulang kali memujinya atas keberanian dan kegagahannya. Temujin 
+berkata bahwa mempertaruhkan nyawanya sendiri untuk menyelamatkan orang lain, adalah sesuatu yang tidak akan dilakukan oleh 
+semua orang dewasa, apalagi anak kecil. Ketika ia bertanya kepada Guo Jing mengapa ia begitu berani, Guo Jing hanya 
+berdiri diam karena tidak dapat menemukan jawaban. Setelah merenung beberapa lama, ia berkata, "Macan tutul makan manusia."
 
-Mendengar itu, Temujin tertawa terbahak-bahak. Tolui kemudian menceritakan mengapa dia mulai berkelahi dengan Dukhsh. Ketika Temujin mendengar bagaimana Dukhsh terus menyebutkan peristiwa memalukan dari masa lalunya, kemarahan mendidih jauh di dalam hatinya. Dia tidak mengatakan apa-apa tentang itu, hanya mengatakan, "Di masa depan, jangan ganggu dia." Temujin kemudian menoleh ke Quan Jinfa dan bertanya, "Berapa banyak emas yang kamu inginkan untuk tinggal di kemahku untuk mengajari putraku kung fu?"
+Mendengar itu, Temujin tertawa terbahak-bahak. Tolui kemudian menceritakan mengapa ia mulai berkelahi dengan Dukhsh. Ketika 
+Temujin mendengar bagaimana Dukhsh terus menyebutkan peristiwa memalukan dari masa lalunya, kemarahan mendidih jauh di dalam 
+hatinya. Ia tidak mengatakan apa-apa tentang itu, hanya mengatakan, "Di masa depan, jangan ganggu dia." Temujin kemudian 
+menoleh ke Quan Jinfa dan bertanya, "Berapa banyak emas yang kalian inginkan untuk tinggal di kemahku untuk mengajari 
+putraku kungfu?"
 
-Quan Jinfa berpikir, "Kami berpikir untuk mencari tempat untuk mengajar kungfu Guo Jing. Jika kami bisa mengajarinya di sini, tidak akan ada tempat yang lebih baik." Dia menjawab, "Kesediaan Khan Agung untuk menerima kami berenam adalah sesuatu yang tidak dapat kami minta. Anda dapat membayar kami berapa pun yang Anda putuskan sesuai, kami tidak akan berani mendiskusikan atau berdebat tentang jumlahnya." Temujin senang dan dia menyuruh Boroqul untuk menjaga mereka; setelah itu, dia pergi untuk mengantar Wanyan bersaudara.
+Quan Jinfa berpikir, "Kami mencari tempat untuk mengajar kungfu Guo Jing. Jika kami bisa mengajarinya di sini, tidak akan 
+ada tempat yang lebih baik." Ia menjawab, "Kesediaan Khan Agung untuk menerima kami berenam adalah sesuatu yang tidak dapat 
+kami minta. Khan bisa membayar kami berapa pun yang Khan putuskan sesuai, kami tidak akan berani mendiskusikan atau 
+berdebat tentang jumlahnya." Temujin senang dan menyuruh Boroqul untuk menjaga mereka, setelah itu, ia pergi untuk 
+mengantar Wanyan bersaudara.
 
 Enam Orang Aneh melaju perlahan di belakang yang lain sementara mereka mendiskusikan masalah itu.
 
-Han Baoju berkata, "Kulit di dada mayat Chen Xuanfeng telah diambil oleh seseorang; itu pasti musuhnya."
+Han Baoju berkata, "Kulit di dada mayat Chen Xuanfeng telah diambil oleh seseorang, itu pasti musuhnya."
 
-Quan Jinfa menjawab, "'Pembunuh Kembar Angin Kegelapan' kejam dan bengis; memiliki banyak musuh bukanlah sesuatu yang mengejutkan. Tapi aku tidak mengerti mengapa musuhnya tidak hanya memotong tubuhnya, atau tebas seluruh tubuhnya. Mengapa hanya mengiris sebagian besar kulit dari dadanya?"
+Quan Jinfa menjawab, "Pembunuh Kembar Angin Kegelapan kejam dan bengis, punya banyak musuh bukan sesuatu yang mengejutkan. 
+Tapi aku tidak mengerti mengapa musuhnya tidak hanya memotong tubuhnya, atau tebas seluruh tubuhnya. Mengapa hanya mengiris 
+sebagian besar kulit dari dadanya?"
 
-“Aku sudah memikirkan itu selama ini, tapi aku masih belum bisa menemukan alasan di baliknya,” jawab Ke Zhen’E. "Tugas yang paling mendesak adalah mencari tahu di mana 'Iron Corpse' berada."
+"Aku sudah memikirkan itu selama ini, tapi aku masih belum bisa menemukan alasan di baliknya." jawab Ke Zhen’E. "Tugas yang 
+paling mendesak adalah mencari tahu di mana Mayat Besi berada."
 
-"Tepat! Jika orang itu tidak terbunuh, dia akan membawa banyak bahaya bagi kita di masa depan. Saya khawatir dia tidak akan mati karena racun itu," Zhu Cong setuju.
+"Tepat! Jika orang itu tidak terbunuh, ia akan membawa banyak bahaya bagi kita di masa depan. Aku kkuatir dia tidak akan 
+mati karena racun itu," Zhu Cong setuju.
 
-Dengan berlinang air mata, Han Xiaoying angkat bicara, "Kakak kelima meninggal, bagaimana mungkin kita tidak membalaskan dendamnya?"
+Dengan berlinang air mata, Han Xiaoying angkat bicara, "Kakak kelima meninggal, bagaimana mungkin kita tidak membalaskan 
+dendamnya?"
 
-Jadi Han Baoju, Han Xiaoying dan Quan Jinfa, menunggang kuda cepat mereka untuk mencoba menemukan Si Mayat Besi. Tetapi setelah beberapa hari mencari, mereka tidak dapat menemukan jejaknya. Han Baoju mempertimbangkan, "Mata wanita itu terkena proyektil racun kakak laki-laki. Racun itu pasti sudah bekerja padanya sekarang; dia mungkin meninggal di lembah pegunungan." Sisanya setuju. Ke Zhen'E tahu di dalam hatinya bahwa 'Pembunuh Kembar Angin Kegelapan' sangat cerdas dan licik. Kecuali dia bisa menyentuh mayatnya dengan tangannya sendiri, itu akan selalu menjadi beban berat di hatinya. Dia tidak ingin mengganggu adik laki-laki dan perempuannya dengan kekhawatirannya dan tidak memberi tahu mereka tentang kekhawatirannya.
+Jadi Han Baoju, Han Xiaoying dan Quan Jinfa, menunggang kuda cepat mereka untuk mencoba menemukan Si Mayat Besi. Tetapi 
+setelah beberapa hari mencari, mereka tidak dapat menemukan jejaknya. Han Baoju mempertimbangkan, "Mata wanita itu terkena 
+senjata beracun Da Ge. Racun itu pasti sudah bekerja sekarang, ia mungkin tewas di lembah pegunungan."
+Sisanya setuju. Ke Zhen'E tahu di dalam hatinya bahwa Pembunuh Kembar Angin Kegelapan sangat cerdas dan licik. Kecuali 
+dia bisa menyentuh mayatnya dengan tangannya sendiri, itu akan selalu menjadi beban berat di hatinya. Ia tidak ingin 
+mengganggu adik-adiknya dengan kekuatirannya dan tidak memberi tahu mereka apa-apa.
 
-Sejak saat itu, Enam Orang Aneh dari Jiangnan tetap tinggal di padang rumput, mengajar Guo Jing dan Tolui kungfu. Temujin tahu bahwa kungfu adalah untuk melindungi diri dari kontak dekat dengan lawan. Dia ingin Tolui dan Guo Jing mempelajari teknik-teknik ini secara singkat, dan menghabiskan sebagian besar waktu mereka untuk belajar berkuda, menembak dengan busur dan anak panah, dan mempelajari keterampilan penting lainnya di medan perang. 'Enam Orang Aneh dari Selatan' tidak terbiasa dengan keterampilan Mongol ini sehingga Guo Jing dan Tolui mempelajarinya dari Jebe dan Boroqul.
+Sejak saat itu, Enam Orang Aneh dari Jiangnan tetap tinggal di padang rumput, mengajar Guo Jing dan Tolui kungfu. Temujin 
+tahu bahwa kungfu adalah untuk melindungi diri dari kontak dekat dengan lawan. Dia ingin Tolui dan Guo Jing mempelajari 
+teknik-teknik ini secara singkat, dan menghabiskan sebagian besar waktu mereka untuk belajar berkuda, menembak dengan busur 
+dan anak panah, dan mempelajari keterampilan penting lainnya di medan perang. Enam Orang Aneh dari Jiangnan tidak terbiasa 
+dengan keterampilan Mongol ini, jadi Guo Jing dan Tolui mempelajarinya dari Jebe dan Boroqul.
 
-Di malam hari, Enam Orang Aneh dari Jiangnan mengajari Guo Jing sendirian, mengajarinya tinju, pedang, senjata tersembunyi, dan kungfu ringan. Meskipun Guo Jing pada dasarnya lambat, dia tahu bahwa dia harus membalas dendam ayahnya di masa depan menggunakan kungfu, jadi dia tidak mengeluh dan bekerja sekeras yang dia bisa.
+Di malam hari, Enam Orang Aneh dari Jiangnan mengajari Guo Jing sendirian, mengajarinya tinju, pedang, senjata rahasia, 
+dan teknik meringankan tubuh. Meskipun Guo Jing pada dasarnya lambat, ia tahu bahwa ia harus membalas dendam ayahnya di masa 
+depan menggunakan kungfu, jadi ia tidak mengeluh dan belajar sekeras yang bisa dilakukannya.
 
-Zhu Cong, kungfu Quan Jinfa dan Han Xiaoying agak terlalu sulit untuk dia pahami. Dengan kungfu dasar Han Baoju dan Nan Xiren, dia hanya mengikuti arahan mereka dengan tepat dan perlahan tapi pasti mempelajarinya. Kungfu dasar ini memperkuat tubuh tetapi tidak dirancang untuk mengalahkan musuh dan memenangkan pertarungan.
+Zhu Cong, kungfu Quan Jinfa dan Han Xiaoying agak terlalu sulit untuk dia pahami. Dengan kungfu dasar Han Baoju dan Nan 
+Xiren, ia hanya mengikuti arahan mereka dengan tepat dan perlahan tapi pasti bisa mempelajarinya. Kungfu dasar ini 
+memperkuat tubuh tetapi tidak dirancang untuk mengalahkan musuh dan memenangkan pertarungan.
 
-Han Baoju sering berkata, "Melatihmu seperti melatih seekor onta. Kuat memang kuat, tetapi dapatkah seekor unta menang atas seekor macan tutul?"
+Han Baoju sering berkata, "Melatihmu seperti melatih seekor onta. Kuat memang kuat, tetapi dapatkah seekor onta menang atas 
+seekor macan tutul?"
 
 Setiap kali mendengar itu, Guo Jing hanya menunjukkan senyum konyol. Ketika Enam 
 Orang Aneh mengajar Guo Jing, mereka hanya mengawasi pembelajarannya, bukan 
@@ -140,7 +274,7 @@ persen lagi. Bahkan jika dia berhasil melakukannya tumbuh dewasa, mungkin dia
 akan sebodoh Jing'er. Oleh karena itu, menurutku kita masih memiliki peluang 
 delapan puluh persen untuk menang."
 
-Lima 'Orang Aneh' lainnya berpikir bahwa apa yang dia katakan tidak salah, bagaimanapun, 
+Lima Orang Aneh lainnya berpikir bahwa apa yang dia katakan tidak salah, bagaimanapun, 
 mengatakan bahwa bakat putra keluarga Yang untuk belajar seni bela diri mungkin sama dengan 
 Guo Jing, mereka harus tahu bahwa Quan Jinfa sedang mencoba menghibur mereka. Untungnya, 
 Guo Jing memiliki hati yang baik dan dia sangat patuh, sehingga Enam Orang Aneh sangat 
@@ -355,11 +489,11 @@ Temujin menghargai, di atas segalanya, petarung yang terampil. Ia senang melihat
 
 "Ayah," kata Tolui, ingin membantu saudara angkatnya. "Ayah menjanjikan hadiah 
 kepada orang yang bisa menjatuhkan elang. _Anda_-ku membunuh dua dari mereka 
-dengan satu tembakan. Hadiah apa yang akan Anda berikan padanya?"
+dengan satu tembakan. Hadiah apa yang akan ayah berikan kepadanya?"
 
-"Apapun yang dia mau," jawab Temujin masih tersenyum. "Guo Jing, apa yang kamu inginkan?"
+"Apa pun yang dia mau," jawab Temujin masih tersenyum. "Guo Jing, apa yang kamu inginkan?"
 
-"Apakah itu benar?" desak Tolui, senang. "Apa yang pernah dia inginkan?"
+"Apa benar begitu?" desak Tolui, senang. "Apa pun yang dia inginkan?"
 
 "Apa aku punya kebiasaan berbohong — bahkan kepada anak-anak?"
 
@@ -761,7 +895,7 @@ Pemuda itu melompat ke tanah. Kuda itu menjilat tangannya, menunjukkan kasih say
 orang di sana tertawa. Seorang penjaga mendekatinya agak terlalu dekat dan binatang itu memberinya 
 tendangan yang membuatnya jungkir balik. Guo Jing membawanya ke air, untuk mencuci dan menenangkannya.
 
-Karena peristiwa menaklukkan kuda ini sangat melelahkannya, Enam Orang Aneh mebebaskannya dari latihan 
+Karena peristiwa menaklukkan kuda ini sangat melelahkannya, Enam Orang Aneh membebaskannya dari latihan 
 untuk saat ini, tapi keraguan masih mengganggu mereka.
 
 Setelah makan siang, Guo Jing datang ke _ger_ guru-gurunya. "Jing'er," kata Quan Jinfa, "Aku ingin 
