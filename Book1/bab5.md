@@ -854,12 +854,13 @@ bertarung apa pun, ia telah menginisiasi pemuda itu ke dalam seni tenaga dalam[^
 Setiap malam, ketika ia mendaki dan menuruni tebing, Guo Jing berlatih, tanpa sepengetahuan gurunya, teknik 
 meringankan tubuh yang sangat halus yang disebut Penerbangan Elang Emas. Memiliki pikiran alami yang sederhana 
 dan percaya diri, ia sama sekali tidak sadar akan apa yang ia pelajari dari Sang Taois. Kemajuannya dalam 
-penguasaan energi internalnya dan dalam teknik Penerbangan Elang Emas ini hanya muncul ketika ia berlatih 
+penguasaan tenaga dalam dan dalam teknik Penerbangan Elang Emas ini hanya muncul ketika ia berlatih 
 teknik meringankan tubuh dengan Zhu Cong, Quan Jinfa atau Han Xiaoying. Ia tidak menyadarinya, dan 
 Keenam Orang Aneh sangat terkejut dengan peningkatan penampilannya, tanpa mencurigai kebenarannya.
 
-Mengamati _neigong_ murid mereka dan kelenturannya yang sama sekali tidak sesuai dengan apa yang telah 
-mereka ajarkan kepadanya, mereka memandang dengan heran, curiga bahwa pemuda itu memiliki guru lain.
+Mengamati [neigong](#neigong "Tenaga dalam") murid mereka dan kelenturannya yang sama sekali tidak 
+sesuai dengan apa yang telah mereka ajarkan kepadanya, mereka memandang dengan heran, curiga bahwa 
+pemuda itu memiliki guru lain.
 
 Guo Jing tiba-tiba melakukan jungkir balik di udara dan menjatuhkan diri di atas kuda. Kuda itu berontak, 
 menendang dengan kaki belakangnya dan melompat ke segala arah seolah-olah kesurupan! Tapi pemuda itu 
