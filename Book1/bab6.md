@@ -240,7 +240,68 @@ melampaui dua puluh kaki.
 Ia pelan-pelan berpaling, dan sinar bulan menerangi wajahnya yang masih terlihat sangat cantik. Dengan rambut
 panjang dan matanya yang tertutup, ia terlihat begitu sinis dan menakutkan. Dalam keheningan, orang bisa
 mendengarnya menghela napas dan berbisik, "Zei Han Zi[^zeihanzi], apa mungkin di neraka kau juga selalu memikirkan
-aku setiap hari?" Sambil menggenggam cambuk di bagian tengahnya, ia tertawa pelan dan mulai berlatih.
+aku setiap hari?" Sambil menggenggam cambuk di bagian tengahnya, ia tertawa pelan dan mulai berlatih. Cambuk itu
+meliuk-liuk dengan irama yang membangkitkan rasa ingin tahu, gerakannya lambat dan tenang, suaranya tidak berisik.
+Ia melecut ke arah timur, lalu diikuti oleh lecutan yang mencengangkan ke arah barat. Setiap lecutan terlihat
+lebih mencengangkan dibanding lecutan sebelumnya. Mendadak tangannya seolah tergelincir dan menangkap pangkal
+cambuknya, sehingga panjangnya mencapai sebuah batu besar. Cambuk itu membelit, lalu mengangkatnya, seolah-olah
+berubah menjadi tangan. Guo Jing terpesona melihat semua itu. Setelah melemparkan batu itu ke kejauhan, 
+cambuk itu bergerak kembali ke arah kepalanya. Di bawah cahaya bulan ia bisa melihat dengan jelas bahwa ujung
+cambuk itu dipasangi sekitar sepuluh kait yang sangat tajam.
+
+Guo Jing sudah memegang belatinya. Ketika melihat cambuk itu bergerak ke arahnya, ia siap untuk menghindar
+tanpa berpikir panjang. Lalu ia merasa lengannya kesemutan dan sebuah tangan mendorongnya ke tanah. Laksana
+kilatan perak, ujung cambuk itu lewat di atas kepalanya. Sambil berkeringat dingin ia berpikir, "Kalau saja
+temanku Si Pendeta Tao ini tidak mencegah, dan pisauku sampai menyentuhnya, sekarang ini cambuk itu pasti
+sudah menghujam ke batok kepalaku!" Untungnya Si Pendeta melakukan semuanya dengan begitu efisien, sama sekali
+tidak bersuara, Mei Chaofeng sama sekali tidak menyadari apa yang terjadi.
+
+Ia masih melanjutkan latihannya beberapa saat, lalu melingkarkan kembali cambuk itu ke pinggangnya. Ia lalu
+mengambil seperangkat kain atau kulit dari dalam tasnya, yang kemudian dibuka dan diletakkannya di atas 
+tanah dengan hati-hati. Ia menyentuh permukaannya, diam sambil berpikir, lalu berdiri sambil memperagakan
+beberapa gerakan. Ia berjongkok lagi untuk menyentuh barang itu, dan kembali berpikir sejenak. Akhirnya
+ia menyimpannya kembali di tasnya, dan pergi ke sisi lain bukit. Guo Jing menghela napas dan berdiri.
+
+"Kita ikuti dia," kata Si Pendeta dengan suara rendah. "Ayo kita lihat rencana jahat macam apa yang
+disiapkannya untuk kita." Ia menarik ikat pinggang pemuda itu, dan mereka berdua menuruni bukit. Ketika
+sampai di dasar, mereka melihat Mei Chaofeng sudah berlari jauh ke arah utara. Si Pendeta Tao melingkarkan
+tangannya di pinggang Guo Jing, yang dengan segera merasa tubuhnya menjadi sangat ringan, dan mereka
+berdua segera meluncur dengan kecepatan tinggi untuk mengikuti Si Mayat Besi. Ketika fajar menyingsing
+mereka melihat sebuah perkemahan yang terdiri dari beberapa _ger_ di kejauhan. Bayangan Mei Chaofeng
+dengan segera lenyap di tengah perkemahan itu. Mereka berakselerasi, menghindari para prajurit dan petugas
+yang berpatroli di situ, sampai akhirnya tiba di dekat sebuah _ger_ kuning yang besar. Guo Jing menjatuhkan
+diri di atas tanah dan menaikkan penutup _ger_ sedikit untuk mengintip ke dalam. Ia melihat seorang pria 
+menghunus pedangnya yang besar dan memukul seorang pria bertubuh besar, yang jatuh ke lantai. Ketika jatuh
+mukanya berada di dalam jarak jangkauan pandangan Guo Jing dan Si Pendeta. Guo Jing mengenali orang itu,
+yang adalah pengawal pribadi Temujin. Ia tercengang. "Bagaimana ia bisa ada di sini, dan tewas dibunuh?"
+Ia makin penasaran dan menaikkan penutup _ger_ itu agak lebih tinggi. Kali ini si pembunuh berpaling, dan
+Guo Jing dengan segera mengenali Senggum, putra dari Ong Khan.
+
+Senggum membersihkan pedangnya dengan sol sepatunya dan berkata, "Sekarang kau tidak ragu lagi, kan?"
+
+"Saudaraku Temujin sangat cerdas dan berani," jawab orang yang satunya. "Rencana ini tidak akan mudah
+dilaksanakan." Guo Jing dengan segera mengenalinya, itu Jamuka, saudara angkat Temujin.
+
+"Karena kau begitu menyukai saudara angkatmu," cibir Senggum, "maka kau bisa pergi dan memperingatkan dia."
+
+"Kau _juga_ adalah saudara angkatku," jawab Jamuka. "Ayahmu memperlakukan aku dengan sangat baik. Dan lagi,
+Temujin punya ambisi untuk menarik para prajuritku ke dalam pasukannya. Soal ini aku sudah tahu dengan
+jelas. Hanya karena sumpah persaudaraan aku sampai saat ini belum memutuskan hubungan dengannya."
+
+"Apa mungkin mereka bersekongkol untuk melawan Temujin?" Guo Jing bertanya-tanya dalam hati. "Mana mungkin
+begitu?"
+
+"Orang yang mengambil inisiatif, dialah yang akan punya keuntungan," sela seorang pria lain. "Kalau kau 
+menunggu sampai dia menyerangmu, maka kau pasti kalah! Setelah kemenangan ini, semua milik Temujin,
+ternaknya, istri-istrinya, dan juga hartanya, akan jatuh ke tangan Senggum. Di lain pihak, para prajuritnya
+akan dimasukkan ke dalam pasukan Jamuka. Laksanakan semua itu, maka kau akan mendapat gelar Jendral Penakluk
+dari Utara — dari Kekaisaran Jin."
+
+Guo Jing hanya bisa melihat punggungnya, maka ia berusaha merangkak masuk lebih dalam supaya bisa melihat
+siapa yang terakhir bicara itu. Ia memakai jubah brokat kuning yang mewah yang ditutupi bulu musang. Ia
+mengenali pria itu, tapi perlu sedikit waktu untuk mengingatnya. "Ah, betul juga, dia Pangeran Keenam dari
+Kekaisaran Jin!"
+
 
 
 
