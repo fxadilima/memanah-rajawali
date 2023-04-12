@@ -302,6 +302,112 @@ siapa yang terakhir bicara itu. Ia memakai jubah brokat kuning yang mewah yang d
 mengenali pria itu, tapi perlu sedikit waktu untuk mengingatnya. "Ah, betul juga, dia Pangeran Keenam dari
 Kekaisaran Jin!"
 
+Kelihatannya ucapannya berhasil meyakinkan Jamuka. "Kalau ayah angkatku, Ong Khan, memberi perintah," kata 
+Jamuka. "Maka aku akan menurut."
+
+"Karena kau bilang begitu," kata Senggum yang sangat gembira, "kalau ayahku tidak memberi perintah, maka
+dia akan menyinggung Kekaisaran Jin. Sebentar lagi aku akan memintanya, dia tidak akan bisa menolak permintaan
+Pangeran Keenam."
+
+"Tidak lama lagi," lanjut Wanyan Honglie, "pasukan Kekaisaran akan turun ke Selatan untuk menaklukkan Song.
+Pada saat itu kalian masing-masing akan memimpin dua puluh ribu orang, dan turut berpartisipasi dalam
+penyerbuan itu. Setelah kemenangan besar, beberapa penghargaan lagi sudah menanti kalian."
+
+"Aku selalu mendengar," seru Senggum kegirangan, "daerah Selatan sungguh luar biasa. Seperti jalanan yang dilapisi
+emas, di mana wanita-wanitanya terlihat seperti bunga. Kalau Pangeran Keenam mengajak kami ke situ, itu luar biasa!"
+
+"Tidak ada lagi yang lebih mudah dari itu," kata Wanyan Honglie santai. "Aku cuma takut bahwa terlalu banyak
+wanita cantik di Selatan, kau tidak mungkin bisa melihat mereka semua." Mereka tertawa terbahak-bahak.
+
+"Sekarang," kejar Wanyan Honglie, "ceritakan bagaimana kalian akan menangani Temujin. Sebenarnya aku sudah
+memintanya untuk membantu penyerbuan ke Song, tapi dia menolak. Dia orang yang sangat cerdas, kita tidak boleh
+memberinya alasan untuk meragukan kita. Inilah alasannya kenapa harus melipat gandakan tindak pencegahan kita."
+
+Tepata pada saat itu Guo Jing merasa lengan jubahnya ditarik oleh Si Pendeta, ia berpaling dan melihat Mei Chaofeng
+di sisi lain _ger_. Ia menangkap seseorang dan kelihatannya sedang menanyainya. "Apapun niat _iblis perempuan_ ini,"
+pikir Guo Jing, "para guruku saat ini tidak terancam. Aku justru lebih perlu tahu tentang rencana busuk untuk
+mencelakai Khan, dan memikirkan apa yang sebaiknya kulakukan." Ia kembali lagi melongok ke dalam _ger_.
+
+"Dia menjanjikan putrinya untuk menjadi istri putraku," terdengar suara Senggum, yang sedang memandang mayat pria
+yang tergeletak di lantai _ger_. "Dan aku sudah mengirim utusan untuk menentukan tanggal pernikahan, dan memintanya
+datang ke sini menghadap ayahku. Dia pasti akan datang tanpa banyak pengawalan. Aku akan menempatkan orang-orang
+di beberapa titik sebagai perangkap di sepanjang jalan, meskipun dia punya tiga kepala dan enam tangan sekalipun,
+tidak mungkin dia akan lolos dalam keadaan hidup!" Ia meledak dalam tawa.
+
+Jamuka berkata, "Segera setelah Temujin tersingkir, pasukan kita akan menyerbu perkemahannya."
+
+Guo Jing sangat marah dan kuatir. "Bagaimana mungkin hati manusia bisa sekejam ini, bersekongkol untuk mencelakai
+saudara angkatnya." Ia masih ingin mendengar lebih lanjut, tetapi Si Pendeta Tao menarik ikat pinggangnya. Ia
+bergerak mundur sedikit, dan sempat tersentuh pelan oleh Mei Chaofeng, yang sedang bergerak secepat kilat sambil
+membawa seseorang dengan cara mencekik lehernya. Si Pendeta menarik lengan Guo Jing, dan mereka berdua menjauh
+dari _ger_.
+
+"Dia sedang berusaha mengorek keterangan tentang tempat tinggal guru-gurumu," kata Si Pendeta. "Kita harus segera
+ke sana untuk memberi tahu mereka, sebelum semuanya terlambat." Keduanya menggunakan teknik meringankan tubuh
+untuk berpacu kembali. Ketika mereka tiba di depan _ger_ Keenam Orang Aneh, hari sudah menjelang siang.
+
+"Aku tidak ingin terlihat oleh orang lain," kata Si Pendeta. "Karena itu aku memintamu supaya tidak memberi tahu
+soal aku kepada gurumu. Tapi saat ini keadaannya sangat genting, aku tidak peduli lagi soal itu. Cepat beri tahu
+semua gurumu bahwa Ma Yu dari Perguruan Quanzhen mohon ketemu dengan Enam Pendekar dari Jiangnan."
+
+Selama dua tahun Guo Jing bersamanya setiap malam, tapi baru saat itu ia mendengar nama Pendeta itu. Tanpa tahu
+apa artinya 'Ma Yu dari Perguruan Quanzhen', ia segera berlari masuk ke dalam _ger_ dan berseru nyaring, "Da Shifu!"
+
+Segera setelah ia masuk, pergelangan tangannya dicekal dengan brutal, dan ia merasa lututnya sakit, yang menyebabkan
+tubuhnya ambruk ke lantai _ger_. Ia melihat bahwa ternyata gurunya yang tertua, Ke Zhen'E, yang telah menjatuhkannya
+dengan menggunakan tongkat besinya. Sungguh-sungguh ketakutan, ia bahkan tidak berusaha melawan atau melindungi
+diri. Ia menutup matanya dan menunggu ajal. Ia mendengar suara benturan dua senjata, lalu ia merasa bahwa seseorang
+melemparkan diri untuk melindunginya. Ia membuka mata, dan melihat bahwa ternyata gurunya yang ketujuh, Han Xiaoying,
+yang melindunginya dengan menggunakan tubuhnya sendiri, sambil berseru, "Da Ge! Tolong tahan dulu!" Pedangnya, yang
+digunakan untuk menangkis serangan Ke Zhen'E, telah melayang jauh.
+
+Ke Zhen'E menghela napas dan menghujamkan tongkat besinya ke lantai dengan berat. "Qimei selalu saja seperti ini,
+punya hati yang terlalu lembut." Kemudian Guo Jing menyadari bahwa Zhu Cong dan Quan Jinfa telah mencekal pergelangan
+tangannya, selebihnya ia tidak bisa memahami apa-apa lagi.
+
+"Mana orang yang mengajarimu _neigong_?" tanya Ke Zhen'E dengan nada tajam.
+
+"Dia... dia..." Guo Jing tergagap. "Dia ada di luar... dia ingin menemui kalian semua." Keenam Orang Aneh terkejut
+bahwa Mei Chaofeng ingin menemui mereka, dan segera menghambur keluar dengan senjata di tangan. Tapi yang mereka
+lihat hanya seorang Pendeta Tao berambut putih, yang sedang merangkapkan tangan untuk memberi salam. Tidak ada
+bayangan Mei Chaofeng sama sekali.
+
+"Mana Si Iblis Mei Chaofeng?" teriak Zhu Cong tanpa melepaskan cekalannya pada pergelangan tangan Guo Jing.
+
+"Aku melihatnya tadi malam," kata Sang Taois. "Aku kuatir dia akan segera datang."
+
+Keenam Orang Aneh menatap Ma Yu dengan bingung. Pendeta itu cepat-cepat maju untuk memberi salam. "Aku sudah
+lama mengagumi Enam Pendekar dari Jiangnan, baru hari ini aku akhirnya bertatap muka. Sungguh suatu kehormatan."
+
+Zhu Cong, sambil masih mencekal pergelangan tangan Guo Jing, menganggukkan kepalanya untuk membalas hormat,
+sambil berkata, "Kami tidak berani menanyakan nama besar Dao Zhang."
+
+Guo Jing baru teringat bahwa ia belum sempat mengumumkan nama pendeta itu, dan buru-buru berkata, "Dia Ma Yu,
+dari Perguruan Quanzhen."
+
+Keenam Orang Aneh sungguh terperanjat. Mereka tahu bahwa Ma Yu, yang punya julukan Matahari Merah, adalah murid
+pertama dari pendiri Perguruan Quanzhen, Wang Chongyang. Setelah kematian Wang Chongyang, Ma Yu menjadi pendeta
+paling senior di Perguruan tersebut. Qiu Chuji adalah adik seperguruannya. Karena ia biasanya hidup dalam pertapaan,
+maka namanya jarang terdengar di dunia persilatan. Karena alasan inilah, maka reputasinya di dunia persilatan
+juga tidak sebanding dengan Qiu Chuji, meskipun bukan berarti kungfunya kalah. Mengenai kungfu, tak seorang pun
+pernah melihatnya beraksi, karena itu tidak ada yang bisa mengukur kemampuannya.
+
+"Kami bertemu pendeta paling senior di Quanzhen," kata Ke Zheb'E. "Kamilah yang merasa sangat beruntung. Apa yang
+membuat Dao Zhang datang ke padang rumput Utara ini? Apa ini ada hubungannya dengan kompetisi di Jiaxing dan
+tantangan antara kami dengan adik seperguruan Dao Zhang?"
+
+"Adik seperguruanku yang sembrono," kata Ma Yu. "Seharusnya dia memdedikasikan waktu dan tenaga untuk bermeditasi
+dan menekuni ajaran Tao. Tetapi malah lebih suka duel dengan orang lain. Dia selalu berusaha menang dan mengajukan
+pendapatnya sendiri, ini cukup bertentangan dengan prinsip-prinsip hidup kami. Aku sudah berulang kali mengingatkan 
+dia tentang masalah ini. Aku tidak bermaksud mencampuri soal taruhan antara dia dengan kalian semua, Enam Pendekar,
+karena memang tidak ada hubungannya dengan aku sendiri. Dua tahun yang lalu aku secara kebetulan bertemu dengan
+anak ini, kulihat dia punya hati yang murni dan baik. Lalu aku menggunakan kebebasanku untuk mengajarinya beberapa
+formula ritual untuk memperkuat tubuh, dan juga untuk mengembangkan karakternya. Ini juga punya khasiat untuk 
+memperpanjang umur. Memang betul aku melakukan inisiatif ini tanpa sebelumnya bertanya kepada kalian, Keenam Pendekar.
+Kuharap para pendekar semua tidak marah karena urusan ini. Aku tidak mengajarinya ilmu silat, dan kami tidak punya
+hubungan guru — murid yang resmi. Kita bisa bilang bahwa aku kebetulan berteman dengan seorang anak muda, dan kami
+tidak melanggar aturan yang ada di dunia persilatan." Setelah mengatakan semua ini, ia tersenyum lebar.
+
 
 
 
