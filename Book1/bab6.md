@@ -406,8 +406,107 @@ formula ritual untuk memperkuat tubuh, dan juga untuk mengembangkan karakternya.
 memperpanjang umur. Memang betul aku melakukan inisiatif ini tanpa sebelumnya bertanya kepada kalian, Keenam Pendekar.
 Kuharap para pendekar semua tidak marah karena urusan ini. Aku tidak mengajarinya ilmu silat, dan kami tidak punya
 hubungan guru — murid yang resmi. Kita bisa bilang bahwa aku kebetulan berteman dengan seorang anak muda, dan kami
-tidak melanggar aturan yang ada di dunia persilatan." Setelah mengatakan semua ini, ia tersenyum lebar.
+tidak melanggar aturan yang ada di dunia persilatan." Setelah mengatakan semua ini, ia tersenyum hangat.
 
+Keenam Orang Aneh terkesima, dan hanya bisa menerima penjelasan itu. Zhu Cong dan Quan Jinfa lalu melepaskan
+cekalan mereka dari pergelangan tangan Guo Jing.
+
+"Jadi, muridku sayang," kata Han Xiaoying yang sangat gembira. "Ternyata Ma Dao Zhang yang mengajarkan kungfu
+luar biasa itu. Kenapa kau tidak bilang dari awal. Kami semua sudah salah paham dan menyalahkanmu." Ia menepuk-nepuk
+bahu pemuda itu dengan lembut.
+
+"Dia..." kata Guo Jing tergagap. "Justru dia yang menyuruhku supaya jangan bilang."
+
+"Kenapa kau memanggil "dia"," tegur Han Xiaoying. "Jing'er, itu tidak sopan. Seharusnya kau memakai istilah
+'Dao Zhang'!" Ia memang menegur, tapi wajahnya yang gembira menunjukkan suasana hati yang sebenarnya.
+
+"Iya," kata Guo Jing dengan patuh. "[Dao Zhang](#daozhang "Panggilan hormat untuk seorang Pendeta Tao")..." Selama
+dua tahun ia selalu memperlakukan Ma Yu sebagai teman satu level, sama sekali tidak pernah terbersit di benaknya
+untuk memanggil pendeta itu dengan sebutan sebagai orang ketiga untuk menunjukkan rasa hormat. Dan Ma Yu sendiri
+juga tidak pernah tersinggung.
+
+"Aku berkelana seperti awan," kata Ma Yu menjelaskan. "Tanpa jadwal dan tujuan tertentu. Karena itu aku
+tidak suka ada orang yang mengenali aku, maka dari itu aku tidak mau kalian tahu kedatanganku. Jadi meskipun
+kita sudah bertetangga selama dua tahun, aku tidak pernah datang berkunjung. Kuharap kalian bisa memaklumi
+sikapku ini." Ia sekali lagi membungkuk untuk memberi hormat.
+
+Yang sebenarnya adalah, setelah mendengar cerita di balik perjalanan Tujuh Orang Aneh dari Jiangnan ke Mongolia,
+ia jadi sangat mengagumi mereka semua. Ia menginterogasi Yin Zhiping yang sebelumnya dikirim oleh adik seperguruannya
+untuk bertemu dengan Guo Jing, dan mendapat konfirmasi bahwa Guo jing sama sekali tidak punya ilmu tenaga dalam.
+Sebagai pendeta paling senior di Perguruan Quanzhen, ia mengerti betul prinsip-prinsip ajaran Tao. Dan ia tidak mau
+adik seperguruannya memaksakan kehendak dalam taruhan itu. Ia sudah berusaha berbicara dengan Qiu Chuji mengenai
+hal ini, tetapi Qiu Chuji tidak mau mendengar. Sebagai solusi akhirnya ia datang ke padang rumput Mongolia dan
+berusaha untuk membantu Guo Jing tanpa memberi tahu siapa pun. Kalau bukan begitu, bagaimana mungkin ia bisa secara
+sangat kebetulan bertemu Guo Jing, di tengah-tengah padang rumput Utara, yang seolah tanpa batas ini? Apa alasannya
+dia mendedikasikan dua tahun hidupnya untuk memberikan pengajaran yang tak ternilai harganya kepada Guo Jing? Kalau
+saja Mei Chaofeng tidak muncul secara tak terduga, mungkin ia sudah menghilang kembali ke Selatan, setelah yakin
+bahwa dasar-dasar _neigong_ Guo Jing sudah terbentuk dengan sempurna. Hasilnya adalah baik Enam Orang Aneh dari Jiangnan
+maupun Qiu Chuji tidak akan pernah curiga apa-apa.
+
+Setelah melihat keagungan sikap dan kerendahan hati pendeta itu, yang sangat kontras dengan kegagahan dan keangkuhan
+adik seperguruannya, Qiu Chuji, Keenam Orang Aneh membungkuk penuh hormat untuk membalas sikapnya. Mereka baru hendak
+menanyakan sesuatu mengenai Mei CChaofeng, ketika terdengar suara derap kaki kuda datang mendekat. Mereka melihat
+beberapa penunggang kuda mendekati kemah Temujin yang besar.
+
+Guo Jing sadar bahwa itu adalah para utusan Senggum yang akan menyampaikan amanat, yang akan membawa Temujin menuju
+jebakan maut. Ia mulai panik. "Da Shifu," katanya kepada Ke Zhen'E. "Aku harus pergi sebentar."
+
+Ke Zhen'E hampir saja melukai murid kesayangannya secara fatal tidak lama sebelumnya. Sekarang ia merasa bersalah
+dan jadi sangat protektif terhadap keselamatan pemuda itu. Ia tahu bahwa kalau Guo Jing pergi, ada kemungkinan ia
+akan bertemu dengan Mei Chaofeng. "Jangan, kau harus ada di dekat kami!"
+
+Guo Jing ingin menjelaskan situasi darurat yang diketahuinya, tapi Ke Zhen'E justru mulai bicara tentang pertarungan
+maut dengan Pembunuh Kembar Angin Kegelapan dengan Ma Yu. Meskipun merasa sangat gelisah, pemuda itu tidak berani
+menginterupsi pembicaraan gurunya yang tertua, yang dengan mudah akan marah hanya karena alasan kecil. Ia berharap
+bisa bicara kalau gurunya sedang berhenti sejenak untuk menarik napas. Tiba-tiba seekor kuda datang mendekat. Hua Zheng
+yang mengenakan mantel pendek dari kulit musang hitam datang. Ia berhenti sekitar sepuluh kaki dari situ dan memberi
+tanda kepada Guo Jing. Karena takut dihukum gurunya, Guo Jing tidak berani pergi, tapi memberi tanda supaya Hua Zheng
+yang ke situ. Mata gadis itu terlihat merah membengkak, seolah baru menangis.
+
+"Ayah," katanya sambil terisak. "Ingin supaya aku menikah dengan Dukhsh..."
+
+"Cepat," kata Guo Jing, seolah mengabaikan keluhannya. "Beri tahu Khan bahwa Senggum dan Jamuka sedang menyiapkan
+perangkap untuk membunuhnya."
+
+"Betulkah?" tanya Hua Zheng, tercengang.
+
+"Tentu saja benar," kata Guo Jing. "Aku mendengarnya dengan telingaku sendiri. Ayo cepat beri tahu ayahmu!"
+
+"Baik!" kata Hua Zheng setuju. Dengan wajah penuh kegirangan ia segera melompat kembali ke atas kudanya,
+dan berlalu dengan kecepatan tinggi.
+
+"Ada orang ingin membunuh Khan, dan kau malah gembira?" pikir Guo Jing heran. Lalu ia baru paham, bahwa itu berarti
+dia tidak harus menikahi Dukhsh. Ia selalu menyayangi gadis itu seperti adiknya sendiri, dan selalu melindunginya.
+Ia selalu bertanya-tanya bagaimana caranya gadis itu bisa menghindari perkawinan yang tidak sesuai itu, dan sekarang
+ia jadi merasa sangat bahagia untuk gadis itu. Ia tersenyum sendiri.
+
+"Aku bukan ingin mengagung-agungkan lawan dan merendahkan kemampuan kita sendiri," kata Ma Yu melanjutkan
+uraiannya mengenai topik mereka. "Tapi Mei Chaofeng memahami intisari ajaran pemilik Pulau Persik. Jurus Cakar
+Tengkorak Putihnya tak terkalahkan, dan lecutan cambuk peraknya, yang panjangnya sekitar dua puluh kaki, tidak
+bisa dihentikan. Kalau kita menyatukan kekuatan kita semua, _barangkali_ kita tidak akan kalah, tapi kita juga
+tidak bakalan bisa menang tanpa cedera."
+
+"Wanita itu memang sangat berbahaya," kata Han Xiaoying. "Tapi antara dia dan kami, Enam Orang Aneh dari Jiangnan,
+ada kebencian yang sangat dalam."
+
+"Ada yang memberi tahu aku," lanjut Ma Yu, "bahwa saudara kalian, Pendekar Zhang Yang Pemberani, dan juga Naga Terbang,
+Pendekar Ke Pixie, keduanya tewas di tangan Chen Xuanfeng. Tetapi karena kalian juga sudah membunuh Si Mayat Tembaga,
+orang bisa bilang bahwa hutang tersebut telah lunas. Seperti pepatah kuno yang mengatakan, 'Adalah lebih baik
+melepaskan kebencian daripada mengikatnya'. Mei Chaofeng seorang wanita sendirian, yang menderita cacat serius,
+yang sebetulnya membutuhkan _belas kasihan_..." Keenam Orang Aneh itu terdiam beberapa saat.
+
+"Dia menguasai ilmu sesat dan berbahaya ini," kata Han Baoju memecahkan keheningan. "Hal itu bisa membawa maut bagi
+orang lain, yang tak terhitung jumlahnya. Ma Dao Zhang, kalau pun Dao Zhang merasa tergerak oleh belas kasihan,
+tetap tidak boleh membiarkannya dengan bebas begitu..."
+
+"Kali ini _dialah_ yang datang mencari kami," kata Zhu Cong. "Dan bukan sebaliknya."
+
+"Dan kalau pun kita menghindarinya sekali ini, lain kali kalau _dia_ yang ingin mencari kita, maka kita
+tidak akan pernah aman."
+
+"Aku sudah memikirkan suatu strategi," kata Ma Yu. "Tapi ini perlu kemurahan hati dan belas kasihan dari Para Pendekar
+semua kepada perempuan brengsek yang harus dikasihani ini. Berikan dia kesempatan untuk bertobat." Zhu Cong tidak
+ingin bicara, ia membiarkan Ke Zhen'E yang mengambil keputusan.
 
 
 
@@ -438,6 +537,8 @@ tidak melanggar aturan yang ada di dunia persilatan." Setelah mengatakan semua i
         lebih tua dari dia sendiri. Aturan pemanggilan akan sama dalam konteks saudara seperguruan atau saudara dalam
         arti lainnya.
     </dd>
+    <dt id="daozhang"><strong>Dao Zhang (道长)</strong></dt>
+    <dd>Panggilan umum untuk seorang Pendeta Tao</dd>
 </dl>
 
 [^zeihanzi]: Panggilan sayang Mei Chaofeng untuk suaminya, arti literalnya adalah "Maling" atau "Bajingan".
