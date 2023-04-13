@@ -445,7 +445,7 @@ maupun Qiu Chuji tidak akan pernah curiga apa-apa.
 
 Setelah melihat keagungan sikap dan kerendahan hati pendeta itu, yang sangat kontras dengan kegagahan dan keangkuhan
 adik seperguruannya, Qiu Chuji, Keenam Orang Aneh membungkuk penuh hormat untuk membalas sikapnya. Mereka baru hendak
-menanyakan sesuatu mengenai Mei CChaofeng, ketika terdengar suara derap kaki kuda datang mendekat. Mereka melihat
+menanyakan sesuatu mengenai Mei Chaofeng, ketika terdengar suara derap kaki kuda datang mendekat. Mereka melihat
 beberapa penunggang kuda mendekati kemah Temujin yang besar.
 
 Guo Jing sadar bahwa itu adalah para utusan Senggum yang akan menyampaikan amanat, yang akan membawa Temujin menuju
@@ -505,8 +505,272 @@ tetap tidak boleh membiarkannya dengan bebas begitu..."
 tidak akan pernah aman."
 
 "Aku sudah memikirkan suatu strategi," kata Ma Yu. "Tapi ini perlu kemurahan hati dan belas kasihan dari Para Pendekar
-semua kepada perempuan brengsek yang harus dikasihani ini. Berikan dia kesempatan untuk bertobat." Zhu Cong tidak
+semua kepada _perempuan brengsek_ yang harus dikasihani ini. Berikan dia kesempatan untuk bertobat." Zhu Cong tidak
 ingin bicara, ia membiarkan Ke Zhen'E yang mengambil keputusan.
+
+"Kami, Tujuh Orang Aneh dari Jiangnan," kata Ke Zhen'E dengan hati-hati, "punya sifat yang kasar dan langsung, kami
+hanya mengerti cara berkelahi secara _barbar_. Kalau Dao Zhang ingin menunjukkan jalan ke arah yang lebih baik, maka
+kami sangat berterima kasih. Dao Zhang hanya perlu bicara." Dari penuturan Ma Yu ia bisa memahami bahwa dalam waktu
+sepuluh tahun ini kungfu Mei Chaofeng telah mengalami kemajuan sangat pesat. Tampaknya memang Ma Yu ingin menyelamatkan
+nyawa Si Mayat Besi itu, tetapi dalam kenyataannya ia sebetulnya bermaksud menyelamatkan _muka_ Enam Orang Aneh. Tujuan
+sebenarnya adalah untuk menunjukkan jalan supaya mereka bisa lolos dari cakar maut Mei Chaofeng. Para Orang Aneh lainnya
+merasa bahwa kakak tertua mereka telah berubah menjadi sangat berbelas kasihan, dan mereka semua tercengang.
+
+"Dengan menunjukkan belas kasihan, Ke Daxia," ujar Ma Yu lagi, "kalian semua akan menerima segala berkat dari Surga. 
+Ada satu hal lagi yang sangat penting. Menurut sumber informasi yang kupercayai, dalam sepuluh tahun terakhir ini
+Mei Chaofeng telah menerima lebih banyak ajaran dari Huang Yaoshi[^huang-yaoshi]."
+
+"Tapi menurut isu yang beredar," Zhu Cong bertanya-tanya, "Sepasang Iblis itu adalah murid murtad dari Pulau Persik.
+Bagaimana Huang Yaoshi bisa mengajar dia lagi."
+
+"Itu juga yang kupercayai," kata Ma Yu setuju. "Tapi menurut keterangan kalian, aku mendapat kesan bahwa kungfu
+mereka sangat jauh dari apa yang diperlihatkan oleh Mei Chaofeng hari ini, dan kulihat sendiri. Kalau tidak ada 
+petunjuk dari seorang ahli setingkat Huang Yaoshi, tidak mungkin dia bisa mencapai tingkat seperti sekarang dengan
+latihan sendiri. Dan kalau memang begitu, dan kita membunuh Mayat Besi hari ini, maka kita akan beresiko menyinggung
+Huang Yaoshi..." Ke Zhen'E dan Zhu Cong sudah seringkali mendengar cerita mengenai kehebatan Huang Yaoshi, dan seringkali
+juga dalam bentuk yang terlalu dibesar-besarkan, sampai mereka sulit mempercayai apa yang mereka dengar tentang 
+kekuatan orang itu. Perguruan Quanzhen mewakili aliran kungfu ortodoks. Kalau Ma Yu sampai merasa takut kepada Huang
+Yaoshi, itu adalah sesuatu yang pantas diperhitungkan.
+
+"Dao Zhang sudah memikirkan segala-galanya," kata Zhu Cong. "Kami hanya bisa merasa kagum. Biarkan kami menjadi bagian
+dari rencana Dao Zhang yang bisa dipastikan bijaksana."
+
+"Rencana payah ini," kata Ma Yu, "bisa jadi akan terasa sombong. Kuharap para pendekar semua tidak menertawakan aku."
+
+"Dao Zhang sungguh terlalu merendah," kata Zhu Cong. "Reputasi ketujuh murid Wang Chongyang sudah begitu berakar di dunia 
+persilatan. Dalam hal ini semua orang sudah kenal betul." Rasa hormat Zhu Cong kepada Ma Yu adalah setulus hati dan murni,
+sebetulnya hal yang sama tidak dirasakannya kepada Qiu Chuji, yang juga adalah salah satu murid Wang Chongyang.
+
+"Berkat kebajikan dari almarhum pendiri perguruan kami," kata Ma Yu. "sekarang kami tujuh bersaudara menikmati 
+keuntungan dari reputasi kecil di dunia persilatan. Kukira Mei Chaofeng tidak akan berani keluar sendirian menghadapi 
+kami. Inilah sebabnya aku merancang sebuah tipuan untuk membuatnya pergi, berdasarkan keyakinan pada reputasi sia-sia
+kami. Strategi ini tentu saja kurang terhormat, tetapi karena niat kita baik, maka kukira ujung akhirnya bisa
+membenarkan kekurangan strategi itu, dan juga tidak merusak nama baik keenam pendekar sekalian." Ia kemudian menerangkan
+secara detil tipuan yang dimaksud. Keenam Orang Aneh awalnya merasa rencana itu agak merendahkan. Karena meskipun 
+kemajuan kungfu Mei Chaofeng sangat pesat, dan kalau pun Huang yaoshi sendiri datang secara pribadi, mereka bisa
+kehilangan apa lagi? Yang terburuk adalah mereka akan kehilangan nyawa, seperti yang sudah dialami Zhang Ahsheng
+lebih dari sepuluh tahun yang lalu. Ma Yu berusaha meyakinkan mereka. Akhirnya, Para Orang Aneh, karena rasa hormat
+kepadanya, dan juga mengingat segala jerih payah tak kenal lelah yang telah dilakukannya untuk Guo Jing, menyetujui
+rencana itu.
+
+Setelah beristirahat sejenak, mereka mulai bergerak ke arah tebing. Ma Yu dan Guo Jing mendaki di depan mereka. Keenam
+Orang Aneh melihat bahwa pendeta itu tidak berusaha memamerkan kemampuannya, dan mendaki pelan-pelan di belakang 
+Guo Jing. Meskipun begitu, langkahnya mantap dan semua gerakannya sangat stabil, menunjukkan kekuatan ilmunya.
+"Dia sudah jelas tidak lebih lemah dibanding Qiu Chuji, tapi kenapa Qiu Chuji bisa begitu populer, sebaliknya
+orang bisa dikatakan tak pernah mendengar apa-apa tentang Ma Yu. Penjelasannya pasti karena perbedaan karakter
+di antara keduanya..." Setelah tiba di atas, Ma Yu dan Guo Jing menurunkan tali panjang dan menarik Enam Orang Aneh
+ke puncak. Di atas batu besar mereka bisa melihat sisa-sisa latihan cambuk Mei Chaofeng. Mereka terpukau, dan akhirnya
+mulai percaya kata-kata Ma Yu.
+
+Kedelapan orang itu duduk dan menunggu sampai akhirnya malam tiba. Saat sudah mulai larut, Han Baoju kehilangan
+kesabarannya. "Kenapa dia begini lama."
+
+"Diam!" tegur Ke Zhen'E. "Itu dia datang!"
+
+Mereka semua mendengarkan dengan seksama, tetapi tidak mendengar apa-apa. Hanya Ke Zhen'E dan pendengarannya
+yang luar biasa mampu menangkap suara langkah Mei Chaofeng dari jarak sejauh itu. Dan dia benar-benar datang.
+Di bawah sinar bulan mereka melihat samar-samar bayangan hitam mendekat dengan langkah cepat. Dalam sekejap
+mata ia telah mencapai kaki bukit, lalu mulai mendaki dengan gesit. Zhu Cong bertukar pandang dengan Quan Jinfa
+dan Han Xiaoying. Dilihatnya muka mereka pucat dan penuh ketegangan. Ia merasa mukanya juga pasti sama.
+
+Dengan sangat cepat Mei Chaofeng sudah mencapai puncak. Di punggungnya ia membawa seseorang yang tidak bergerak,
+mereka tidak tahu apakah orang itu masih hidup atau sudah mati. Guo Jing merasa pakaian yang dikenakan orang itu
+sepertinya tidak asing baginya. Ia mencoba mengamati lebih teliti dan akhirnya ia mengenali mantel bulu warna
+hitam yang dikenakan Hua Zheng. Merasa sangat kuatir, ia hampir saja berteriak, tetapi Zhu Cong dengan matanya
+yang jeli dan gerakan yang cepat, segera menutup mulutnya dengan tangan, sambil berkata dengan nada tinggi,
+"Perempuan jahat itu, Mei Chaofeng, kalau sampai jatuh ke tanganku, Qiu Chuji, takkan pernah kubiarkan lolos!"
+
+Setelah terkejut mendengar ada suara manusia di atas tebing, Si Mayat Besi lebih kaget lagi mendengar nama
+Qiu Chuji dan namanya sendiri. Ia bersembunyi di balik batu untuk mendengarkan pembicaraan itu. Ma Yu dan
+Keenam Orang Aneh melihat gerak-geriknya dengan jelas, dan bukannya merasa tegang mereka malah sangat geli
+dan hampir tertawa terbahak-bahak. Hanya Guo Jing yang kuatir akan keselamatan Hua Zheng gemetar karena cemas.
+
+"Mei Chaofeng menyusun tengkorak di sini," seru Han Baoju. "Itu artinya dia sungguh akan datang. Kita tunggu saja
+di sini." Karena tidak tahu berapa banyak lawan yang berkumpul di situ, Mei Chaofeng tetap diam tak bergerak
+di balik batu.
+
+"Dia memang menyakiti kita, tapi Perguruan Quanzhen selalu penuh kasih dan pengampunan. Bagaimana kalau kita
+memberinya pilihan untuk bertobat?"
+
+"Orang Bijak Yang Tenang[^julukan-1] selalu berhati lembut," kata Zhu Cong sambil tertawa. "Tidak heran guru 
+selalu berkata bahwa kau akan dengan mudah menemukan 'jalan'."
+
+Wang Chongyang, pendiri Perguruan Quanzhen, punya tujuh orang murid dengan reputasi yang sangat baik dan sudah
+sangat terkenal di dunia persilatan, meskipun umumnya orang hanya mengenal Qiu Chuji, yang memang paling populer.
+Mulai dari yang tertua adalah Ma Yu, selanjutnya masing-masing adalah Tan Chuduan, Liu Chuxuan, Qiu Chuji, Wang Chuyi,
+Hao Datong, dan terakhir adalah Sun Bu'er. Sebelum menjadi penganut ajaran Tao, Sun Bu'er sebelumnya adalah
+istri dari Ma Yu, dan ia juga satu-satunya perempuan di jajaran murid Wang Chongyang.
+
+Dalam _sandiwara_ yang mereka mainkan untuk menipu Mei Chaofeng ini, peranan Sun Bu'er tentu saja dimainkan
+oleh Han Xiaoying, yang juga satu-satunya wanita di antara Enam Orang Aneh.
+
+"Tan [Shixiong](#shixiong "(师兄) Kakak seperguruan laki-laki"), apa pendapatmu?" tanya Han Xiaoying lagi.
+
+"Kejahatannya pantas dihukum seberat-beratnya," jawab Nan Xiren.
+
+"Tan Shixiong," kata Zhu Cong menimpali. "akhir-akhir ini kemajuanmu dalam 'Kaligrafi Jari' sangat pesat. Kalau
+Iblis Perempuan itu datang nanti, mungkin kau bisa mendemonstrasikan ilmu itu."
+
+"Rasanya lebih adik Wang yang mendemonstrasikan teknik Kaki Besinya," jawab Nan Xiren. "Hanya perlu satu tendangan
+untuk mengirimnya ke dasar tebing, tubuh dan jiwanya akan lenyap."
+
+Seperti telah diketahui, di antara mereka bertujuh, Qiu Chuji adalah yang paling populer, setelah itu adik seperguruannya,
+Wang Chuyi, yang bergelar "Matahari Pualam". Gelar tersebut seolah tertutup oleh julukannya "Si Kaki Besi", yang diperolehnya
+dalam sebuah taruhan menyerempet bahaya. Wang Chuyi berdiri di dekat jurang yang dalam hanya dengan satu kaki, tubuhnya
+terayun-ayun ke depan dan belakang tertiup angin kencang, yang membuat jubahnya berkibar-kibar. Para pendekar dari
+Shandong dan Hebei terpesona menyaksikan demonstrasi itu. Mulai saat itu Wang Chuyi dijuluki 'Kaki Besi'. Ia kemudian
+hidup dalam pertapaan selama sembilan tahun untuk memperdalam ilmunya. Bahkan Qiu Chuji sangat mengagumi kungfunya.
+Ia menulis puisi 'Sembilan Musim Panas Berdiri Di Matahari, Tiga Musim Dingin Berbaring Di Tanah' untuk memperingati
+kekuatan _neigong_ Wang Chuyi.
+
+Semua percakapan di antara mereka itu sudah dipelajari dan direncanakan baik-baik sebelumnya. Hanya Ke Zhen'E yang
+sebelumnya sempat berbicara dengan Mei Chaofeng tidak ikut bersuara, karena ada kemungkinan Mei Chaofeng masih
+mengenali suaranya.
+
+Si Mayat Besi makin lama makin terperanjat. "Kelihatannya ketujuh pendekar Quanzhen semuanya hadir di sini.
+Aka bahkan tidak yakin bisa mengalahkan salah seorang dari mereka, lalu bagaimana aku bisa menghadapi gabungan
+dari mereka bertujuh sekaligus? Kalau mereka menemukanku, matilah aku!"
+
+Saat itu cahaya bulan menerangi puncak tebing itu dengan sempurna. Zhu Cong berkata, "Malam ini awan hitam tebal
+menyelimuti langit. Kita bahkan tidak bisa melihat tangan sendiri. Harap semuanya waspada, jangan sampai iblis
+perempuan itu memanfaatkan situasi ini untuk kabur!"
+
+"Bagus sekali kalau malam ini gelap," pikir Mei Chaofeng, meyakinkan diri. "Kalau tidak, mereka pasti sudah memergoki 
+aku. Aku akan bersyukur kepada Langit dan Bumi selama bulan tidak muncul!"
+
+Guo Jing tidak bisa berhenti mengamati Hua Zheng. Ia tiba-tiba melihat gadis itu membuka matanya. Saking girangnya
+melihat Hua Zheng sadar dari pingsan, ia segera memberi tanda dengan tangannya, berharap supaya gadis itu tetap
+tenang. Tetapi gadis itu ternyata juga melihatnya, dan langsung berteriak, "Tolong... tolong...!"
+
+"Jangan bersuara!" teriak Guo Jing.
+
+Teriakan itu mengejutkan Mei Chaofeng. Ia segera menekan salah satu titik akupuntur di tubuh Hua Zheng untuk 
+membuatnya tidak bisa bicara. Tapi kecurigaan timbul di benaknya.
+
+"Zhiping," kata Zhu Cong. "Itu tadi kau yang bicara?"
+
+Guo Jing memang seharusnya memainkan peran sebagai Yin Zhiping, Si Pendeta Tao muda yang pernah menyerangnya.
+"Ya... ya... itu aku!"
+
+"Rasanya," kata Zhu Cong lagi. "Tadi aku mendengar suara perempuan."
+
+"Tepat sekali," jawab Guo Jing.
+
+"Kalau ini jebakan," pikir Mei Chaofeng. "Apa mungkin ketujuh Pendeta Tao semuanya ada di puncak tebing ini
+pada saat seperti ini? Masa begitu kebetulan? Mungkin ada orang yang sengaja memanfaatkan kebutaanku untuk
+menipuku!"
+
+Ma Yu melihatnya pelan-pelan bangkit berdiri di belakang batu besar itu, ia mengerti bahwa Mei Chaofeng mulai 
+curiga. Kalau tipuan mereka sampai terbongkar dan Mei Chaofeng menyerang, ia sendiri mungkin tidak punya 
+resiko, tetapi Hua Zheng sudah pasti akan tewas, dan Keenam Orang Aneh akan menderita luka parah. Karena itu
+ia sangat cemas. Ia tidak pernah bisa berpikir cepat, dan ia sekarang tidak tahu harus berbuat apa.
+
+Melihat Mei Chaofeng memegang cambuk peraknya, sepertinya siap menyerang. Zhu Cong dengan nekad berseru,
+"Da Shixiong, kau selama bertahun-tahun ini berlatih ilmu yang paling canggih ajaran guru kita, sudah
+jelas kemajuanmu pesat. Masa kau tidak mau menunjukkannya sedikit pun kepada kami?"
+
+Ma Yu tahu bahwa Zhu Cong memintanya untuk mendemonstrasikan kebolehannya sekedar untuk meyakinkan Mei Chaofeng.
+"Aku jelaslah yang paling tua dari kita semua," katanya. "Tapi aku secara alamiah lambat, kemampuanmu lebih baik 
+dari aku. Semua ajaran yang diturunkan pendiri perguruan kita, dengan malu harus kubilang, aku bahkan tidak bisa
+memahami satu kalimat pun..." Ia mengucapkan setiap kata dengan sangat lambat, tetapi semuanya terisi dengan 
+pernapasannya yang sempurna. Nada bicaranya sangat tenang dan rendah hati, tetapi suaranya terbawa sampai
+sangat jauh. Ia belum selesai mengucapkan kata terakhirnya, ketika gema dari kalimat pertama datang kembali,
+seperti geraman seekor harimau dan teriakan seekor naga. Ketika mendengar demonstrasi kekuatan _neigong_ yang
+luar biasa itu, Mei Chaofeng sangat terkesan, lalu kembali merendahkan tubuhnya di balik batu.
+
+"Kudengar," lanjut Ma Yu, masih dengan suara yang sama, "bahwa wanita itu sudah hilang ingatan dan patut
+dikasihani. Kalau dia mau bertobat, dan berjanji untuk berhenti menyakiti orang-orang yang tidak berdosa,
+maka kita bisa mengampuninya. Dan kalau dia berjanji untuk tidak lagi mengganggu Keenam Orang Aneh dari Jiangnan,
+kita juga harus membiarkannya terus hidup, mengingat hubungan baik antara almarhum guru kita dan pemilik Pulau
+Persik. Qiu Shidi, kau teman baik Enam Orang Aneh dari Jiangnan, kau juga harus bicara dengan mereka, dan 
+meminta supaya mereka menghentikan permusuhan dengan Mei Chaofeng. Kalau kedua belah pihak mau berusaha, maka
+segala dendam pasti akan lenyap dengan sendirinya."
+
+"Itu sangat mudah," kata Zhu Cong. "Tapi masalah sebenarnya adalah kita tidak tahu apakah Mei Chaofeng
+bersedia untuk diampuni."
+
+Tiba-tiba mereka mendengar suara sedingin es berkata, "Terima kasih banyak kepada Tujuh Pendekar Quanzhen untuk
+kebaikan hatinya! Aku, Mei Chaofeng, ada di sini!" Mendadak, dan sangat mengejutkan, ia maju ke depan. Ma Yu
+sengaja menggertaknya dengan harapan bahwa ia akan pergi dari situ, menyesali semua tindakannya, dan memperbaiki
+kesalahannya. Tapi ternyata, begitu yakin akan kekuatan barunya, ia dengan berani maju dan menghadapi lawan-lawannya
+secara langsung.
+
+"Sebagai wanita," kata Mei Chaofeng, "aku tidak berani menguji diriku menghadapi para pendeta sekalian. Tetapi
+aku sudah lama mengagumi kungfu dari Orang Bijak Yang Pendiam, dan aku memberanikan diri meminta kehormatan
+untuk mengukur kemampuanku melawan dia." Berbekal senjata cambuk peraknya, ia berdiri dalam keadaan siaga,
+menunggu tanggapan Han Xiaoying.
+
+Sejak tadi Guo Jing sudah menyadari bahwa Hua Zheng jatuh tidak bergerak ke tanah. Ia tumbuh besar bersama-sama
+dengan gadis itu, dan secara alamiah punya perasaan khusus sebagai seorang kakak kepadanya. Tanpa berpikir
+sedetikpun, dan tanpa mempedulikan kehadiran Mei Chaofeng, ia melompat keluar untuk membebaskan Hua Zheng.
+Dengan gerakan cepat Si Mayat Besi mencekal pergelangan tangan kirinya. Selama dua tahun Guo Jing sudah berlatih
+ilmu tenaga dalam ortodoks dari Ma Yu, dan tubuhnya yang sehat secara alamiah bereaksi terhadap cekalan itu.
+Dengan tangan kanannya ia melemparkan Hua Zheng ke arah Han Xiaoying, lalu ia memutar pergelangan tangan kirinya
+untuk melepaskan diri dari cekalan Mei Chaofeng. Tapi wanita itu sungguh sangat cepat, begitu ia merasa Guo Jing
+lolos, tangannya segera bergerak untuk menangkapnya kembali. Kali ini selain mencekal lebih kuat, ia juga menekan
+pembuluh darah utama di pergelangan tangannya dengan sangat akurat, yang menyebabkan Guo Jing tidak lagi 
+bisa bergerak.
+
+"Siapa kau?" tanya wanita itu dengan sangat mendesak.
+
+"Zhiping!" panggil Zhu Cong. "Dengar!"
+
+Guo Jing yang sangat panik setelah menyadari tangannya tidak bisa digerakkan, hampir saja secara naluriah
+menjawab, "Aku Guo Jing!" tepat ketika ia mendengar suara peringatan dari Zhu Cong.
+
+"Aku..." ia tergagap. "aku Yin Zhiping... Murid... Murid dari Quanzhen... Musim Semi..." Meskipun ia sudah
+mengulangi kalimat itu tiga atau empat puluh kali sebelumnya, tetapi dalam keadaan panik ia tidak bisa
+mengucapkannya tanpa tergagap.
+
+"Dia hanya seorang murid biasa," pikir Mei Chaofeng, "tapi tenaga dalamnya sudah begitu kuat. Dia bukan hanya
+berhasil menyelamatkan orang tepat di depan hidungku, ia malah bisa melepaskan diri dari cekalanku. Rasanya
+aku lebih baik mundur kali ini." Ia melepaskan cekalannya. Guo Jing pulih, dan segera melarikan diri kembali
+kepada guru-gurunya. Bekas lima jari tangan seolah terpahat dalam daging pergelangan tangannya. Ia tahu dengan
+jelas bahwa wanita itu tidak menggunakan seluruh kekuatannya, kalau tidak pastilah saat ini pergelangan tangannya
+sudah patah.
+
+Mei Chaofeng tidak lagi berani menantang Sun Bu'er palsu yang diperankan oleh Han Xiaoying. Sebaliknya ia
+bertanya kepada Ma Yu, "Ma Dao Zhang, apakah artinya 'Timbal dan Merkuri diawetkan dengan baik'?"
+
+"Timbal adalah logam berat," jawab Ma Yu secara naluriah. "itu mewakili ginjal. Merkuri digolongkan sebagai
+cairan, ini adalah metafora untuk pemanasan di dalam tubuh. Kalimat itu bermakna 'Adalah baik menstabilkan ginjal
+dan menyingkirkan api di dalam tubuh, dalam upaya untuk meraih manfaat dari meditasi'."
+
+"Lalu apa artinya 'Bayi perempuan Cha'?" kejar Mei Chaofeng.
+
+Ma Yu tiba-tiba tersadar bahwa wanita itu sedang berusaha untuk mengorek rahasia ilmu tenaga dalam. "Wanita Sesat!"
+serunya. "Jangan berusaha untuk mengorek rahasia ilmu perguruanku, ayo cepat pergi dari sini!"
+
+Mei Chaofeng tertawa. "Terima kasih untuk penjelasannya, Dao Zhang!"
+
+Memdadak ia melompat ke depan, berbekal cambuk peraknya ia meluncur turun dari puncak tebing dengan kecepatan
+yang sulit dipercaya. Mereka semua yang tersisa menatap kepergiannya, merasa sangat lega bisa terlepas dari
+konflik berbahaya. Jauh di tengah padang rumput, sebuah bayangan menghilang dengan gerakan secepat hantu.
+
+Ma Yu segera membuka totokan di tubuh Hua Zheng, dan gadis itu kembali bisa bergerak. Ia bersandar di batu besar
+untuk beristirahat.
+
+"Dalam waktu sepuluh tahun," kata Zhu Cong, "ilmu silat perempuan iblis itu maju begitu pesat, kalau saja Dao Zhang
+tidak membantu kita, rasanya segala dendamnya akan lunas terbayar hari ini." Ma Yu menanggapi dengan rendah hati,
+tetapi keningnya berkerut, seolah-olah ia sedang memendam kecemasan.
+
+"Kalau ada sesuatu yang harus diselesaikan," kata Zhu Cong lagi, "meskipun kami tidak bisa berbuat terlalu banyak,
+tapi setidaknya kami masih bisa berusaha. Dao Zhang bisa langsung menyuruh kami."
+
+"Karena kurang perhatian," kata Ma Yu. "Tadi aku tertipu oleh perempuan licik itu."
+
+"Dao Zhang terluka oleh senjata rahasia?" tanya Enam Orang Aneh.
+
+"Bukan," jawab Ma Yu. "Masalahnya bukan itu. Waktu dia bertanya, aku langsung menjawab tanpa berpikir panjang.
+Dan itu mungkin bisa menimbulkan kejahatan selanjutnya." Teman-temannya terlihat bingung dan tidak mengerti
+kalimat tersebut. Si Pendeta menjelaskan, "Kungfu Mei Chaofeng sudah mencapai tingkat yang sulit kita bayangkan.
+Bahkan seandainya kedua adik seperguruanku Qiu Chuji dan Wang Chuyi sungguh-sungguh hadir di sini, kita semua
+belum tentu mampu mengatasi dia. Bahwa pemilik Pulau Persik bisa menghasilkan murid setingkat dia, itu sudah
+membuktikan kualitasnya sendiri. Hanya _neigong_ dari Mei Chaofeng yang sama sekali tidak sempurna. Aku tidak tahu
+dengan cara apa dia bisa mendapatkan rahasia ilmu aliran Tao, tetapi tanpa petunjuk dari seorang ahli, ia tidak
+akan memahaminya. Ia menanyakan formula rahasia tadi karena kurangnya pemahaman yang akhirnya menghambat kemajuan
+ilmunya. Aku akhirnya tersadar, dan tidak menjawab pertanyaan kedua. Tapi jawaban pertama itu akan memberi jalan
+bagi dia untuk mencapai kemajuan luar biasa dari sisi _neigong_."
 
 
 
@@ -539,7 +803,17 @@ ingin bicara, ia membiarkan Ke Zhen'E yang mengambil keputusan.
     </dd>
     <dt id="daozhang"><strong>Dao Zhang (道长)</strong></dt>
     <dd>Panggilan umum untuk seorang Pendeta Tao</dd>
+    <dt id="shixiong"><strong>Shi Xiong (师兄)</strong></dt>
+    <dd>
+        Seperti disinggung di atas, panggilan ini untuk kakak seperguruan laki-laki, tetapi tanpa embel-embel
+        urutannya. Istilah lain bisa jadi Shi Ge, yang artinya sama.
+    </dd>
 </dl>
 
 [^zeihanzi]: Panggilan sayang Mei Chaofeng untuk suaminya, arti literalnya adalah "Maling" atau "Bajingan".
+
+[^huang-yaoshi]: (黃藥師) Nama pemilik Pulau Persik. Nama "Yaoshi" ini sendiri secara literal berarti "Ahli Pengobatan", yang di jaman itu biasanya sekaligus juga ahli dalam alkimia. Dengan demikian bisa disetarakan dengan istilah "The Alchemist". Kalau kita memakai Google Translate, "Yao Shi" malah diterjemahkan menjadi "apoteker", yang berarti juga ahli obat. Karakter kedua "Yao" itu sendiri berarti "obat". Sedangkan "Shi" (師) berdiri sendiri berarti "divisi".
+
+[^julukan-1]: Qingjing Sanren (清靜散人), julukan untuk Sun Bu'er (孫不二), satu-satunya murid wanita Wang Chongyang, yang bermakna 'Orang Bijak Yang Tenang'.
+
 

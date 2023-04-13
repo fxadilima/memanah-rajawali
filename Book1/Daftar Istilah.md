@@ -48,6 +48,18 @@ dalam konteks seperti Kaipang, maka ini berarti Ketua Umum Kaipang, atau ketua g
 
 Cui Xin Zhang (摧心掌) = Telapak Penghancur Jantung, ilmu andalan Mei Chaofeng dan suaminya.
 
+The "Seven Immortals of Quanzhen" (全真七子) are Wang Chongyang's seven apprentices who lead the Quanzhen School after their master's death.
+Ma Yu (馬鈺; Mǎ Yù), also known as Danyangzi (丹陽子), teaches Guo Jing some basic Quanzhen martial arts and inner energy skills.
+Tan Chuduan (譚處端; Tán Chǔduān), also known as Changzhenzi (長真子), is killed by Ouyang Feng in a fight.
+Liu Chuxuan (劉處玄; Liú Chǔxuán) is also known as Changshengzi (長生子).
+Qiu Chuji (丘處機; Qiū Chǔjī), also known as Changchunzi (長春子), befriends the Guo and Yang families and becomes Yang Kang's martial arts master later.
+Wang Chuyi (王處一; Wáng Chǔyī), also known as Yuyangzi (玉陽子), befriends Guo Jing after learning that Guo has learnt some Quanzhen skills from Ma Yu before. Guo helps him recover when he is injured by Lingzhi Shangren.
+Hao Datong (郝大通; Hǎo Dàtōng) is also known as Guangningzi (廣寧子).
+Sun Bu'er (孫不二; Sūn Bù'èr) is also known as Qingjing Sanren (清靜散人).
+
+Shi Xiong (师兄) = Kakak seperguruan (laki-laki).
+
+
 ## Istilah Lain
 
 Xiao Gui (小鬼) = 'Setan Cilik'.
@@ -157,6 +169,8 @@ Na nǐ xiǎng zěnme yàng (那你想怎么样) = Then what _do_ you want? Lalu 
 Ji Ran Ru Ci (既然如此) = 'Kalau begitu,...'  
 
 Xiong (兄) = panggilan umum untuk saudara laki-laki, atau orang lain yang dianggap saudara.
+
+The "Twin Killers in the Dark Wind" (黑風雙煞) 
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
