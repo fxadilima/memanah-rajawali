@@ -1072,7 +1072,7 @@ seperti Senggum!"
 keluar dari bahaya ini, mulai saat itu aku akan menganggapku sebagai anakku sendiri!" Ia memeluk pemuda itu
 erat-erat.
 
-Sementara mereka bicara, hari maru telah tiba. Suara terompet terdengar bersahut-sahutan dari antara pasukan musuh.
+Sementara mereka bicara, hari baru telah tiba. Suara terompet terdengar bersahut-sahutan dari antara pasukan musuh.
 
 "Pertolongan tidak akan datang," kata Temujin. "Mari kita bersiap untuk mati di atas bukit ini." Dari arah kubu lawan
 mereka mendengar suara dentingan senjata dan ringkikan kuda, serbuan mereka sudah menunggu.
@@ -1182,9 +1182,321 @@ merebut tombak musuh, sementara tangan kanannya memagang golok yang menerabas ke
 seluruh tenaganya untuk merebut tombaknya kembali, tetapi ketika ia melihat sambaran golok, dengan terpaksa ia 
 melepaskan pegangannya dan melangkah mundur.
 
-Dengan kemenangan itu, pemuda itu merasa segar kembali.
+Dengan kemenangan itu, pemuda itu merasa segar kembali. Ia melemparkan golok itu ke kaki bukit, lalu memungut
+tombak. Orang keempat melompat ke arahnya dan menyerang dengan menggunakan sepasang kapak pendeknya. Jurus tombak
+Guo Jing adalah hasil ajaran Quan Jinfa. Setelah beberapa jurus pemuda itu dengan sengaja membuka sebuah titik 
+lemah sebagai tipuan, yang segera dilihat dengan gembira oleh orang yang bersenjata kapak, ia cepat-cepat 
+menerobos ke arahnya. Tiba-tiba perutnya terasa sakit, ia terkena tendangan Guo Jing. Ia terpental ke belakang,
+sementara sisa tenaga yang ada di tangan kirinya menggerakkan kapak menuju ke kepalanya sendiri. Kakak seperguruan
+ketiga dari orang itu dengan segera menangkis kapak itu menggunakan cambuk besinya. Ketika kedua senjata bertemu,
+suara dentingan keras terdengar, diiringi oleh percikan api. Orang itu melepaskan kapaknya ketika kedua senjata itu
+bertabrakan, dan duduk di tanah dengan air muka ketakutan. Terdiam, tetapi masih hidup. Orang itu agak bodoh, 
+perlu waktu beberapa saat sampai ia tersadar bahwa ia telah kalah. Ia berteriak marah dan memungut kedua kapaknya
+untuk mulai menyerang lagi. Setelah beberapa tebasan, ia berhasil mematahkan tombak Guo Jing menjadi dua. Guo Jing
+kehilangan senjata, dan menggunakan tangan kosong untuk melawannya. Orang yang bersenjata cambuk datang membantu
+adik seperguruannya. Guo Jing segera melihat bahwa ia dalam posisi kurang menguntungkan, tapi tidak punya pilihan
+lain kecuali terus melawan.
 
+Hal ini membangkitkan cemoohan di antara para prajurit. Orang-orang Mongolia sangat sederhana dan terus-terang, dan
+mereka sangat menghormati seorang pemberani. Mereka sudah mulai mencemooh melihat keempat orang itu secara bergantian
+melawan Guo Jing, dan sekarang mereka malah main keroyok, dua lawan seorang yang tidak bersenjata! Mereka menganggap
+tindakan itu sangat tidak pantas, dan berteriak supaya mereka menghentikannya. Guo Jiang adalah lawan yang sangat
+layak, mereka menyorakinya untuk memberi semangat.
 
+Borchu dan Jebe menghunus pedang dan terjun ke arena. Mereka sangat bagus, sehingga kedua penyerang lain dengan
+segera ikut bertempur. Para prajurit Mongolia sangat tangguh di medan perang, tetapi pada saat harus berhadapan
+satu lawan satu dengan pendekar dunia persilatan, mereka kalah jauh. Baru beberapa jurus, yang dihadapi dengan
+susah payah, mereka sudah kehilangan senjata dan terpaksa mundur. Guo Jing melihat bahwa Borchu dalam posisi
+berbahaya, ia segera mendekat untuk menyerang orang yang bersenjata golok. Guo Jing melayangkan telapak tangannya
+ke punggung kakak seperguruan tertua dari keempat orang itu, yang menggunakan goloknya untuk menikam pergelangan
+tangan Gou Jing. Guo Jing menarik telapak tangannya, dan menggunakan sikunya untuk menyodok si kakak kedua dan
+menyelamatkan Jebe. Upayanya untuk membantu mereka berdua kelihatannya sia-sia.
+
+Keempat penyerang itu hanya punya satu tujuan, yaitu membunuh Guo Jing. Mereka melipat gandakan serangan ke arah
+Guo Jing. Para prajurit di kaki bukit semakin mencemooh dan memaki tindakan itu. Tetapi keempat orang itu pura-pura
+tidak mendengar. Orang yang bersenjata tombak memungut sebuah lembing dari atas tanah. Guo Jing melihat serangan datang
+bertubi-tubi ke arahnya, golok, lembing, kapak, dan cambuk. Karena tidak bersenjata, maka ia tidak bisa melawan
+serangan itu. Yang bisa dilakukannya adalah menghindar dengan menggunakan ilmu meringankan tubuhnya. Bergerak kian-kemari
+untuk menghindari serangan brutal tersebut.
+
+Selama dua puluh jurus selanjutnya, mereka terus menekan Guo Jing. Akhirnya lengannya luka terkena sambaran golok,
+dan ia dalam posisi genting.
+
+Tiba-tiba timbul gangguan besar di antara kerumunan prajurit Senggum, ketika enam orang yang bergerak ringan melewati
+barusan prajurit dan mendaki ke puncak bukit. Orang-orang Mongolia mengira bahwa mereka adalah bala bantuan lain yang
+dikirim oleh Wanyan Honglie untuk membantu serangan ke puncak bukit, dan mereka bersuara untuk protes.
+
+Para pengawal Temujin sudah bersiap untuk menembakkan anak panah mereka, ketika Jebe yang punya mata tajam melihat
+bahwa mereka adalah Enam Orang Aneh dari Jiangnan. "Jing'er!" serunya. "Guru-gurumu datang!"
+
+Guo Jing yang sudah hampir tidak sanggup bertahan lagi, bersorak kegirangan.
+
+Tiba terlebih dahulu, Zhu Cong dan Quan Jinfa segera menyadari betapa tidak menguntungkan posisi murid mereka. Quan
+Jinfa melompat ke depan untuk memukul keempat senjata itu dengan menggunakan timbangannya. "Kalian sungguh tidak
+tahu malu!" teriaknya.
+
+Merasa tangannya kesakitan, keempat orang itu sadar bahwa musuh yang jauh lebih kuat telah tiba, dan mereka segera
+mundur. Zhu Cong telah menyelamatkan Guo Jing. Sementara itu Orang-orang Aneh lainnya telah tiba.
+
+"Berandalan tidak tahu malu," omel Quan Jinfa. "Minggir! Kalian sungguh tidak punya malu!"
+
+Orang yang bersenjata golok itu sadar bahwa mereka telah kehilangan posisi unggul. Kalau diteruskan, maka mereka
+pasti akan kalah. Tapi kalau mundur, mereka akan kehilangan muka dan tidak bisa lagi melayani Pangeran Keenam.
+
+"Apa kalian Tujuh Orang Aneh dari Jiangnan?" tanyanya, untuk mengulur waktu, setidaknya untuk bernapas lega.
+
+"Betul," jawab Zhu Cong sambil tertawa. "Kalian siapa?"
+
+"Kami murid-murid Raja Naga dari Kelompok Iblis."
+
+Para Orang Aneh sangat terkejut. Melihat cara mereka mengeroyok Guo Jing, mereka pikir orang-orang ini pastilah
+berandalan biasa tanpa guru, yang jelas tidak kenal aturan. Tapi Raja Naga dari Kelompok Iblis, Sha Tongtian,
+adalah tokoh berbobot di dunia persilatan. 
+
+"Kalian menyalahgunakan nama orang lain ya?" desak Ke Zhen'E dengan nada dingin. "Raja Naga dari Kelompok
+Iblis adalah orang terkenal. Mana mungkin dia punya murid-murid payah seperti kalian?"
+
+"Menyalahgunakan nama orang lain?" kata Si Manusia Kapak. "Ini kakak seperguruanku yang tertua, Shen Qinggang,
+julukannya 'Golok Pemutus Jiwa'. Yang ini kakak kedua Wu Qinglie, julukannya 'Tombak Perenggut Nyawa'. Yang ini 
+kakak ketiga, Ma Qingxiong, julukannya 'Cambuk Penangkap Jiwa'. Dan aku sendiri Qian Qingjian, julukanku 'Kapak
+Pengubur Keluarga'."
+
+"Jadi kelihatannya benar," kata Ke Zhen'E. "Kalian adalah Empat Iblis dari Sungai Kuning. Kalian cukup punya
+nama di dunia persilatan, bagaimana kalian bisa merendahkan diri main keroyok, empat lawan satu?"
+
+"Apa empat lawan satu?" kata Wu Qinglie dengan licik. "Bukankah muridmu dibantu oleh orang-orang Mongol ini?
+Yang sebetulnya terjadi adalah kami berempat lawan beberapa ratus orang!"
+
+"San Shixiong," desak Qian Qingjian kepada Ma Qingxiong. "Orang buta ini kelihatannya sombong sekali. Siapa
+dia sebenarnya?"
+
+Ia mengucapkan pertanyaan itu dengan nada rendah dan pelan, tetapi Ke Zhen'E mendengarnya, dan sangat murka.
+Ia melompat ke depan dan menghantam Qian Qingjian dengan tongkatnya. Ia mencengkeram kerah baju orang itu,
+lalu melemparkannya ke kaki bukit. Ke Zhen'E yang terlanjur ada di tengah-tengah mereka, lalu mencengkeram
+mereka satu persatu dan melemparkan mereka ke kaki bukit menyusul adik seperguruan mereka. Para prajurit
+Mongolia bersorak kegirangan. Empat Iblis Sungai kuning bangkir berdiri dengan tubuh dipenuhi pasir, sekujur
+tubuh mereka terasa sakit, dan muka mereka terlihat malu.
+
+Pada saat itu, kepulan debu tebal naik di kejauhan, seolah-olah ada puluhan ribu penunggang kuda sedang
+berpacu kencang dari arah itu. Kegelisahan dengan segera menyelimuti pasukan Senggum.
+
+Temujin yang gembira melihat bala bantuan datang, menyadari betapa disiplin tangan besi terlihat jelas
+di antara para prajurit Jamuka. Para pejabat dan perwira semuanya mengeras, siap tempur. Senggum yang 
+dilindungi oleh reputasi ayahnya terlihat jauh lebih lemah sebagai pemimpin. Temujin menunjuk ke arah
+sayap kiri dari pasukan Senggum dan berteriak, "Serang bagian itu!"
+
+Jebe, Borchu, Jochi dan Chagatai memberi tanda kepada yang para perwira baris terdepan mereka. Orang bisa
+mendengar teriakan para prajurit di seberang mereka. Muqali menyapukan pedangnya di leher Dukhsh sambil
+berseru, "Minggir, minggir!"
+
+Senggum yang bermaksud memerintahkan orang-orangnya mencegat mereka, tampak bimbang melihat ancaman pedang
+di leher anaknya. Dalam sekejap mata, pasukan kecil Temujin bergerak ke kaki bukit. Jebe membidik dengan cermat,
+dan melepaskan anak panah dengan sasaran kepala Senggum. Ia segera berlindung di balik perisai, tetapi anak
+panah yang cepat itu mengenai pipi kirinya, dan ia terjungkal dari kudanya. Ketika melihat pemimpin mereka
+jatuh, semua perwiranya berlarian kacau-balau berusaha menyelamatkan diri.
+
+Temujin dan kawan-kawan menerobos keluar dari kepungan, menghujani siapapun juga yang menghalangi jalan 
+mereka dengan anak panah. Beberapa _li_ dari situ, di dalam kepulan debu tebal, ternyata adalah Tolui
+dan para prajuritnya. Para pengejar sejak awal memang takut akan keberanian Temujin, sekarang mereka tidak
+lagi menang jumlah, mereka berbalik mundur.
+
+Ternyata, karena usia Tolui yang masih sangat muda, para pemimpin dan jendral menolak perintah karena Tolui
+tidak memiliki Tanda Perintah dari Temujin. Ia hanya bisa meyakinkan beberapa ribu prajurit muda untuk mengikutinya
+datang ke situ. Ia kemudian mendapat ide untuk mengikat ekor kuda mereka dengan ranting pohon. Dengan cara itu
+kepulan debu yang timbul akibat derap langkah kuda mereka akan meningkat drastis, menimbulkan kesan seolah-olah
+jumlah bantuan yang datang berkali-kali lipat lebih banyak dari yang sesungguhnya. Gagasan itu terbukti sangat
+efektif.
+
+Pasukan Temujin kembali ke perkemahan mereka. Di tengah jalan mereka berpapasan dengan Hua Zhen yang memimpin
+sejumlah kecil perwira. Ketika melihat mereka tidak menderita cedera yang berarti, ia begitu gembira sampai tidak
+bisa berhenti bicara.
+
+Malam itu Temujin mengadakan perjamuan besar sebagai hadiah kepada para prajuritnya, tetapi ia menempatkan
+Dukhsh di tempat terhormat, hal mana menyebabkan banyak orang merasa tersinggung. Khan tiga kali bersulang 
+untuk memberikan penghormatan kepada Dukhsh dan berkata, "Ayah angkatku, Ong Khan, dan Senggum, selalu
+memperlakukan aku dengan sangat baik, tidak ada alasan untuk saling bermusuhan di antara kedua keluarga kita.
+Tolong sampaikan permohonan maafku untuk mereka, berikut persembahan-persembahan yang berharga. Aku tidak akan
+menyimpan dendam kepada kalian karena apa yang telah kalian lakukan. Setelah pulang, kau harus mempersiapkan
+pernikahanmu dengan putriku. Kita akan mengadakan perjamuan besar-besaran, dan kita akan mengundang semua 
+pemimpin dari berbagai suku. Di situ akan ada sukacita besar. Kau akan menjadi menantuku, yang berarti anakku.
+Mulai saat ini kedua keluarga harus bersatu dalam damai, dan jangan biarkan kita terpecah-belah oleh gosip."
+
+Dukhsh yang merasa lega bahwa ia tidak dibunuh, menerima semua tawaran tersebut. Ia memperhatikan bahwa sementara
+bicara, Khan terus menekan dadanya dengan tangan, di balik jubahnya, dan batuk-batuk tanpa henti. Ia
+bertanya-tanya, "Mungkinkah ia cedera berat?"
+
+"Hari ini," kata Khan, "aku terluka oleh panah. Perlu waktu tiga bulan untuk pulih. Kalau tidak ada kejadian ini,
+aku sendiri yang akan mengantarmu pulang. Ia melepas tangannya dari dada, dan ternyata berdarah. "Tidak perlu
+menunggu sampai aku pulih untuk menikah, kalau tidak... kalau tidak kalian akan menunggu lama."
+
+Semua pejabat yang hadir merasa heran dan marah melihat Khan tunduk dan sangat mengalah kepada Ong Khan, dan
+sungguh terlalu mendesak untuk menikahkan Hua Zheng dengan Dukhsh. Komandan divisi yang putranya tewas ketika
+mempertahankan bukit merasa sangat tersinggung melihat sikap Khan. Ia menghunus pedangnya dengan kalap, dan
+bermaksud membunuh Dukhsh. Khan menyuruh orang menangkapnya, lalu memberikan hukuman berupa pukulan di hadapan
+Dukhsh, sampai ia pingsan, dan berdarah-darah.
+
+"Dia akan dipenjara," kata Temujin. "Dan ia juga akan dipenggal bersama dengan seluruh anggota keluarganya
+dalam tempo tiga hari!" Keesokan harinya Dukhsh pulang ke perkemahannya, membawa serta dua kereta penuh dengan
+emas dan bulu binatang mahal, seribu ekor domba gemuk, dan seratus ekor kuda perang. Ia juga dikawal oleh
+lima puluh orang prajurit. Temujin juga mengirim utusan untuk membela kasusnya di hadapan Ong Khan dan Senggum.
+Menjelang keberangkatan Dukhsh, Temujin yang terlihat tidak punya tenaga untuk naik kuda, datang dengan tandu,
+dan mengucapkan selamat jalan, sambil masih batuk-batuk.
+
+Delapan hari kemudian, Temujin mengumpulkan semua pejabatnya. "Kumpulkan semua prajuritmu," perintahnya. "Kita akan
+menyerang Ong Khan!" Semua pejabat terlihat kaget. Ia melanjutkan, "Ong Khan punya pasukan besar, sedangkan kita
+kecil. kalau kau tidak bisa menang dengan cara _frontal_, maka perlu memakai akal-akalan. Aku membiarkan Dukhsh
+pulang, bahkan memberinya banyak hadiah, aku juga berpura-pura terluka hampir mati. Semua itu kulakukan supaya 
+mereka lengah."
+
+Para pejabat memandangnya dengan penuh kekaguman. Temujin membebaskan komandan yang ditawannya beberapa hari lalu
+untuk meyakinkan Dukhsh. Ia juga memberinya hadiah besar. Ketika tahu bahwa mereka akan menyerang Ong Khan, komandan 
+itu merasa kegirangan. Ia berlutut untuk menunjukkan rasa terima kasihnya, dan memohon supaya ia boleh memimpin
+pasukan di garis depan, yang dikabulkan oleh Temujin. Pasukan Khan dibagi menjadi tiga jalur, yang berarak di
+tengah malam menyusuri jalan setapak yang jarang digunakan orang, dan mereka berkemah di siang hari. Kalau bertemu
+gembala, mereka menangkapnya dan membawanya serta untuk menghindari pembicaraan yang tidak perlu mengenai 
+perjalanan mereka.
+
+Semula Ong Khan dan Senggum, yang takut bahwa Temujin akan datang untuk membalas dendam meningkatkan penjagaan
+dan kewaspadaan. Tetapi kemudian kepulangan Dukhsh yang membawa kemenangan, keterangan utusan Temujin sendiri,
+dan juga persembahan-persembahan yang menyertai anak itu, serta kabar akan cedera berat yang diderita Temujin,
+meyakinkan mereka. Mereka bahkan menarik pulang pengawal di garis depan, dan menghabiskan waktu untuk berpesta
+bersama Wanyan Honglie dan Jamuka. Suatu malam, pasukan tiga jalur Temujin melabrak mereka seperti halilintar.
+Pasukan besar Ong Khan dan Jamuka berhamburan dengan panik, kehilangan semua naluri perangnya. Ong Khan dan
+Senggum melarikan diri ke arah Barat, di mana mereka tewas dibunuh oleh orang-orang Naiman dan Liao tidak 
+lama kemudian. Dalam kebingungan, Dukhsh terinjak-injak kuda.
+
+Wanyan Honglie sendiri meloloskan diri di tengah malam, dalam perlindungan Empat Iblis dari Sungai Kuning, dan
+kembali ke ibukota Kekaisaran Jin. Ditinggalkan oleh para prajuritnya, Jamuka mengungsi 
+ke [Gunung Tangnu](#tangnu "Wilayah di bagian Selatan Siberia") bersama lima orang pengawalnya. Mereka mengkhianati
+dia, dan membawanya ke hadapan Temujin. Temujin sangat murka. "Pengawal pribadi yang mengkhianati majukannya!"
+teriaknya. "Bagaimana aku bisa membiarkan orang-orang semacam ini hidup!" Ia memerintahkan supaya kelima orang
+itu dipenggal di hadapan Jamuka. Lalu ia berpaling kepada Jamuka. "Bisakah kita bersahabat lagi?"
+
+"Kalau pun kau mengampuni nyawaku," kata Jamuka berlinang air mata, "aku sudah tidak punya muka lagi untuk 
+terus hidup. Aku hanya memohon supaya kau membiarkan aku mati tanpa menumpahkan darah[^kematian-terhormat], 
+supaya arwahku tidak meninggalkan tubuhku."
+
+Temujin terdiam lama dalam kesedihan. "Baiklah," akhirnya ia berkata. "Aku setuju dengan cara kematian itu.
+Dan aku akan menguburkanmu di tempat di mana kita biasa bermain waktu masih anak-anak." Jamuka berlutut
+di hadapannya, lalu bangkit dan meninggalkan _ger_. Beberapa hari kemudian, Temujin menyatukan semua suku
+Mongolia di tepi Sungai Onon[^onon], di dalam sebuah Kurultai[^kurultai]. Popularitas sungai itu jauh 
+melampaui perbatasan padang rumput, dan semua suku, gembala ternak, para perwira, pejabat, bahkan Khan sendiri,
+sangat segan terhadap otoritas dan nuansa mistis sungai ini. Para prajurit Ong Khan dan Jamuka telah dipersatukan
+ke dalam pasukan Temujin. Di tengah _kurultai_ itu, Temujin ditunjuk menjadi Khan Besar bagi seluruh Mongolia.
+Sejak saat itu ia dijuluki 'Genghis Khan', yang maknanya kurang lebih adalah 'Pemimpin Tertinggi'.
+
+Genghis Khan memberikan anugerah kenaikan pangkat yang sepatutnya kepada seluruh perwiranya. Semua 'Empat As',
+Muqali, Borchu, Boroqul, dan Tchila'un. Sementara para pejabat seperti Jebe, Jelme, dan Subutai semuanya menjadi
+jendral. Selama peperangan Guo Jing telah memberikan pelayanan istimewa, ia juga diangkat menjadi jendral! Seorang
+pemuda yang bahkan belum genap berusia dua puluh tahun, disetarakan dengan pejabat teras dengan reputasi besar! 
+Selama perjamuan, Khan menerima penghormatan dari para jajarannya dan minum tanpa batasan. Dalam keadaan
+setengah mabuk ia berkata kepada Guo Jing, "Anakku yang baik, aku akan memberikan hartaku yang paling berharga
+untukmu." Guo Jing berlutut di hadapannya. "Aku akan memberikan Hua Zheng untukmu!" kata Genghis Khan.
+"Mulai besok pagi dan seterusnya, kau akan menjadi [Jin Dao Fu Ma](#jindaofuma "Pangeran Golok Emas, artinya adalah Menantu Khan.")."
+
+Seluruh perwira meledak dalam tawa penuh sukacita, dan saling berebut memberikan selamat kepada Guo Jing. "Anak menantu,
+memakai Golok Emas Besar! Hore!"
+
+Yang paling berbahagia dari semuanya adalah, tak diragukan lagi, Tolui, yang dengan segera merangkul saudara angkatnya.
+Tetapi orang yang menjadi pusat perhatian terdiam dalam kebingungan. Ia selalu menganggap Hua Zheng adiknya, dan 
+tidak pernah merasakan perasaan khusus lainnya. Ia selalu menghabiskan waktunya untuk kungfu, mana punya waktu untuk
+belajar soal lain. Dalam hal yang satu ini Guo Jing memang 'bodoh' dalam arti yang sejati. Kata-kata Genghis Khan 
+membuatnya terganggu, dan ia tidak tahu apa yang harus dilakukan. Melihatnya tidak bisa bicara, semua orang tertawa
+terbahak-bahak.
+
+Setelah perjamuan, Guo Jing pulang untuk memberi tahu ibunya. Li Ping diam sambil berpikir lama, lalu menyuruhnya
+pergi untuk mengundang keenam gurunya ke _ger_ mereka. Mereka semuanya bersukacita melihat murid mereka tercinta
+mendapat penghargaan besar, dan mereka buru-buru mengucapkan selamat kepada ibunya. Tetapi wanita itu tidak mengatakan
+apa-apa. Lalu tiba-tiba ia menjatuhkan diri, berlutut di hadapan Enam Orang Aneh.
+
+"Tolong bangun," kata mereka buru-buru. "Kalau [Da Sao](#dasao "kakak ipar perempuan") punya sesuatu untuk 
+dibicarakan, langsung bicara saja, kenapa harus banyak adat begini."
+
+Han Xiaoying membantunya bangkir berdiri. "terima kasih untuk semua pengajaran keenam _shifu_. Anakku akhirnya
+menjadi _orang_. Aku tidak bakalan bisa membalas semua jasa kalian semua. Tapi sekarang aku jadi sangat sulit,
+dan aku harus minta pendapat kalian semua." Ia kemudian menceritakan tentang rencana perkawinan yang diatur
+oleh almarhum suaminya dan saudara angkatnya, Yang Tiexin. "Kalau Khan menginginkan dia menjadi seorang menantu,"
+lanjutnya, "tentu saja itu sebuah kehormatan besar. Tapi kalau ternyata adik Yang punya anak perempuan, dan aku
+tidak mematuhi permintaan terakhir suamiku, lalu bagaimana aku nantinya bisa bertemu suamiku dan adik Yang
+di dunia akhirat?"
+
+"Soal itu Dasao tidak usah kuatir," kata Zhu Cong sambil tertawa. "Yang terhormat, Saudara Yang, memang punya
+anak, tapi bukan anak perempuan, anaknya laki-laki..." 
+
+Li Ping kaget dan senang pada saat yang sama. "Bagaimana guru Zhu bisa tahu soal ini?"
+
+"Seorang teman," jawab Zhu Cong, "yang tinggal di wilayah pusat, menulis surat dan menceritakan hal ini. 
+Omong-omong, Dasao, dia juga berharap supaya kami bisa membawa Jing'er ke Jiangnan untuk bertemu dengan
+putra Saudara Yang itu, dan membandingkan kungfu mereka."
+
+Keenam Orang Aneh tidak pernah membicarakan soal taruhan yang mereka buat dengan Qiu Chuji. Kalau Guo Jing
+bertanya mengenao si pendeta Tao muda, Yin Zhiping, mereka hanya bergumam tidak jelas di antara mereka sendiri,
+tanpa sungguh-sungguh menjawab. Karena tahu jelas watak dasar murid mereka, mereka berpikir, kalau ia sampai
+tahu cerita mengenai Yang Kang, maka ketika tiba waktunya mereka harus bertarung, ia tidak akan menggunakan
+seluruh kemampuannya dalam pertarungan itu, yang mana akan merusak inti dari pertarungan itu sendiri.
+
+Jawaban Zhu Cong sangat menarik bagi Li Ping. Ia lalu menanyakan apakah Nyonya Yang masih hidup? Dan bagaimana
+karakter Yang Kang itu? Tetapi Keenam Orang Aneh tidak bisa menjawab pertanyaannya, mereka memang tidak tahu.
+Li Ping dan Keenam Orang Aneh akhirnya memutuskan bahwa mereka akan membawa Guo Jing ke Jiangnan dan bertemu
+dengan Yang Kang. Pada saat yang sama mereka akan berusaha menemukan Duan Tiande untuk membalas dendam. Setelah
+itu mereka akan kembali, dan Guo Jing harus menikah dengan Hua Zheng. Guo Jing pergi untuk melaporkan keputusan itu
+kepada Genghis Khan.
+
+"Baik," kata Temujin. "Karena kau akan pergi ke Selatan, bisakah kau membawa kepala Pangeran keenam, Wanyan Honglie,
+untukku? Saudara angkatku Jamuka mengkhianati aku dan kehilangan nyawanya, dan itu semua adalah salah bajingan ini.
+Berapa orang yang kau perlukan untuk melaksanakan misi ini?"
+
+Setelah berhasil menyatukan seluruh suku Mongolia, Genghis Khan menjadi ancaman besar untuk Kekaisaran Jin. 
+Konfrontasi cepat atau lambat pasti akan terjadi, itu tidak bisa dihindari. Setelah bertemu dengan Wanyan Honglie
+dalam beberapa peristiwa penting, Temujin tahu jelas mengenai kecerdasan dan kompetensinya. Orang itu harus
+cepat-cepat disingkirkan. Mengenai putusnya hubungan antara dia dan Jamuka, itu alasannya ada di tempat lain.
+Ia menantang tradisi, dan menyerahkan rampasan perang kepada prajuritnya sendiri, dan ia juga berusaha menarik 
+minat para prajurit Jamuka untuk masuk ke dalam pasukannya. Yang sebenarnya adalah, mereka berdua sama-sama 
+melanggar sumpah setia persaudaraan, tetapi mereka sama-sama tidak mau mengakui hal itu, dan lebih memilih
+untuk melemparkan kesalahan kepada Wanyan Honglie.
+
+Sepanjang masa kanak-kanaknya, ibu Guo Jing selalu menceritakan masa lalu, dan ia tanpa sadar terbawa arus kebencian
+terhadap bangsa Jin. Hal itu diperkuat lagi dengan pertarungannya melawan Empat Iblis dari Sungai Kuning, yang 
+sudah jelas adalah anak buah Wanyan Honglie. Berpikir tentang cara menjawab pertanyaan Genghis Khan, ia berkata
+kepada diri sendiri, "Kalau keenam guruku bisa menolong, sudah pasti misiku akan sukses. Kalau aku membawa serta
+para prajurit pemberani, tetapi yang tidak mengerti ilmu silat, mereka sudah pasti malah akan menjadi beban."
+Ia kemudian menjawab Temujin, "Kalau keenam guruku ikut serta, aku tidak perlu bantuan lain."
+
+"Bagus sekali," kata Temujin. "Kita masih lemah sekarang ini, kita belum bisa berhadapan langsung dengan Kekaisaran Jin.
+Kau harus berhati-hati, jangan sampai mereka membaca tujuanmu yang sebenarnya."
+
+Guo Jing setuju. Genghis Khan memberinya sepuluh tail emas sebagai bekal perjalanannya ke Selatan. Dan ia juga
+memberikan sebagian hasil rampasan perang dari Ong Khan kepada Enam Orang Aneh. Setelah tahu bahwa ia akan menuju
+ke Selatan dalam sebuah misi, teman-teman Mongolia Guo Jing berebut memberinya hadiah untuk menambah bekal.
+
+"Saudaraku," kata Tolui. "Orang-orang Selatan seringkali tidak menepati janji. Kau harus berhati-hati, jangan
+sampai dipermainkan orang."
+
+Tiga hari kemudia, pagi-pagi sekali, Guo Jing dan keenam gurunya mengunjungi makam Zhag Ahsheng untuk memberikan
+penghormatan. Lalu mereka kembali ke kemah untuk mengucapkan selamat tinggal kepada Li Ping sebelum memulai
+perjalanan ke Selatan. Li Ping mengawasi bayangan tinggi anaknya yang sedang menunggangi kuda merah kecil sampai
+bayangan itu menghilang di padang rumput. Ia terbayang kelahirannya di tengah medan perang, dan ia mulai merasa
+hatinya diliputi kesedihan dan kecemasan.
+
+Setelah berkuda sejauh sepuluh _li_, Guo Jing melihat dua ekor elang putih terbang dengan gagah di udara. Tolui
+dan Hua Zheng datang untuk mengucapkan selamat jalan. Tolui memberikan sebuah mantel mahal yang terbuat dari bulu
+musang hitam. Mantel itu adalah hasil rampasan perang melawan Ong Khan. Hua Zheng, dengan pipinya yang bersinar,
+memandang calon suaminya tanpa mengatakan apa-apa.
+
+"oh, silakan, adikku..." kata Tolui sambil tertawa. "Bicaralah, aku tidak akan mendengar apa-apa." Ia menyingkir
+sambil tetap tertawa.
+
+Hua Zheng menundukkan kepala, tidak menemukan kata-kata. "Cepat pulang..." akhirnya ia bergumam pelan.
+
+Guo Jing mengangguk. "Apa lagi yang ingin kau katakan?" tanyanya. Gadis itu menggelengkan kepala. "Kalau begitu
+aku pergi sekarang." Hua Zheng merendahkan kepalanya tanpa mengatakan apa-apa lagi.
+
+Guo Jing maju sedikit dan memeluknya dengan ringan. Ia kemudian mendekat ke arah Tolui dan memeluknya juga.
+Lalu ia memacu kudanya untuk mengejar keenam gurunya yang sudah jauh di depan.
+
+Melihatnya bersikap begitu formal, tanpa kelembutan sedikitpun, meskipun mereka sudah dijodohkan untuk segera
+menikah, dan ia sekarang sedang dalam perjalanan ke tempat jauh, Hua Zheng merasa sangat marah. Dalam perjalanan
+pulang ia mencambuk kudanya dengan kasar, meskipun hewan itu tidak ada kaitannya dengan situasi mereka.
 
 
 ***
@@ -1222,6 +1534,18 @@ Dengan kemenangan itu, pemuda itu merasa segar kembali.
         Seperti disinggung di atas, panggilan ini untuk kakak seperguruan laki-laki, tetapi tanpa embel-embel
         urutannya. Istilah lain bisa jadi Shi Ge, yang artinya sama.
     </dd>
+    <dt id="jindaofuma"><strong>Jin Dao Fu Ma (tradisional: 金刀駙馬, disederhanakan: 金刀驸马)</strong></dt>
+    <dd>
+        Terjemahan literalnya adalah "Pangeran Golok Emas", tetapi makna sesungguhnya kurang lebih adalah
+        "Menantu Raja Bergolok Emas". Istilah "Fu Ma" (驸马) itu sendiri berarti "Selir", tetapi dalam hal ini
+        ditujukan bagi seorang pria.
+    </dd>
+    <dt id="dasao"><strong>Da Sao (大嫂)</strong></dt>
+    <dd>
+        Arti literalnya adalah "Kakak Ipar Perempuan", atau istri dari kakak laki-laki. Tetapi ini seringkali
+        juga dipakai untuk memanggil istri seseorang yang sudah dianggap saudara sendiri, tanpa mempedulikan
+        urutan usia.
+    </dd>
 </dl>
 
 [^zeihanzi]: Panggilan sayang Mei Chaofeng untuk suaminya, arti literalnya adalah "Maling" atau "Bajingan".
@@ -1232,4 +1556,9 @@ Dengan kemenangan itu, pemuda itu merasa segar kembali.
 
 [^satuan-zhang]: Satu zhang kira-kira 3.3 meter, atau 11 kaki.
 
+[^kematian-terhormat]: Dalam kepercayaan _Shamanisme_, arwah seseorang berada di dalam _darahnya_. Para pangeran dan bangsawan lain yang harus dihukum mati, tetapi masih tetap dihormati akan menerima hukuman dengan cara dicekik.
+
+[^onon]: Sungai Onon terletak di perbatasan antara Mongolia dan Rusia, dan secara otomatis terbagi menjadi dua wilayah. Dalam beberapa teks sejarah, Sungai Onon diklaim sebagai tempat kelahiran Genghis Khan. Kurang lebih seperti "Laut Selatan" atau "Laut Kidul", yang dipenuhi cerita rakyat berbau mistis di Pulau Jawa, Sungai Onon juga seringkali disinggung dalam cerita rakyat berbau mistis.
+
+[^kurultai]: Kurultai adalah pertemuan besar seluruh suku Mongolia, yang biasanya membahas topik yang teramat sangat penting, seperti pemilihan Khan, atau keputusan politik besar yang menyangkut keselamatan negara, dsb. Keputusan yang dihasilkan di dalam _kurultai_ tidak dapat diganggu gugat.
 
