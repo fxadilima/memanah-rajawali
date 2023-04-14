@@ -1412,7 +1412,7 @@ apa-apa. Lalu tiba-tiba ia menjatuhkan diri, berlutut di hadapan Enam Orang Aneh
 "Tolong bangun," kata mereka buru-buru. "Kalau [Da Sao](#dasao "kakak ipar perempuan") punya sesuatu untuk 
 dibicarakan, langsung bicara saja, kenapa harus banyak adat begini."
 
-Han Xiaoying membantunya bangkir berdiri. "terima kasih untuk semua pengajaran keenam _shifu_. Anakku akhirnya
+Han Xiaoying membantunya bangkit berdiri. "terima kasih untuk semua pengajaran keenam _shifu_. Anakku akhirnya
 menjadi _orang_. Aku tidak bakalan bisa membalas semua jasa kalian semua. Tapi sekarang aku jadi sangat sulit,
 dan aku harus minta pendapat kalian semua." Ia kemudian menceritakan tentang rencana perkawinan yang diatur
 oleh almarhum suaminya dan saudara angkatnya, Yang Tiexin. "Kalau Khan menginginkan dia menjadi seorang menantu,"
