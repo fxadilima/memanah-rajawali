@@ -1,4 +1,11 @@
-# Perlombaan Mencari Jodoh
+# Bab 7
+## Perlombaan Mencari Jodoh
+
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 7](https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch07_ijj1tf.jpg) | _Guo Jing merampas spanduk yang bertuliskan Lomba Mencari Jodoh itu, lalu menyapu tiangnya di sepanjang lengannya. Spanduk itu terbalik di atas muka si pangeran. Si Pangeran memiringkan tubuhnya ke samping dan mengangkat tombaknya. Dengan bayangan merah melingkar dan mata tombak yang berkelap-kelip ia menusukkan tombaknya ke arah Guo Jing._     |
+
+***
 
 Keenam Orang Aneh dan Guo Jing mengambil arah ke Tenggara. Perjalanan itu memakan
 waktu sangat panjang. Mereka memerlukan waktu berhari-hari hanya untuk keluar dari
@@ -532,15 +539,8 @@ Empat orang dari mereka yang membawa golok, tombak, cambuk dan kapak, adalah Emp
 yang pernah bertarung melawan dia di bukit itu. Yang kelima adalah seorang pria kurus sekitar empat
 puluh tahunan, dengan wajah gelap dan panjang, dengan tiga benjolan besar di bagian depan kepalanya,
 yang menambah jelek keseluruhan penampilannya. Pria kurus itu terkekeh sambil melangkah lebar memasuki
-kamarnya. Ia duduk dengan sikap arogan di atas _kang_, lalu berpaling untuk mengamati Guo Jing.
+kamarnya. Ia duduk dengan sikap arogan di atas kang[^kang], lalu berpaling untuk mengamati Guo Jing.
 
-<div class="w3-panel w3-blue w3-card-4">
-    <p>
-    <em>Kang</em> adalah istilah yang digunakan untuk sebuah tempat tidur di wilayah Utara Tiongkok,
-    yang umumnya diatur sedemikian rupa sehingga menyerupai sebuah 'oven' dari batu bata. Cara ini 
-    sekaligus berfungsi sebagai pemanas di musim dingin.
-    </p>
-</div>
 
 Orang tertua dari Empat Iblis Sungai Kuning, yang bersenjata golok, Shen Qinggang, mengumumkan 
 dengan nada dingin, "Ini paman guru kami, Hou Tonghai, yang dijuluki 'Naga Berkepala Tiga'!
@@ -1299,15 +1299,8 @@ seru pelayan dari kubu Si Pangeran Muda.
 sambil cemberut. Para pelayan yang tidak berani menjawab buru-buru menghampiri tandu itu, yang sudah
 berhenti di sebuah tempat kosong.
 
-<div class="w3-container w3-center">
-    <a href="https://youtube.com/clip/UgkxoZ_39gNmUpk1C2fd5yGqK4sqX1cflDYu" target="_blank">
-        <img src="images/bao-xiruo-sebagai-selir.jpg" alt="Bao Xirou Muncul Sebagai Selir" width="75%"/>
-    </a>
-</div>
-
 Suara wanita yang lembut terdengar dari dalam tandu, "Mengapa berkelahi? Ini sedang hujan salju, dan kau tidak memakai
 mantel. Kalau seperti ini kau bisa demam..."
-
 
 Ketika mendengar suara itu dari kejauhan, Mu Yi seakan-akan disambar petir. "Mana mungkin?" pikirnya, terdiam.
 "Suaranya sangat mirip _dia_! Tapi itu tidak mungkin, dia seorang Putri Kekaisaran Jin... Mungkin aku terlalu
@@ -1508,3 +1501,8 @@ segera menemukanmu!" Ia berbalik dan sosok mungilnya segera menghilang di antara
 Si Naga Berkepala Tiga mengejar. Guo Jing berbalik dan _kowtow_ di atas salju untuk berterima kasih
 kepada Wang Chuyi yang telah menyelamatkan nyawanya. Pendeta itu mengangkatnya dan memegang tangannya.
 Keduanya segera berjalan melewati kerumunan dan berlari ke pinggiran kota.
+
+***
+
+[^kang]: Kang adalah istilah yang digunakan untuk sebuah tempat tidur di wilayah Utara Tiongkok, yang umumnya diatur sedemikian rupa sehingga menyerupai sebuah 'oven' dari batu bata. Dengan cara ini, tempat tidur itu sekaligus berfungsi sebagai pemanas di musim dingin.
+

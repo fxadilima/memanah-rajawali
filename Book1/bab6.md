@@ -3,7 +3,7 @@
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |
-| ![Ilustrasi Bab 5](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692655/sdyxz/originals/loch-06_hqtnmd.jpg) | _Guo Jing menembakkan tiga anak panah yang melesat dengan kecepatan seperti angin, dan menewaskan tiga orang pengejar terdekat. Sambil tetap menembakkan panah, ia membunuh seorang pengejar lagi. Sementara itu, Jebe sudah tiba di dekatnya dan juga ikut menembakkan anak-anak panahnya, yang sangat cepat dan mematikan._     |
+| ![Ilustrasi Bab 6](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692655/sdyxz/originals/loch-06_hqtnmd.jpg) | _Guo Jing menembakkan tiga anak panah yang melesat dengan kecepatan seperti angin, dan menewaskan tiga orang pengejar terdekat. Sambil tetap menembakkan panah, ia membunuh seorang pengejar lagi. Sementara itu, Jebe sudah tiba di dekatnya dan juga ikut menembakkan anak-anak panahnya, yang sangat cepat dan mematikan._     |
 
 ***
 
