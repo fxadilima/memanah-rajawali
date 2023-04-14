@@ -1512,8 +1512,7 @@ pulang ia mencambuk kudanya dengan kasar, meskipun hewan itu tidak ada kaitannya
     </dd>
     <dt id="sidi"><strong>Si Di (四弟)</strong></dt>
     <dd>
-        <em>Adik laki-laki keempat</em>. Sebagai pengingat, ini sudah disinggung dalam Bab 2 sampai 5, tetapi ada baiknya diulangi di sini. Dalam bahasa mandarin "kakak" dibe
-        dakan antara laki-laki (哥哥 Gege, atau "Koko") dan perempuan (姐姐 Jiejie, atau "Cici"). Sedangkan untuk "adik", laki-laki (弟弟 Didi atau "Titi"), perempuan (妹妹 Mei Mei). Untuk urutan dalam hirarki persaudaraan berdasarkan nomor, di sini angka 1 — 10 adalah "yi er san si wu liu qi ba jiu shi" 
+        <em>Adik laki-laki keempat</em>. Sebagai pengingat, ini sudah disinggung dalam Bab 2 sampai 5, tetapi ada baiknya diulangi di sini. Dalam bahasa mandarin "kakak" dibedakan antara laki-laki (哥哥 Gege, atau "Koko") dan perempuan (姐姐 Jiejie, atau "Cici"). Sedangkan untuk "adik", laki-laki (弟弟 Didi atau "Titi"), perempuan (妹妹 Mei Mei). Untuk urutan dalam hirarki persaudaraan berdasarkan nomor, di sini angka 1 — 10 adalah "yi er san si wu liu qi ba jiu shi" 
         (一二三四五六七八九十). Angka 1 dalam konteks ini hampir selalu digantikan oleh kata "Da" (大), yang berarti "besar" 
         atau tepatnya dalam konteks ini adalah "tertua". Dengan demikian, "kakak tertua" akan dipanggil Dage (大哥) atau
         dalam istilah Hokkian ala Kho Ping Hoo/Gan KL menjadi "Toako". Atau untuk kakak perempuan tertua akan menjadi
