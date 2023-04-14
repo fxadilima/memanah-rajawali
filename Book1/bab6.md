@@ -1430,7 +1430,7 @@ Omong-omong, Dasao, dia juga berharap supaya kami bisa membawa Jing'er ke Jiangn
 putra Saudara Yang itu, dan membandingkan kungfu mereka."
 
 Keenam Orang Aneh tidak pernah membicarakan soal taruhan yang mereka buat dengan Qiu Chuji. Kalau Guo Jing
-bertanya mengenao si pendeta Tao muda, Yin Zhiping, mereka hanya bergumam tidak jelas di antara mereka sendiri,
+bertanya mengenai si pendeta Tao muda, Yin Zhiping, mereka hanya bergumam tidak jelas di antara mereka sendiri,
 tanpa sungguh-sungguh menjawab. Karena tahu jelas watak dasar murid mereka, mereka berpikir, kalau ia sampai
 tahu cerita mengenai Yang Kang, maka ketika tiba waktunya mereka harus bertarung, ia tidak akan menggunakan
 seluruh kemampuannya dalam pertarungan itu, yang mana akan merusak inti dari pertarungan itu sendiri.
