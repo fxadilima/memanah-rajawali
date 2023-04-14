@@ -1483,7 +1483,7 @@ dan Hua Zheng datang untuk mengucapkan selamat jalan. Tolui memberikan sebuah ma
 musang hitam. Mantel itu adalah hasil rampasan perang melawan Ong Khan. Hua Zheng, dengan pipinya yang bersinar,
 memandang calon suaminya tanpa mengatakan apa-apa.
 
-"oh, silakan, adikku..." kata Tolui sambil tertawa. "Bicaralah, aku tidak akan mendengar apa-apa." Ia menyingkir
+"Oh, silakan, adikku..." kata Tolui sambil tertawa. "Bicaralah, aku tidak akan mendengar apa-apa." Ia menyingkir
 sambil tetap tertawa.
 
 Hua Zheng menundukkan kepala, tidak menemukan kata-kata. "Cepat pulang..." akhirnya ia bergumam pelan.
