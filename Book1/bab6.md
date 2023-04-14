@@ -1045,6 +1045,146 @@ pahlawan, dan kau juga. Padang rumput Mongolia sangat luas, tapi sayangnya tidak
 Jamuka memungut kantong itu, lalu mengambil sebuah kantong kulit kecil dari dalam saku bajunya sendiri, menjatuhkannya
 di kaki Temujin dalam diam, lalu ia turun dari bukit itu.
 
+Temujin mengawasinya turun dari bukit, lalu ia berdiri diam sendirian di situ sangat lama. Lalu ia membuka kantong
+kulit itu, dan mengeluarkan batu dan mata panah dari dalamnya, dan mengenang semua permainan yang pernah mereka mainkan
+bersama-sama di masa anak-anak. Ia menghela napas, lalu menggali lubang di tanah dengan sebuah pisau, dan menguburkan
+hadiah yang dulu diberikannya kepada mantan saudara angkatnya di dalamnya.
+
+Guo Jing berada di dekatnya, dan ikut merasa sakit hati. Apa yang dikubur Temujin, ia tahu betul, adalah sebuah tali
+persahabatan masa kanak-kanak yang tak ternilai harganya.
+
+Khan bangkit berdiri dan mempelajari keadaan sekitarnya dengan cermat. Yang bisa dilihatnya saat itu adalah api unggun
+yang dinyalakan oleh pasukan Senggum dan Jamuka menerangi hamparan padang rumput, terlihat mirip gugusan bintang di langit.
+Pikirannya masih tetap bercabang. Ia berpaling dan melihat Guo Jing berdiri di dekatnya. "Kau takut?" tanyanya.
+
+"Aku sedang memikirkan ibuku," jawab pemuda itu.
+
+"Kau sungguh seorang anak pemberani," kata Temujin. "Anak pemberani sejati!" Ia menunjuk ke arah ribuan api unggun di
+tengah padang rumput. "Mereka juga," lanjutnya, "adalah para pemberani! Kita bangsa Mongol punya begitu banyak anak
+pemberani, tetapi kita menghabiskan waktu untuk saling bertengkar sendiri. Jika kita berhasil menyatukan mereka semua,
+maka kita akan sanggup mengambil alih dunia, dan membuatnya menjadi lahan raksasa untuk memelihara ternak kita."
+
+Ketika Guo Jing mendengar ucapan yang sangat ambisius itu, ia merasa semakin kagum kepada Temujin. Ia menepuk dada
+dan berkata, "Khan Agung, kita pasti akan menang. Karema kita psti tidak bakalan kalah melawan seorang pengecut
+seperti Senggum!"
+
+"Tepat sekali!" kata Temujin sambil tersenyum. "Mari kita ingat pembicaraan kita malam ini. Kalau kita berhasil
+keluar dari bahaya ini, mulai saat itu aku akan menganggapku sebagai anakku sendiri!" Ia memeluk pemuda itu
+erat-erat.
+
+Sementara mereka bicara, hari maru telah tiba. Suara terompet terdengar bersahut-sahutan dari antara pasukan musuh.
+
+"Pertolongan tidak akan datang," kata Temujin. "Mari kita bersiap untuk mati di atas bukit ini." Dari arah kubu lawan
+mereka mendengar suara dentingan senjata dan ringkikan kuda, serbuan mereka sudah menunggu.
+
+"Khan Agung," kata Guo Jing tiba-tiba. "Kuda merah kecilku sangat cepat. Bawalah untuk menjemput bala bantuan. Sementara
+itu kami akan tetap di sini melawan musuh."
+
+Temujin tersenyum dan mengulurkan tangannya untuk membelai rambut si pemuda. "Kalau Temujin," katanya, "sanggup meninggalkan
+kawan-kawan dan pasukannya, hanya karena takut mati menghadapi serbuan musuh, maka dia sama sekali tidak layak untuk
+menjadi Khan kalian!"
+
+"Itu tepat sekali, Khan Agung," kata Guo Jing mengiyakan. "Aku salah..."
+
+Mereka menyembunyikan diri di balik gundukan tanah, sambil bersiap menembakkan panah ke arah musuh yang mmenyerbu.
+
+Tak lama kemudian, tiga orang pria meninggalkan kerumunan pasukan musuh dengan membawa bendera kuning. Di sebelah
+kiri adalah Senggum, di kanan Jamuka, dan di tengah, sangat mengejutkan, adalah Pangeran Keenam Kekaisaran Jin, 
+Wanyan Honglie! Ia berpakaian perang lengkap, memakai hem kuning keemasan, dengan perisai emas di tangan. Ia
+berteriak, "Temujin, kau berani mengkhianati Kekaisaran Jin?"
+
+Jochi, putra sulung Temujin menembakkan panah ke arahnya, tetapi salah seorang pengawalnya berhasil menangkap
+anak panah itu di udara dengan kecepatan yang mencengangkan.
+
+"Tangkap Temujin!" teriak Wanyan Honglie. Mendengar perintah itu, empat orang pria dengan segera berlari ke atas bukit.
+Gerakan mereka membuat Guo Jing terkejut. Ia melihat bahwa para pendatang baru itu menggunakan ilmu meringankan tubuh, 
+dan mereka adalah para ahli kungfu dunia persilatan, bukan bagian dari prajurit padang rumput. Di tengah bukit mereka
+dengan gesit menghindari hujan anak panah yang ditembakkan oleh Jebe, Borchu dan kawan-kawannya. "Kita punya banyak
+pejabat militer dan para pejuang hebat dengan kekuatan tangguh di sini," pikir Guo Jing cemas. "Tapi mereka semua
+bukan tandingan ahli silat dari Jianghu! Apa yang harus kita lakukan?"
+
+Salah seorang dari mereka, yang berpakaian hitam, berhasil mencapai puncak bukit.
+
+Ogedai berusaha menghalanginya, namun pendatang baru itu melukai lehernya dengan senjata rahasia dan mengayunkan
+golok bulan sabitnya ke arah orang yang terluka itu. Tetapi, secepat kilat sebuah pedang datang menyambar 
+pergelangan tangannya dengan kecepatan dan ketepatan tingkat tinggi. Gerakan itu dilakukan dengan sangat baik, 
+sehingga ia terpaksa mundur tiga langkah. Dengan terkejut ia melihat seorang pemuda bertubuh sangat kekar 
+berdiri di depan Ogedai. Karena sama sekali tidak menduga bakal bertemu seorang pendekar pedang di antara 
+para prajurit Temujin, ia berseru dalam bahasa Han, "Siapa kau? Siapa namamu?"
+
+"Aku dipanggil Guo Jing!"
+
+"Aku tidak pernah mendengar ada orang menyebut namamu. Ayo cepat menyerah!"
+
+Guo Jing memandang ke sekeliling dan melihat ketiga orang lainnya sedang terlibat perkelahian tangan kosong dengan
+Tchila'un, Borchu dan beberapa orang lain. Ia sekali lagi menyerang orang yang menggunakan golok bulan sabit, yang
+menangkis, lalu mundur.
+
+Ketika para prajurit Senggum sedang bersiap untuk menyerang bukit, Muqali meleakkan goloknya di leher Dukhsh. "Kalau
+kalian menyerang," teriaknya. "Maka pedangku akan kehilangan belas kasihan!"
+
+Senggum sangat cemas, ia berpaling kepada Wanyan Honglie dan berkata, "Pangeran Zhao, tolong perintahkan orangmu
+untuk mundur. Kita akan mencari jalan lain untuk menyerang, tak ada gunanya mengorbankan anakku!"
+
+"Jangan kuatir," kata Wanyan Honglie sambil tersenyum. "Tidak akan terjadi apa-apa kepada anakmu." Tetapi dalam
+kenyataannya ia justru ingin memaksa Temujin membunuh Dukhsh, dan menciptakan dendan kesumat tak terpadamkan di
+antara kedua suku itu.
+
+Para prajurit Senggum tidak berani bergerak, sementara anak buah Pangeran Keenam sedang bertarung sengit.
+
+Guo Jing memakai Jurus Pedang Nona Yue yang diajarkan Han Xiaoying. Setelah beberapa jurus ia berada dalam bahaya,
+golok lawannya ternyata sangat kuat, tenaganya besar, dan semua jurusnya didukung oleh tenaga dalam yang kuat.
+Ia bukan lawan sembarangan. Pedang panjang Guo Jing bergerak dengan cepat, dan tampaknya berubah menjadi kilatan
+cahaya. Ujung pedangnya mengancam titik-titik berbahaya di tubuh lawan, dan setiap gerakan ditujukan untuk melukai lawan.
+Lawannya terlihat agak kewalahan menghadapi kecepatannya, dan terlihat resah.
+
+Ketiga kawannya yang telah berhasil mengalahkan para prajurit Mongolia, melihatnya dalam kesulitan. Salah seorang
+di antaranya, yang bersenjatakan tombak besar, mendekat dengan sebuah lompatan jauh. "Da Ge, aku datang membantumu!"
+
+Tapi orang yang bersenjata golok bulan sabit itu berteriak, "Jangan bergerak. Kau cukup menonton saja katangkasan
+kakakmu ini!"
+
+Mengambil kesempatan pada saat perhatiannya terpecah, Guo Jing menyerang dengan menggunakan jurus Phoenix Terbang
+dan Ular Membelit, mengarahkan mata pedangnya ke bagian bawah tubuh lawan. Lawannya mundur, tetapi pedang itu telah
+merobek lengan kiri jubahnya.
+
+Orang yang bersenjata golok bulan sabit itu berteriak, "Siapa gurumu? Kenapa kau cari mati di sini?"
+
+Guo Jing tetap mempertahankan sikap defensif, dan menjawab dalam bahasa dunia persilatan yang diajarkan guru-gurunya,
+"Aku murid dari Tujuh Orang Aneh dari Jiangnan. Siapa nama dan margamu?" Ia sudah lama berlatih mengucapkan kalimat
+sopan itu, tapi ini adalah pertama kalinya ia sungguh-sungguh menggunakannya.
+
+"Nama kami," kata orang yang bersenjata golok bulan sabit. "Kalau pun kukatakan, kau juga tidak akan kenal. Ayo
+lindungi dirimu!"
+
+Dalam bentrokan pertama, Guo Jing sungguh merasa bahwa lawannya jauh lebih kuat dari dirinya. Tapi teknik yang
+diajarkan oleh guru ketujuhnya sangat canggih, dan membutuhkan banyak perhatian dari lawannya, sedemikian rupa sehingga
+ia bisa terus menyerang tanpa perlu memikirkan cara untuk mundur. Orang itu menggunakan teknik "Menjelajah Lautan dan 
+Memenggal Naga', sementara goloknya menebas kaki Guo Jing. Hanya dalam hitungan detik keduanya sudah bergebrak dua sampai
+tiga puluh jurus. Kedua kubu mengamati pertarungan itu dengan penuh ketegangan. Orang bersenjata golok itu mulai merasa
+gugup, dan serangannya makin kasar. Mendadak ia menyerang pinggang Guo Jing. Guo Jing berputar dan membalas dengan jurus
+'Berpaling dan Memetik Buah' ke arah tangan yang memegang golok. Lawannya melihat bahwa dia sama sekali tidak mempedulikan
+sisi pertahanan, dan berpikir, "Waktu pedangmu menyentuh sasaran, golokku sudah memotongmu menjadi dua!"
+
+Tetap Guo Jig yang yakin akan kekuatan tenaga dalamnya, menggerakkan pinggangnya tanpa memindahkan keseluruhan
+tubuhnya, berhasil menghindari tebasan golok dan menempatkan pedangnya di dada lawan.
+
+Orang itu menjerit, melepaskan goloknya dan memukul sisi tajam pedang dengan tangan kosong, menyebabkannya terpental
+ke tanah. Tetapi mata pedang Guo Jing sudah masuk setengah inci ke dalam dadanya! Ia berhasil menyelamatkan nyawanya,
+tetapi telapak tangannya terpotong dan berlumuran darah.
+
+Ia kemudian mendengar desingan senjata dari arah belakangnya, dan suara Jebe berteriak, "Awas, di belakangmu!"
+
+Tanpa menengok, Guo Jing melakukan tendangan ke belakang dan menangkis serangan yang datang ke arahnya. Pada saat
+yang sama ia meraih golok yang terjatuh dan menebas tangan lawan dengan golok itu. Guo Jing melakukan gerakan
+'Maju Selangkah Merebut Keranjang', menangkis tombak dengan tangan kirinya. Ia memutar telapak tangan kirinya untuk 
+merebut tombak musuh, sementara tangan kanannya memagang golok yang menerabas ke pegangan tombak. Orang itu menggunakan
+seluruh tenaganya untuk merebut tombaknya kembali, tetapi ketika ia melihat sambaran golok, dengan terpaksa ia 
+melepaskan pegangannya dan melangkah mundur.
+
+Dengan kemenangan itu, pemuda itu merasa segar kembali.
+
+
 
 
 ***
@@ -1060,7 +1200,8 @@ di kaki Temujin dalam diam, lalu ia turun dari bukit itu.
     </dd>
     <dt id="sidi"><strong>Si Di (四弟)</strong></dt>
     <dd>
-        <em>Adik laki-laki keempat</em>. Sebagai pengingat, ini sudah disinggung dalam Bab 2 sampai 5, tetapi ada baiknya diulangi di sini. Dalam bahasa mandarin "kakak" dibedakan antara laki-laki (哥哥 Gege, atau "Koko") dan perempuan (姐姐 Jiejie, atau "Cici"). Sedangkan untuk "adik", laki-laki (弟弟 Didi atau "Titi"), perempuan (妹妹 Mei Mei). Untuk urutan dalam hirarki persaudaraan berdasarkan nomor, di sini angka 1 — 10 adalah "yi er san si wu liu qi ba jiu shi" 
+        <em>Adik laki-laki keempat</em>. Sebagai pengingat, ini sudah disinggung dalam Bab 2 sampai 5, tetapi ada baiknya diulangi di sini. Dalam bahasa mandarin "kakak" dibe
+        dakan antara laki-laki (哥哥 Gege, atau "Koko") dan perempuan (姐姐 Jiejie, atau "Cici"). Sedangkan untuk "adik", laki-laki (弟弟 Didi atau "Titi"), perempuan (妹妹 Mei Mei). Untuk urutan dalam hirarki persaudaraan berdasarkan nomor, di sini angka 1 — 10 adalah "yi er san si wu liu qi ba jiu shi" 
         (一二三四五六七八九十). Angka 1 dalam konteks ini hampir selalu digantikan oleh kata "Da" (大), yang berarti "besar" 
         atau tepatnya dalam konteks ini adalah "tertua". Dengan demikian, "kakak tertua" akan dipanggil Dage (大哥) atau
         dalam istilah Hokkian ala Kho Ping Hoo/Gan KL menjadi "Toako". Atau untuk kakak perempuan tertua akan menjadi
