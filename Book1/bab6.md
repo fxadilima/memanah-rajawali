@@ -1413,7 +1413,7 @@ apa-apa. Lalu tiba-tiba ia menjatuhkan diri, berlutut di hadapan Enam Orang Aneh
 dibicarakan, langsung bicara saja, kenapa harus banyak adat begini."
 
 Han Xiaoying membantunya bangkit berdiri. "terima kasih untuk semua pengajaran keenam _shifu_. Anakku akhirnya
-menjadi _orang_. Aku tidak bakalan bisa membalas semua jasa kalian semua. Tapi sekarang aku jadi sangat sulit,
+menjadi _orang_. Aku tidak bakalan bisa membalas jasa kalian semua. Tapi sekarang aku jadi sangat sulit,
 dan aku harus minta pendapat kalian semua." Ia kemudian menceritakan tentang rencana perkawinan yang diatur
 oleh almarhum suaminya dan saudara angkatnya, Yang Tiexin. "Kalau Khan menginginkan dia menjadi seorang menantu,"
 lanjutnya, "tentu saja itu sebuah kehormatan besar. Tapi kalau ternyata adik Yang punya anak perempuan, dan aku
