@@ -628,7 +628,7 @@ sebelumnya sempat berbicara dengan Mei Chaofeng tidak ikut bersuara, karena ada 
 mengenali suaranya.
 
 Si Mayat Besi makin lama makin terperanjat. "Kelihatannya ketujuh pendekar Quanzhen semuanya hadir di sini.
-Aka bahkan tidak yakin bisa mengalahkan salah seorang dari mereka, lalu bagaimana aku bisa menghadapi gabungan
+Aku bahkan tidak yakin bisa mengalahkan salah seorang dari mereka, lalu bagaimana aku bisa menghadapi gabungan
 dari mereka bertujuh sekaligus? Kalau mereka menemukanku, matilah aku!"
 
 Saat itu cahaya bulan menerangi puncak tebing itu dengan sempurna. Zhu Cong berkata, "Malam ini awan hitam tebal
@@ -743,7 +743,7 @@ serunya. "Jangan berusaha untuk mengorek rahasia ilmu perguruanku, ayo cepat per
 
 Mei Chaofeng tertawa. "Terima kasih untuk penjelasannya, Dao Zhang!"
 
-Memdadak ia melompat ke depan, berbekal cambuk peraknya ia meluncur turun dari puncak tebing dengan kecepatan
+Mendadak ia melompat ke depan, berbekal cambuk peraknya ia meluncur turun dari puncak tebing dengan kecepatan
 yang sulit dipercaya. Mereka semua yang tersisa menatap kepergiannya, merasa sangat lega bisa terlepas dari
 konflik berbahaya. Jauh di tengah padang rumput, sebuah bayangan menghilang dengan gerakan secepat hantu.
 
@@ -771,6 +771,279 @@ dengan cara apa dia bisa mendapatkan rahasia ilmu aliran Tao, tetapi tanpa petun
 akan memahaminya. Ia menanyakan formula rahasia tadi karena kurangnya pemahaman yang akhirnya menghambat kemajuan
 ilmunya. Aku akhirnya tersadar, dan tidak menjawab pertanyaan kedua. Tapi jawaban pertama itu akan memberi jalan
 bagi dia untuk mencapai kemajuan luar biasa dari sisi _neigong_."
+
+"Mari kita berharap," kata Han Xiaoying, "bahwa dia akan sungguh-sungguh bertobat dan menyesali tindakannya
+di masa lalu, dan tidak lagi berbuat jahat."
+
+"Biarlah terjadi seperti itu," kata Ma Yu. "Kalau tenaga dalamnya sampai berkembang pesat, maka ia akan
+makin sulit dihadapi. Ah! Ini semua salahku, aku terlalu naif, seharusnya aku tidak mempercayai dia..."
+Setelah berpikir sejenak, ia melanjutkan penuturannya, "Satu hal yang membuatku heran. Dasar-dasar ilmu
+silat Pulau Persik sangat berbeda dengan ilmu aliran Tao. Namun begitu, kedua formula yang dikutipnya tadi
+sangat sesuai dengan aliran Tao. Bagaimana mungkin hal ini bisa terjadi?"
+
+Hua Zheng tiba-tiba melompat dari batu besar tempatnya bersandar. "Ah!" jeritnya. "Guo Jing, ayah tidak 
+percaya keteranganku. Dia sudah pergi ke tempat Ong Khan!"
+
+"Kenapa?" tanya Guo Jing.
+
+"Aku sudah menjelaskan," lanjut Hua Zheng, "bahwa Paman Senggum dan Paman Jamuka punya rencana jahat untuk
+membunuhnya. Tapi dia tertawa, katanya itu karena aku tidak mau menikahi Dukhsh, makanya aku mengarang cerita
+omong kosong. Aku sudah bilang kalau _kau_ mendengarnya sendiri, tapi dia tetap tidak mau percaya. Dia bahkan
+bilang bahwa dia akan menghukummu waktu dia pulang. Aku melihatnya pergi dengan tiga kakakku dan hanya pengawalan
+kecil. Aku buru-buru kembali untuk mencarimu, tapi di tengah jalan aku ditangkap perempuan buta itu. Dia ingin
+membawaku untuk menemuimu, apa benar begitu?"
+
+"Kalau kita semua tidak ada di sini," kata Keenam Orang Aneh, "sekarang ini tengkorak kepalamu pasti sudah
+berlubang lima jari tangan!"
+
+"Kapan Khan berangkat?" tanya Guo Jing cemas.
+
+"Sudah lama," sahut Hua Zheng. "Kata ayah ia ingin sampai di sana secepat mungkin. Dia bahkan tidak menunggu
+matahari terbit. Kuda mereka sangat cepat, mereka pasti sudah sangat jauh sekarang. Apa memang benar Paman
+Senggum ingin mencelakai ayah?" Ia mulai terisak. Ini adalah pertama kali dalam hidupnya menghadapai persoalan
+yang begitu besar. Ia sangat terganggu.
+
+"Jing'er," kata Zhu Cong. "Cepat turun bukit. Bawa kuda merahmu dan selamatkan Khan! Meskipun ini belum tentu
+benar, tapi kita harus mengirim orang untuk memastikan apa niat Senggum. Hua Zheng, kau harus meyakinkan kakakmu
+Tolui untuk memimpin prajurit dan mengejar Khan untuk menyelamatkannya." Guo Jing mengerti, dan segera menuruni
+bukit. Ma Yu sambil membawa tali menyusul turun bersama Hua Zheng.
+
+Pemuda itu dengan cepat sampai di _ger_-nya, mengambil kuda merahnya, dan berpacu dengan panik. Saat itu matahari
+mulai naik tinggi. Guo Jing sangat cemas, ia bergumam sendiri, "Takutnya saat ini Khan sudah masuk ke perangkap
+Senggum. Kalau sampai begitu akan mustahil untuk menyelamatkannya."
+
+Kuda merah kecil itu senang sekali bisa berlari tanpa pelana, dan hatinya menari riang. Karena takut kudanya jatuh,
+Guo Jing menarik sedikit tali kekangnya, tetapi kuda itu menolak, dan terus menerjang sambil meringkik riang.
+Lagipula, meskipun berpacu dengan kecepatan tinggi, ia sama sekali tidak tampak kelelahan. Setelah berpacu kira-kira
+dua jam, Guo Jing memperlambat lajunya untuk beristirahat sejenak. Kemudian mereka melanjutkan perjalanan. Satu jam
+kemudian, ia melihat tiga kelompok orang di kejauhan, sepertinya tiga skuadron. Sementara bergerak mendekat, ia
+segera mengenali ciri-ciri pasukan Ong Khan. Panah dan busur mereka terpasang rapi, pedang terhunus, siap untuk
+bertempur.
+
+"Khan ada di depan," keluh Guo Jing. "Tapi jalur mundurnya sudah ditutup!" Ia menjepit perut kuda dengan kakinya,
+dan kuda merah itu segera melaju kencang seperti angin, melewati pasukan Ong Khan. Mereka berteriak-teriak
+untuk menghentikannya, tetapi pemuda itu sudah lenyap di tengah angin.
+
+Guo Jing tidak berani membuang waktu. Ia melihat ada tiga skuadron lagi sedang berbaring menunggu, sebelum ia
+melihat di kejauhan ada panji-panji dengan bulu putih sebagai tanda kehadiran Temujin. Dengan dikawal beberapa
+ratus orang ia berkuda dengan tenang ke arah Utara. Guo Jing memcoba berdiri setinggi mungkin di atas kuda
+sambil berteriak memanggil, "Khan Agung! Harap berhenti, tidak boleh jalan terus!"
+
+Temujin kaget dan berhenti. "Kenapa tidak boleh?" tanyanya.
+
+Guo Jing menceritakan kembali apa yang didengarnya di dalam _ger_ Senggum, dan berusaha menjelaskan bahwa
+jalan mundurnya sudah dipotong. Temujin memandangnya dengan skeptis, tidak pasti apakah harus mempercayai
+keterangannya. "Aku tidak pernah cocok dengan Senggum," pikirnya. "Tapi ayah angkatku sekarang ini membutuhkan
+bantuanku, dan Jamuka adalah saudara angkatku. Bagaimana mungkin mereka bersekongkol untuk melawan aku — kecuali
+Pangeran Keenam dari Jin itu yang mengadu domba."
+
+Temujin ragu-ragu, dan Guo Jing berkata, "Khan Agung, kau hanya perlu mengirim orang kembali ke arah balik,
+maka kau akan lihat sendiri..."
+
+Sejak masa anak-anak, Temujin hidup di tengah tipu muslihat dan pengkhianatan. Ia berhasil ratusan perang berkat
+keberanian dan kecermatannya. Meskipun ia berpikir bahwa sangat mustahil Jamuka dan Ong Khan bersekongkol untuk
+melawannya, tapi ia berkata, "Berhati-hati sepuluh ribu kali bukanlah berlebihan, justru mati sekali karena
+kurang hati-hati adalah berlebihan." Ia kemudian mengutus putra keduanya, Chagatai bersama Tchila'un untuk memeriksa
+ke arah balik.
+
+Temujin mengamati tata letak tanah dan memberi perintah, "Kita menuju ke atas bukit itu dan bersiap-siap." Pengawalnya
+hanya terdiri dari beberapa ratus orang, tetapi semuanya adalah pasukan elit dan pejabat teras militer. Tanpa
+perlu perintah selanjutnya mereka menggali parit, mendirikan barikade, dan bersiap-siap untuk menhadapi sergapan.
+Tak lama kemudian mereka melihat kepulan debu dari arah Selatan, yang ditimbulkan oleh beberapa ratus penunggang
+kuda yang sedang mengejar Chagatai dan Tchila'un. Jebe yang memiliki mata tajam segera mengenali panji-panji
+milik para pengejar itu.
+
+"Mereka prajurit Ong Khan," serunya. Mereka membagi diri menjadi beberapa grup, dan berusaha mengepung Chagatai
+dan Tchila'un. Keduanya merapat ke depan di pelana, dan dengan panik melecut kudanya keras-keras.
+
+"Guo Jing," seru Jebe. "Bantu mereka!"
+
+Keduanya menuruni bukit. Kuda merah kecil itu senang sekali bisa bertemu dengan kawanannya, tiba dengan cepat di
+depan Tchila'un. Guo Jing melepaskan tiga anak panah dengan kecepatan angin, memotong laju tiga pengejar terdekat,
+sebelum menyelipkan diri di antara para pengejar dan yang dikejar sambil terus menembakkan panahnya ke semua penjuru.
+Jebe juga sudah tiba, dan melepaskan panah-panahnya yang cepat dan mematikan. Namun demikian, para prajurit Ong Khan
+jumlahnya terlalu banyak untuk diatasi, mereka melaju kencang seperti gelombang tak tertahankan. Chagatai, Tchila'un,
+Jebe, dan Guo Jing akhirnya mencapai bukit. Rekan-rekan mereka menhujani para pengejar dengan anak panah, sampai
+akhirnya mereka tidak berani mendekat, dan hanya menunggu di luar jarak tembak.
+
+Dari atas bukit Temujin mengamati keadaan sekitarnya. Tak lama kemudian, pasukan Ong Khan bergegas datang 
+dari semua penjuru. Seorang pria di bawah panji kuning menaiki kuda besar ada di tengah mereka. Itu Senggum,
+putra Ong Khan. Temujin tahu bahwa mustahil bagi mereka untuk menerobos kepungan lawan, jalan terbaik saat
+itu adalah mengulur waktu sambil memikirkan jalan keluar. "Kenapa Kakak Senggum kelihatannya takut untuk 
+mendekat dan berunding?" serunya.
+
+Di bawah perlindungan para pengawalnya, yang melindunginya dengan perisai mereka, Senggum mendekat dengan sikap
+penuh keyakinan dan arogan. "Temujin, cepat mundur!"
+
+"Bagaimana caraku menyinggung ayah angkatku, Ong Khan," tanya Temujin, mendesak, "sehingga kau menyerangku
+seperti ini?"
+
+"Dari generasi ke generasi, orang-orang Mongolia hidup terdiri dari berbagai suku yang berbeda-beda," kata Senggum.
+"Di jantung dari suku-suku ini, semua ternak disebarkan dan dibagikan menurut aturan umum yang berlaku. Kenapa kau
+ingin melawan tradisi yang sudah berakar dan mencampur-adukkan semua suku? Ayahku sudah seringkali bilang bahwa
+kau salah kalau berbuat begitu."
+
+"Kita bangsa Mongol," jawab Temujin, "adalah bawahan dari Kekaisaran Jin — yang setiap tahun menuntut agar kita
+membayar upeti berupa puluhan ribu sapi. Apakah itu sebuah keadilan? Kalau hal ini diteruskan, maka kita akan
+mati kelaparan. Kalau kita tidak saling berperang sendiri, kenapa kita harus takut kepada Kekaisaran Jin? Aku
+selalu menjaga hubungan baik dengan ayah angkatku, tidak pernah ada kebencian di antara kedua keluarga besar.
+Ini kesalahan Kekaisaran jin, yang memang ingin memecah-belah keluarga kita!" Para prajurit Senggum yang mendengar
+pidato ini merasa bahwa ucapannya sangat masuk akal.
+
+"Kita bangsa Mongol adalah para pejuang pemberani," lanjut Temujin. "Kenapa kita tidak pergi untuk mengambil
+harta bangsa Jin? Kenapa kita bahkan mau membayar upeti kepada mereka setiap tahun? Di antara orang-orang Mongolia,
+ada yang rajin menggembalakan dan mengembang-biakkan ternak, tetapi ada juga yang malas. Kenapa mereka yang bekerja
+keras itu harus memelihara orang lain yang tidak bekerja? Kenapa mereka yang berkeringat itu tidak punya lebih
+banyak sapi dan anak domba? Kenapa mereka tidak membiarkan saja yang malas itu mati kelaparan saja?"
+
+Pada masa itu orang-orang Mongolia hidup menurut aturan sosialisme kesukuan. Semua harta mereka, sapi, domba,
+adalah milik bersama. Dalam beberapa tahun terakhir, jumlah dan ukuran ternak meningkat. Mereka telah banyak belajar
+dari orang-orang Han untuk membuat peralatan perang dan perabot rumah-tangga. Kebanyakan dari penggembala ternak
+ingin memelihara sebagian ternaknya untuk diri mereka sendiri, yang telah mereka perjuangkan dengan susah payah.
+Sama seperti para prajurit yang pergi berperang, tidak ingin membagi harta rampasan dan tawanan perang mereka
+dengan orang-orang lain yang tidak ikut berperang. Persoalan ini mengena tepat di hati semua prajurit, dan bukan
+hanya prajurit Temujin sendiri.
+
+Melihat bahwa Temujin mulai menanamkan pengaruh kepada orang-orangnya, Senggum berteriak, "Letakkan segera semua
+senjata kalian dan menyerahlah! Kalau tidak, hanya dibutuhkan tanda dari cambukku untuk menghujani kalian dengan
+puluhan ribu anak panah. Kalian tidak akan punya peluang untuk lolos!"
+
+Guo Jing melihat bahwa situasinya berkembang menjadi darurat, tetapi ia tidak tahu harus berbuat apa. Lalu ia
+melihat di kaki bukit, seorang pejabat muda, baju perangnya ditutupi mantel bulu musang kelabu, dengan golok
+panjang di tangan ia berarak kian kemari dengan penuh kebanggaan. Orang itu Dukhsh, putra Senggum, yang
+berkelahi dengannya ketika masih kecil. Dialah anak bengal yang jahat, yang ingin melepaskan macan tutul untuk
+mencelakai Tolui. Guo Jing tidak sungguh-sungguh memahami mengapa semua hal ini terjadi, mengapa Senggum, Ong Khan,
+dan Jamuka, sampai bersekongkol untuk melawan Temujin. "Khan dan Ong Khan selalu hidup rukun," katanya kepada
+diri sendiri. "Ini kemungkinan besar adalah Dukhsh, di bawah perintah Pangeran Keenam dari Jin itu, yang 
+menyebarkan fitnah dan kebohongan busuk! Kalau aku menangkapnya, dan memaksanya untuk mengaku salah, maka semua
+pihak akan bisa berdamai." Memacu kuda merah kecilnya, ia segera menuruni bukit, dan memanfaatkan keterkejutan 
+semua orang, ia menerjang paksa ke arah Dukhsh selagi mereka terkesima.
+
+Menyerang dengan belatinya, Guo Jing setengah berdiri di atas pelana, belatinya dipegang di atas kepala, dan
+tangan kanannya mencekal pembuluh darah utama di pergelangan tangan Dukhsh. Ini adalah gerakan terkenal 'Memutuskan
+Otot dan Memisahkan Tulang', yang disempurnakan oleh Zhu Cong, Dukhsh tidak sanggup menahannya. Dengan sekali
+sentak ia merenggut Dukhsh dari atas pelana kudanya. Ia mendengar suara desingan senjata dari sebelah kirinya,
+sudah hampir mengenainya. Ia menjepit pelan perut kudanya, dan kuda merah kecil itu memahami tuannya. Dengan segera
+ia melesat seperti anak panah terbang menuju ke bukit.
+
+Para prajurit Senggum berseru, "Tembak!" Guo Jing meletakkan Dukhsh di belakang, menggunakannya sebagai perisai,
+dan semua musuh tidak lagi berani menembak.
+
+Ketika tiba kembali di atas bukit, Guo Jing melemparkan Dukhsh ke tanah sambil tertawa. "Khan Agung, orang ini
+pastilah orang yang bertanggung jawab atas semua ini. Biar dia mengaku!"
+
+Temujin dengan sangat gembira mengarahkan tombaknya ke dada Dukhsh, dan berteriak ke arah Senggum, "Perintahkan
+orang-orangmu mundur sejauh dua ratus zhang[^satuan-zhang]!"
+
+Senggum yang cemas melihat putra kesayangannya yang dibekali senjata lengkap jatuh ke tangan musuh, tidak bisa
+berbuat apa-apa kecuali menyuruh pasukannya mundur. Ia memerintahkan orang-orangnya untuk mengepung bukit itu
+dengan barisan kereta yang tersusun rapi, sehingga pasukan Temujin tidak bisa menerobos keluar.
+
+Di atas bukit, Temujin memuji Guo Jing dengan hangat, dan memerintahkannya untuk mengikat tawanan dengan tangan
+di belakang punggung. 
+
+Tiga kali Senggum mengirim orang untuk bernegosiasi, kalau Temujin melepaskan Dukhsh maka nyawanya akan diampuni.
+Setiap kali, Khan memotong telinga kurir itu sebelum mengirimnya kembali kepada tuannya.
+
+Matahari mulai bergerak menuju cakrawala, karena kuatir Senggum memanfaatkan temaramnya senja untuk menyerang, Temujin
+memerintahkan supaya semua orang meningkatkan kewaspadaan.
+
+Menjelang tengah malam, seorang pria berpakaian putih mendekat ke arah puncak bukit. "Aku Jamuka!" serunya. "Aku ingin
+bertemu saudara angkatku Temujin."
+
+"Kau boleh naik," kata Khan.
+
+Jamuka perlahan-lahan naik, dan melihat Temujin sedang berdiri di atas bukit. Ia mendekat dan bersikap seolah-olah
+akan melakukan ritual persaudaraan, tetapi Temujin yang tidak melepaskan kewaspadaannya berkata dengan kasar, "Kau
+masih menganggapku saudara?"
+
+Jamuka menghela napas dan duduk sambil menyilangkan kakinya. "Saudaraku," katanya. "Kau sudah menjadi seorang
+Kepala Suku, kenapa harus punya ambisi untuk menyatukan bangsa Mongol?"
+
+"Apa yang _kau_ percayai?" kata Temujin, balas bertanya.
+
+"Para pemimpin suku semuanya bilang, 'Kita sudah hidup seperti ini selama ratusan tahu, mengapa Temujin ingin
+mengubah tradisi? Surga tidak akan erestuinya!'"
+
+"Kau masih ingat cerita tentang nenek-moyang kita, Bunda Alan Qo'a?" kata Temujin. "Dia punya lima orang anak yang
+selalu bertengkar. Ia lalu meminta semuanya untuk datang dan makan bersamanya. Ia memberikan sebuah anak panah kepada
+mereka masing-masing, dan menyuruh mereka mematahkannya. Ini mereka lakukan dengan sangat mudah. Berikutnya ia 
+mengikat lima batang anak panah menjadi satu, dan menyuruh mereka untuk mematahkan kelima anak panah yang terikat
+itu. Mereka bergiliran mencoba, tetapi tak satu pun berhasil melakukannya. Kau masih ingat apa yang dikatakannya
+kepada mereka saat itu?"
+
+"Kalau kalian tidak bersatu," jawab Jamuka. "kalian akan bisa dikalahkan oleh orang yang tidak penting, sama seperti
+sebatang anak panah itu. Kalau kalian bersatu, maka kalian akan sangat solid seperti kelima anak panah yang terikat itu,
+dan tidak ada yang bisa mengalahkan kalian."
+
+"Jadi," kata Temujin. "Kau masih ingat semua itu. Lalu apa yang terjadi selanjutnya?"
+
+"Kelima orang anak itu menyatukan semua usahanya, dan berhasil menaklukkan wilayah yang sangat luas. Mereka adalah
+cikal-bakal dari suku Mongol kita."
+
+"Tepat sekali! Kita berdua sama-sama pejuang, dan juga pemberani. Mengapa kita tidak menyatukan semua orang
+Mongolia? Kalau kita tidak berperang sendiri, maka kita pasti akan bisa menaklukkan Kekaisaran Jin!"
+
+"Tapi bagaimana caranya?" tanya Jamuka. "Kekaisaran Jin sangat kuat. Jumlah pasukan dan kekayaannya tidak bisa
+diukur. Bagaimana cara kita, bangsa Mongol, mengalahkan mereka?"
+
+"Berarti kau lebih memilih tetap tunduk kepada Jin?"
+
+"Kekaisaran Jin tidak menindas kita," protes Jamuka. "Kaisar bahkan mengangkatmu menjadi Duta Besar Utara."
+
+"Mula-mula," kata Temujin terus-terang. "Aku juga percaya bahwa Kekaisaran Jin berniat baik. Tapi ternyata
+ketamakan Jin tidak ada batasnya, dan setiap tahun mereka selalu menuntut lebih banyak dari kita. Mula-mula
+mereka ingin sapi, berikutnya kuda, dan sekarang mereka bahkan meminta kita mengirim pasukan untuk membantu
+mereka berperang! Negeri Song letaknya sangat jauh dari wilayah kita. Kalau pun Dinasti Song jatuh, semua 
+tanah taklukan akan menjadi milik Kekaisaran Jin sendiri. Sedangkan kita akan kehilangan banyak prajurit,
+untuk memenangkan apa? Sejak kapan sapi-sapi kita berhenti makan rumput hijau dari tanah kita sendiri, dan
+mulai makan pasir negeri tetangga di seberang pegunungan? Kalau kita harus berperang, maka itu hanya akan
+kita lakukan untuk melawan Kekaisaran Jin!"
+
+"Ong Khan dan Senggum tidak ingin mengkhianati Jin!" kata Jamuka.
+
+"Mengkhianati!" ejek Temujin. "Mengkhianati? Dan kau?"
+
+"Aku mohon kepadamu, saudaraku, jangan biarkan amarah menguasai dirimu. Lepaskan Dukhsh secepatnya, maka 
+aku dan Senggum akan menjamin kau bisa pergi dari sini dengan aman."
+
+"Aku tidak punya keyakinan kepada Senggum, dan sekarang aku juga tidak punya keyakinan kepadamu!"
+
+"Coba dengarkan ucapan Senggum. Kalau seorang anak mati, besok masih bisa lahir anak lain, tetapi kalau
+Temujin mati, maka tidak akan ada Temujin lainnya! Kalau kau tidak mau membebaskan Dukhsh, maka kau tidak
+akan melihat matahari terbit lagi!"
+
+Temujin kenal betul karakter Senggum dan Jamuka. Kalau terserah kepada mereka, maka ia takkan pernah punya
+peluang untuk hidup. Kalau Ong Khan hadir di situ, maka ia masih punya peluang. Ia menghunus pedangnya dan
+mengayun-ayunkannya ke sekeliling.
+
+"Aku lebih baik mati dalam perang daripada menyerah," katanya. "Di bawah langit, hanya ada seorang Temujin
+yang tewas di medan tempur secara terhormat, dan bukan Temujin yang melarikan diri."
+
+Jamuka berkata, "Kau memberikan semua rampasan kepada para prajurit, dan bilang bahwa semua itu adalah hak
+mereka dan bukan hak seluruh suku! Semua kepala suku bilang kau salah, kau berlari ke arah kebalikan dari
+tradisi kita!"
+
+"Tapi para pejuang muda sangat senang!" kata Temujin dengan kasar. "Kepala-kepala suku itu berdalih bahwa
+harta rampasan perang tidak bisa dibagikan secara adil kepada semua pejuang, itu supaya _mereka_ yang akhirnya
+menyimpan semuanya, untuk diri mereka sendiri! Perilaku seperti itu sungguh menyinggung para pejuang yang 
+mempertaruhkan nyawa untuk mendukung mereka. Kalau kita sedang berperang, kita lebih membutuhkan para kepala
+suku yang tolol dan serakah ataukah para pejuang muda yang kuat dan berani?"
+
+"Saudaraku," kata Jamuka. "Kau selalu bertindak sendiri dan tidak pernah mendengarkan para pemimpin suku lain.
+Jangan panggil aku tak tahu berterima kasih atau pengkhianat. Beberapa hari sebelum ini, kau terus-terusan 
+mengirim orang untuk meyakinkan para prajuritku untuk bergabung dengan pasukanmu, dan bilang bahwa ketika pulang
+semua sumber daya yang didapat dalam perang akan menjadi milik orang yang berjuang untuk itu. Dan tidak akan
+disebarkan kepada para anggota suku lainnya. Kau kira aku tidak tahu mengenai urusan ini?"
+
+"Kalau kau menyadari hal itu," pikir Temujin, "maka kita memang tidak akan bisa hidup bersama dalam damai lagi."
+Ia kemudian mengambil sebuah kantong kecil dari dalam saku bajunya, dan melemparkannya ke kaki Jamuka. "Itu adalah
+hadiah yang kau berikan ketika kita bersumpah, tiga kali, untuk saling setia sebagai saudara. Ambillah. Di kemudian hari,
+ketika kau memenggal leherku dengan pedangmu, kau hanya akan membunuh seorang musuh, dan bukan saudara. Aku seorang
+pahlawan, dan kau juga. Padang rumput Mongolia sangat luas, tapi sayangnya tidak muat untuk dua orang pahlawan."
+
+Jamuka memungut kantong itu, lalu mengambil sebuah kantong kulit kecil dari dalam saku bajunya sendiri, menjatuhkannya
+di kaki Temujin dalam diam, lalu ia turun dari bukit itu.
 
 
 
@@ -815,5 +1088,7 @@ bagi dia untuk mencapai kemajuan luar biasa dari sisi _neigong_."
 [^huang-yaoshi]: (黃藥師) Nama pemilik Pulau Persik. Nama "Yaoshi" ini sendiri secara literal berarti "Ahli Pengobatan", yang di jaman itu biasanya sekaligus juga ahli dalam alkimia. Dengan demikian bisa disetarakan dengan istilah "The Alchemist". Kalau kita memakai Google Translate, "Yao Shi" malah diterjemahkan menjadi "apoteker", yang berarti juga ahli obat. Karakter kedua "Yao" itu sendiri berarti "obat". Sedangkan "Shi" (師) berdiri sendiri berarti "divisi".
 
 [^julukan-1]: Qingjing Sanren (清靜散人), julukan untuk Sun Bu'er (孫不二), satu-satunya murid wanita Wang Chongyang, yang bermakna 'Orang Bijak Yang Tenang'.
+
+[^satuan-zhang]: Satu zhang kira-kira 3.3 meter, atau 11 kaki.
 
 
