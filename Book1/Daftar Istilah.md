@@ -106,7 +106,7 @@ Dao atau Tao (道) = 'The Way' atau 'Jalan'
 Ciwei Kuijia (刺猬盔甲) = Rompi Landak yang dipakai Huang Rong
 
 Hao Zei Po (好贼婆) = Karakter 'Po' (婆) berdiri sendiri bisa berarti 'Ibu mertua'. Dalam konteks
-Liang Ziwong memaki Mei Chaofeng yang saat itu melindungi Guo Jing, yang dianggapnya pencuri,
+Liang Ziweng memaki Mei Chaofeng yang saat itu melindungi Guo Jing, yang dianggapnya pencuri,
 maka gabungan tiga karakter itu artinya adalah 'Ibu mertua maling'.
 
 Amitoufu (阿眯头佛, salam dalam agama Budha)

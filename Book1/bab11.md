@@ -30,7 +30,7 @@ sekali lagi. Tubuhnya serasa tidak punya kekuatan lagi. Sha Tongtian secara tida
 memukul tiga benjolan di kepalanya.
 
 Semua kejadian ini berlangsung dalam sekejap mata. Sementara semuanya berlangsung, Ouyang Ke
-dan Liang Ziwong menyerang Mei Chaofeng dari depan dan belakang, serempak dengan Sha Tongtian yang
+dan Liang Ziweng menyerang Mei Chaofeng dari depan dan belakang, serempak dengan Sha Tongtian yang
 menyerang dari arah kanan.
 
 Mei Chaofeng bisa menilai dari suara _biao_ di udara di mana posisi mereka. Ia mengirimkan
@@ -93,11 +93,11 @@ melepaskannya kalau pun ia bisa menang bertarung sendirian.
 
 Beberapa jurus kemudian, Lian Ziwong melompat ke udara diiringi pekikan mendadak. Mei Chaofeng
 tahu bahwa seseorang sedang melancarkan serangan mendadak dan merentangkan tangannya untuk menangkis
-dan menyapu untuk mempertahankan diri. Ia merasa rambutnya dijambak ke atas oleh Liang Ziwong.
+dan menyapu untuk mempertahankan diri. Ia merasa rambutnya dijambak ke atas oleh Liang Ziweng.
 Huang Rong melihat situasinya sangat kritis dan menerjang keluar dengan tinjunya mengarah ke punggung
-Liang Ziwong. Liang Ziwong mengaitkan punggung tangan kanannya ke belakang dan mencekal pergelangan
+Liang Ziweng. Liang Ziweng mengaitkan punggung tangan kanannya ke belakang dan mencekal pergelangan
 tangan Huang Rong sambil mempertahankan pegangannya ke rambut Mei Chaofeng. Mei Chaofeng menyerang 
-ke atas dan memaksa Liang Ziwong untuk melepaskan pegangannya untuk menghindari terkena pukulan keras.
+ke atas dan memaksa Liang Ziweng untuk melepaskan pegangannya untuk menghindari terkena pukulan keras.
 
 Peng Lianhu sudah bertarung melawan Mei Chaofeng untuk beberapa saat ketika akhirnya
 ia tersadar bahwa wanita itu sebetulnya salah seorang dari Sepasang Iblis Angin Hitam.
@@ -129,7 +129,7 @@ sudah tersebar luas dan reputasi mereka sedemikian rupa sehingga para pendekar s
 pun akan merasa ngeri kalau harus berhadapan dengan keduanya sekaligus.
 
 Permainan cambuk perak Mei Chaofeng taramat sangat kuat. Kalau orang mendekat dari segala penjuru,
-mereka bisa langsung tewas. Tetapi Sha Tongtian, Peng Lianhu, Liang Ziwong dan Ouyang Ke tidak mau
+mereka bisa langsung tewas. Tetapi Sha Tongtian, Peng Lianhu, Liang Ziweng dan Ouyang Ke tidak mau
 menyerah begitu saja. Tiba-tiba terdengan suara siulan dan Peng Lianhu mulai merangkak di atas
 tanah. Mei Chaofeng siap untuk bertahan melawan langit dan empat penjuru angin, tetapi tidak
 terhadap serang dari bawah. Mendengar suara orang menggali ia menjadi waspada dan mengirimkan
@@ -220,7 +220,7 @@ Ia berpikir, "Aku mencari mereka ke mana-mana dengan sia-sia, sekarang mereka se
 Kalau saja lain kali, maka aku akan sangat berterima kasih kepada Surga, tapi malam ini aku
 dikepung oleh banyak musuh kuat dan mereka semua sangat sulit di atasi. Ditambah dengan Tujuh Orang
 Aneh ini, aku tidak mungkin berharap untuk tetap hidup melewati malam ini." Ia menggeretakkan gigi
-dan memutuskan, "Aku tidak punya dendam kepada Liang Ziwong dan lainnya. Kalau soal Tujuh Orang Aneh, 
+dan memutuskan, "Aku tidak punya dendam kepada Liang Ziweng dan lainnya. Kalau soal Tujuh Orang Aneh, 
 aku akan bertempur sampai mati, dan memastikan kalau aku mati, mereka akan ikut bersamaku. Satu Orang Aneh
 mati berarti musuhku berkurang satu, akan kubawa sebanyak yang aku bisa." Sambil memegang cambuk peraknya,
 ia mendengarkan dengan teliti pergerakan Tujuh Orang Aneh dan bertanya-tanya, "Dari mereka bertujuh, 
@@ -325,7 +325,7 @@ pada dadanya dan berlari cepat ke arah Mei Chaofeng, sambil berteriak, "Hei, cep
 <div class="w3-panel w3-red w-card-4">
     <h3>Catatan</h3>
     <p>
-    Dalam terjemahan bahasa Inggris, saya menemukan penulisan nama Liang Ziwong berubah menjadi
+    Dalam terjemahan bahasa Inggris, saya menemukan penulisan nama Liang Ziweng berubah menjadi
     <strong>Liang Ziweng</strong> dalam bab-bab selanjutnya. Karena nama Liang itu terasa lebih masuk akal
     ditulis sebagai Liang Ziweng, maka sebaiknya kita menggunakan nama ini di sepanjang novel. Setelah selesai
     menerjemahkan keseluruhan novel, kesalahan tersebut baru akan saya perbaiki untuk bab-bab sebelumnya.

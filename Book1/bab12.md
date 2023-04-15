@@ -651,7 +651,7 @@ Penyesalan yang baru dipelajarinya. Liang Ziweng tidak mengenal jurus ini, tetap
 tahu bahwa ia tidak dapat menanganinya. Ia harus berguling ke tanah untuk menghindarinya. Guo Jing mengambil 
 kesempatan untuk melarikan diri lagi.
 
-Saat Liang Ziwong pulih, pemuda itu sudah sampai di depan penginapan. Guo Jing berteriak, "Rong'Er, celaka! Itu 
+Saat Liang Ziweng pulih, pemuda itu sudah sampai di depan penginapan. Guo Jing berteriak, "Rong'Er, celaka! Itu 
 si jahat yang mau minum darahku!"
 
 Huang Rong menjulurkan kepalanya ke luar jendela. "Bagaimana tua bangka itu bisa ada di sini?" ia bertanya pada 
@@ -692,7 +692,7 @@ guru mereka menang, terus bersorak untuk memberikan semangat kepadanya.
 
 Guo Jing bersiap untuk membantu Huang Rong ketika tiba-tiba Hong Qigong terdengar berteriak dari balik jendela, "Pukulan berikutnya disebut 'Anjing Jahat Menghalangi Jalan'!"
 
-Sangat terkejut, Huang Rong mengamati bahwa Liang Ziwong, kaki terbentang dengan kuat dalam 'Sikap Kuda' dan tinjunya direntangkan secara horizontal, memang mengambil sikap 'Si Harimau Jahat Menghalangi Jalan'. Dia tidak bisa menahan diri untuk tidak tertawa di dalam. "Hong mengubah nama pukulan ini, tapi bagaimana dia bisa menebak bahwa itu akan menjadi yang itu?"
+Sangat terkejut, Huang Rong mengamati bahwa Liang Ziweng, kaki terbentang dengan kuat dalam 'Sikap Kuda' dan tinjunya direntangkan secara horizontal, memang mengambil sikap 'Si Harimau Jahat Menghalangi Jalan'. Dia tidak bisa menahan diri untuk tidak tertawa di dalam. "Hong mengubah nama pukulan ini, tapi bagaimana dia bisa menebak bahwa itu akan menjadi yang itu?"
 
 ***
 
