@@ -680,7 +680,7 @@ benar-benar terganggu dan tidak bisa menghadapinya.
 
 Melihatnya di ambang kekalahan, Huang Rong berseru, "Jing Gege, biar yang aku melawannya!" Ia melompat ke depan 
 dan menempatkan diri di antara kedua orang itu, menyerang Liang Ziweng dengan telapak tangan dan tendangannya. 
-Lian Ziweng membalas serangan itu. Guo Jing mundur dua langkah untuk mengawasi mereka. Huang Rong telah mempelajari 
+Liang Ziweng membalas serangan itu. Guo Jing mundur dua langkah untuk mengawasi mereka. Huang Rong telah mempelajari 
 dengan baik teknik Xiao Yao You yang luar biasa itu, tetapi selain fakta bahwa ia sudah mempelajarinya, terlalu dini 
 untuk sungguh-sungguh menguasainya. Liang Ziweng sebenarnya jauh lebih kuat dari dia. Oleh karena itu, tanpa 
 perlindungan yang diberikan oleh rompi kulitnya, ia pasti sudah terkena beberapa pukulan dan pasti sudah lama terluka. 
