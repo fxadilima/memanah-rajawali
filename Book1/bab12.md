@@ -707,7 +707,7 @@ lalu bergerak menjauh untuk menyelamatkan diri. Ia mendarat di atas jari kakinya
 "Siapa orang hebat yang bersembunyi di dalam gubuk?" teriaknya ke arah jendela. "Kenapa tidak menunjukkan diri!"
 Tapi tidak ada suara di balik jendela. Liang Ziweng kebingungan. "Bagaimana dia bisa menebak semua gerakanku?"
 
-Mendapat dukungan dari serang guru hebat, sekarang Huang Rong tidak takut apa-apa. Ia berbalik mengambil inisiatif
+Mendapat dukungan dari seorang guru hebat, sekarang Huang Rong tidak takut apa-apa. Ia berbalik mengambil inisiatif
 dan mulai menyerang. Liang Ziweng menggunakan pukulan maut, sehingga gadis itu terpaksa menahan serangannya.
 "Jangan takut!" teriak Hong Qigong. "Dia akan melakukan 'Monyet Berpantat Busuk Memanjat Pohon'!"
 
