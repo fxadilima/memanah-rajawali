@@ -662,8 +662,8 @@ Huang Rong menjulurkan kepalanya ke luar jendela. "Bagaimana tua bangka itu bisa
 dirinya sendiri. "Tidak apa-apa. Aku akan mencoba _Xiao Yao You_ baru ini." Ia berseru, "Jing ge ge, jangan takut 
 dengan tua bangka itu. Hadapi saja. Aku akan datang untuk membantumu, dan kita akan memberinya pelajaran yang bagus!"
 
-"Rong'er tidak tahu kekuatan monster tua ini," kata Guo Jing pada dirinya sendiri. "itu sebabnya ia berbicara  
-seenaknya." Tapi Liang Ziweng sudah melompatinya. Dalam menghadapi kekerasan serangan itu, pemuda itu tidak punya 
+"Rong'er tidak tahu kekuatan monster tua ini," kata Guo Jing pada dirinya sendiri. "itu sebabnya ia 
+bicara seenaknya." Tapi Liang Ziweng sudah melompatinya. Dalam menghadapi kekerasan serangan itu, pemuda itu tidak punya 
 pilihan lain selain meluncurkan sekali lagi Naga Angkuh Punya Penyesalan. Liang Ziweng berputar dan mengelak beberapa 
 kaki ke samping, tetapi lengannya yang terulur hampir tersentuh oleh kekuatan telapak tangan dan meninggalkan rasa 
 terbakar dan menyakitkan. Dewa Ginseng itu diam-diam ketakutan, kagum bahwa anak ini dalam waktu beberapa bulan 
@@ -731,7 +731,7 @@ mundur.
 Guo Jing bersiap-siap, menunggu serangan Liang Ziweng. Teknik apa pun yang dipakai Liang Ziweng untuk menyerang,
 ia tetap menggunakan jurus Naga Angkuh Punya Penyesalan. Lawannya terkejut dan marah, bertanya-tanya dalam hati,
 "Entah dari mana bocah dungu ini belajar jurus aneh itu, dan mengapa hanya satu jurus?" Tapi meskipun Si Bocah Dungu
-itu hanya punya satu jurus andalam ternyata ia tetap patut diperhitungkan, Liang Ziweng tidak bisa berbuat apa-apa.
+itu hanya punya satu jurus andalan, ternyata ia tetap patut diperhitungkan, Liang Ziweng tidak bisa berbuat apa-apa.
 Karena mencapai kebuntuan, mereka berdua diam di posisi masing-masing.
 
 
