@@ -1,15 +1,9 @@
-# Qiu Chuji Mengaku Kalah
+# Bab 11
+## Qiu Chuji Mengaku Kalah
 
-<div class="w3-container w3-center">
-    <a href="https://youtube.com/clip/UgkxX2ar3dSLZiamMP2G_pldBlXRi4pHN3lQ" target="_blank">
-        <img src="images/huang-rong-mengajar-guo-jing-berenang.jpg" alt="Pelajaran Berenang"/>
-    </a>
-    <div class="w3-container w3-center">
-        <p><em>
-        "Ayo masuk ke air, aku ajari," desak Huang Rong.
-        </em></p>
-    </div>
-</div>
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 11](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692824/sdyxz/originals/loch-11_pmioc0.jpg) | _Pada hari yang ke delapan, Guo Jing berhasil mencapai puncak. Ia mengulurkan tangan dan mengangkat Huang Rong ke atas. Mereka melompat-lompat kegirangan, larut dalam kemenangan. Lalu sambil bergandengan tangan, mereka menuruni air terjun sekali lagi._ |
 
 ***
 

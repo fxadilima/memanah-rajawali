@@ -1,15 +1,11 @@
-# Pertemuan Para Musuh
+# Bab 10
+## Pertemuan Para Musuh
 
-<div class="w3-container w3-center">
-    <a href="https://youtube.com/clip/Ugkx7kJ3OZJ44bTcMesviBzko87HM9IR1vnI" target="_blank">
-        <img src="images/mei-chaofeng-dan-guojing.jpg" alt="Mei Chaofeng Dibantu Guo Jing" width="75%"/>
-    </a>
-    <div class="w3-container w3-center">
-        <p><em>
-        Dengan bantuan Guo Jing, Mei Chaofeng yang terluka mengamuk.
-        </em></p>
-    </div> 
-</div>
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 10](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692788/sdyxz/originals/loch-10_nsxcbk.jpg) | _Mengikuti arahannya, Guo Jing menempatkan Mei Chaofeng di atas bahunya dan buru-buru mengejar lawan yang melarikan diri. Tubuhnya memiliki dasar-dasar kungfu yang kuat, dan tubuh Mei Chaofeng tidak berat, jadi meskipun wanita itu bertengger di atas bahunya, kegesitannya sama sekali tidak berkurang. Ia dengan cepat melompat ke depan dan Mei Chaofeng tegak bersamanya._ |
+
+***
 
 Wanyan Kang sangat terkejut ketika melihat Yang Tiexin keluar dari dalam lemari itu,
 dan kemudian mengenalinya. Ia berteriak, "Ternyata kau!" Ia mengacungkan tombak besi itu
@@ -373,10 +369,9 @@ Ternyata batu bulat itu adalah tengkorak manusia. Tampaknya lubang yang sangat d
 tempat pembuangan mayat-mayat orang yang dieksekusi di istana Pangeran Zhao. Ia mendengar Liang Ziweng
 berteriak memanggilnya dari atas, "Hei bocah, cepat naik sini!"
 
-Guo Jing thought, “I’m not stupid enough to come up only to die!” With that, he raised
-his hand trying to touch the back of the pit, but he felt nothing. He moved forward,
-ready to defend himself against Liang Ziweng, who might follow him and try to kill
-him.
+Guo Jing berpikir, "Aku tidak sebodoh itu, naik hanya untuk mati!" Ia mengangkat tangannya, mencoba
+menyentuh dinding belakang lubang itu, tapi ia tidak merasakan apa-apa. Ia bergerak maju, bersiap
+untuk melawan Liang Ziweng, seandainya orang itu mengikutinya dan berusaha membunuhnya.
 
 Setelah memaki-maki, Liang Ziweng berpikir mungkin Guo Jing tidak bisa kembali ke atas dan
 ia berteriak marah, "Kalaupun kau lari ke neraka, orang tua ini akan tetap mengejarmu!"
@@ -463,7 +458,7 @@ ketika ia mengulurkan tangan kirinya, ia bisa meraih tangan wanita itu. Wanita i
 berteriak marah, "Awas!" Sebuah telapak tangan menghantam punggung Liang Ziweng, yang memaksanya
 mundur beberapa langkah. Untung baginya, tenaga dalamnya cukup bagus, karenanya ia tidak terluka.
 
-Liag Ziwong memaki, "_Hao Zeibo_! Ayo sini." Kata-kata makian itu berarti 'Ibu mertua maling', dan
+Liang Ziweng memaki, "_Hao Zeibo_! Ayo sini." Kata-kata makian itu berarti 'Ibu mertua maling', dan
 yang dimaksud 'maling' di sini adalah Guo Jing. Ketika wanita itu terus terengah-engah dan tetap
 diam tak bergerak, Liang Ziweng menyadari bahwa wanita itu tidak dapat menggerakkan tubuh bagian bawahnya.
 Rasa takutnya segera berkurang dan ia bergerak mendekat perlahan-lahan. Ia baru bermaksud melompat 
@@ -633,13 +628,6 @@ Sepasang Iblis Angin Hitam, Mei Chaofeng. Guo Jing ketakutan setengah mati, ia m
 tangan kirinya untuk meronta, tapi jari-jari Mei Chaofeng tertancap kuat di dagingnya. Ia agak
 bingung, "Mana mungkin? Kenapa dia menyelamatkan aku? Tidak mungkin! Tapi dia sungguh-sungguh
 Mei Chaofeng!"
-
-Mei Chaofeng sat on the ground, her right hand clutching Guo Jing’s neck, her left holding 
-his wrist. For more than ten years, she had been searching for the man who killed
-her husband and now, suddenly, he was here. “Is it the work of my ‘Bastard’ husband
-from below, to have that person die in my hands?” In her heart she was delighted beyond 
-measure; but this was quickly overcome by grief as past events from her life, no
-matter how much she fought it, came to her in brief flashes.
 
 Mei Chaofeng duduk di atas tanah, tangan kanannya mencengkeram leher Guo Jing, tangan kirinya
 mencekal pergelangan tangannya. Lebih dari sepuluh tahun ia mencari-cari orang yang membunuh
@@ -904,14 +892,10 @@ Mei Chaofeng sangat gembira dan berkata, "Marga Guo... Bocah bermarga Guo ini bi
 memgajariku ilmu tenaga dalam dari Quanzhen. Kalau aku, Mei Chaofeng, tidak mengantarkan obat untuk
 Wang Chuyi, maka seluruh tubuhku akan lumpuh dan selamanya akan menderita."
 
-When Guo Jing heard the voice, he recognized it as the Three-Headed Dragon Hou
-Tonghai. Another one said, “Surely, the small girl is nearby. I’m relieved. She can’t run
-away.” The same time that the two people were talking, they were also walking away.
-
 Segera setelah ia mengatakan semua itu, di seelah kiri mereka, kurang lebih sepuluh zhang di depan
 istana, seseorang memaki, "_Chou Xiao Zi_, cepat keluar dan serahkan nyawamu!"
 
-Keika Guo Jing mendengar suara itu, ia segera mengenalinya sebagai suara Naga Berkepala Tiga, 
+Ketika Guo Jing mendengar suara itu, ia segera mengenalinya sebagai suara Naga Berkepala Tiga, 
 Hou Tonghai. Orang lainnya berkata, "Sudah pasti anak itu di dekat sini. Aku lega. Dia tidak bisa
 melarikan diri." Sambil bicara, kedua orang itu melangkah pergi.
 
@@ -1146,17 +1130,7 @@ Guo Jing berkata, "Pusat dua telapak tangan, pusat dua telapak kaki, dan bagian 
 – itu semua adalah 'lima hati'." Mei Chaofeng girang dan semangatnya bangkit. Ia meraih bahu Liang Ziweng,
 yang jantungnya serasa melompat karena terkejut, dan melarikan diri.
 
-Guo Jing was about to chase after him when suddenly the Dragon King Sha Tongtian
-ran in front of him to help his apprentice brother capture Huang Rong. Startled, he
-hastily carried Mei Chaofeng towards them, shouting, “First, let’s take care of these
-two!”  Mei Chaofeng stretched out her left arm, heading towards Hou Tonghai. Hou
-Tonghai anxiously withdrew, trying to dodge. Who would think that Mei Chaofeng’s
-arm would be so violent as though it had the strength of an ape? Although Hou
-Tonghai’s dodging was quick, her arm was still able to follow his body. Grabbing him,
-the fingers of her right hand were already digging into him. Hou Tonghai’s entire body
-went numb. He could no longer move.
-
-Guo Jing hendak mengejarnya ketika tiba-tiba Si Raja Naga Sha Tongtian berlari di depannya untuk
+Guo Jing baru hendak mengejarnya ketika tiba-tiba Si Raja Naga Sha Tongtian berlari di depannya untuk
 membantu adik seperguruannya menangkap Huang Rong. Karena terkejut ia buru-buru membawa Mei Chaofeng 
 ke arah itu, sambil berteriak, "Pertama-tama, kita bereskan dua orang ini dulu!" Mei Chaofeng 
 mengulurkan tangannya, mengincar Hou Tonghai. Hou Tonghai mundur dengan cemas, berusaha mengelak. 

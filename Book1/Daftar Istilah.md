@@ -59,6 +59,8 @@ Sun Bu'er (孫不二; Sūn Bù'èr) is also known as Qingjing Sanren (清靜散�
 
 Shi Xiong (师兄) = Kakak seperguruan (laki-laki).
 
+Sha Zi (傻子) = Anak Bodoh.
+
 
 ## Istilah Lain
 
@@ -171,6 +173,7 @@ Ji Ran Ru Ci (既然如此) = 'Kalau begitu,...'
 Xiong (兄) = panggilan umum untuk saudara laki-laki, atau orang lain yang dianggap saudara.
 
 The "Twin Killers in the Dark Wind" (黑風雙煞) 
+
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 

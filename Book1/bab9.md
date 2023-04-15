@@ -1,4 +1,11 @@
-# Tombak Berkarat dan Bajak Rusak
+# Bab 9
+## Tombak Berkarat dan Bajak Rusak
+
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 9](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692753/sdyxz/originals/loch-09_fpvxuk.jpg) | _Yang Tiexin menurunkan tombak berkarat yang tergantung di dinding. Ia mengetuk gagang tombak itu dengan lembut sambil menghela nafas, "Tombak besi ini sudah berkarat. Ini sudah lama tidak dipakai." Wang Fei berkata dengan lembut, "Tolong jangan sentuh tombak itu. Tombak itu barang paling berharga yang aku miliki." "Betulkah?" tanya Yang Tiexin. "Tombak ini dulunya punya pasangan, tapi sekarang ia tinggal sendirian."_ |
+
+***
 
 Guo Jing dan Huang Rong kembali ke kediaman Pangeran Zhao dan melompati tembok tinggi untuk memasuki
 halaman. Huang Rong berbisik ke telinga Guo Jing, "Qing Gong-mu bagus sekali!" Guo Jing mengendap-endap

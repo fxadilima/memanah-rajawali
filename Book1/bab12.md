@@ -1,7 +1,11 @@
 # Bab 12
 ## Kebanggaan Sang Naga
 
-[![Ilustrasi Bab 12](images/originals/ch12.jpg)](#ilustrasi-bab12)
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 12](https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch12_shdy3n.jpg) | _Tiba-tiba Wanyan Kang mengerti. "Dia sedang mengatakan bahwa kami berdua sama sekali tidak ada hubungan darah!" Ia menggenggam tangan kanan gadis itu dan tersenyum. Muka Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan genggamannya, membiarkan pemuda itu menggenggam tangannya. Kepalanya tertunduk lebih dalam._ |
+
+***
 
 Huang Rong siap untuk memotong ayam itu ketika mereka mendengar suara dari arah belakang,
 "Porsi ketiga. Aku mau pantatnya!"
@@ -666,9 +670,7 @@ terbakar dan menyakitkan. Dewa Ginseng itu diam-diam ketakutan, kagum bahwa anak
 telah berkembang pesat. "Ini pasti," pikirnya, "karena darah ular yang mahal itu." Pikiran ini menguasainya, dan 
 ia melompat lagi untuk menyerang. Guo Jing membela diri lagi dengan pukulan yang sama. Sadar bahwa ia tidak mampu 
 melawan, Liang Ziweng mundur. Memperhatikan bahwa anak muda itu tampaknya tidak punya pukulan menakutkan lainnya 
-untuk mengunggulinya, ketakutan Liang berkurang. "[Shazi]," teriaknya. "Kau _cuma_ bisa satu pukulan itu ya?"
-
-[Shazi]: #shazi "Anak bodoh"
+untuk mengunggulinya, ketakutan Liang berkurang. "[Shazi](#shazi "Anak bodoh")," teriaknya. "Kau _cuma_ bisa satu pukulan itu ya?"
 
 Guo Jing masuk tepat ke dalam perangkapnya, "Bahkan dengan satu pukulan ini," jawabnya. "Kau tetap tidak akan bisa 
 menghindarinya!" Ia maju, dan meluncurkan sekali lagi Kang Long You Hui. Liang Ziweng mengelak dan melompat ke 
@@ -676,7 +678,7 @@ belakang Guo Jing untuk menyerangnya. Ia berbalik dan berusaha menyerang lagi de
 lawannya sekali lagi menyelinap di belakangnya. Pemuda itu, yang hanya tahu bagaimana melakukan serangan frontal, 
 benar-benar terganggu dan tidak bisa menghadapinya.
 
-Melihatnya di ambang kekalahan, Huang Rong berseru, "Jing ge ge, biar yang aku melawannya!" Ia melompat ke depan 
+Melihatnya di ambang kekalahan, Huang Rong berseru, "Jing Gege, biar yang aku melawannya!" Ia melompat ke depan 
 dan menempatkan diri di antara kedua orang itu, menyerang Liang Ziweng dengan telapak tangan dan tendangannya. 
 Lian Ziweng membalas serangan itu. Guo Jing mundur dua langkah untuk mengawasi mereka. Huang Rong telah mempelajari 
 dengan baik teknik Xiao Yao You yang luar biasa itu, tetapi selain fakta bahwa ia sudah mempelajarinya, terlalu dini 
@@ -686,91 +688,92 @@ Bahkan sebelum mengerahkan tiga puluh enam gerakan penuh dari Xiao Yao You, ia s
 Liang Ziweng, sambil mendukung kakak seperguruan mereka yang terluka, mengamati pertarungan tersebut dan melihat 
 guru mereka menang, terus bersorak untuk memberikan semangat kepadanya.
 
+Guo Jing bersiap untuk membantu Huang Rong ketika tiba-tiba terdengar suara Hong Qigong berteriak dari balik 
+jendela, "Pukulan berikutnya disebut 'Anjing Jahat Menghalangi Jalan'!"
+
+Sangat terkejut, Huang Rong mengamati bahwa Liang Ziweng, kaki terbentang dengan kuat dalam 'Sikap Kuda' dan 
+tinjunya direntangkan secara horizontal, memang mengambil sikap 'Si Harimau Jahat Menghalangi Jalan'. Dia tidak 
+bisa menahan diri untuk tidak tertawa di dalam hati. "Hong Qigong mengubah nama pukulan ini, tapi bagaimana 
+dia bisa menebak bahwa itu akan terjadi?"
+
+Lalu ia mendengar pengemis tua itu berteriak lagi, "Dan pukulan berikutnya adalah 'Ular Bau Menghirup Air'!"
+
+Ia menyadari bahwa maksudnya adalah 'Naga Hijau Menghirup Air', yang mana orang merentangkan tinjunya ke depan,
+berarti membuka kelemahan di belakang. Tidak lama setelah ketua pengemis itu selesai bicara, ia sudah menyelinap
+ke belakang Liang Ziweng. Si Dewa Ginseng memang secara efektif menggunakan 'Naga Hijau Menghirup Air', tetapi 
+si gadis yang sebelumnya sudah diperingatkan, mengambil keuntungan dengan menyerang dari belakang. Ia lolos
+dari bahaya hanya karena penguasaan teknisnya yang luar biasa, dan bisa mengganti gerakannya di tengah jalan,
+lalu bergerak menjauh untuk menyelamatkan diri. Ia mendarat di atas jari kakinya, marah dan sekaligus terkejut.
+"Siapa orang hebat yang bersembunyi di dalam gubuk?" teriaknya ke arah jendela. "Kenapa tidak menunjukkan diri!"
+Tapi tidak ada suara di balik jendela. Liang Ziweng kebingungan. "Bagaimana dia bisa menebak semua gerakanku?"
+
+Mendapat dukungan dari serang guru hebat, sekarang Huang Rong tidak takut apa-apa. Ia berbalik mengambil inisiatif
+dan mulai menyerang. Liang Ziweng menggunakan pukulan maut, sehingga gadis itu terpaksa menahan serangannya.
+"Jangan takut!" teriak Hong Qigong. "Dia akan melakukan 'Monyet Berpantat Busuk Memanjat Pohon'!"
+
+Huang Rong tertawa terbahak-bahak, ia mengangkat tinjunya dan menyerang ke bawah. Liang Ziweng menggunakan jurus
+'Gorila Fenomenal Memanjat Pohon', yang setelah melompat tinggi, akan diteruskan dengan menyerang ke bawah. 
+Tetapi Huang Rong sudah mendahuluinya, kalau ia meneruskan lompatannya, maka ia hanya akan menyodorkan 
+kepalanya dengan cuma-cuma. Sekali lagi ia terpaksa harus mengubah tekniknya secara mendadak. Dalam sebuah
+pertarungan, kalau lawan berhasil membaca gerakan kita, kekalahan kita hanya menunggu waktu. Untung bagi
+Dewa Ginseng, ia jauh lebih kuat dari Huang Rong, karena itu ia masih bisa meloloskan diri dari situasi buruk
+pada detik terakhir.
+
+Ia tiba-tiba melompat ke belakang dan berteriak kepada Guo Jing, "Kalau kau tetap ngotot tidak mau bertarung
+sendiri, aku akan bertindak kasar kepada gadis ini!" Ia mengubah taktik dan menghujani pukulan seperti badai,
+sedemikian rupa sehingga gadis itu tidak punya waktu untuk menyesuaikan diri, dan Hong Qigong juga tidak sempat
+meramalkan langkah-langkahnya. Ketika melihat orang yang dicintainya dalam bahaya, dan hanya bisa mengelak 
+ke kiri-kanan, Guo Jing sekali lagi mengirimkan jurus 'Naga Angkuh Punya Penyesalan'. Liang Ziweng melompat
+mundur.
+
+"Jing Gege," kata Huang Rong. "Beri dia tiga pukulan!" Ia berbalik dan kembali ke penginapan.
+
+Guo Jing bersiap-siap, menunggu serangan Liang Ziweng. Teknik apa pun yang dipakai Liang Ziweng untuk menyerang,
+ia tetap menggunakan jurus Naga Angkuh Punya Penyesalan. Lawannya terkejut dan marah, bertanya-tanya dalam hati,
+"Entah dari mana bocah dungu ini belajar jurus aneh itu, dan mengapa hanya satu jurus?" Tapi meskipun Si Bocah Dungu
+itu hanya punya satu jurus andalam ternyata ia tetap patut diperhitungkan, Liang Ziweng tidak bisa berbuat apa-apa.
+Karena mencapai kebuntuan, mereka berdua diam di posisi masing-masing.
+
+
+
 ***
 
-**Last**.
-
-Guo Jing bersiap untuk membantu Huang Rong ketika tiba-tiba Hong Qigong terdengar berteriak dari balik jendela, "Pukulan berikutnya disebut 'Anjing Jahat Menghalangi Jalan'!"
-
-Sangat terkejut, Huang Rong mengamati bahwa Liang Ziweng, kaki terbentang dengan kuat dalam 'Sikap Kuda' dan tinjunya direntangkan secara horizontal, memang mengambil sikap 'Si Harimau Jahat Menghalangi Jalan'. Dia tidak bisa menahan diri untuk tidak tertawa di dalam. "Hong mengubah nama pukulan ini, tapi bagaimana dia bisa menebak bahwa itu akan menjadi yang itu?"
-
-***
-
-<div class="w3-panel w3-card-4 w3-border-green w3-leftbar">
-  <h3>Daftar Istilah</h3>
-  <dl>
-    <dt id="meihua">Mei Hua</dt>
-    <dd>
-        Bunga <em>prem</em>, atau Mei Hua (梅花) berasal dari sebelah selatan Sungai Yangtze. Kalau sudah matang,
-        daging buahnya akan berwarna kuning, kulit buahnya yang hijau juga akan semakin menguning seiring dengan tingkat kematangannya. Terkadang ada yang bersemu merah. Tanaman ini memang dibudidayakan untuk diambil bunga dan buahnya. Di jaman modern ini kita biasa menikmatinya sebagai <em>manisan</em>, yang umumnya disertakan dalam sebuah <em>parcel</em> untuk menyambut Tahun Baru Imlek.
-    </dd>
-    <dt id="shijing">Shi Jing</dt>
-    <dd>Shi Jing (诗經) adalah buku yang berisi kumpulan sajak, syair atau puisi, yang adalah bagian dari Si Shu Wu Jing 
-    (四書五經, Empat Kitab dan Lima Pelajaran Klasik — Four Books and Five Classics. Ini semua adalah mata pelajaran 
-    <em>wajib</em> bagi semua pelajar di jaman itu. Empat Pelajaran Klasik lainnya adalah:
-      <ol>
-        <li>Yi Jing (易經, Kitab Perubahan), yang juga sering ditulis I Ching menurut sistem <em>romanisasi</em> lain. Ini sering disebutkan dalam semua cerita silat.</li>
-        <li>Shu Jing (書經, <em>Books of Documents</em> atau Kitab Sejarah)</li>
-        <li>Li Ji (禮記, Kitab Ritual)</li>
-        <li>Chun Qiu (春秋, Kitab Sejarah Musim Semi dan Musim Gugur). Ini menceritakan tentang Dinasti Zhou yang mulai
-        terpecah dalam era di mana Konfusius hidup dan berkarya.</li>
-      </ol>
-    Dan Empat 'Buku' yang dimaksud adalah:
+<dl>
+  <dt id="meihua">Mei Hua</dt>
+  <dd>
+      Bunga <em>prem</em>, atau Mei Hua (梅花) berasal dari sebelah selatan Sungai Yangtze. Kalau sudah matang,
+      daging buahnya akan berwarna kuning, kulit buahnya yang hijau juga akan semakin menguning seiring dengan tingkat kematangannya. Terkadang ada yang bersemu merah. Tanaman ini memang dibudidayakan untuk diambil bunga dan buahnya. Di jaman modern ini kita biasa menikmatinya sebagai <em>manisan</em>, yang umumnya disertakan dalam sebuah <em>parcel</em> untuk menyambut Tahun Baru Imlek.
+  </dd>
+  <dt id="shijing">Shi Jing</dt>
+  <dd>Shi Jing (诗經) adalah buku yang berisi kumpulan sajak, syair atau puisi, yang adalah bagian dari Si Shu Wu Jing 
+  (四書五經, Empat Kitab dan Lima Pelajaran Klasik — Four Books and Five Classics). Ini semua adalah mata pelajaran 
+  <em>wajib</em> bagi semua pelajar di jaman itu. Empat Pelajaran Klasik lainnya adalah:
     <ol>
-      <li>Da Xue (Tradisional: 大學, Disederhanakan: 大学, secara literal bermakna 'Pelajaran Besar' atau *Great Learning*).
-      Pelajaran ini diambil dari sebuah bagian dalam Li Ji (Kitab Ritual), yang adalah salah satu dari Lima Pelajaran Klasik.</li>
-      <li>Zhong Yong (中庸, Doctrine of Mean, atau Pengajaran Tentang Makna). Pelajaran ini adalah <em>pusat dari doktrin Konfusianisme</em>, atau Ajaran Konfusius.</li>
-      <li>Lun Yu (论语, Analects of Confusius atau disingkat Analects, atau Pemikiran Konfusius). Pelajaran ini berisi
-      kutipan kata-kata yang pernah diucapkan oleh Konfusius semasa hidupnya.</li>
-      <li>Meng Zi (孟子, atau Mencius), berisi pokok-pokok ajaran Mensius, yang sudah dianggap sebagai penerus ajaran Konfusius, dan bahkan mengembangkannya ke arah yang berbeda. Sangat berbeda dengan Lun Yu yang cukup singkat dan padat, ajaran Mensius dipenuhi dialog dan prosa yang panjang.</li>
+      <li>Yi Jing (易經, Kitab Perubahan), yang juga sering ditulis I Ching menurut sistem <em>romanisasi</em> lain. Ini sering disebutkan dalam semua cerita silat.</li>
+      <li>Shu Jing (書經, <em>Books of Documents</em> atau Kitab Sejarah)</li>
+      <li>Li Ji (禮記, Kitab Ritual)</li>
+      <li>Chun Qiu (春秋, Kitab Sejarah Musim Semi dan Musim Gugur). Ini menceritakan tentang Dinasti Zhou yang mulai
+      terpecah dalam era di mana Konfusius hidup dan berkarya.</li>
     </ol>
-    </dd>
+  Dan Empat 'Buku' yang dimaksud adalah:
+  <ol>
+    <li>Da Xue (Tradisional: 大學, Disederhanakan: 大学, secara literal bermakna 'Pelajaran Besar' atau *Great Learning*).
+    Pelajaran ini diambil dari sebuah bagian dalam Li Ji (Kitab Ritual), yang adalah salah satu dari Lima Pelajaran Klasik.</li>
+    <li>Zhong Yong (中庸, Doctrine of Mean, atau Pengajaran Tentang Makna). Pelajaran ini adalah <em>pusat dari doktrin Konfusianisme</em>, atau Ajaran Konfusius.</li>
+    <li>Lun Yu (论语, Analects of Confusius atau disingkat Analects, atau Pemikiran Konfusius). Pelajaran ini berisi
+    kutipan kata-kata yang pernah diucapkan oleh Konfusius semasa hidupnya.</li>
+    <li>Meng Zi (孟子, atau Mencius), berisi pokok-pokok ajaran Mensius, yang sudah dianggap sebagai penerus ajaran Konfusius, dan bahkan mengembangkannya ke arah yang berbeda. Sangat berbeda dengan Lun Yu yang cukup singkat dan padat, ajaran Mensius dipenuhi dialog dan prosa yang panjang.</li>
+  </ol>
+  </dd>
   <dt id="niubi">Niu Bi</dt>
-    <dd>Niu Bi (牛鼻), makna literalnya adalah 'Hidung Kerbau'. Sebenarnya ini adalah salah satu kata-kata kasar yang
-    dipakai untuk memaki seseorang — kira-kira setara dengan 'brengsek', 'kurang ajar', 'bajingan', dsb.
-    </dd>
-  </dl>
-</div>
+  <dd>Niu Bi (牛鼻), makna literalnya adalah 'Hidung Kerbau'. Sebenarnya ini adalah salah satu kata-kata kasar yang
+  dipakai untuk memaki seseorang — kira-kira setara dengan 'brengsek', 'kurang ajar', 'bajingan', dsb.
+  </dd>
+  <dt id="shazi"><strong>Sha Zi (傻子)</strong></dt>
+  <dd>Secara literal berarti "Anak bodoh". Atau bahkan lebih singkat, "Bodoh!"</dd>
+</dl>
 
 ***
-
-<div class="w3-row-padding">
-  <div class="w3-col s12 l6 m6" id="pelajaran-pertama">
-    <a href="https://youtube.com/clip/Ugkxfwd1ThoQHmfmGTvFUXGNljqu4Ui7sP7t" target="_blank">
-      <img src="images/jurus-pertama.jpg" alt="Jurus Pertama" width="100%">
-    </a>
-  </div>
-  <div class="w3-col s12 l6 m6">
-    <div class="w3-container">
-      <p><em>
-      "Meskipun pikiranmu sangat sederhana," kata Hong Qigong sambil tertawa. "Kau punya hati yang baik, dan kau
-      bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut Naga Angkuh Punya Penyesalan."
-      </em></p>
-    </div>
-  </div>
-</div>
-
-***
-
-<div class="w3-row-padding">
-  <div class="w3-col s12 l6 m6" id="ilustrasi-bab12">
-    <a href="https://youtube.com/clip/UgkxvqDPs1b2mwtdUaFhT_tJANPCkyE6Ds8x" target="_blank">
-      <img src="images/yang-kang-mu-nianci2.jpg" alt="Yang Kang dan Mu Nianci" width="100%">
-    </a>
-  </div>
-  <div class="w3-col s12 l6 m6">
-    <p><em>
-      Wajah Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan tangannya,
-      membiarkan Wanyan Kang memegang tangannya. Kepalanya makin tertunduk
-    </em></p>
-  </div>
-</div>
-
-<p>
-  <a href="https://youtube.com/clip/UgkxOdvTKvPbGCzbi2fD0hOUW4JNa7r6yiCL" target="_blank">
-    Ilustrasi video dari versi 2003</a> ini agak lebih akurat, meskipun dari sisi gambar tentu saja 
-    kalah dibandingkan versi 2017 di atas.
-</p>
 
 
 [^qigong]: Karakter Qī (七) artinya adalah 'tujuh', sedangkan Gong (公) bermakna 'pria'. Nama Hong Qigong itu sendiri artinya secara literal adalah 'Anak ketujuh dari keluarga Hong, yang adalah seorang laki-laki'. Perhatikan bahwa ini tidak sama dengan 'Anak laki-laki ketujuh keluarga Hong'.
@@ -787,6 +790,9 @@ Sangat terkejut, Huang Rong mengamati bahwa Liang Ziweng, kaki terbentang dengan
 
 [^babao]: **Delapan Harta Karun** (八宝, atau Ba Bao), adalah delapan simbol yang seringkali dilukiskan dalam karya-karya seni Tiongkok kuno, termasuk dalam uang logam. Penjelasannya bisa dibaca pada [daftar berikut](#delapan-harta-karun "Daftar Delapan Harta Karun").
 
+[^xiao-yao-you]: **Xiao Yao You** (逍遥游). Karakter pertama dan kedua jika digabungkan akan bermakna _carefree_, atau 'bebas'. Tetapi bisa juga diartikan 'riang'. Sedangkan karakter ketiga 'You' (游) punya makna literal '_traveling_', atau bisa kita terjemahkan secara bebas menjadi berjalan-jalan. Istilah ini kurang lebih bermakna 'Berjalan-jalan Dengan Bebas dan Riang Gembira'. Karena terlalu panjang dan dari segi estetika tidak enak dibaca maupun diucapkan, maka saya membiarkannya seperti itu. (Terjemahan bahasa Inggris dari fans menerjemahkannya menjadi 'Wandering Strides', yang saya kira agak kurang sesuai).
+
+
 ##### Delapan Harta Karun
 1. Bao Zhu (宝珠), mutiara yang menyala. Melambangkan terkabulnya sebuah harapan.
 2. Fang Sheng (方胜), melambangkan kebahagiaan perkawinan dan menangkal pengaruh jahat. Simbol ini biasanya terlihat 
@@ -798,6 +804,4 @@ maka menjadi (囍). Istilah bahasa Inggris lainnya yang sering dipakai adalah 'D
 6. Batangan emas atau perak, Ding (锭).
 7. Shanhu (珊瑚), atau batu karang (Coral).
 8. Ruyi (如意), semacam tongkat kerajaan yang melambangkan harapan.
-
-[^xiao-yao-you]: **Xiao Yao You** (逍遥游). Karakter pertama dan kedua jika digabungkan akan bermakna _carefree_, atau 'bebas'. Tetapi bisa juga diartikan 'riang'. Sedangkan karakter ketiga 'You' (游) punya makna literal '_traveling_', atau bisa kita terjemahkan secara bebas menjadi berjalan-jalan. Istilah ini kurang lebih bermakna 'Berjalan-jalan Dengan Bebas dan Riang Gembira'. Karena terlalu panjang dan dari segi estetika tidak enak dibaca maupun diucapkan, maka saya membiarkannya seperti itu. (Terjemahan bahasa Inggris dari fans menerjemahkannya menjadi 'Wandering Strides', yang saya kira agak kurang sesuai).
 

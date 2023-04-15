@@ -1,6 +1,11 @@
-# Memamerkan Ilmu Silat
+# Bab 8
+## Memamerkan Ilmu Silat
 
-[![Guo Jing terpesona melihat Huang Rong "Guo Jing terpesona ketika melihat Huang Rong"](images/huang-rong.jpg)](https://youtube.com/clip/Ugkxibxs0eU0Y92XRPr-RPe2FX3Rrq_F6R7H)
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 8](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692724/sdyxz/originals/loch-08_yhusym.jpg) | _Tiba-tiba terdengar suara tawa lembut dan Guo Jing berpaling, dan mendengar suara cipratan air dan sehelai daun melayang turun dari sebuah pohon. Lalu ia melihat seorang anak perempuan di bagian belakang sebuah perahu, sedang mendayung dengan santai. Rambutnya panjang melewati bahu, ia mengenakan setelan putih dari ujung kepala sampai ujung kaki, dan di rambutnya terselip sebuah jepit berwarna keemasan yang berkilau seperti api._ |
+
+***
 
 Wang Chuyi berlari luar biasa cepat. Dalam waktu singkat mereka sudah tiba di luar kota. Dalam 
 beberapa li, mereka sudah sampai di bawah kaki bukit. Karena penasaran ingin menguji kemampuan
