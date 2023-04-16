@@ -326,8 +326,9 @@ Perguruan Quanzhen, Wang Chongyang. Tapi sejak kematiannya, sangat sulit untuk m
 di dunia persilatan!"
 
 "Perguruan Quanzhen?" kata Huang Rong. "Di situ ada pendeta yang benama Qiu, lainnya bernama Wang,
-lalu yang lain lagi Ma. Mereka semuanya Pendeta Tao hidung kerbau[^niubi]. Kurasa kungfu mereka
-agak payah! Kalau mereka bertarung, kalau bukan keracunan ya pasti cedera dalam dua atau tiga jurus."
+lalu yang lain lagi Ma. Mereka semuanya Pendeta Tao [hidung kerbau][#niubi "Niu Bi, istilah untuk mengejek orang"]. 
+Kurasa kungfu mereka agak payah! Kalau mereka bertarung, kalau bukan keracunan ya pasti cedera 
+dalam dua atau tiga jurus."
 
 "Oh ya? Mereka tak diragukan lagi adalah murid-murid Wang Chongyang. Kelihatannya di antara semua muridnya,
 Qiu Chuji adalah yang paling kuat... Tapi, sudah pasti mereka tidak akan bisa menandingi paman guru mereka,
@@ -512,8 +513,8 @@ segera menariknya, begitu bagus sehingga pohon itu tidak bergerak sama sekali. D
 cara yang sama, sambil mengumpulkan tenaga di ujung telapak tangannya. Ia mendengar suara 'kreekk!', dan pohon
 pinus kecil itu patah.
 
-"Bagus!" jerit Huang Rong yng melihat dari kejauhan. Ia pelan-pelan mendekat sambil membawa keranjang belanjaan yang
-berat.
+"Bagus!" jerit Huang Rong yang melihat dari kejauhan. Ia pelan-pelan mendekat sambil membawa keranjang 
+yang berat.
 
 Bahkan sebelum membuka mata, Hong Qigong sudah mencium aroma lezat dari makanan yang dibawanya. "Baunya enak! 
 Baunya sangat enak!” teriaknya, melompat berdiri. Ia merebut keranjang dari tangan gadis itu dan membuka tutupnya. 
@@ -1191,11 +1192,11 @@ Ouyang Ke membuka kipasnya dengan mendadak, dan menatap Huang Rong dari sebelah 
 mengutip sebuah puisi, "Tidak ada seorang pun di dalam hatiku yang jauh, namun hari ini ia telah bertemu dengan
 Sang Puteri."
 
-Huang Rong mengejeknya dengan ekspresi mukanya. "Aku tidak butuh pujianmu, sama seper aku juga tidak butuh kau rindukan."
+Huang Rong mengejeknya dengan ekspresi mukanya. "Aku tidak butuh pujianmu, sama seperti aku juga tidak butuh kau rindukan."
 katanya.
 
-Ouyang Ke tidak bisa bicara, ia terpesona oleh kecantikan seperti seorang Dewi yang dimiliki Huang Rong, dan juga
-ekspresi mukanya yang menyenangkan.
+Ouyang Ke tidak bisa bicara, ia terpesona oleh kecantikan seorang dewi yang dimiliki Huang Rong, dan juga ekspresi 
+mukanya yang menyenangkan.
 
 "Pamanmu memerintah wilayah Barat dengan tangan besi, karena itu tak ada orang yang mendisiplinkanmu," kata
 Hong Qigong. "Jadi kau datang ke wilayah pusat dengan anggapan bahwa kau bisa berbuat sesukamu. Yah, hari ini,
@@ -1224,6 +1225,260 @@ lendir yang berkilau di atas tanah.
 
 Hong Qigong tidak menjawab. Ia meneguk arak dari kantongnya, lalu menghapus keringat dari alisnya dengan lengan
 jubahnya sambil menghela napas lega. "Berbahaya sekali," katanya. "Sungguh berbahaya."
+
+"Kenapa?" tanya Guo Jing dan Huang Rong.
+
+"Ular-ular berbisa itu hanya sementara terhalang karena usahaku," kata Hong Qigong. "Mereka akan segera bisa menyeberang
+ke sini. Jumlahnya begitu banyak, akan seperti banjir besar. Bagaimana cara kita bisa membendungnya. Untungnya 
+orang-orang itu kurang pengalaman, jadi mereka tidak menyadari tipuanku karena aku menggertak mereka sedemikian rupa.
+Kalau Si Racun Tua yang datang, kalian bocah-bocah ini bisa dalam kesulitan besar."
+
+"Orang tua ini tidak takut," kata Hong Qigong sambil tertawa. 'Kalian yang melarikan diri. Tapi kalau Si Racun Tua
+mengirimkan pukulannya, bagaimana kalian bisa melarikan diri?"
+
+"Masa paman orang itu segitu hebatnya?" kata Huang Rong tidak percaya.
+
+Hong Qigong tertawa. "Hebat? Si Sesat Timur, Racun Barat, Pengemis Utara, Kaisara Selatan, dan Dewa Pusat. Ayahmu
+adalah Si Sesat Timur, Ouyang Feng adalah Si Racun Barat. 
+Wang [Zhenren](#zhenren "Panggilan kehormatan untuk seorang Pendeta Tao"), Wang Chongyang, Si Dewa Pusat, 
+sudah meninggal. Sisanya, kami berempat, yang sempat bertarung delapan babak dan tetap seimbang.
+Apa ayahmu tidak hebat?" tambahnya. "Apa kemampuanku sendiri bisa diabaikan?"
+
+Huang Rong sebelumnya sempat bertanya-tanya sendiri mengenai hal ini, tetapi ia tidak pernah betul-betul memahaminya.
+"Ayahku orang baik, mengapa orang menyebutnya 'Sesat' dan 'Jahat', aku tidak suka nama julukannya!" ia bertanya.
+
+"Secara pribadi, ayahmu barangkali sangat menyukai nama julukannya," kata Hong Qigong sambil tertawa. "Orang itu
+punya semangat yang sangat aneh. Ia mengikuti pemikirannya sendiri yang tidak umum. Apa ini bukan 'sesat'? Aku yakin
+cikal-bakal dari kungfu ortodoks ada di dalam aliran Quanzhen!"
+
+"Kau sudah belajar _neigong_ aliran Quanzhen, kan?" ia bertanya kepada Guo Jing.
+
+"Ma Yu mengajarku selama dua tahun," jawab Guo Jing.
+
+"Pasti, pasti — kau pasti tidak bisa melatihnya dalam waktu singkat!" kata Qigong. "Kalau tidak, mana mungkin kau
+bisa menguasai Jurus Penakluk Naga, kalau tidak punya dasar _neigong_ yang kuat."
+
+"Siapa itu Kaisar selatan?" tanya Huang Rong.
+
+"Kaisar Selatan itu sungguh-sungguh seorang [Kaisar](#huangdi "Huang Di secara literal berarti Kaisar")," kata
+Hong Qigong. Guo Jing dan Huang Rong kaget.
+
+"Maksudmu Kaisar Negeri Song?" tanya Huang Rong.
+
+Hong Qigong tertawa terbahak-bahak. "Kaisar kanak-kanak itu hanya cukup kuat untuk makan sebuah mangkuk emasnya.
+Kalau ada dua, ia tidak akan kuat mengangkat keduanya sekaligus. Kaisar Selatan yang ini _bukan_ Kaisar Song.
+Bukan! Di antara kami berempat, ayahmu dan aku adalah yang agak lemah, tetapi 'api selatan mengalahkan emas dari barat'!
+Sungguh benar, Si Racun Tua, Ouyang Feng, tidak bisa mengungguli bintangnya."
+
+Guo Jing dan Huang Rong sangat ingin mendengar kelanjutan ceritanya, tetapi Pengemis Tua itu tenggelam dalam
+pikirannya sendiri dan diam saja. Mereka tidak memaksanya. Hong Qigong memandang langit, alisnya berkerut 
+seolah-olah sedang memikirkan persoalan yang sangat berat. Ia berjalan sendirian kembali ke penginapan.
+
+Tiba-tiba Guo Jing dan Huang Rong mendengar suara robekan. Saat Hong Qigong melewati pintu gerbang menuju ke
+penginapan, lengan jubahnya tersangkut paku dan meninggalkan lubang besar. Huang Rong terkesiap, tetapi 
+Hong Qigong tidak memperhatikan. Ia terus berjalan seolah-olah sedang melamun.
+
+"Biar kutambal," kata Huang Rong. Ia pergi ke ruang pengelola penginapan dan meminjam jarum dan benang. Lalu ia
+menjahit lubang di lengan jubah Hong Qigong.
+
+Hong Qigong tersadar dari lamunannya ketika melihat Huang Rong dan jarum jahit di tangannya. Dengan kasar ia merampas
+jarum itu dan berlari ke luar pintu gerbang. Dengan penasaran Guo Jing dan Huang Rong mengikutinya ke luar, tetapi
+mereka hanya melihat Hong Qigong melemparkan jarum berkilau itu ke luar. Huang Rong melihat jarum itu bergerak
+melengkung dan akhirnya membunuh seekor belalang. Ia bersorak kegirangan.
+
+"Ini bisa dipakai," kata Hong Qigong, terlihat puas. "Cara ini bisa dipakai dengan baik!"
+
+Guo Jing dan Huang Rong menunggu penjelasan selanjutnya.
+
+"Si Racun Barat, Ouyang Feng, suka memelihara ular dan serangga beracun." kata Hong Qigong. "Menemukan cara menangani
+ular-ular biru itu sama sekali tidak mudah!" Ia berhenti sejenak sebelum melanjutkan, "Waktu aku melihat Ouyang muda itu
+dan menganggapnya tidak baik, dan teringat pamannya yang suka menentang semua orang, aku tahu kalian berdua perlu
+satu cara untuk mengusir ular-ular itu, karena aku belum tentu ada di dekat kalian untuk menyelamatkan kalian."
+
+Huang Rong merangkapkan tangannya. "Kau mau menggunakan jarum untuk menancapkan ular-ular itu ke tanah."
+
+Hong Qigong tersenyum kepadanya. "Anak ini sungguh pintar. Kita hanya perlu bicara satu kalimat, dan dia langsung
+tahu yang selanjutnya."
+
+"Kau tidak ingin memakai obat herbal kuning itu lagi?" tanya Huang Rong. "Kau hanya perlu memuntahkannya bersama arak,
+dan ular-ular itu tidak akan berani mendekat."
+
+"Cara itu tidak bisa bertahan lama," kata Hong Qigong. "Sekarang aku harus berlatih 'Bunga-bunga Tercurah Dari Langit',
+yang memakai jarum. Ular-ular itu akan muncul suatu saat nanti, dan aku akan menembakkan jarum-jarum ini, membunuh
+mereka satu per satu. Setelah aku mengumpulkan cukup jarum, aku akan membunuh semua ular itu dalam waktu kira-kira
+dua minggu." Guo Jing dan Huang Rong tertawa.
+
+"Aku akan mencari jarum-jarum itu," kata Huang Rong. Ia segera beranjak pergi menuju ke pasar.
+
+Hong Qigong menghela napas dengan kagum. "Jing'er, kenapa tidak kau suruh dia membagi dua kecerdasan dan kepandaiannya,
+dan memberikan setengahnya untukmu?"
+
+"Membagi dua kecerdasan dan kepandaian?" kata Guo Jing. "Kau tidak bisa membelah yang itu."
+
+Huang Rong pulang dari pasar ketika sudah mendekati waktu makan berikutnya. Ia mengambil dua bungkus jarum jahit 
+dari keranjangnya, dan berkata sambil tersenyum, "Aku membeli semua jarum yang ada di kota. Kurasa besok semua 
+pria akan kelabakan diomeli oleh istri mereka."
+
+"Kenapa?" tanya Guo Jing.
+
+"Percuma saja mereka diomeli," kata Huang Rong. "Sudah tidak ada lagi satu jarum pun tersisa di kota."
+
+Hong Qigong tertawa terbahak-bahak. "Bukankah kalian berdua ingin belajar tentang senjata rahasia? Nah, sekarang
+biar kulihat seberapa besar usaha kalian untuk belajar. Tidak ada kesempatan lagi untuk belajar dari pengemis 
+tua ini setelah ini. Akhirnya ternyata pengemis tua ini pintar juga. Dengan tidak menikah aku tidak perlu tersiksa 
+harus berurusan dengan perempuan!" Huang Rong tertawa dan mengikutinya ke luar.
+
+"Guru Qigong, aku tidak mau belajar," kata Guo Jing.
+
+"Kenapa?"
+
+"Qianbei sudah mengajarkan begitu banyak kungfu, dan aku masih belum latihan dengan baik," kata Guo Jing.
+
+Hong Qigong memahaminya. Guo Jing tidak mau serakah. Pengemis tua itu memang sudah mengatakan bahwa ia
+tidak mau mengajarkan kungfu lain lagi, tetapi situasi darurat akhir-akhir ini menyebabkan belajar kungfu
+baru menjadi sangat penting. Kendatipun demikian, kalau Guo Jing lagi-lagi membiarkan Hong Qigong mmengajarinya,
+maka ia akan menjadi seorang oportunis. Sambil menganggukkan kepala, Hong Qigong menarik tangan Huang Rong
+dan berkata, "Kita berlatih!"
+
+Setelah sendirian, Guo Jing kembali berlatih lima belas Jurus Penakluk Naga yang sudah dipelajarinya itu, 
+dan itu semakin meningkatkan pemahamannya.
+
+Huang Rong berlatih 'Bunga-bunga Tercurah dari Surga' selama sepuluh hari. Ia belajar bagaimana menembakkan
+sepuluh jarum, dan secara bersamaan menyerang titik vital lawan, tetapi ia tidak menguasai serangan ke titik
+vital dari beberapa sasaran sekaligus.
+
+Suatu hari, Hong Qigong dan Huang Rong berlatih melempar jarum. Si Pengemis menembakkan semuanya sekaligus. 
+Jarum-jarum itu jatuh ke tanah dalam dua kelompok — masing-masing berjarak sepuluh kaki. Merasa puas, ia pun
+menengadah ke langit dan tenggelam dalam renungan. Tapi pikirannya kacau, ia berseru keras-keras, "Racun Tua,
+mengapa kau melatih ular-ular itu?"
+
+"Dengan kungfunya ia bisa menangani siapapun juga yang ada di dekatnya," kata Huang Rong. "Jadi untuk apa
+sebenarnya ular-ular itu?"
+
+Hong Qigong menampar kepalanya sendiri. "Tentu saja, untuk melawan Si Sesat Timur dan Kaisar Selatan!" katanya.
+"Baik Pengemis Utara maupun Quanzhen punya kelompok yang jumlahnya besar. Sedangkan Kaisar Selatan adalah kaisar
+nyata, yang punya banyak pengawal dan perwira untuk melindunginya. Ayahmu adalah seorang terpelajar yang cerdas,
+yang punya banyak ilmu aneh dan hebat, yang bisa membantunya menghadapi banyak musuh sendirian. Kalau Racun Tua
+bertarung sendirian, tak ada seorang pun dari generasinya yang sungguh-sungguh mampu menghadapinya. Tapi kalau 
+lawannya membawa teman-teman, maka menghadapi mereka sendirian akan sangat celaka untuk Si Racun Tua!"
+
+"Karena itu Racun Tua memelihara ular untuk membantunya," kata Huang Rong.
+
+Hong Qigong menghela napas. "Kami para pengemis seringkali menangkap ular dan memeliharanya untuk dimakan,"
+katanya. "Kami bisa memelihara sampai tujuh belas atau delapan belas ekor. Kami kadang-kadang bahkan melepas
+mereka untuk menangkap kodok. Tapi prosesnya sama sekali tidak mudah. Sekarang Racun Tua ternyata punya waktu 
+untuk menangkap ular yang jumlahnya tidak terhitung. Rong'er, Racun Tua pasti menghabiskan banyak sekali waktu
+untuk ini, dia pasti merencanakan sesuatu."
+
+"Dia _pasti_ punya rencana," kata Huang Rong. "Tapi untung bagi kita, keponakannya membocorkan masalah ular itu."
+
+Hong Qigong lagi-lagi menampar kepalanya sendiri. "Tentu saja, Ouyang Kecil membocorkan masalah itu karena sembrono,"
+katanya. "Tapi Racun Tua tahu apa tentang milik orang lain? Ribuan ular itu tidak mungkin datang dari wilayah Barat.
+Pasti mereka dikumpulkan dari wilayah Timur juga. Meskipun Ouyang Kecil itu membocorkan sebagian rencana, tetapi 
+ia pasti tidak mungkin membocorkan garis besar rencana mereka, terutama di bagian di mana dia ikut serta."
+
+"Itu bukan sesuatu yang baik," kata Huang Rong. "Untungnya Jurus 'Bunga-bunga Tercurah Dari Langit' ini 
+membuat kita lebih siap untuk menghadapi ular-ular itu kalau kita ketemu mereka, dibandingkan dengan harus
+menghadapi mereka sementara bertarung dengan Racun Tua sendiri!"
+
+Hong Qigong ragu-ragu. "Seandainya dia membungkus aku dan mencegahku melontarkan jarum. Lalu bagaimana cara
+menghadapinya?"
+
+Huang Rong berpikir sejenak. "Lari saja," katanya.
+
+"Bah!" kata Hong Qigong sambil tersenyum. "Metode apa itu, berpaling dan melarikan diri!"
+
+Tiba-tiba Huang Rong berseru, "Aku tahu! Aku baru saja menemukan rencana!"
+
+Dengan penuh sukacita Hong Qigong bertanya, "Rencana apa itu?"
+
+"Cukup biarkan kami berdua bersamamu," kata Huang Rong. "Kalau sampai kita ketemu Si Racun Tua, kau yang akan
+menghadapinya, sementara biarkan Jing Gege menghadapi keponakannya. Aku yang akan memakai jarum untuk menyingkirkan
+ular. Masalahnya adalah, sekarang ini Jing Gege belum menguasai sisa tiga Jurus Penakluk Naga, dan belum tentu
+mampu menghadapi orang-orang licik itu." Hong Qigong menatapnya lekat-lekat.
+
+"Kaulah orang licik itu," katanya. "Kau hanya ingin memancingku untuk mengajarkan sisa tiga jurus itu kepada
+'Jing Gege'-mu. Melihat kebaikan moral Guo Jing, aku tanpa ragu sedikitpun akan mengajarinya ke delapan belas
+Jurus Penakluk Naga! Tapi kalau dia sampai menjadi muridku? Dia begitu bodohnya, kalau aku mengangkatnya menjadi
+murid, maka orang lain akan punya hak untuk menertawakan aku!" Huang Rong tertawa.
+
+"Aku mau beli bahan makanan dulu," katanya, menyadari bahwa makanan akan membuat Hong Qigong sulit untuk
+pergi.
+
+Ia pergi ke pasar dan membeli aneka macam sayuran dan daging sambil memastikan bahwa ia membeli bahan-bahan yang
+punya rasa cukup unik. Dengan membawa belanjaan di tangan kirinya, dan tangan kanannya sibuk melatih cara 
+melontarkan jarum, ia berjalan dengan santai kembali ke penginapan. Tiba-tiba ia mendengar suara lonceng mendekat.
+Di kejauhan ia melihat seorang wanita berpakaian putih menunggang kuda sendirian dengan cepat ke arah penginapan.
+Huang Rong melihat bahwa wanita itu ternyata putri Yang Tiexin, Mu Nianci, yang oleh guru-guru Guo Jing dijodohkan
+dengan pemuda itu. Hati Huang Rong menjadi masam, dan ketika Mu Nianci semakin mendekat, ia tidak mau bersuara.
+"Apa sih bagusnya perempuan ini," pikir Huang Rong. "Keenam guru Jing Gege dan Si Pendeta Hidung Sapi dari Quanzhen
+itu kok semuanya ingin supaya Jing Gege menikahi dia!" Makin dipikir, akhirnya ia menjadi marah. "Aku jadi ingin
+bertarung dengan dia, untuk melampiaskan kejengkelanku!" pikirnya. Tetapi ketika ia sampai di dalam penginapan,
+ia menemukan Mu Nianci sudah duduk di sebuah meja.
+
+Pelayan penginapan yang tampak cemas menanyakan kepada Mu Nianci apa yang ingin dimakan atau diminumnya. "Bawakan
+aku semangkuk mie dan daging," kata Mu Nianci. Pelayan itu segera pergi untuk memenuhi pesanannya.
+
+"Apa enaknya hanya makan daging saja?" kata Huang Rong.
+
+Mu Nianci memandang Huang Rong. Mula-mula ia tidak mengenalinya, tetapi kemudian ia teringat bahwa ini adalah gadis
+yang tiba-tiba saja pergi bersama Guo Jing. Ia menghela napas. "[Mei Mei](#meimei "Adik perempuan") juga di sini?"
+katanya. "Ayo duduk sini bersamaku."
+
+"Apa si sastrawan bau, si gendut kontet, dan yang lain itu juga datang?" tanya Huang Rong.
+
+"Tidak," kata Mu Nianci. "Aku datang sendirian. Mereka semuanya sedang pergi ke tempat lain."
+
+Mula-mula Huang Rong kuatir akan bertemu dengan Qiu Chuji, tapi ia merasa senang setelah tahu ternyata Mu Nianci
+datang sendirian. Mula-mula dibutakan oleh kekuatiran akan bertemu dengan Qiu Chuji, sekarang Huang Rong mengamati
+Mu Nianci baik-baik, dan baru menyadari bahwa sepatu bot kecilnya, baju, dan juga rambutnya, dihiasi dengan bunga putih.
+Ia sedang berkabung. Dan meskipun terlihat kurus dan murung, tetapi Mu Nianci tetap terlihat cantik dan anggun, bukannya
+patut dikasihani. Huang Rong kemudian memperhatikan sebuah belati yang tergantung di pinggang Mu Nianci.
+
+"Itu belati yang ditukar oleh orang tua Jing Gege dan orang tuanya sebagai emas kawin," pikir Huang Rong. Tak kuasa
+menahan perasaannya lagi, Huang Rong berseru, "[Jiejie](#jiejie "Kakak perempuan"), boleh kulihat belati itu?"
+
+Belati itu memang sungguh benda yang diberikan oleh Bao Xiruo tepat sebelum meninggal. Benda itu sudah diketemukan
+kembali setelah Bao Xiruo dan Yang Tiexin bunuh diri, dan sekarang disimpannya sebagai kenang-kenangan dari kedua
+orang tua angkatnya.
+
+Mu Nianci menatap Huang Rong dan menyadari ekspresinya yang aneh, tapi sebelum ia bisa melakukan apa-apa, Huang Rong
+sudah mengulurkan tangan dan memegang belati itu, lalu dengan santai mengambilnya.
+
+Ia memeriksa senjata itu dan membaca dua karakter "Guo Jing", yang terukir di pegangannya. "Ini milik Jing Gege,"
+pikirnya dengan pahit. "Kenapa dia harus memilikinya?" ia melepaskan belati itu dari sarungnya. Dengan segera
+hawa dingin tersebar dari senjata itu. "Pisau bagus!" kata Huang Rong. Ia menyarungkan kembali senjata itu,
+dan menyimpannya di saku bajunya. "Aku akan memberikannya kepada Jing Gege!"
+
+Terperanjat, Mu Nianci berkata, "Apa?"
+
+"Dua karakter yang terukir di gagangnya membuktikan siapa pemilih sah barang ini," kata Huang Rong. "Akan kuberikan
+kepadanya."
+
+Mu Nianci berteriak marah, "Itu satu-satunya barang peninggalan orang tuaku! Kenapa kau ambil? Ayo cepat kembalikan!"
+Ia berdiri dan berjalan ke arah Huang Rong.
+
+"Kalau kau tidak senang hati, ambil saja sendiri!" teriak Huang Rong sambil berlari ke luar. Ia tahu bahwa Qigong
+sedang tidur di hutan, dan Guo Jing sedang berlatih di atas gunung. Ia berlari ke kiri.
+
+Mu Nianci buru-buru mengejar, ia takut Huang Rong akan menaiki kuda merahnya. Ia terus mengejar sampai ia mendengar
+suara keras, yang kemudian diikutinya.
+
+Huang Rong berbelok ke sebuah lapangan terbuka yang dikelilingi pohon-pohon tinggi. Ia berhenti di sana dan tertawa.
+
+"Kau menang," katanya. "Kau kuda yang lebih baik. Sekarang, ayo kita bertarung untuk melihat siapa yang lebih
+berhak memegang pisau pengantin!"
+
+Pipi Mu Nianci memerah. "Jangan bercanda, Mei Mei," katanya. "Melihat pisau itu, aku seperti melihat ayah angkatku.
+Kenapa kau ambil?"
+
+Alis Huang Rong turun. "Siapa adikmu!" serunya. Tiba-tiba ia melompat ke arah Mu Nianci dengan telapak tangan
+terulur. 
+
+Mu Nianci berusaha mengelak, tapi Huang Rong menggunakan Telapak Dewa Pedang Menimpa Pendekar. Memakai banyak variasi
+dan gaya misterius, Huang Rong memukul Mu Nianci dua kali di rusuknya, yang terasa sangat menyakitkan. Dengan marah
+Mu Nianci berpaling ke kiri dan membalas dengan pukulannya, yang sangat keras.
+
 
 
 
@@ -1269,6 +1524,10 @@ jubahnya sambil menghela napas lega. "Berbahaya sekali," katanya. "Sungguh berba
   </dd>
   <dt id="satuan-zhang"><strong>Satuan Zhang</strong></dt>
   <dd>1 zhang sekitar 3.3 meter, atau 11 kaki.</dd>
+  <dt id="meimei"><strong>Mei Mei (妹妹)</strong></dt>
+  <dd>
+      Istilah umum untuk memanggil seorang adik perempuan, atau orang lain yang dianggap adik.
+  </dd>
 </dl>
 
 ***
