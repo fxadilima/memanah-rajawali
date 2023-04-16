@@ -312,7 +312,7 @@ kedua tangannya. Guo Jing segera melawan, tapi tentu saja ia bukan tandingan Lia
 Setelah beberapa jurus, Liang Ziweng berhasil merenggut dadanya, dan tangan kanannya memegang
 perut Guo Jing. Guo Jing menyusutkan perutnya dalam kecemasan dan bajunya robek diiringi suara
 yang cukup nyaring, dan bungkusan obat-obatan berhasil dirampas. Liang Ziweng tahu bahwa bungkusan 
-itu berisi obat, ia sudah mengengusnya sejak lama, dan dengan senang mengantonginya. Ia melanjutkan
+itu berisi obat, ia sudah mengendusnya sejak lama, dan dengan senang mengantonginya. Ia melanjutkan
 dengan serangan kedua ke arah Guo Jing. Guo Jing berhasil bergumul keluar dari cengkeramannya
 pada dadanya dan berlari cepat ke arah Mei Chaofeng, sambil berteriak, "Hei, cepat selamatkan aku!"
 

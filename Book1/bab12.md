@@ -253,7 +253,7 @@ Huang Rong minggir beberapa langkah dan berseru, "Jing Gege, ayo mulai!" Guo Jin
 memperbaiki kesalahanmu? Siap!" Ia melompat ke arah Guo Jing dan menyerang dengan telapak tangan.
 Guo Jing menangkis, tetapi ia sudah mengubah taktik dan menendang.
 
-"Bagus, _Xiao Yatou_ (nona cilik)!" kata Qigong. "Itu langkah cantik!"
+"Bagus, [Xiao Yatou](#xiaoyatou "nona cilik")!" kata Qigong. "Itu langkah cantik!"
 
 "Kau harus serius," kata Huang Rong dengan suara rendah.
 
@@ -424,19 +424,20 @@ aku tidak mau belajar darimu. Memangnya kenapa kalau kungfunya lebih bagus dari 
 menerima tanpa menyinggung perasaanmu."
 
 "Meskipun pikiranmu sangat sederhana," kata Hong Qigong sambil tertawa. "Kau punya hati yang baik, dan kau
-bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut Naga Angkuh Punya Penyelasan[^kanglongyouhui].
-Aku membayangkan bahwa meskipun Huang Youshi sangat ingin meniru ilmuku, tapi dia terlalu bangga akan dirinya sendiri,
-jadi dia tidak akan melakukannya. Dalam banyak hal ilmu kami berbeda sama sekali. Aku tidak bisa belajar ilmunya,
-dan dia juga tidak bisa belajar ilmuku..." Sambil berkata begitu ia menekuk lutut kirinya, berputar dan meluruskan
-lengannya, membuat lingkaran dengan tangan yang di atas dan mendorong keluar dengan sebelah tangan lainnya. Telapak
-tangannya menyentuh pohon pinus besar, dan 'Kreekkk', pohon itu patah! Guo Jing berdiri terpaku, ia terkejut melihat
-kekuatan pukulan itu.
+bicara langsung. Itu bagus. Baiklah, aku akan mengajarimu satu pukulan yang disebut 
+Naga Angkuh Punya Penyelasan[^kanglongyouhui]. Aku membayangkan bahwa meskipun Huang Youshi sangat 
+ingin meniru ilmuku, tapi dia terlalu bangga akan dirinya sendiri, jadi dia tidak akan melakukannya. 
+Dalam banyak hal ilmu kami berbeda sama sekali. Aku tidak bisa belajar ilmunya, dan dia juga tidak 
+bisa belajar ilmuku..." Sambil berkata begitu ia menekuk lutut kirinya, berputar dan meluruskan
+lengannya, membuat lingkaran dengan tangan yang di atas dan mendorong keluar dengan sebelah tangan 
+lainnya. Telapak tangannya menyentuh pohon pinus besar, dan 'Kreekkk', pohon itu patah! Guo Jing 
+berdiri terpaku, ia terkejut melihat kekuatan pukulan itu.
 
 "Pohon ini tidak bisa bergerak," kata Qigong. "Kalau ini manusia, jelas dia akan mencoba menghindar, kesulitan
 dari teknik ini adalah menyerang dengan tepat sehingga lawan bagaimana pun juga tidak bisa menghindarinya, dan
 juga harus kuat, maka begitu pukulanmu mendarat, 'krekkk', lawan langsung roboh seperti pinus ini!" Ia mengulangi
 peragaan itu dua kali, lalu menjelaskan secara rinci bagaimana memusatkan dan mengerahkan tenaga dalam. Itu
-hanya satu pukulan, tetapi [pelajaran pertama](#pelajaran-pertama) itu memakan waktu lebih dari satu jam. 
+hanya satu pukulan, tetapi pelajaran pertama itu memakan waktu lebih dari satu jam. 
 
 Guo Jing tidak pintar, akan tetapi ia punya dasar tenaga dalam yang bagus. Mempelajari  kungfu semacam ini, yang
 terdiri dari rangkaian gerakan sederhana, tetapi membutuhkan tenaga yang kuat, sangat cocok baginya. Ia berlatih
@@ -734,14 +735,504 @@ ia tetap menggunakan jurus Naga Angkuh Punya Penyesalan. Lawannya terkejut dan m
 itu hanya punya satu jurus andalan, ternyata ia tetap patut diperhitungkan, Liang Ziweng tidak bisa berbuat apa-apa.
 Karena mencapai kebuntuan, mereka berdua diam di posisi masing-masing.
 
+Liang Ziweng kemudian berseru, "Shazi, sebaiknya kau hati-hati!" Ia melompat ke arah pemuda yang menjadi lawannya
+itu, yang masih terus bertahan menggunakan jurusnya yang sudah terbukti ampuh. Lian Ziweng mengubah arah di tengah 
+udara, dan mendadak menyerang menggunakan tiga Jarum Penembus Tulang, yang mengincar pemuda itu dari tiga arah
+yang berbeda. Ketika Guo Jing buru-buru mengelak, Liang Ziweng menerjang ke depan secepat kilat dan mencengkeram
+tengkuk bajunya. Dengan sangat ketakutan si pemuda bereaksi dengan menyikut dada lawannya. Ia lebih kaget lagi
+ketika merasa sikutnya seolah terbenam ke sebuah benda lunak seperti kapas.
+
+Tepat ketika Liang Ziweng sedang bersiap untuk melakukan sebuah serangan fatal, ia mendengar seruan Huang Rong,
+"Hei, Monster Tua! Coba lihat!" Karena tahu bahwa gadis itu punya banyak akal bulus, Liang Ziweng tidak mau mengambil
+resiko. Ia menotok titik akupuntur 'Jianjing' di tubuh Guo Jing, sehingga pemuda itu tidak bisa bergerak, sebelum
+berpaling. Ia melihat gadis itu mendekat perlahan sambil membawa sebatang tongkat bambu, warna hijaunya sejernih
+batu pualam. Benda itu membuatnya terpaku, kaku seperti patung. "Hong..." gumamnya gemetar. "Ketua... Qigong...!"
+
+"Kenapa kau belum juga membebaskan dia?" ancamm Huang Rong.
+
+Pada saat mendengar orang menebak semua langkah-langkahnya sebelum ia sendiri melakukannya, ia sangat terkejut,
+namun ia sama sekali tidak menyangka bahwa orang itu ternyata adalah Hong Qigong. Sekarang, dengan adanya tongkat
+bambu itu, ia langsung menyadari bahwa suara yang didengarnya tadi _sungguh-sungguh_ adalah suara orang yang
+paling ditakutinya di dunia ini. Merasa ngeri, ia buru-buru membebaskan totokan Guo Jing.
+
+Sambil mengacungkan tongkat itu, Huang Rong mendekatinya dan berkata dengan serius, "Hong Lao Qianbei ingin bertanya,
+kenapa kau lagi-lagi berani melakukan kejahatan di sini? Sungguh lancang!"
+
+Liang Ziweng menjatuhkan diri berlutut. "Wanbei tidak tahu kalau Ketua Qigong ada di sini," ia tergagap. "Kalaupun
+wanbei punya sedikit nyali, tetap tidak akan berani menyinggung Ketua Qigong."
+
+"Bagaimana pun juga, orang ini sangat kuat," pikir Huang Rong. "Kenapa dia bisa begitu ketakutan hanya dengan
+menyebutkan nama Qigong? Kenapa juga dia memanggilnya Ketua Qigong?" Tapi ia tidak menunjukkan apa yang sedang 
+dipikirkannya sama sekali, dan malah memperlihatkan ekspresi mengancam. "Lalu hukuman apa yang pantas bagimu?"
+
+"Kumohon supaya kau mengatakan sesuatu yang baik tentang aku di hadapan Guru Besar Qigong. Tolong bilang bahwa
+Liang Ziweng menyadari kesalahannya, dan memohon supaya Ketua Qigong sudi mengampuni nyawanya."
+
+"Kalau cuma _satu_ kata yang baik tentang kau, kenapa tidak? Tapi _beberapa patah kata_, rasanya permintaanmu
+agak keterlaluan. Lain kali kau jangan pernah lagi bikin susah kami berdua!"
+
+"Hambamu ini sudah terlanjur menyinggungmu karena tidak tahu," sahut Liang Ziweng. "Kalau kau tidak berpikir
+buruk tentang aku, maka selanjutnya aku tidak akan berani..."
+
+Huang Rong, yang merasa bangga akan dirinya sendiri, tersenyum dan melangkah kembali ke penginapan sambil 
+bergandengan tangan dengan Guo Jing. Di dalamnya mereka menemukan Hong Qigong sedang duduk di belakang meja
+yang tertata rapi, dengan sebuah pisau di tangan kirinya dan sepasang sumpit di tangan kanan, bersiap untuk
+menyantap hidangan yang tersedia. "Guru Besar Qigong," kata Huang Rong sambil tertawa. "Dia berlutut, dan
+sama sekali tidak berani menggerakkan sehelai rambut pun!"
+
+"Berikan dia tempat persembunyian untuk melampiaskan kekesalanmu," kata Qigong. "Dia pasti tidak akan berani
+membela diri."
+
+Dari jendela Guo Jing melihat Liang Ziweng berlutut ketakutan, ketiga muridnya juga ikut berlutut di belakangnya.
+Mereka berempat nampak sangat menderita. Dalam hati ia merasa kasihan, dan berkata, "Qigong Qianbei, kenapa tidak
+memaafkan mereka saja."
+
+"Kau sungguh-sungguh bocah tidak berguna," omel Qigong. "Ada orang datang mengganggumu, dan kau bahkan tidak
+sanggup membela diri. Kau hanya bisa menerima nasib, dan sekarang malah memaafkan musuhmu! Aku ingin tahu,
+bagaimana kau bisa sebodoh ini?" Guo Jing tidak pasti harus menjawab bagaimana.
+
+"Biar aku yang menanganinya," kata Huang Rong sambil tertawa. Ia mengambil tongkat bambu dan berjalan keluar
+dari penginapan. Liang Ziweng masih berlutut dengan penuh hormat, mukanya sangat ketakutan.
+
+"Hong Qigong bilang, kalau kau masih terus melakukan kejahatan," kata Huang Rong dengan suara menggelegar. 
+"maka lehermu perlu digorok. Tapi untungnya Kakak Jing-ku baik hati, dia terus-terusan memohon supaya kau
+diampuni — begitu ngototnya dia, sampai akhirnya Qigong setuju untuk mengampunimu. Ia menggunakan tongkat
+bambu itu untuk memukul pantat Liang Ziweng sambil berteriak, "Ayo cepat masuk sana!"
+
+Liang Ziweng bicara ke arah jendela, "Guru Besar Qigong, aku datang menemuimu, untuk berterima kasih karena
+mengampuni nyawaku!" Tapi tanggapan yang ada hanya sepi. Liang Ziweng tidak berani bangkit berdiri, dan masih
+terus berlutut merendahkan diri. Setelah beberapa saat, Guo Jing muncul dan melambaikan tangan. "Hong Lao Qianbei
+sedang tidur," katanya dengan nada rendah. "Jangan mengganggunya..." Mendengar itu, Liang Ziweng bangkit, ia
+menatap pasangan anak muda itu dengan penuh kebencian, lalu pergi bersama ketiga muridnya.
+
+Huang Rong, dengan hati penuh sukacita kembali ke penginapan. Ia melihat Hong Qigong sedang berbaring di atas
+meja, mendengkur. Ia menyentuh bahunya untuk membangunkannya. "Qigong!" panggilnya. "Tongkat ajaibmu ini punya
+kekuatan luar biasa. Karena kau tidak memakainya, kenapa tidak kau berikan saja kepadaku?"
+
+Hong Qigong mengangkat kepalanya, menguap, dan berkata, "Omonganmu meremehkan tongkat itu," ia tertawa. "Itu
+bisa dibilang alat kerja gurumu. Seorang pengemis tanpa _tongkat pemukul anjing_, kelihatannya bakal seperti
+apa?"
+
+Huang Rong terus mengetuk-ngetuk tongkat itu sambil menyeringai, "Kungfumu begitu hebat. Orang bahkan takut
+mendengar suaramu. Kenapa kau kau masih perlu tongkat ini?"
+
+"Kau setan licik," kata Qigong, tertawa. "Cepat bikin makanan, biar kujelaskan semuanya sekarang..." Huang Rong
+menurut, dan buru-buru pergi ke dapur untuk menyiapkan tiga macam makanan ringan.
+
+Dengan tangan kiri memegang cawan arak, dan tangan kanan memegang ham yang dikunyah perlahan-lahan, mulai
+penuturannya. "Pepatah mengatakan, 'Semua yang punya kesamaan, akan membentuk dirinya sendiri'. Orang-orang
+rendahan membentuk serikat. Para bandit di jalan yang kerjanya merampok orang, juga membentuk serikat mereka
+sendiri. Begitu juga kami, yang menjalani hidup dengan cara mengemis sisa makanan dari orang lain, juga punya
+serikat. Punya kelompok, atau partai..."
+
+"Aku mengerti," kata Huang Rong sambil merangkap tangannya. "Orang tua bermarga Liang itu memanggilmu Ketua Qigong,
+berarti kau Ketua Para Pengemis ya?"
+
+"Tepat sekali. Kalau kami berkeliling, dan ada orang memasang anjing untuk mengawasi kami, kalau kami tidak
+bersatu dalam sebuah kelompok, bagaimana kami bisa hidup? Untuk rakyat jelata, saat ini di Utara ada di bawah
+kekuasaan Kekaisaran Jin, dan yang di Selatan ada di bawah kekuasaan Kekaisaran Song, tetapi semua pengemis
+di negeri ini..."
+
+"Entah mereka di Utara atau Selatan," sela Huang Rong, "ada di bawah kekuasaanmu!"
+
+"Eehh, ya," kata Qigong menyetujui, sambil tersenyum. "Tongkat bambu dan kantong arak ini sudah diwariskan
+dari generasi ke generasi, mulai dari akhir Dinasti Tang. Dengan kata lain, ini diwariskan dari seorang Ketua
+Partai Pengemis kepada ketua berikutnya. Untuk kami, para pengemis, ini seperti stempel giok dari Kaisar Kecil."
+
+"Itu sebabnya tidak kau berikan kepadaku," kata Huang Rong sambil menjulurkan lidahnya.
+
+"Kenapa tidak?" sahut Hong Qigong.
+
+"Kalau semua pengemis di negeri ini datang kepadaku untuk menyelesaikan urusan mereka, itu bisa jadi bencana!"
+
+"Kau benar," kata Qigong sambil menghela napas. "Karena aku lemah dan malas, beban menjadi Ketua Kai Pang
+sangat berat untukku. Karena aku tidak bisa menemukan orang yang bisa kupercaya, maka aku harus menanggung..."
+
+"Makanya Si Liang itu takut kepadamu. Kalau semua pengemis mengejarnya, maka ia akan mengalami malapetaka. Kalau
+setiap pengemis menjatuhkan seekor _kutu_ di kerah bajunya, maka itu akan mengganggunya sampai akhir hayatnya."
+Hong Qigong dan Guo Jing tertawa terbahak-bahak.
+
+"Bukan," kata Qigong, setelah beberapa saat. "Bukan hanya karena itu. Dia juga takut kepadaku."
+
+"Kenapa?" tanya Huang Rong.
+
+"Sekitar dua puluh tahun yang lalu dia melakukan sebuah kejahatan besar, dan aku menimpanya..." 
+
+"Kejahatan apa?" kejar Huang Rong.
+
+"Bangsat tua itu," kata Qigong, ragu-ragu. "Dia mempercayai pepatah kuno 'Kumpulkan Yin untuk memberi makan Yang',
+dan mengumpulkan beberapa perawan, lalu — eehh — merusak mereka... Kurasa maksudnya ingin mendapatkan hidup abadi."
+
+"Apa maksudnya 'merusak mereka'?" tanya Huang Rong penasaran. Anak itu, setelah kematian ibunya pada saat melahirkan
+dia, hanya dibesarkan oleh ayahnya. Setelah pengkhianatan dan larinya Chen Xuanfeng dan Mei Chaofeng, Huang Yaoshi
+yang murka membuat semua muridnya menjadi cacat, dan mereka semuanya pergi. Tidak ada orang lain yang tersisa di
+Pulau Persik selain beberapa orang pelayan yang bisu tuli. Karena hal ini, tidak ada orang yang menceritakan kepada
+gadis kecil itu mengenai apa yang terjadi di antara pria dan wanita. Sejak itu, ia lalu bertemu dengan Guo Jing dan 
+merasakan sukacita, dan kelembutan luar biasa dalam kebersamaan mereka. Kalau mereka berpisah, meskipun hanya sesaat,
+perasaan murung dan kesendirian yang tak tertahankan akan membenamkan dirinya. Ia percaya bahwa menjadi suami-istri
+tidak lebih dari sekedar bersama-sama tanpa pernah berpisah dari pasangannya. Itu sebabnya sejak lama ia sudah menganggap
+Guo Jing adalah suaminya, tanpa mengerti tentang hubungan fisik secara alamiah. Dengan begitu, pertanyaannya menempatkan
+Hong Qigong dalam posisi sulit.
+
+"Merusak tubuh perawan," kejarnya dengan penasaran, "adalah membunuh mereka?"
+
+"Bukan," sahut Hong Qigong menanggapi. "Kalau seorang perempuan sampai mengalami hal semacam itu, rasanya akan
+lebih buruk dari mati. Pepatah kuno mengatakan, 'Menjadi tidak terhormat adalah kuburan, mati kelaparan bukan apa-apa'.
+Itu sudah mewakili apa yang kumaksud..."
+
+Huang Rong tetap tidak mengerti. "Apa maksudnya memotong telinga atau hidung dengan pisau?"
+
+"Bah!" omel Qigong, merasa pusing. "Sama sekali bukan. Setan cilik, sebaiknya kau pulang dan tanya ibumu..."
+
+"Ibuku sudah meninggal..."
+
+"Aahh!" kata Si Pengemis Tua. "Kalau begitu kau akan mengerti setelah malam pengantinmu bersama pacarmu yang bodoh ini!"
+
+Muka Huang Rong memerah, akhirnya ia mengerti bahwa hal itu adalah sesuatu yang memalukan. Ia berkata dengan lembut,
+"Kalau kau tidak mau menjelaskan... Kalau begitu, kau menimpa Si Tua Bangka itu pada saat dia melakukan kejahatan.
+Itu semua di masa lalu, kan?"
+
+Qigong merasa lega melihatnya tidak lagi mendesak dengan pertanyaan-pertanyaan yang memalukan, lalu melanjutkan,
+"Yah, aku memang ikut campur, itu benar. Aku menangkap bajingan itu, aku melabraknya, mencabut semua rambutnya! Setelah
+itu kusuruh dia mengantarkan semua perempuan itu pulang. Dan berjanji dengan sungguh-sungguh untuk tidak melakukannya
+lagi. Kalau sampai ia mengulanginya, maka ia akan sangat menyesal bahwa ia pernah dilahirkan ke dunia ini. Kelihatannya
+sejauh ini dia sudah tidak pernah lagi melakukan hal semacam itu, makanya aku membebaskannya tadi." Lalu ia menambahkan,
+"Ya ampun, apa rambutnya tumbuh lagi?"
+
+"Oh iya!" kata Huang Rong sambil tertawa. "Mencabut semua rambut... itu kedengarannya sangat lucu." Mereka bertiga
+lalu sibuk menghabiskan makanan di atas meja.
+
+"Guru Qigong," kata Huang Rong kemudian, "Kalaupun sekarang kau ingin memberikan tongkat ini kepadaku, aku juga
+tidak mau. Tapi kami tidak mungkin selalu ada di dekatmu. Bagaimana kalau suatu saat Si Liang itu muncul, dan 
+berkata, 'Nah, bajingan cilik! Waktu itu kalian berlindung di balik nama Ketua Qigong, dan kau memukulku dengan
+tongkat bambu. Sekarang aku ingin membalas dendam, dan mencabut semua rambutmu!' Lalu kami harus bagaimana?
+Waktu Jing Gege menghadapi dia, satu-satunya jurus andalannya, Naga Angkuh Menyesal, tentu saja sangat hebat. Tapi
+hanya itu. Aku yakin Si Liang itu pasti mengira, 'Haha, Guru Besar Qigong punya kungfu tak terbatas, tapi kalau
+urusan mengajar murid, ini betul-betul bukan apa-apa!'"
+
+"Aku tahu pasti," kata Qigong. "Kau sengaja menceritakan semua ketololan ini, maksudnya untuk memprovokasi aku,
+supaya aku mengajarkan semua ilmuku kepada kalian berdua! Yah, selama kau menyiapkan makanan kesukaanku, aku tidak
+akan mengecewakan kalian."
+
+Huang Rong sangat senang, ia menggandeng tangan Hong Qigong dan berjalan menuju ke hutan pinus.
+
+Hong Qigong mengajarkan jurus kedua kepada Guo Jing, yang disebutnya 'Naga Terbang Di Surga'.
+Untuk melakukan gerakan itu, orang harus melompat tinggi di udara dan memukul keras dari atas ke bawah,
+sebuah gerakan yang sangat hebat. Guo Jing memerlukan waktu tiga hari untuk menguasainya. Selama tiga
+hari itu Hong Qigong punya kesempatan untuk menikmati sepuluh macam masakan lezat lain yang bahkan
+lebih lezat dari sebelumnya. Huang Rong sendiri tidak meminta apa pun untuk dirinya sendiri, asalkan
+Hong Qigong mau mengajar orang yang dicintainya, hal itu sudah cukup baginya.
+
+Dalam waktu sebulan, Hong Qigong mengajarkan lima belas dari keseluruhan Delapan Belas Jurus Penakluk Naga.
+Mulai dari Naga Angkuh Punya Penyesalan sampai ke Mengintip Naga Di Lapangan.
+
+Kedelapan Belas Jurus Penakluk Naga itu adalah ilmu silat Hong Qigong yang terakhir. Ia mempelajarinya
+dari gurunya sendiri, dan jurus tersebut adalah kungfu yang kendaraan yang melambungkan reputasinya
+sampai ke tingkat yang sekarang. Jumlah jurus tentu saja terbatas, tetapi semuanya dipenuhi kekuatan
+yang luar biasa. Pada saat berlangsungnya pertarungan di Huashan yang pertama, ketika Lima Pendekar Besar
+saling mengukur kekuatan, jurus itu masih belum mencapai puncak kesempurnaan, tetapi sudah mampu mencengangkan
+dan membangkitkan rasa kagum semua orang. Karena itu Qigong seringkali menyesali diri, kalau saja dia tidak
+malas menyempurnakan jurus itu, gelar sebagai Pendekar Nomor Satu di dunia persilatan mustinya bukan jatuh
+ke tangan Wang Chongyang, tetapi justru ke tangannya!
+
+Semula, Hong Qigong hanya berniat mengajarkan dua atau tiga dari total delapan belas jurus tersebut kepada 
+Guo Jing, tetapi Huang Rong sungguh seorang koki yang tak tertandingi. Setiap hari ia selalu menyiapkan
+masakan baru dengan rasa yang istimewa, tidak pernah sekali pun ada yang terulang. Si Pengemis Tua tidak
+mampu memaksa diri untuk pergi. Makanya, dari hari ke hari, tak terasa ia sudah mengajarkan lima belas
+jurus. Guo Jing tidak bisa memahami jurus-jurus itu dengan cepat, tetapi dari sedikit yang sudah dikuasainya,
+selalu dilatihnya berulang-ulang siang dan malam. Bekerja keras dengan penuh keyakinan seperti ini membuatnya
+menguasai semua jurus itu dengan sangat baik. Apa yang kurang dari dia adalah tenaga, yang akan bisa dicapai
+seiring dengan berjalannya waktu dan latihan rutin. Karena itu, dalam waktu sebulan lebih kungfunya telah
+meningkat secara drastis, seolah-olah ia telah menjelma menjadi orang lain!
+
+Pagi itu, setelah sarapan, Qigong berkata sambil menghela napas, "Anak-anakku, kita sudah bersama lebih dari
+sebulan, sekarang waktunya bagi kita untuk berpisah..."
+
+"Wah, jangan!" protes Huang Rong. "Aku masih punya beberapa masakan kecil yang belum pernah kau cicipi..."
+
+"Tak ada pesta yang tak usai, tapi soal makanan memang tak ada batasnya... Aku tidak pernah mengajar orang
+lain lebih dari tiga hari. Tapi sekarang sudah lebih dari tiga puluh hari! Kalau diteruskan, bisa jadi malapetaka!"
+
+"Kenapa begitu?"
+
+"Yah, berarti kau merampok segala yang kuketahui."
+
+"Kau mulai dengan sangat baik, kenapa tidak menyelesaikannya. Mengajarkan keseluruhan Delapan Belas Jurus
+Penakluk Naga akan menjadi sebuah prestasi besar!"
+
+"Bah! Itu akan menjadi prestasi besar _bagi kalian berdua_, bukan bagiku!" Huang Rong cemas, dan bertanya-tanya 
+dalam hati, bagaimana caranya membuat Hong Qigong mau mengajarkan sisa tiga jurus itu kepada Guo Jing. Tetapi
+Si Pengemis Tua tidak memberinya waktu, ia menyelipkan kantong arak ke punggungnya, lalu pergi tanpa mengatakan
+apa-apa lagi.
+
+Guo Jing berusaha mengejarnya, tetapi Qigong pergi dengan sangat cepat, dan menghilang dalam sekejap mata. Pemuda
+itu berlari ke hutan pinus dan memanggil-manggil, "Qigong, Qigong...!" Huang Rong ikut memanggil. Tiba-tiba sebuah
+bayangan muncul dari balik pohon pinus, itu Hong Qigong. "Anak-anak brengsek, kenapa kalian masih menggangguku!
+Kalau kalian ingin supaya aku mengajar lebih banyak lagi, itu sama sekali tidak mungkin!"
+
+"Kau sudah mengajarkan terlalu banyak," kata Guo Jing. "Aku merasa lebih dari puas, ingin apa lagi! Justru aku
+yang masih belum berterima kasih untuk semua kebaikanmu." Ia lalu berlutut dan _kowtow_, membenturkan dahinya
+ke tanah beberapa kali.
+
+Air muka Hong Qigong berubah. "Hentikan!" serunya. "Semua yang kuajarkan itu bukan apa-apa, selain hanya bayaran
+untuk semua makanan yang disiapkannya untukku! Tidak pernah ada hubungan guru dan murid di antara kita!" Bersama
+dengan kalimat itu, ia juga berlutut dan _kowtow_ di hadapan Guo Jing.
+
+Karena terkejut, Guo Jing hendak melakukan _kowtow_ lagi, tetapi Hong Qigong mengulurkan tangan dan menekan
+titik akupuntur yang membuatnya kaku, dalam posisi lutut setengah tertekuk. Pengemis Tua itu baru melepaskannya 
+setelah ia sendiri bersujud empat kali di hadapannya. "Ingat baik-baik," katanya sekali lagi. "Jangan pernah
+bilang bahwa kau bersujud di hadapanku, dan bahwa kau adalah muridku!" Setelah mengerti bahwa ia sangat keras
+kepala, Guo Jing tidak berusaha menentangnya.
+
+"Guru Besar Qigong," keluh Huang Rong. "kau sangat baik kepada kami, dan sekarang kita harus berpisah. Aku ingin
+menyiapkan makanan untukmu, tapi setelah ini kurasa tidak akan ada kesempatan lagi..."
+
+"Kenapa tidak?" tanya Qigong.
+
+"Banyak orang ingin mencelakai kami, bukan hanya Si Dewa Ginseng Tua itu. Suatu saat nanti kami pasti akan mati
+di tangan mereka."
+
+"Kematian itu apa sih," jawab Hong Qigong sambil tersenyum. "Semua orang pasti akan mati kalau sudah saatnya."
+
+"Tentu saja," jawab Huang Rong. "Mati sebetulnya bukan apa-apa. Tapi mereka akan menangkapku, setelah tahu bahwa
+kau mengajarkan kungfu kepadaku dan aku memasak untukmu. Mereka akan memaksaku menyiapkan semua makanan yang kubuat
+untukmu untuk mereka makan, bukankah hal itu akan merusak reputasimu?"
+
+Hong Qigong tahu jelas bahwa gadis itu sedang mencoba untuk mengakalinya lagi, tetapi pikiran bahwa ada orang
+yang memaksanya membuat makanan lezat, sedangkan ia  sendiri justru tidak mencicipi hidangan itu, membuatnya
+marah. "Siapa sih orang-orang jahat yang mengancam kalian ini?" desaknya.
+
+"Ada seorang pendekar tua dari Sungai Kuning," kata Huang Rong. "Namanya Sha Tongtian. Cara makannya sangat
+menjijikkan. Sungguh bisa merusak masakanku!"
+
+"Tidak usah takut kepada Sha Tongtian," kata Qigong sambil menggelengkan kepalanya. "Dalam satu atau dua tahun,
+Si Bodoh Guo Jing ini akan jauh lebih hebat dari dia. Tidak ada yang perlu ditakuti..."
+
+Huang Rong lalu menyebutkan nama Biksu Tibet Lingzhi dan Peng Lianhu. "Juga tidak usah takut!" jawab Hong
+Qigong lagi.
+
+Tapi ketika ia menyebutkan nama Si Ketua Muda Gunung Onta Putih, Ouyang Ke, kelihatannya Hong Qigong terdiam
+sejenak. Lalu menanyakan tentang gerakan dan gaya kungfu dari Ouyang Ke, sebelum akhirnya menganggukkan
+kepalanya, "Itu ternyata betul-betul dia!"
+
+Melihat keseriusannya, Huang Rong juga jadi serius. "Dia memang sangat hebat, kan?"
+
+"Tidak ada yang perlu ditakui dari Ouyang Ke," kata Qigong. "Tapi pamannya, Si Racun Barat, dialah yang patut
+kalian takuti!"
+
+"Racun Barat? Tapi sekuat apapun dia, pasti tidak mungkin lebih hebat dari kau sendiri, kan?"
+
+Qigong tidak menjawab. Ia diam sejenak sebelum akhirnya berkata, "Kami cukup seimbang, tapi itu dua puluh tahun
+yang lalu... Dan sepanjang dua puluh tahun ini, dia pasti latihan jauh lebih keras daripada aku yang malas dan
+rakus ini. Hah, tapi mau mengalahkan Pengemis Tua ini, ya pasti tidak segampang itu..."
+
+"Kalau begitu dia pasti tidak bisa mengalahkanmu!"
+
+"Akan kita lihat nanti," kata Hong Qigong. "Karena keponakan dari Si Racun Tua, Ouyang Feng, mengincar kepalamu,
+kita harus berhati-hati. Aku akan makan masakanmu lima belas hari lagi, tapi sebaiknya kita jelaskan dulu sebelumnya.
+Kalau dalam waktu lima belas hari ini, kau sampai menyuguhkan makanan yang sama dua kali, maka aku akan langsung
+angkat kaki..."
+
+Huang Rong senang sekali. Ia sudah memutuskan untuk menggunakan semua bakatnya. Tak hanya tidak mengulangi
+makanan yang sama, ia bahkan menyuguhkan variasi tak terbatas untuk mie dan nasi dalam setiap hidangan. Pangsit
+goreng, pangsit tim, pangsit rebus, nasi goreng, bubur beras, ketan, bakpao berbentuk bunga, bihun, dan sejenis
+sup kacang. Qigong sendiri harus bekerja keras mengajarkan kedua anak muda itu bagaimana cara beradaptasi dalam
+segala jenis pertarungan, bagaimana cara bereaksi, dan bertahan dengan lebih baik. Tapi ia tidak pernah mengajarkan
+sisa tiga jurus dari Delapan Belas Jurus Penakluk Naga. Guo Jing sendiri tentu saja memperdalam lima belas jurus
+yang sudah dipelajarinya, dan seiring dengan kemajuannya, semua pelajaran dari Keenam Orang Aneh dari Jiangnan
+juga meningkat secara drastis. Hong Qigong sebelum usia tiga puluh belajar kungfu yang sangat beragam, dan 
+mempelajari teknik tangan kosong yang nyaris tak terhingga banyaknya. Dari semuanya itu ia sengaja memilih teknik
+yang sangat aneh untuk Huang Rong, tapi itu hanya untuk bercanda. Semuanya itu hanya terlihat indah, sederhana
+dan langsung, tetapi fungsinya dalam pertarungan nyata sangat jauh dibandingkan dengan Lima Belas Jurus Penakluk
+Naga yang dipelajari Guo Jing. Huang Rong hanya suka bermain-main, jadi ia tidak menanggapi pemuridan itu dengan
+serius, dan hanya mempelajari semua teknik yang diajarkan untuk menyenangkan diri.
+
+Suatu sore ketika Guo Jing sedang melatih pukulannya, Huang Rong sedang memanjat pohon untuk mengumpulkan rebung
+dan buah prem sebagai bahan untuk masakan yang tidak umum, yang bernama 'Tiga Sahabat Musim Dingin', yang memiliki
+tiga aroma khas. 
+
+Hong Qigong tidak bisa menahan air liurnya, lalu ia membungkuk ke arah rerumputan dan memancing keluar seekor
+ular biru sepanjang dua kaki.
+
+"Ular!" jerit Huang Rong.
+
+Dengan tangan kirinya Hong Qigong memndorong pundak Huang Rong, memaksanya mundur beberapa kaki. Rerumputan
+tebal itu bergerak-gerak lagi, memperlihatkan lebih banyak ular. Hong Qigong memukul ular-ular itu dengan 
+tongkatnya, tepat di kepalanya. Huang Rong bersorak. Tiba-tiba dua ekor ular menyelinap di belakangnya dan
+berhasil menggigitnya. 
+
+Hong Qigong tahu, meskipun kecil tetapi ular biru teramat sangat berbisa. Bisanya sangat berbahaya. Ia berusaha
+memikirkan cara untuk menangkal racunnya. Suara desis ular terus terdengar, dan timbunan ular terlihat dalam 
+jarak sepuluh [zhang](#satuan-zhang "1 zhang kira-kira 3.3 meter") dari tempat mereka. "Bagaimana keadaanmu?"
+tanya Qigong.
+
+"Aku tidak apa-apa," kata Huang Rong sambil tertawa. Ketakutan melanda Guo Jing ketika melihat dua ekor ular
+masih bergantung di tubuh Huang Rong.
+
+Hong Qigong menyuruh Guo Jing berhati-hati. Dalam kecemasannya Guo Jing sudah menyingkirkan seekor ular. Ia
+melihat darah menetes dari kepala ular itu, ternyata ular itu sudah mati. Hong Qigong mengerti. "Ayahmu memberimu
+perisai landak." Ketika menggigitnya, ular itu dengan segera mati tertusuk duri landak di perisainya. Ketika 
+Guo Jing menarik ular lainnya dari tubuh Huang Rong, lebih banyak ular lagi muncul dari arah hutan. Hong Qigong
+memasukkan obat herbal kuning ke dalam mulut dan mengunyahnya. Saat itu sekitar seribu ekor ular sudah datang
+dari dalam hutan, dan masih lebih banyak lagi yang menyusul.
+
+"Guru Qigong, ayo kita menyingkir dari sini," kata Guo Jing.
+
+Hong Qigong tidak menjawab. Sebaliknya, ia membuka kantong araknya dan minum seteguk besar dari situ. Ia mencampur
+obat herbal dengan arak, lalu memuntahkannya dari kiri ke kanan, menciptakan setengah lingkaran di sekitar pohon.
+
+Ketika seekor ular mencoba melewati lingkaran itu, ular itu langsung mati. Tak seekor ular pun berani lagi
+menerobos lingkaran arak itu. Sebetulnya yang ada di barisan depan berusaha mundur, akan tetapi di belakang
+mereka ada lebih banyak ular yang datang dari dalam hutan. Kedua kelompok itu saling bertabrakan, menyebabkan 
+pemandangan menggeliat-geliat penuh kekacauan. Huang Rong bertepuk tangan dengan girang. Dari dalam hutan itu
+tiba-tiba terdengar suara aneh, sebelum tiga orang berpakaian putih muncul dari situ. Mereka menggunakan sebuah
+tiang untuk menghalau ular-ular itu, seolah-olah mereka adalah kawanan sapi. Huang Rong merasa semua itu lucu, 
+lalu tiba-tiba ia merasa ingin muntah. Hong Qigong memukul seekor ular dengan tongkat penggebuk anjingnya, lalu
+ia menggunakan jari untuk mengeluarkan empedunya.
+
+"Cepat telan ini," katanya kepada Huang Rong. "Jangan menggigit atau mengunyahnya, atau kau akan merasa sangat
+kesakitan." Setelah menelan empedu ular itu, dada Huang Rong terasa lega.
+
+"Jing Gege, kau merasa pusing?" tanyanya. Guo Jing menggelengkan kepalanya.
+
+Karena sudah minum darah ular raksasa, Guo Jing sudah kebal terhadap lebih dari seratus jebis racun. Ular juga
+takut ketika mencium bau darah di tubuh Guo Jing. Ketika datang dari dalam hutan, mereka hanya mengincar Hong
+Qigong dan Huang Rong.
+
+"Guru Qigong," kata Huang Rong. "Ular-ular ini dipelihara oleh manusia." Hong Qigong mengangguk, dan menatap
+ketiga orang berpakaian putih itu dengan marah. Mereka bertiga juga marah ketika melihat Hong Qigong memberikan
+empedu ular kepada Huang Rong. Mereka segera mengatur barisan ular.
+
+"Bangsat kalian bertiga!" teriak salah satu dari mereka. "Kalian sudah bosan hidup ya?"
+
+"Kalian bertigalah bangsat yang bosan hidup!" balas Huang Rong.
+
+Hong Qigong menepuk pundak Huang Rong sebagai tanda setuju. Ketiga orang itu makin marah. Orang setengah baya
+yang bermuka pucat dan berdiri di tengah mengirimkan tiang yang dipegangnya ke arah Huang Rong dengan kekuatan
+yang mengejutkan. Hong Qigong menangkis tiang itu dengan tongkatnya. Orang itu terkejut, dan menarik tiang itu
+dengan kedua tangannya. Hong Qigong menggerakkan tongkatnya sambil berteriak, "Enyahlah!"
+
+Orang itu tersandung, dan tergelincir jatuh di tengah-tengah tumpukan ular mayng mematikan. Untungnya ia sudah
+makan obat herbal sebelumnya, jadi ular-ular itu tidak mau menggigitnya. Kedua orang lainnya terkejut dan mundur
+selangkah. "Bagaimana?" kata mereka. Sebetulnya teman mereka jatuh dengan begitu kerasnya, sampai menimpa sepuluh
+ekor ular, dan merasa penat di sekujur tubuhnya.
+
+Salah seorang yang berkulit putih menyodorkan tiang untuk membantunya. Mereka tidak berani melawan lagi.
+
+"Siapa yang berani menahan ular kami dengan obat itu?" tanya si orang yang bermuka pucat. Hong Qigong 
+tertawa dan tidak menghiraukannya.
+
+"Kalian siapa, sembarangan mengirim ular untuk mencelakai orang lain?" tanya Huang Rong.
+
+Ketiga orang itu saling berpandangan, mencoba menemukan kata-kata untuk menjawab, sementara seorang pria lain
+yang berpakaian putih muncul di ujung hutan. Ia berjalan dengan santai melewati sela-sela di antara ular sambil
+berkipas. Guo Jing dan Huang Rong segera mengenalinya sebagai Ouyang Ke, Majikan Gunung Onta Putih, yang 
+kehadirannya di tengah-tengah kawanan ular itu membuat mereka semua menyebar.
+
+Ketiga orang itu segera menceritakan mengenai kehebatan kungfu Hong Qigong dan situasi yang mereka hadapi. Ouyang Ke
+terkejut. Lalu ia mengangguk.
+
+"Karena tidak mengerti, tiga pelayan ini sudah menyinggung Lao Qianbei, aku minta maaf." Lalu ia berpaling kepada
+Huang Rong sambil tersenyum. "Ah, si nona ada di sini," katanya. "Aku siap melayanimu."
+
+Huang Rong mengalihkan perhatiannya kepada Hong Qigong. "Guru Qigong, kau harus menyingkirkan telur busuk ini." katanya.
+
+Hong Qigong mengangguk, lalu berkata kepada Ouyang Ke. "Kenapa kau menggiring ular-ular berbisa ini melewati pedesaan
+di siang bolong? Kau terang-terangan ingin menggunakan mereka untuk melakukan kejahatan. Sasaranmu siapa?"
+
+"Ular-ular ini sudah berjalan jauh," kata Ouyang Ke. "Mereka tidak bisa makan dengan cara biasa."
+
+"Berapa banyak orang yang sudah kau celakai?" tanya Hong Qigong.
+
+"Kami menggiring mereka melewat pedesaan," jawab Ouyang Ke. "Tidak terlalu banyak orang yang terluka."
+
+Hong Qigong melotot. "Tidak _terlalu_ banyak orang!" katanya. "Margamu Ouyang, kan?"
+
+"Itu betul," kata Ouyang Ke. "Nona ini pasti sudah menceritakannya. Dan siapa nama Qianbei yang terhormat?"
+
+"Orang tua ini satu generasi lebih tua dari kau," kata Huang Rong. "Kalau dia bilang, kau bisa mati ketakutan!"
+Tapi Ouyang Ke tidak marah, ia meliriknya sekilas.
+
+"Kau keponakan Ouyang Fng, kan?" kata Hong Qigong.
+
+Ouyang Ke tidak menjawab, tetapi ketiga orang lainnya berteriak, "Hei Tua Bangka! Berani benar kau memanggil
+nama tuan kami!"
+
+"Aku mengucapkan hal-hal yang tidak diucapkan orang lain," kata Hong Qigong sambil tersenyum santai.
+
+Ketiga gembala ular itu masih terus berteriak kepada Hong Qigong, sementara Pengemis Tua itu, yang tadinya
+duduk di tanah dengan tongkatnya, tiba-tiba muncul di udara seperti seekor burung raksasa. Ia menghantam
+ke bawah tiga kali dengan begitu cepat sehingga orang-orang itu tidak sempat bereaksi. Sebelum tubuh mereka
+jatuh ke tanah, Hong Qigong sudah melompat ke udara lagi.
+
+"Hebat!" sorak Huang Rong. "Kenapa yang ini belum kau ajarkan kepadaku, Guru Qigong?"
+
+Ketika tiga orang gembala itu bangkit, mereka tidak bisa bersuara karena Hong Qigong telah memukul otot kecil 
+di dagu, yang terhubung ke rahang mereka.
+
+Ouyang Ke yang terkesiap berkata kepada Hong Qigong, "Qianbei kenal pamanku?"
+
+"Jadi rupanya kau keponakan Ouyang Feng," kata Hong Qigong. "Sudah lebih dari dua puluh tahun aku tidak
+ketemu Si Racun Tua. Apa dia belum mati?"
+
+Ouyang Ke marah, tetapi ia tahu betul bahwa Hong Qigong punya kungfu tingkat tinggi. Dan karena mengenal
+pamannya, maka ia pastilah salah seorang tua yang punya kekuatan sangat besar. "Paman selalu bilang bahwa
+dia tidak akan mati sebelum kawan-kawannya." kata Ouyang Ke. "Jadi dia tidak berani berangkat ke Surga sebelum kau."
+
+Hong Qigong memandang ke langit dan tertawa. "Bagus, kau memutar balik ucapanku dan mempermalukan aku!" katanya. "Nah,
+kenapa kau membawa semua harta karun ini?" lanjutnya sambil menunjuk ke arah ular.
+
+"Aku seumur hidup tinggal di daerah Barat," jawab Ouyang Ke. "Ini pertama kalinya aku berkunjung ke wilayah pusat[^zhong-yuan]. Perjalanan ini sangat jauh, sepi dan membosankan, jadi aku membawa ular-ular ini sebagai teman."
+
+"Itu bohong besar!" kata Huang Rong. "Mana mungkin perjalananmu bisa dibilang 'sepi', kalau ada begitu banyak
+istri dan selir yang menemanimu!"
+
+Ouyang Ke membuka kipasnya dengan mendadak, dan menatap Huang Rong dari sebelah atas kipas itu. Ia tertawa dan
+mengutip sebuah puisi, "Tidak ada seorang pun di dalam hatiku yang jauh, namun hari ini ia telah bertemu dengan
+Sang Puteri."
+
+Huang Rong mengejeknya dengan ekspresi mukanya. "Aku tidak butuh pujianmu, sama seper aku juga tidak butuh kau rindukan."
+katanya.
+
+Ouyang Ke tidak bisa bicara, ia terpesona oleh kecantikan seperti seorang Dewi yang dimiliki Huang Rong, dan juga
+ekspresi mukanya yang menyenangkan.
+
+"Pamanmu memerintah wilayah Barat dengan tangan besi, karena itu tak ada orang yang mendisiplinkanmu," kata
+Hong Qigong. "Jadi kau datang ke wilayah pusat dengan anggapan bahwa kau bisa berbuat sesukamu. Yah, hari ini,
+dengan memandang muka pamanmu aku membebaskanmu. Enyahlah dari hadapanku!"
+
+Ouyang Ke menahan diri untuk menyumpah-nyumpah. Ia tahu bahwa dirinya sama sekali bukan tandingan Hong Qigong,
+jadi ia dengan patuh mengundurkan diri, meskipun merasa sangat tidak senang. "Wanbei mohon diri. Kalau Qianbei
+tetap sehat dalam beberapa tahun ini, dan tidak menderita penyakit berat, silakan berkunjung ke Gunung Onta Putih."
+
+Hong Qigong tertawa. "Bajingan kecil, kau berani menantang duel ya! Kalau aku datang, itu tidak akan ada hubungannya
+dengan perjanjian apapun. Dua puluh tahun sebelum kemarin, pagi-pagi sekali, kelompok kita sudah saling bergebrak,
+dan hasilnya kita seimbang. Tidak bakal ada duel lagi sampai kapanpun."
+
+Air mukanya berubah drastis. "Kau masih juga di sini, bukannya enyah jauh-jauh dari hadapanku!" teriak Hong Qigong.
+
+Ouyang Ke lagi-lagi terkejut. "Aku hanya belajar tiga puluh persen dari kungfu paman," pikirnya. "Orang ini kelihatannya
+tidak bohong. Aku terima kekalahan memalukan ini untuk sementara, dan lain kali baru membalasnya." Ouyang Ke tetap
+tidak menjawab, dan ketiga gembala ular itu, yang dagunya masih sakit kena tonjok Si Pengemis Tua, tidak bersuara.
+Sambil melirik ke arah Huang Rong, Ouyang Ke berbalik dan berjalan kembali ke arah hutan.
+
+Ketiga orang lainnya membuat suara aneh untuk menggiring ular-ular mereka, tetapi karena dagu mereka yang sakit
+suara itu terdengar sangat lemah dan buruk. Seperti ombak, ular-ular itu kembali ke arah hutan, meninggalkan sisa
+lendir yang berkilau di atas tanah.
+
+"Guru Qigong," kata Huang Rong. "Dari mana asalnya ular-ular itu? Apa mereka sungguh-sungguh dipelihara?"
+
+Hong Qigong tidak menjawab. Ia meneguk arak dari kantongnya, lalu menghapus keringat dari alisnya dengan lengan
+jubahnya sambil menghela napas lega. "Berbahaya sekali," katanya. "Sungguh berbahaya."
+
 
 
 ***
 
 <dl>
-  <dt id="meihua">Mei Hua</dt>
+  <dt id="meihua">Mei Hua (梅花)</dt>
   <dd>
-      Bunga <em>prem</em>, atau Mei Hua (梅花) berasal dari sebelah selatan Sungai Yangtze. Kalau sudah matang,
+      Bunga <em>prem</em>, atau Mei Hua berasal dari sebelah selatan Sungai Yangtze. Kalau sudah matang,
       daging buahnya akan berwarna kuning, kulit buahnya yang hijau juga akan semakin menguning seiring dengan tingkat kematangannya. Terkadang ada yang bersemu merah. Tanaman ini memang dibudidayakan untuk diambil bunga dan buahnya. Di jaman modern ini kita biasa menikmatinya sebagai <em>manisan</em>, yang umumnya disertakan dalam sebuah <em>parcel</em> untuk menyambut Tahun Baru Imlek.
   </dd>
   <dt id="shijing">Shi Jing</dt>
@@ -771,6 +1262,13 @@ Karena mencapai kebuntuan, mereka berdua diam di posisi masing-masing.
   </dd>
   <dt id="shazi"><strong>Sha Zi (傻子)</strong></dt>
   <dd>Secara literal berarti "Anak bodoh". Atau bahkan lebih singkat, "Bodoh!"</dd>
+  <dt d="xiaoyatou"><strong>Xiao Ya Tou (小丫头)</strong></dl>
+  <dd>
+    Bisa diartikan "Nona Cilik". Istilah ini dipakai secara umum untuk memanggil anak perempuan. Meskipun "Ya Tou"
+    sendiri juga biasa dipakai untuk memanggil seorang pelayan perempuan.
+  </dd>
+  <dt id="satuan-zhang"><strong>Satuan Zhang</strong></dt>
+  <dd>1 zhang sekitar 3.3 meter, atau 11 kaki.</dd>
 </dl>
 
 ***
@@ -792,6 +1290,7 @@ Karena mencapai kebuntuan, mereka berdua diam di posisi masing-masing.
 
 [^xiao-yao-you]: **Xiao Yao You** (逍遥游). Karakter pertama dan kedua jika digabungkan akan bermakna _carefree_, atau 'bebas'. Tetapi bisa juga diartikan 'riang'. Sedangkan karakter ketiga 'You' (游) punya makna literal '_traveling_', atau bisa kita terjemahkan secara bebas menjadi berjalan-jalan. Istilah ini kurang lebih bermakna 'Berjalan-jalan Dengan Bebas dan Riang Gembira'. Karena terlalu panjang dan dari segi estetika tidak enak dibaca maupun diucapkan, maka saya membiarkannya seperti itu. (Terjemahan bahasa Inggris dari fans menerjemahkannya menjadi 'Wandering Strides', yang saya kira agak kurang sesuai).
 
+[^zhongyuan]: **Zhong Yuan** (中原), arti literalnya adalah "Dataran tengah" atau "Wilayah Pusat", "Mainland", dsb. Mewakili wilayah pusat dari areal yang sekarang ini kita kenal sebagai Tiongkok. Yang disebut "Pusat" ini dari masa ke masa adalah daerah di sekitar Sungai Kuning (Huang He), dan secara garis besar masyarakat yang berkembang kemudian adalah keturunan dari masyarakat yang berdiam di wilayah itu.
 
 ##### Delapan Harta Karun
 1. Bao Zhu (宝珠), mutiara yang menyala. Melambangkan terkabulnya sebuah harapan.
