@@ -1777,7 +1777,7 @@ Kalau hatiku berubah, biar aku mati dengan cara mengerikan." Mu Nianci menutup m
 "Aku percaya." Wanyan Kang lalu berkata, "Kalau begitu, biarkan aku..." Gadis itu memohon, "Jangan, jangan..." 
 Wanyan Kang sudah sangat bergairah dan mencoba untuk membuka pakaiannya lagi. Ia memukulnya dengan setengah dari
 kekuatan maksimumnya. Wanyan Kang tidak menduga bahwa gadis itu akan menggunakan ilmu silatnya pada saat seperti 
-iu, ia erdorong jauh. Mu Nianci melompat dari pembaringan, meraih mata tombak dan mengarahkannya ke diri sendiri,
+itu, ia terdorong jauh. Mu Nianci melompat dari pembaringan, meraih mata tombak dan mengarahkannya ke diri sendiri,
 dan berkata, "Kalau kau memaksaku, aku akan mati di hadapanmu."
 
 Gairah Wanyan Kang mendadak berubah sedingin es. Ia berkata, "Baiklah, kita bicara baik-baik, jangan begini."
