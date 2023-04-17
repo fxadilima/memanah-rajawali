@@ -1500,7 +1500,7 @@ Sambil tertawa mengancam Huang Rong menyerang. Ia tidak menggunakan Xiao Yaoyou,
 ayahnya, untuk mengalahkan Mu Nianci, yang sudah jelas belajar dari Hong Qigong. Mu Nianci tidak bisa mengatasinya.
 
 Mu Nianci mencoba mengelak, tapi tidak bisa. Ia melihat sebuah kepalan terangkat seperti pedang dan menebas dengan
-arah diagonal, diiringi suara angin tajam. Merasakan tnaga yang mirip sambaran tombak, Mu Nianci memutar tubuhnya
+arah diagonal, diiringi suara angin tajam. Merasakan gelombang tenaga yang mirip sambaran tombak, Mu Nianci memutar tubuhnya
 ke samping untuk mengelak, tetapi ia kemudian merasa lehernya sakit, karena Huang Rong berhasil memukulnya dengan
 'Menyisir Bunga Anggrek Dari Jalan'. Telapak tangannya mengenai tulang leher dengan tepat di mana jalan darah mengalir
 ke tubuh, tangan dan kaki. Setelah terkena, tangan dan kaki Mu Nianci terasa lemah dan kesemutan.
