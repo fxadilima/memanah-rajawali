@@ -1796,7 +1796,7 @@ Dalam hidup ini aku tidak akan berubah pikiran."
 
 Mu Nianci tersenyum malu dan berpaling untuk pergi. Wanyan Kang berseru, "Jangan pergi... temani aku ngobrol
 sebentar lagi." Tapi Mu Nianci melambaikan tangannya dan pergi. Wanyan Kang tetap berdiri di tempatnya sambil
-meenatap bayangannya yang menghilang di balik tembok, dan merasa semuanya ini seperti mimpi. Ia meninggalkan
+menatap bayangannya yang menghilang di balik tembok, dan merasa semuanya ini seperti mimpi. Ia meninggalkan
 beberapa helai rambut, sisa dari pergumulan mereka. Ia menyimpan helai rambut itu di sebuah kantong kecil.
 Ketika mereka bertarung dalam lomba, ia tidak terlalu memikirkannya. Tapi ia tidak menyangka gadis itu akan
 mengikutinya dan menatap bayangannya setiap malam. Namun demikian, ia sangat menghargai kesuciannya, sungguh
