@@ -1511,7 +1511,7 @@ sayatan itu sungguh-sungguh mengenai sasaran, tetapi hanya luput satu inci dari 
 
 Mu Nianci memejamkan matanya, menunggu maut. Tapi agak mengherankan, ia hanya merasakan angin dingin melewati
 pipinya, yang tidak sakit. Ketika membuka mata, ia melihat pisau itu melesat menuju ke matanya, tapi kemudian
-melihatnya berhenti tepat di depan mukanya. "kalau kau ingin membunuhku, bunuhlah!" teriaknya marah. "Kenapa harus
+melihatnya berhenti tepat di depan mukanya. "Kalau kau ingin membunuhku, bunuhlah!" teriaknya marah. "Kenapa harus
 banyak ulah konyol, mengancam dan bersandiwara begini?"
 
 "Kau bukan musuhku, dan aku juga tidak membencimu," kata Huang Rong. "Kenapa aku mau membunuhmu? Kau hanya perlu 
