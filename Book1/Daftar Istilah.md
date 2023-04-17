@@ -174,6 +174,8 @@ Xiong (兄) = panggilan umum untuk saudara laki-laki, atau orang lain yang diang
 
 The "Twin Killers in the Dark Wind" (黑風雙煞) 
 
+Locust Tree = Zao Jia(baca: zào jiá, 皂荚) adalah pohon _locust_ yang bisa jadi buahnya bisa dimakan (rasanya manis),
+atau malah beracun (Black Locust). 
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 

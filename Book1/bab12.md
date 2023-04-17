@@ -1479,7 +1479,328 @@ Mu Nianci berusaha mengelak, tapi Huang Rong menggunakan Telapak Dewa Pedang Men
 dan gaya misterius, Huang Rong memukul Mu Nianci dua kali di rusuknya, yang terasa sangat menyakitkan. Dengan marah
 Mu Nianci berpaling ke kiri dan membalas dengan pukulannya, yang sangat keras.
 
+"Itu Xiao Yaouyou[^xiao-yaou-you]!" seru Huang Rong. "Mana mungkin!"
 
+Mu Nianci terkejut ketika mendengar seruan Huang Rong. "Ini jurus yang hanya diajarkan Qigong kepadaku," pikirnya.
+"Bagaimana dia bisa tahu?" Mu Nianci mengawasi Huang Rong yang menarik tangan kirinya, lalu menyerang dengan tangan
+kanan sebagai kepalan tinju. Setelah tiga jurus, Mu Nianci segera mengenali bahwa jurus itu tak lain dan tak bukan
+adalah Xiao Yaoyou. Ia melompat mundur dengan kaget. "Hentikan!" serunya. "Siapa yang mengajarimu jurus ini?"
+
+"Aku baru saja menciptakannya," kata Huang Rong seenaknya, sambil tersenyum. "Apa sih istimewanya jurus yang kasar dan 
+jelek ini?" Sambil bicara, ia kembali menyerang dengan jurus itu, memperagakan dua gerakan utama, 'Mangkuk Sedekah Di Pintu'
+dan 'Menemui Seorang Dermawan' dalam rangkaian gerak yang berkesinambungan.
+
+Mu Nianci makin bingung setelah mengelak dari serangan berikutnya, 'Bertualang Di Laut Tanpa Kuatir'. "Kau kenal
+Hong Lao Qianbei?"
+
+"Aku dan dia teman lama," kata Huang Rong. "Kau boleh memakai jurus ini, aku pakai jurus lain yang kuketahui. Kita
+lihat siapa yang lebih unggul."
+
+Sambil tertawa mengancam Huang Rong menyerang. Ia tidak menggunakan Xiao Yaoyou, tapi menggunakan kungfu ajaran
+ayahnya, untuk mengalahkan Mu Nianci, yang sudah jelas belajar dari Hong Qigong. Mu Nianci tidak bisa mengatasinya.
+
+Mu Nianci mencoba mengelak, tapi tidak bisa. Ia melihat sebuah kepalan terangkat seperti pedang dan menebas dengan
+arah diagonal, diiringi suara angin tajam. Merasakan tnaga yang mirip sambaran tombak, Mu Nianci memutar tubuhnya
+ke samping untuk mengelak, tetapi ia kemudian merasa lehernya sakit, karena Huang Rong berhasil memukulnya dengan
+'Menyisir Bunga Anggrek Dari Jalan'. Telapak tangannya mengenai tulang leher dengan tepat di mana jalan darah mengalir
+ke tubuh, tangan dan kaki. Setelah terkena, tangan dan kaki Mu Nianci terasa lemah dan kesemutan.
+
+Huang Rong kemudian maju untuk menekan titik akupuntur di pinggang Mu Nianci. Mu Nianci segera terjatuh. Huang Rong
+mengeluarkan pisau dan tertawa, lalu menyayat pipi Mu Nianci sepuluh kali dengan cara yang berbeda-beda. Tak satu pun
+sayatan itu sungguh-sungguh mengenai sasaran, tetapi hanya luput satu inci dari daging.
+
+Mu Nianci memejamkan matanya, menunggu maut. Tapi agak mengherankan, ia hanya merasakan angin dingin melewati
+pipinya, yang tidak sakit. Ketika membuka mata, ia melihat pisau itu melesat menuju ke matanya, tapi kemudian
+melihatnya berhenti tepat di depan mukanya. "kalau kau ingin membunuhku, bunuhlah!" teriaknya marah. "Kenapa harus
+banyak ulah konyol, mengancam dan bersandiwara begini?"
+
+"Kau bukan musuhku, dan aku juga tidak membencimu," kata Huang Rong. "Kenapa aku mau membunuhmu? Kau hanya perlu 
+bersumpah sekali, dan aku akan membebaskanmu."
+
+Meskipun mereka benar-benar bukan musuh, Mu Nianci bahkan menolak mempertimbangkan untuk bersumpah segala. 
+"[Gu Niang](#guniang "Nona"), kau mengancam untuk membunuhku hanya karena ingin aku bersumpah menurut kehendakmu?"
+teriaknya. "Jangan mimpi!"
+
+Huang Rong menghela napas dengan kagum. "Sungguh sayang kalau harus membunuh seorang gadis cantik di usia yang pantas
+untuk menikah." katanya.
+
+Mu Nianci memejamkan matanya lagi, dan menunggu ajal. Tapi ia tidak mendengar suara apapun.
+
+Sesaat kemudian, Huang Rong berkata dengan lembut, "Jing Gege dan aku sudah saling berbagi hati. Kalau kau menikah
+dengannya, ia tidak akan bisa memberikan yang sama."
+
+Mu Nianci membuka matanya. "Kau bilang apa?" tanyanya.
+
+"Aku tahu kau pasti tidak akan berjanji untuk tidak menikahi dia," kata Huang Rong.
+
+"Siapa sih yang kau sukai?" tanya Mu Nianci bingung. "Siapa yang _kau kira_ ingin kunikahi?"
+
+"Jing Gege — Guo Jing," jawab Huang Rong.
+
+"Oh, dia," kata Mu Nianci. "Sumpah apa yang kau ingin supaya kulakukan?"
+
+"Aku ingin kau bersumpah berat supaya kau tidak menikahinya," kata Huang Rong.
+
+Mu Nianci tertawa. "Kau menaruh pisau di leherku, padahal aku juga sudah tidak bisa menikahinya," katanya.
+
+"Betulkah?" tanya Huang Rong dengan gembira. "Kenapa bisa begitu?"
+
+"Meskipun ayah angkatku menjodohkan aku dengan Guo Jing Gege, sejujurnya..." katanya, sebelum merendahkan suaranya.
+"Sejujurnya, ayah angkatku, terlepas dari segala kebijaksanaannya, _lupa_ untuk mencegahku untuk memberikan hatiku
+kepada orang lain."
+
+"Aku sudah membuat kesalahan fatal tentang kau!" kata Huang Rong kegirangan, sebelum membuka totokannya di tubuh
+Mu Nianci dan mengurut tangan dan kakinya. "[Jiejie](#jiejie "Kakak perempuan"), siapa jodohmu?"
+
+Mu Nianci tersipu sebelum menjawab, "Kau sudah pernah ketemu orang itu sebelumnya."
+
+Huang Rong memiringkan kepalanya untuk berpikir sejenak. "Aku pernah ketemu sebelumnya?" katanya. "Orang macam apa
+di kota ini yang pantas untuk bersanding dengan orang setingkat Jiejie?"
+
+Mu Nianci tertawa. "Di dunia ini, orang ini tak tertandingi oleh siapa pun, kecuali oleh Jing Gege-mu," katanya.
+"Jiejie, apa dia segila itu, masa belum menikahimu?" kata Huang Rong sambil tersenyum.
+
+"Apa Jing Gege gila?" kata Mu Nianci. "Dia sungguh-sungguh jujur, dan punya hati seorang ksatria sejati. Aku sangat
+mengagumi dia. Dia memperlakukan ayahku dan aku dengan sangat baik hari itu, waktu dia menolong kami dengan resiko
+nyawanya sendiri. Aku sangat berterima kasih kepadanya. Pria seperti dia sangat jarang di dunia ini."
+
+Dengan sangat kuatir Huang Rong mendesak, "Kau tadi bilang tidak akan menikah dengan dia, maksudnya hanya supaya
+aku tidak menaruh pisau di lehermu ya?"
+
+Mu Nianci melihat bagaimana Huang Rong terus menekankan masalah ini, dan menyimpulkan bahwa penyebab kecerobohan 
+yang dilakukannya sebelum ini masih juga belum hilang. Ia meraih tangan Huang Rong dan bicara perlahan, "Mei Mei,
+hatimu sudah kau berikan kepada Kakak Jing. Menemukan orang lain yang menyamai dia akan sangat sulit meskipun
+di dunia ini ada ribuan laki-laki, betul kan?"
+
+"Ya, aku percaya memang sepertinya tidak ada lagi orang yang bisa menyamainya," jawab Huang Rong.
+
+"Kalau Kakak Jing mendengar pujianmu itu, hatinya akan sangat bahagia," kata Mu Nianci lagi. "Nah, di dalam lomba
+yang diadakan ayahku di Yanjing itu, seorang pria mengalahkan aku."
+
+Huang Rong sekarang mengerti. "Sekarang aku tahu," katanya. "Orang yang ada di hatimu adalah Si Pangeran Kecil,
+Wanyan Kang."
+
+"Ya, memang Pangeran itu," jawab Mu Nianci. "Dialah orang yang diinginkan hatiku. Di dalam hati sebenarnya dia baik. 
+Aku bisa membuatnya berhenti melakukan hal-hal buruk."
+
+Meskipun ia bicara perlahan, tetapi air muka Mu Nianci penuh dengan keyakinan. Huang Rong menganggukkan kepalanya,
+ketika menyadari bahwa ia punya perasaan yang sama terhadap Guo Jing, seperti yang dikatakan oleh Mu Nianci dengan
+cara yang jauh lebih sederhana. Mereka saling menggenggam tangan dengan erat dan duduk berdampingan di bawah
+pohon [Zao Jia](#zaojia "Pohon Locust, mirip akasia, tetapi berbeda. Hanya ada di daerah empat musim."), sambil
+menikmati suasana berbagi perasaan. Huang Rong berpikir sejenak, lalu mengembalikan pisau yang direbutnya kepada
+Mu Nianci.
+
+"Mu Jiejie, ini kukembalikan kepadamu," katanya.
+
+Mu Nianci tidak mengambilnya. "Simpan saja — ini milik Jing Gege-mu," katanya. "Namanya tertera di gagangnya. Kalau
+bersamaku setiap hari, aku..." Ia berhenti sejenak. "Kalau aku harus membawanya setiap hari, itu tidak akan baik."
+
+Dengan perasaan sayang Huang Rong menyimpan pisau itu di sakunya. "Jiejie, kau sungguh baik," katanya. Setelah
+menerima pisau berharga itu, pikiran Huang Rong untuk sejenak lamanya agak bercabang. "Jiejie, urusan apa yang
+membawamu ke Selatan sendirian?" ia bertanya. "Mungkin Mei Mei bisa membantu."
+
+Mu Nianci tersipu dan menundukkan kepalanya. "Aku tidak punya urusan mendesak saat ini," jawabnya.
+
+"Kalau begitu, aku akan membawamu menemui Guru Qigong," kata Huang Rong.
+
+Mu Nianci merasa senang sekali. "Guru Qigong ada di sini?"
+
+Huang Rong mengangguk, lalu memegang tangan Mu Nianci dan menariknya. Tiba-tiba ia mendengar suara di tengah-tengah
+ranting pohon di atas mereka. Sepotong kulit pohon jatuh ke tanah. Dari kejauhan mereka bisa melihat bayangan 
+seseorang sedang melompat-lompat dengan gembira dari satu pohon ke pohon lain. Setelah beberapa saat mereka bisa
+mengenali ternyata itu Hong Qigong.
+
+Huang Rong memungut kulit pohon itu, dan melihat ada tulisan terukir di atasnya, yang kelihatannya diukir menggunakan 
+jarum. "Dua boneka seperti ini sangat baik," ia membaca. "Tapi kalau Rong'er sengaja bikin masalah lagi, maka Qigong
+akan memukul telinga anak pertamamu." Kulit pohon itu tidak ditanda tangani. Sebaliknya ada gambar sebuah kantong arak
+di bawahnya. Huang Rong tahu itu tulisan Qigong, dan ia tersipu. Ia tahu Qigong sudah mengamati pertarungan mereka
+sejak awal, dan juga tahu tentang 'sumpah' yang dipaksakannya kepada Mu Nianci. Keduanya memasuki hutan Zao Jia, tetapi
+tidak ada yang memperhatikan kehadiran Hong Qigong. Mereka berdua lalu berjalan ke penginapan sambil bergandengan
+tangan.
+
+Guo Jing yang sedang duduk di dalam setelah selesai berlatih, sangat terkejut melihat Mi Nianci. "Mu Mei Mei,
+kau ketemu guru-guruku?" 
+
+"Guru-gurumu yang terhormat dan aku sama-sama meninggalkan ibukota ke arah Selatan, ke Shandong," kata Mu Nianci.
+"Kami berpisah di sana, dan aku belum ketemu mereka lagi."
+
+"Apa semua guruku dalam keadaan baik?" tanya Guo Jing.
+
+"Santai saja, Guo Dage," jawab Mu Nianci sambil tersenyum. "Mereka tidak marah kepadamu."
+
+Sebenarnya Guo Jing memang sangat kuatir. Ia takut guru-gurunya sangat marah kepadanya. Ia bangkit dan menyibukkan diri
+dengan teh dan makanan, sementara pikirannya yang sederhana tenggelam dalam lamunan. Mu Nianci berpaling kepada 
+Huang Rong dan bertanya bagaimana mereka bisa bertemu dengan Hong Qigong. Huang Rong menceritakan semuanya.
+
+"Mei Mei, kau betul-betul diberkati," kata Mu Nianci sambil menghela napas. "Kalian tinggal begitu lama dengan 
+Guru Qigong, sampai seperti keluarga kecil. Sedangkan aku hanya ingin menemuinya, tapi ia tidak ada di sini."
+
+"Ia selalu menjagamu," kata Huang Rong menghiburnya. "Ia pasti akan muncul kalau aku berusaha melukaimu. Kalau
+aku sampai melukaimu, bagaimana mungkin dia diam saja?" Mu Nianci mengangguk mengiyakan.
+
+Guo Jing berpikir bahwa ini agak aneh. "Rong'er, kenapa kau ingin melukai Mu Mei Mei?" tanyanya.
+
+"Aku tidak bisa bilang," kata Huang Rong buru-buru.
+
+Mu Nianci tersenyum. "Dia takut, takut aku akan..." katanya tanpa menyelesaikan kalimatnya. Meskipun ia mulai bicara,
+tetapi ia merasa malu menyinggung topik itu.
+
+Huang Rong mengulurkan tangannya dan menggelitik ketiak Mu Nianci. "Kau berani bicara soal itu?" katanya sambil tersenyum.
+
+Mu Nianci menjulurkan lidahnya dan menggelengkan kepala. "Mana mungkin aku berani! Bukannya kau ingin supaya
+aku bersumpah?" Huang Rong tergagap ketika ingat ia mencoba memaksa Mu Nianci bersumpah untuk tidak menikah
+dengan Guo Jing. Pipinya merah padam. Ketika melihat mereka berdua berbagi rasa, Guo Jing merasa sangat bahagia.
+
+Setelah makan, ketiganya pergi ke tengah hutan dan berjalan-jalan sambil bermalas-malasan. Huang Rong bertanya kepada Mu Nianci bagaimana ia menerima pengajaran dari Hong Qigong.
+
+"Itu terjadi ketika aku masih sangat kecil," kata Mu Nianci. "Aku mengikuti ayah ke sungai di provinsi Henan. Kami 
+berhenti di sebuah penginapan, dan ketika aku bermain di pintu masuk, aku melihat dua pengemis tergeletak di tanah, 
+berlumuran darah. Tidak ada yang mau membantu mereka karena takut mengotori diri mereka sendiri."
+
+Huang Rong berusaha menghubungkan cerita itu. "Oh, jadi kau kemudian menunjukkan belas kasihan," katanya. "Dan
+mengobati luka mereka."
+
+"Aku tidak bisa berbuat banyak dengan luka mereka," kata Mu Nianci. "Tapi aku merasa kasihan, jadi aku membawa
+mereka ke ruangan ayahku. Di sana aku membersihkan luka mereka dan membalutnya. Waktu ayahku pulang, ia bilang bahwa
+aku melakukan hal yang benar, sambil menghela napas dan berkata lagi bahwa dulu istrinya juga baik hati. Ayahku
+lalu memberi uang kepada kedua pengemis itu, dan mengobati luka mereka. Mereka berterima kasih dan pergi. Beberapa
+bulan kemudian kami sampai di Xinyang, di mana kami bertemu kedua pengemis itu lagi, yang sudah sembuh. Mereka
+membawaku ke sebuah kuil, di mana aku pertama kalinya bertemu dengan Hong Qigong. Setelah memujiku, ia kemudian
+mengajari aku Xiao Yaoyou, yang perlu waktu tiga hari. Hari keempat, waktu aku kembali ke kuil itu, ternyata
+dia sudah pergi."
+
+Huang Rong berkata, "Guru Qigong tidak mengijinkan kita mengajarkan ilmunya kepada orang lain. Tapi kalau kau,
+Jiejie, mau belajar ilmu ayahku, aku bisa mengajarimu dalam beberapa hari ini." Waktu ia menyadari bahwa Mu Nianci
+tidak ingin menikah dengan Guo Jing, ia merasa sangat lega. Sekarang ia tahu bahwa dia sungguh sangat baik, karena
+itu ia ingin memberinya semacam hadiah.
+
+Mu Nianci berkata, "Terima kasih banyak. Tapi saat ini aku punya keperluan mendesak yang harus segera kulakukan.
+Lain kali aku akan memintamu, meskipun kau tidak menawarkan."
+
+Huang Rong ingin menanyakan tepatnya urusan apa yang harus dilakukannya. Tetapi hanya dengan memandang wajahnya,
+ia segera tahu bahwa Mu Nianci tidak ingin membicarakannya. Ia lalu berpikir, "Dari sikapnya yang malu-malu,
+kelihatannya ia sudah membuat keputusan bulat. Kalau ia tidak ingin bicara, tidak apa-apa."
+
+Mu Nianci meninggalkan penginapan sekitar tengah hari dengan terburu-buru, dan baru kembali setelah gelap.
+Huang Rong memperhatikan ada tanda kegembiraan di wajahnya, tapi ia pura-pura tidak tahu. Setelah makan, keduanya
+beristirahat. Huang Rong melihat pipinya diletakkan di atas telapak tangan, dan mukanya tampak penuh perasaan,
+jadi ia pura-pura tertidur. Setelah beberapa saat, ia melihat Mu Nianci merogoh sesuatu dari dalam bungkusannya,
+dan mengeluarkan sebuah benda. Ia menciumnya dengan lembut dan memandangnya dengan penuh perasaan. Huang Rong
+mengintip dari balik bahunya, dan melihat bahwa benda itu ternyata adalah selembar saputangan bersulam halus. 
+
+Tiba-tiba Mu Nianci tersentak, dan saputangannya berkibar. Huang Rong terkejut dan segera memejamkan mata, sementara
+jantungnya berdebar kencang. Ia hanya mendengar desiran angin pelan di kamar itu, dan ia mengangkat kelopak matanya.
+Ia melihat Mu Nianci mondar-mandir di dalam kamar, bergerak tak menentu. Ia berkata pada diri sendiri, "Hei, itu
+saputangan yang direbutnya dari pangeran itu waktu mereka bertarung dalam lomba." Ia melihat Mu Nianci tersenyum 
+sendiri, dan merasa bahwa ia sedang mengingat-ingat peristiwa hari itu sambil menirukan gerakan dan gaya Wanyan Kang.
+Ia melakukannya selama beberapa saat sebelum berjalan ke dekat tempat tidurnya.
+
+Huang Rong memejamkan matanya rapat-rapat karena tahu bahwa Mu Nianci pasti sedang memandang ke arahnya. Tak lama
+kemudian, ia mendesah, "Kau betul-betul cantik!" Ia mendadak berpaling, dan membuka pintu, lalu berjalan ke luar.
+Huang Rong jadi penasaran dan mengejarnya, menggunakan ilmu meringankan tubuhnya untuk membuntuti Mu Nianci. Ilmu
+meringankan tubuhnya lebih baik dibandingkan Mu Nianci, tetapi ia sengaja menjaga jarak supaya jangan ketahuan.
+Ia melihatnya melompat ke sebuah atap dan memandang sekeliling. Mu Nianci kemudian melompat lagi ke sebuah bangunan
+di sebelah selatan. Huang Rong sudah mengunjungi tempat itu berkali-kali untuk membeli bahan-bahan makanan, dan
+tahu bahwa tempat ini adalah rumah orang kaya, jadi ia berpikir, "Kemungkinan besar dia kehabisan uang, jadi datang
+ke sini untuk 'mengambil' sekedarnya."
+
+Huang Rong melihat pintunya dicat dengan warna cerah, dan ada dua lampion besar di dekatnya, yang bertuliskan 'Utusan
+Kekaisaran Besar Jin', dan ada empat orang pengawal sedang berjaga-jaga di pintu itu. Ia sudah berkali-kali melewati
+pintu ini, tetapi tidak pernah melihat pemandangan seperti ini sebelumnya, jadi ia berpikir, "Dia ingin merampok
+hadiah Kekaisaran Jin. Itu bagus sekali, setelah dia, aku juga ingin ambil bagian!" Ia mengikuti Mu Nianci ke halaman
+belakang, dan melihatnya bersembunyi di setiap sudut, jadi ia mengikuti cara itu.
+
+Mereka melihat nyala api lilin dari arah dapur, dan melihat ada bayangan seorang pria sedang mondar-mandir di dalam
+ruangan. Mu Nianci dengan hati-hati berjalan mendekat dan menatap bayangan pria itu. Setelah bebberapa saat bayangan 
+itu masih terus mondar-mandir, sementara Mu Nianci menatapnya tanpa bergerak. Huang Rong jadi tidak sabaran dan
+berpikir, "Mu Jiejie ragu-ragu. Kenapa dia tidak langsung masuk saja dan menotoknya." Ia berjalan ke arah lain
+sambil berpikir, "Aku akan membantunya dengan cara menotok orang itu, dan bersembunyi di salah satu sudut untuk
+mengejutkannya." Tepat ketika ia bermaksud menyelinap masuk melalui jendela, ia mendengar suara pintu dibuka,
+dan seorang pria masuk sambil berkata, "Lapor, Pak. Parlemen Kekaisaran Selatan akan mengirim utusan ke sini
+besok lusa." Pria itu mengangguk dan si pelapor itu pergi.
+
+Huang Rong berpikir, "Jadi pria yang di dalam itu adalah seorang bangsawan Kekaisaran Jin. Mu Jiejie pasti
+punya alasan untuk ke sini, dan bukan untuk merampok. Aku seharusnya tidak ikut campur." Ia memasukkan salah satu
+jari tangannya ke dalam mulut, lalu melubangi daun jendela, dan mengintip ke dalam[^jendela-kuno]. Ia terkejut, orang yang
+di dalam ternyata adalah Si Pangeran Muda, Wanyan Kang. Di tangannya ada sebuah benda hitam, yang di bawah 
+penerangan lilin, Huang Rong melihat bahwa itu adalah mata dari sebuah tombak yang sudah berkarat. 
+
+Huang Rong tidak tahu bahwa tombak itu adalah milik pribadi ayah kandungnya, Yang Tiexin. Ia hanya merasa bahwa
+benda itu pasti ada kaitannya dengan Mu Nianci, jadi ia tertawa sendiri, "Kalian berdua sebetulnya sama-sama
+bersandiwara. Jangan bilang bahwa kalian tak terpisahkan." Ia lalu tertawa keras-keras tanpa kendali. Wanyan Kang
+sangat terkejut dan langsung meniup lilin sambil berseru, "Siapa itu?" Huang Rong mengambil kesempatan ini untuk
+menyelinap ke belakang Mu Nianci dan menotoknya sehingga tidak bisa bergerak. Huang Rong tertawa. "Jangan takut,
+aku hanya ingin mempertemukanmu dengan kekasihmu."
+
+Wanyan kang baru bermaksud lari ke luar, ketika mendengar suara seorang gadis tertawa cekikikan. "Kekasihmu ada
+di sini, tangkap!" Wanyan Kang berseru, "Apa?" Sesosok tubuh yang lembut, hangat, dan berbau harum tiba-tiba
+mendarat di lengannya, dan gadis yang bicara itu dengan cepat terbang melalui tembok sambil tertawa. "Jiejie, mana
+mungkin kau bisa berterima kasih kepadaku!" Seiring dengan lenyapnya suara tawa itu, gadis yang ada di pelukannya
+meronta minta diturunkan. Wanyan Kang terkejut melampaui kata-kata, ia melangkah mundur dan bertanya, "Ini siapa?"
+Mu Nianci menjawab dengan lembut, "Kau masih ingat aku?" Ia merasa suara itu tidak asing, dan ia tergagap, "Kau...
+kau Nona Mu?" 
+
+Mu Nianci menjawab, "Ya."
+
+Ia bertanya, "Siapa yang datang bersamamu tadi?"
+
+"Itu tadi temanku yang nakal," jawab Mu Nianci. "Aku tidak tahu ia mengikutiku."
+
+Wanyan Kang masuk dan kembali menyalakan lilin. Ia berkata, "Masuk." Mu Nianci menundukkan kepala dan masuk,
+duduk di sebuah kursi dengan tenang, tetapi hatinya berdebar-debar. Wanyan Kang melihatnya tersipu, lalu berkata
+untuk menenangkan, "Kenapa kau datang mencariku di saat seperti ini?" Ia tidak menjawab. Wanyan Kang memikirkan
+ayah kandungnya yang meninggal, dan berkata lembut, "Karena ayahmu meninggal, kau bisa tinggal bersamaku, dan aku
+akan menganggapmu adikku."
+
+Mu Nianci menjawab, "Dia ayah angkatku..." Wanyan Kang terkejut, dan berpikir, "Ia sedang mengatakan bahwa kami
+berdua tidak ada hubungan darah." Ia menggenggam tangan gadis itu sambil tersenyum. Muka Mu Nianci lebih merah lagi,
+dan kepalanya tertunduk lebih dalam. Hati Wanyan Kang serasa terbakar, ia memeluk gadis itu, dan berbisik ke telinganya,
+"Ini ketiga kalinya aku memelukmu. Yang pertama ketika kita berduel dalam lomba, yang kedua tadi di luar, dan sekarang
+tidak ada orang lain di sini."
+
+Mu Nianci bergumam, "Mmm" dan merasakan sesuatu yang sangat manis di dalam hatinya, yang terjadi untuk pertama kali 
+dalam hidupnya. Wanyan Kang mencium aroma harum tubuhnya, memeluk tubuhnya yang ramping, dan menyimpulkan bahwa ini
+memang peristiwa nyata. Setelah beberapa saat ia bertanya, "Bagaimana kau bisa menemukanku?" Mu Nianci berkata, "Aku
+sudah lama mengikutimu. Setiap malam aku menatap bayanganmu, tapi aku tidak berani..." Wanyan Kang menyadari bahwa
+perasaannya sangat dalam, dan ia sangat tersentuh. Ia mencium dahinya dengan lembut. Dalam panasnya api asmara, ia
+memeluknya erat-erat, lalu menciumnya sangat lama.
+
+Mu Nianci berbisik, "Aku seorang anak yatim piatu... jangan telantarkan aku." Wanyan Kang memeluknya dan membelai
+rambutnya sambil berkata, "Jangan kuatir! Kau akan selalu jadi milikku, dan aku akan selalu jadi milikmu, bagaimana?"
+Mu Nianci merasakan sukacita besar memenuhi hatinya, dan menatap mata Wanyan Kang lekat-lekat sambil mengangguk.
+Wanyan Kang melihat ia tersipu, tapi ia tidak peduli lagi. Ia meniup lilin, membawanya ke tempat tidur, dan berusaha
+untuk membuka pakaiannya.
+
+Mu Nianci memang terlena akan buaiannya, tetapi ketika Wanyan Kang menyentuhnya, ia buru-buru mendorongnya dan
+berkata, "Jangan, kita tidak boleh melakukan ini..." Wanyan Kang memeluknya dan berkata, "Aku pasti akan menikahimu.
+Kalau hatiku berubah, biar aku mati dengan cara mengerikan." Mu Nianci menutup mulutnya dengan tangan dan berkata,
+"Aku percaya." Wanyan Kang lalu berkata, "Kalau begitu, biarkan aku..." Gadis itu memohon, "Jangan, jangan..." 
+Wanyan Kang sudah sangat bergairah dan mencoba untuk membuka pakaiannya lagi. Ia memukulnya dengan setengah dari
+kekuatan maksimumnya. Wanyan Kang tidak menduga bahwa gadis itu akan menggunakan ilmu silatnya pada saat seperti 
+iu, ia erdorong jauh. Mu Nianci melompat dari pembaringan, meraih mata tombak dan mengarahkannya ke diri sendiri,
+dan berkata, "Kalau kau memaksaku, aku akan mati di hadapanmu."
+
+Gairah Wanyan Kang mendadak berubah sedingin es. Ia berkata, "Baiklah, kita bicara baik-baik, jangan begini."
+Mu Nianci berkata, "Meskipun aku seorang gadis miskin yang berkelana mengelilingi Jianghu, tapi aku punya
+harga diri dan kehormatan. Kalau kau sungguh-sungguh mencintaiku, tolong hormati aku. Aku tak punya keinginan
+lain dalam hidup ini kecuali untuk bersamamu. Di masa depan... di masa depan kalau aku menikahimu, tentu saja
+aku akan... mematuhimu. Tapi malam ini, kalau kau mencoba memaksaku, aku lebih baik mati." Meskipun ia mengatakan
+semuanya itu dengan lembut, tetapi ia sama sekali tidak ragu-ragu. Diam-diam Wanyan Kang mengagumi dan 
+menghormatinya. "Jangan marah, memang ini salahku." katanya.
+
+Ia bangkit dari tempat tidur dan menyalakan lilin. Mu Nianci mendengar bahwa ia mengerti kesalahannya dan berkata,
+"Aku akan menunggumu di rumah lama ayah angkatku, di Desa Niu. Kau bisa mengirim... mak comblang kapan saja." Ia
+berhenti sejenak, lalu berkata, "Kalau kau tidak muncul, aku akan menunggu di sepanjang hidupku." Wanyan Kang
+sungguh terharu, ia buru-buru berkata, "Jangan kuatir, setelah menyelesaikan tugasku, aku akan segera datang.
+Dalam hidup ini aku tidak akan berubah pikiran."
+
+Mu Nianci tersenyum malu dan berpaling untuk pergi. Wanyan Kang berseru, "Jangan pergi... temani aku ngobrol
+sebentar lagi." Tapi Mu Nianci melambaikan tangannya dan pergi. Wanyan Kang tetap berdiri di tempatnya sambil
+meenatap bayangannya yang menghilang di balik tembok, dan merasa semuanya ini seperti mimpi. Ia meninggalkan
+beberapa helai rambut, sisa dari pergumulan mereka. Ia menyimpan helai rambut itu di sebuah kantong kecil.
+Ketika mereka bertarung dalam lomba, ia tidak terlalu memikirkannya. Tapi ia tidak menyangka gadis itu akan
+mengikutinya dan menatap bayangannya setiap malam. Namun demikian, ia sangat menghargai kesuciannya, sungguh
+membuatnya sanga menghormati gadis itu. Ia tersenyum dan menghela napas.
 
 
 ***
@@ -1528,6 +1849,8 @@ Mu Nianci berpaling ke kiri dan membalas dengan pukulannya, yang sangat keras.
   <dd>
       Istilah umum untuk memanggil seorang adik perempuan, atau orang lain yang dianggap adik.
   </dd>
+  <dt id="jiejie"><strong>Jie Jie (姐姐)</strong></dt>
+  <dd>Kakak perempuan</dd>
 </dl>
 
 ***
@@ -1550,6 +1873,9 @@ Mu Nianci berpaling ke kiri dan membalas dengan pukulannya, yang sangat keras.
 [^xiao-yao-you]: **Xiao Yao You** (逍遥游). Karakter pertama dan kedua jika digabungkan akan bermakna _carefree_, atau 'bebas'. Tetapi bisa juga diartikan 'riang'. Sedangkan karakter ketiga 'You' (游) punya makna literal '_traveling_', atau bisa kita terjemahkan secara bebas menjadi berjalan-jalan. Istilah ini kurang lebih bermakna 'Berjalan-jalan Dengan Bebas dan Riang Gembira'. Karena terlalu panjang dan dari segi estetika tidak enak dibaca maupun diucapkan, maka saya membiarkannya seperti itu. (Terjemahan bahasa Inggris dari fans menerjemahkannya menjadi 'Wandering Strides', yang saya kira agak kurang sesuai).
 
 [^zhongyuan]: **Zhong Yuan** (中原), arti literalnya adalah "Dataran tengah" atau "Wilayah Pusat", "Mainland", dsb. Mewakili wilayah pusat dari areal yang sekarang ini kita kenal sebagai Tiongkok. Yang disebut "Pusat" ini dari masa ke masa adalah daerah di sekitar Sungai Kuning (Huang He), dan secara garis besar masyarakat yang berkembang kemudian adalah keturunan dari masyarakat yang berdiam di wilayah itu.
+
+[^jendela-kuno]: Di masa itu bagian tengah dari sebuah jendela terbuat dari kertas minyak, yang dengan mudah bisa dilubangi dari luar untuk mengintip.
+
 
 ##### Delapan Harta Karun
 1. Bao Zhu (宝珠), mutiara yang menyala. Melambangkan terkabulnya sebuah harapan.
