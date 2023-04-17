@@ -1479,7 +1479,7 @@ Mu Nianci berusaha mengelak, tapi Huang Rong menggunakan Telapak Dewa Pedang Men
 dan gaya misterius, Huang Rong memukul Mu Nianci dua kali di rusuknya, yang terasa sangat menyakitkan. Dengan marah
 Mu Nianci berpaling ke kiri dan membalas dengan pukulannya, yang sangat keras.
 
-"Itu Xiao Yaouyou[^xiao-yaou-you]!" seru Huang Rong. "Mana mungkin!"
+"Itu Xiao Yaouyou[^xiao-yao-you]!" seru Huang Rong. "Mana mungkin!"
 
 Mu Nianci terkejut ketika mendengar seruan Huang Rong. "Ini jurus yang hanya diajarkan Qigong kepadaku," pikirnya.
 "Bagaimana dia bisa tahu?" Mu Nianci mengawasi Huang Rong yang menarik tangan kirinya, lalu menyerang dengan tangan
@@ -1800,7 +1800,7 @@ meenatap bayangannya yang menghilang di balik tembok, dan merasa semuanya ini se
 beberapa helai rambut, sisa dari pergumulan mereka. Ia menyimpan helai rambut itu di sebuah kantong kecil.
 Ketika mereka bertarung dalam lomba, ia tidak terlalu memikirkannya. Tapi ia tidak menyangka gadis itu akan
 mengikutinya dan menatap bayangannya setiap malam. Namun demikian, ia sangat menghargai kesuciannya, sungguh
-membuatnya sanga menghormati gadis itu. Ia tersenyum dan menghela napas.
+membuatnya sangat menghormati gadis itu. Ia tersenyum dan menghela napas.
 
 
 ***
