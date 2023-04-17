@@ -49,6 +49,193 @@ mereka dari Kerajaan Wu. Kisah tersebut berakhir dengan bahagia, di mana Fan Li 
 dalam melaksanakan misi mereka, kemudian mengundurkan diri ke Danau Tai, dan menjalani hidup dalam damai. Ia meneruskan
 cerita itu dengan bagaimana Wu Zixu dibunuh oleh Raja Fuchai dari Wu, dan Wen Zhong dibunuh oleh Raja Goujian dari Yue[^kisah-wu-yue].
 
+Guo Jing bingung setelah mendengar cerita Huang Rong. Setelah agak lama barulah ia menarik kesimpulan. "Fan Li memang
+pintar, tetapi Wu Zixu dan Wen Zhong juga pantas dikagumi, karena mereka siap mati untuk negara." katanya.
+
+Huang Rong tertawa. "Betul sekalu. Seperti pepatah: Kalau negara baik, dan orang tidak berubah, dialah yang terkuat. 
+Kalau negara korup, dan dia tetap tidak berubah, maka dia tetap yang terkuat."
+
+"Apa maksudnya itu?" tanya Guo Jing.
+
+"Kalau negara kuat," kata Huang Rong menjelaskan, "meskipun orang bisa mencapai puncak karir sebagai pejabat,
+orang itu masih tetap akan waspada dan berhati-hati seperti sebelumnya. Ketika negara suatu hari menjadi lemah,
+dan kau masih tetap bersedia mati demi negaramu, maka kau adalah pahlawan sejati."
+
+Guo Jing menganggukkan kepala dan berkata, "Rong'er, kau pintar sekali bisa berpikir seperti ini."
+
+Huang Rong menanggapi, "Haiyaa! Kalau aku bisa berpikir seperti ini, maka aku pastilah Orang Bijak. Itu kata-kata
+Konfusius, yang diajarkan ayahku ketika aku masih kecil."
+
+Guo Jing menghela napas. "Banyak sekali urusan yang tidak bisa kupahami. Kalau aku membaca lebih banyak buku,
+dan memahami lebih banyak kata-kata bijak, barangkali aku bisa lebih mengerti."
+
+Huang Rong berkata, "Hal itu belum tentu selalu benar. Ayahku selalu bilang bahwa ucapan para Orang Bijak dan 
+Sastrawan tak lebih dari sampah dan omong kosong. Aku sering melihat ayahku membaca dan kemudian bicara keras-keras,
+"Bukan, bukan! Ini semua omong kosong! Sungguh mengerikan!" Kadang-kadang ia juga bilang, "Apanya yang bijak? Ini
+hanya bungkusan sampah!" Guo Jing tertawa keras-keras mendengar cara Huang Rong menceritakan ayahnya.
+
+Huang Rong melanjutkan, "Aku agak menyesal terlalu banyak belajar seni dan kaligrafi. Kalau aku tidak menyusahkan
+ayahku untuk mengajarkan begitu banyak hal-hal semacam itu, dan juga cara berhitung, maka aku pasti menyisihkan
+lebih banyak waktu untuk berlatih kungfu, dan kita tidak usah takut kepada orang semacam Mei Chaofeng dan juga
+Makhluk Tua Liang itu. Tapi jangan kuatir Jing Gege, kau sudah belajar Delapan Belas, kurang tiga, Jurus Penakluk
+Naga dari Qigong, dan kau tidak perlu takut kepada Makhluk Tua Liang itu lagi."
+
+Guo Jing menggelengkan kepalanya. "Kurasa itu tidak mungkin."
+
+Huang Rong tertawa dan berkata lagi, "Sayangnya Qigong sudah pergi. Kalau belum, aku akan menyita dan menyembunyikan
+tongkatnya, dan memaksanya mengajarkan sisa tiga jurus itu kepadamu, sebelum mengembalikannya lagi."
+
+Guo Jing buru-buru berkata, "Tidak, tidak! Aku sudah lebih dari puas bisa belajar lima belas jurus ini. Mana bisa
+kita menyusahkan Guru Qigong?"
+
+Mereka mulai mengobrol dan berhenti mendayung, membiarkan angin menghanyutkan perahu itu dengan bebas. Tanpa sadar,
+mereka sudah jauh sekali dari tepi danau. Mereka melihat seorang nelayan sedang menangkap ikan dengan santai
+dari sebuah perahu tak jauh dari situ, dan juga ada seorang pelayan membantunya di dalam perahu.
+
+Huang Rong menunjuk dengan jarinya. "Ketika kabut pergi, kita bisa melihat dengan jelas bentuk dari tongkat bambu.
+Itu seperti lukisan pemandangan dari cat air."
+
+Guo Jing bertanya, "Apa itu lukisan pemandangan dari cat air?"
+
+Huang Rong menjelaskan, "Itu lukisan yang hanya menggunakan tinta hitam, tidak ada warna lain."
+
+Guo Jing melihat perbukitan hijau, air biru, awan putih, dan matahari oranye, tapi tidak bisa menemukan apapun yang
+berwarna hitam. Ia menggelengkan kepala, tidak bisa memahami maksud Huang Rong. Huang Rong masih terus mengobrol
+bersama Guo Jing. Kemudian ia melihat bahwa si nelayan masih duduk tegak di perahunya, tongkat kailnya sama sekali
+tidak bergerak. Huang Rong tertawa. "Orang ini punya kesabaran luar biasa."
+
+Angin bertiup menerpa mereka dan ombak kecil membuat perahu itu terayun-ayun. Huang Rong mengayun-ayunkan tangannya
+dan mulai menyanyikan lagu 'Naga Air Bersenandung', yang menceritakan kehidupan di danau. Setelah selesai menyanyikan
+bagian pertama, ia berhenti sejenak untuk beristirahat. Guo Jing melihat ada air mata berlinang di matanya, dan baru
+saja henak menanyakan apa makna lagu tersebut, ketika mereka mendengar ada suara melankolis menyanyikan lagu yang
+sama seperti yang baru dinyanyikan Huang Rong, tetapi ini adalah bait kedua. Ketika mereka melihat ke sekeliling,
+kelihatannya si nelayanlah orang yang menyanyikan lagu itu. Suaranya terdengar sangat kuat, namun lembut. Guo Jing
+tidak mengerti apa yang dinyanyikan oleh keduanya, tetapi ia merasa lagu itu sangat enak didengar. Namun demikian,
+ketika Huang Rong mendengar lagu itu, ia tampak sangat terkejut.
+
+"Ada apa?" tanya Guo Jing.
+
+"Ayahku sering menyanyikan lagu ini," jawab Huang Rong. "Tak kuduga seorang nelayan biasa juga bisa menyanyikannya.
+Ayo kita lihat dia lebih dekat." Mereka mendayung perahu mendekat, dan melihat si nelayan sedang duduk sambil 
+memegang pancingnya dan mendayung perahunya maju. Ketika kedua perahu saling mendekat, si nelayan bertanya, "Karena
+kupikir aku cukup beruntung menemukan tamu istimewa, bolehkah aku undang kalian ke tempatku untuk minum?"
+
+Huang Rong berpikir bahwa ucapan ini terdengar sangat teratur dan halus. Diam-diam ia merasa penasaran, ia
+menjawab, "Kami tidak ingin mengganggu Qianbei."
+
+Si Nelayan tertawa. "Tidak mudah menemukan tamu istimewa," katanya. "Karena kita kebetulan bertemu di tengah danau,
+kita harus menghargainya. Silakan mampir sebentar."
+
+Kedua perahu semakin mendekat. Guo Jing dan Huang Rong mendayung perahu sejajar dengan perahu si nelayan, dan
+menyeberang masuk untuk menyapanya. Si Nelayan menyapa mereka sambil tetap duduk di tempatnya dan berkata, "Silakan
+duduk. Aku cacat, jadi tidak bisa berdiri menyambut kalian. Maafkan ketidaknyamanan ini."
+
+Guo Jing dan Huang Rong berkata, "Tidak apa-apa."
+
+Keduanya duduk sambil mengamati si nelayan. Ia berusia sekitar empat puluh tahun, dengan wajah kurus dan kelihatannya
+sakit. Ia sangat tinggi, meskipun sedang duduk, ia tetap satu setengah kepala lebih tinggi dari Guo Jing. Si pelayan
+di belakang perahu mulai menghangatkan arak.
+
+Huang Rong berkata, "Kakakku bermarga Guo, dan wanbei sendiri bermarga Huang. Wanbei sangat gembira tadi, makanya 
+bernyanyi di tengah danau, semoga tidak menyinggung perasaan Qianbei."
+
+Si Nelayan tertawa. "Aku sangat beruntung bisa mendengar suara yang begitu jernih. Margaku Lu. Xiong Di, ini pertama
+kalinya kalian ke danau ini?"
+
+"Ya," jawab Guo Jing.
+
+Si Nelayan menyuruh pelayannya membawakan makanan dan arak untuk tamunya. Meskipun empat macam makanan itu tidak
+bisa dibandingkan dengan masakan Huang Rong, tapi mereka juga enak. Dan cawan arak serta piring yang dipakai untuk
+menghidangkannya terlihat sangat unik. Tak diragukan lagi, semua itu diambil dari koleksi terbaik.
+
+Ketiganya mulai minum. Si Nelayan berkata, "Xiong Di, tadi kudengar kau menyanyikan lagu 'Naga Air Bersenandung',
+yang liriknya sangat sempurna. Cukup mengejutkan, meskipun Xiong Di masih sangat muda, tetapi bisa memahami makna
+yang sangat dalam dari lirik lagu itu."
+
+Ketika mendengar pujiannya, Huang Rong tersenyum kecil. "Sejak Song pindah ke Selatan, semua penulis lagu
+selalu menciptakan lirik yang bernada sedih mengenai negeri ini."
+
+S Nelayan mengangguk tanda setuju. Huang Rong melanjutkan, "Lagu lain yang berjudul 'Enam Kota' yang ditulis
+oleh Zhang Yuhu punya makna sama."
+
+Si Nelayan mulai menyanyikan lirik tersebut, "Ketika rakyat lewat, orang mulai menitikkan air mata tanda kesetiaan
+dan amarah..." Ia meneguk tiga cawan arak dan mulai terlibat pembicaraan dengan Huang Rong. Sebetulnya, Huang Rong
+hanya seorang gadis kecil, ia tentu tidak mengalami penderitaan nyata yang disebabkan oleh 'negara kita'. Ia tidak
+sungguh-sungguh terlibat secara emosi dengan kedalaman makna lirik lagu tersebut. Hanya saja, ia pernah pendengar
+penjelasan ayahnya mengenai makna lirik itu, dan menggunakan kalimat ayahnya yang sangat canggih dan halus untuk
+menjawab pertanyaan si nelayan. Ini membuat si nelayan sangat kagum, yang setulus hati memujinya. Setelah mengobrol
+sejenak, ia melihat bahwa pemandangannya memudar, dan kabut di sekitar danau sepertinya menebal. 
+
+Si Nelayan berkata, "Rumahku tidak jauh dari danau ini, kalau kalian tidak keberatan, aku ingin mengundang kalian
+mampir supaya kita bisa berdiskusi lebih lama."
+
+Huang Rong bertanya, "Menurutmu bagaimana, Jing Gege?"
+
+Guo Jing tidak sempat menjawab, karena Si Nelayan segera berkata lagi, "Rumahku dibangun dengan latar belakang
+perbukitan yang indah. Karena kalian berdua sedang berjalan-jalan keliling pedesaan, mengapa tidak mampir
+sebentar?"
+
+Guo Jing merasa bahwa ia jujur dan sungguh-sungguh, maka ia menjawab, "Rong'er, kelihatannya kita harus merepotkan 
+Lu Xiansheng." Si Nelayan sangat senang, dan menyuruh pelayannya mendayung perahu pulang.
+
+Ketika mereka tiba di tepi danau, Guo Jing berkata, "Aku harus mengembalikan perahu ini dulu, dan juga
+mengambil keledai dan kudaku."
+
+Si Nelayan tersenyum dan berkata, "Aku kenal baik semua orang di daerah ini. Kalian bisa membiarkan pemilik
+perahu itu menanganinya." Sambil bicara ia memberi isyarat kepada pelayannya.
+
+Guo Jing berkata, "Kudaku punya tabiat buruk, biar aku yang menanganinya sendiri." 
+
+Si Nelayan berkata, "Baiklah kalau kau ingin begitu. Aku menunggu kalian di rumah." Perahunya segera bergerak 
+dan menghilang di kejauhan.
+
+Para pelayan mengikuti Guo Jing dan Huang Rong untuk membereskan urusan mereka. Ia diberi perahu yang lebih besar 
+oleh salah seorang penduduk desa, yang bisa menampung kuda dan keledai mereka. Enam orang tukang perahu mendayung 
+perahu itu untuk mereka hingga akhirnya mereka tiba di bagian depan pulau. Mereka menghentikan perahu di sebuah 
+dermaga yang terbuat dari batu hijau. Ketika tiba di tepian, mereka melihat pemukiman yang terdiri dari rumah 
+kecil-kecil, yang membentuk sebuah areal perumahan besar. Mereka menyeberangi jembatan batu besar dan tiba di 
+bagian depan perumahan itu. Guo Jing dan Huang Rong saling berpandangan, karena tidak menduga bahwa Si Nelayan
+tinggal di rumah yang semewah itu. Sebelum mereka mencapai pintu gerbang, mereka melihat seorang pria yang berusia
+sekitar dua puluh tahun menyambut mereka. Sekitar enam orang pelayan mengikuti di belakangnya. Pemuda itu
+berkata, "Ayahku mengirimku ke sini untuk menyambut tamu."
+
+Guo Jing dan Huang Rong membungkuk sebagai tanda terima kasih. Mereka melihat pemuda itu memakai jubah panjang
+dan raut mukanya mirip dengan Si Nelayan, kecuali bahwa ia nampak jauh lebih kuat dan kekar. Guo Jing
+bertanya, "Boleh aku tahu nama Saudara Lu?"
+
+Pemuda itu menjawab, "Namaku Guanying, tolong panggil aku dengan nama ini saja."
+
+Huang Rong menjawab dengan sopan, "Wah, jangan, mana bisa begitu."
+
+Mereka bertiga mulai mengobrol sambil berjalan memasuki rumah. Guo Jing memperhatikan bahwa bagian dalam rumah itu
+ditata dan dihias dengan sangat indah dan rapi. Sementara berjalan, Huang Rong secara khusus memperhatikan
+tata letak dan jalan di situ. Ia terlihat agak heran.
+
+Sementara mereka bertiga menyeberangi halaman depan dan memasuki ruang tamu, terdengar suara Si Nelayan dari 
+balik tirai, "Silakan masuk." 
+
+Lu Guanying berkata, "Ayahku tidak bisa berjalan, karena itu harus menerima kalian di ruang belajarnya, di 
+sebelah timur."
+
+Ketiganya berjalan melewati tirai dan melihat bahwa pintu ruangn belajar itu terbuka, dan Si Nelayan sedang
+duduk di sebuah bangku panjang di dalamnya. Tetapi ia tidak lagi berdandan seperti seorang nelayan, melainkan
+seperti seorang sastrawan tua. Ia sedang memegang sebuah kipas bulu angsa di tangannya, dan sedang mengipasi
+diri dengan senang. Guo Jing dan Huang Rong masuk dan duduk, tetapi Lu Guanying tidak berani duduk, ia berdiri
+di salah satu sisi. Huang Ring melihat bahwa ruang belajar itu dipenuhi rak untuk literatur klasik dan koleksi
+puisi. Mejanya dihias dengan pernak-pernik berharga, seperti batu pualam antik, dan sebuah lukisan tinta hitam
+tergantung di dinding. Lukisan itu menggambarkan seorang sastrawan setengah baya yang sedang memperagakan
+sebuah jurus pedang di halaman belakang, di bawah sinar bulan. Tetapi ekspresi muka sastrawan itu terlihat
+kesepian. Di pojok kiri atas lukisan itu ada sebuah puisi.
+
+> Malam sunyi tanpa kicauan burung.
+> Sudah larut malam ketika aku tertidur pulas.
+> Aku bangun hanya untuk terus sendirian,
+> tak seorang pun hadir selain terang bulan di atas sana.
+> Seratus keping mendapat pengakuan dan sukses.
+> Bukit-bukit menua dan ranting-ranting layu menghalangi jalanku.
+> Banyak hal terkubur di dalamku namun tak seorang pun ingin mendengar,
+> kepadda siapa aku bisa bercerita tentang masalahku?
+
 
 
 ***
