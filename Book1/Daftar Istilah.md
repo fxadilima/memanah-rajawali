@@ -177,6 +177,10 @@ The "Twin Killers in the Dark Wind" (黑風雙煞)
 Locust Tree = Zao Jia(baca: zào jiá, 皂荚) adalah pohon _locust_ yang bisa jadi buahnya bisa dimakan (rasanya manis),
 atau malah beracun (Black Locust). 
 
+Grand Canal = Da Yun he (大運河, baca: Dà Yùnhé)
+Pottery = Tao (陶)
+
+
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
 ## Tanda Baca
