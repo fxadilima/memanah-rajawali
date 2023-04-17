@@ -237,7 +237,7 @@ kesepian. Di pojok kiri atas lukisan itu ada sebuah puisi.
     kepada siapa aku bisa bercerita tentang masalahku?
 
 Huang Rong mengenali puisi itu sebagai karya Yue Fei yang berjudul 'Bukit Kecil Yang Kuat', itu diajarkan
-kepadanya oleh ayahnya. Ia melihat tanda tangan di bagian bawah yang tertulis 'Orang Cacat ari Lima Danau Sedang Sakit',
+kepadanya oleh ayahnya. Ia melihat tanda tangan di bagian bawah yang tertulis 'Orang Cacat dari Lima Danau Sedang Sakit',
 dan segera menyadari bahwa 'Orang Cacat dari Lima Danau' pastilah nama samaran dari pemilik perumahan ini. 
 Guratan dari karakter-karakter itu tampaknya ditulis dengan kasar dan memaksa, dan sepertinya guratan itu merobek
 kertas yang menjadi kanvas lukisan itu.
