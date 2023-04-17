@@ -236,6 +236,17 @@ kesepian. Di pojok kiri atas lukisan itu ada sebuah puisi.
     Banyak hal terkubur di dalamku namun tak seorang pun ingin mendengar,
     kepada siapa aku bisa bercerita tentang masalahku?
 
+Huang Rong mengenali puisi itu sebagai karya Yue Fei yang berjudul 'Bukit Kecil Yang Kuat', itu diajarkan
+kepadanya oleh ayahnya. Ia melihat tanda tangan di bagian bawah yang tertulis 'Orang Cacat ari Lima Danau Sedang Sakit',
+dan segera menyadari bahwa 'Orang Cacat dari Lima Danau' pastilah nama samaran dari pemilik perumahan ini. 
+Guratan dari karakter-karakter itu tampaknya ditulis dengan kasar dan memaksa, dan sepertinya guratan itu merobek
+kertas yang menjadi kanvas lukisan itu.
+
+Lu [Xiansheng](#xiansheng "(先生) Tuan") melihat bahwa Huang Rong sedang memperhatikan lukisan dan bertanya, "Xiong Di[^panggilan-1], apa pendapatmu tentang lukisanku? Apa bisa memberikan sedikit petunjuk?"
+
+Huang Rong menjawab, "Aku akan mengatakan pendapatku, tapi kuharap Lu Xiansheng tidak tersinggung atau marah."
+
+Lu Xiansheng berkata, "Silakan."
 
 
 ***
@@ -252,7 +263,13 @@ kesepian. Di pojok kiri atas lukisan itu ada sebuah puisi.
     </dd>
     <dt id="satuan-li">Satuan Li</dt>
     <dd>1 li kurang lebih = 500m</dd>
+    <dt id="xiansheng">Xiansheng (先生)</dt>
+    <dd>
+        Setara dengan "Tuan", tetapi biasanya digunakan untuk memanggil seorang terpelajar, seperti misalnya, 
+        di masa itu, seorang sastrawan.
+    </dd>
 </dl>
+
 
 ***
 
@@ -263,6 +280,8 @@ kesepian. Di pojok kiri atas lukisan itu ada sebuah puisi.
 [^kisah-wu-yue]: Kisah tersebut adalah bagian dari sejarah nyata, yang terjadi dalam Periode Musim Semi dan Musim Gugur (770 — 481 SM). Era ini adalah periode kedua dari Dinasti Zhou, di mana dinasti tersebut sebenarnya sudah kehilangan sebagian besar kekuatannya. Filsuf besar dari Tiongkok, Konfusius, hidup di era ini. Cuplikan [kisah mengenai perseteruan Wu dan Yue](#perang-antara-wu-yue) agak panjang, dan sebetulnya _tidak ada kaitannya_ dengan kisah ini sendiri. Tetapi tetap saya sertakan di sini untuk menjaga konsistensi dengan karya asli Jin Yong. Dalam penuturan Huang Rong di atas, yang menceritakan bahwa Wen Zhong tewas dibunuh oleh Raja Goujian dari Yue, sebenarnya bertentangan dengan sejarah yang menceritakan bahwa Wen Zhong mendapat nasehat dari Fan Li, yang saat itu sudah mengundurkan diri, untuk meninggalkan Raja Goujian. Dalam sejarah, Raja Goujian memang bernia menyingkirkannya, tetapi Wen Zhong sukses mengundurkan diri dan masih tetap hidup.
 
 [^wenzhong]: Wen Zhong adalah menteri Kerajaan Yue yang mengambil alih pemerintahan ketika Raja Goujian menjadi tawanan Wu. 
+
+[^panggilan-1]: Panggilan 'Xiong Di' memang ditujukan untuk laki-laki. Saat itu Huang Rong memang sedang berdandan seperti laki-laki. Karena itu tuan rumah memanggilnya begitu.
 
 
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>

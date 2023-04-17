@@ -180,6 +180,8 @@ atau malah beracun (Black Locust).
 Grand Canal = Da Yun he (大運河, baca: Dà Yùnhé)
 Pottery = Tao (陶)
 
+Xiansheng (先生) = Tuan
+
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
