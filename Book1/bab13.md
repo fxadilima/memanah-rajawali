@@ -1,15 +1,9 @@
-# Orang Lumpuh Di Lima Danau
+# Bab 13
+## Orang Lumpuh Di Lima Danau
 
-[Pertarungan di Danau Tai](https://youtube.com/clip/UgkxBrCIAzm-Dp9ExXXHONuxMNLnl28h3i6T) adalah
-ilustrasi untuk Bab 13 ini, sesuai dengan novel. Klip ini diambil dari versi 2017.
-
-Kemungkinan masih harus dicari tepatnya di mana _event_ yang paling
-mirip dengan ilustrasi gambar dari Jin Yong, tapi seharusnya tidak jauh dari ini.
-
-[Orang lumpuh di Lima Danau](https://youtube.com/clip/Ugkx-k19csImNMm5oQWjWkozThacIYDN28B1)
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 13](https://res.cloudinary.com/drzjshskk/image/upload/v1676692862/sdyxz/originals/loch-13_q1tnfz.jpg) | _Saat perompak Danau Tai dan perahu pejabat Jin mendekat, terdengar suara teriakan, omelan, benturan senjata, dan suara cipratan saat tubuh-tubuh manusia jatuh ke air. Setelah beberapa saat, perahu pejabat Jin terbakar, apinya menerangi langit yang gelap dan memancarkan sinar merah menyala di atas danau._ |
 
 ***
-
-
-
 
