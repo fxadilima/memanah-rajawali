@@ -1618,7 +1618,7 @@ sejak awal, dan juga tahu tentang 'sumpah' yang dipaksakannya kepada Mu Nianci. 
 tidak ada yang memperhatikan kehadiran Hong Qigong. Mereka berdua lalu berjalan ke penginapan sambil bergandengan
 tangan.
 
-Guo Jing yang sedang duduk di dalam setelah selesai berlatih, sangat terkejut melihat Mi Nianci. "Mu Mei Mei,
+Guo Jing yang sedang duduk di dalam setelah selesai berlatih, sangat terkejut melihat Mu Nianci. "Mu Mei Mei,
 kau ketemu guru-guruku?" 
 
 "Guru-gurumu yang terhormat dan aku sama-sama meninggalkan ibukota ke arah Selatan, ke Shandong," kata Mu Nianci.
