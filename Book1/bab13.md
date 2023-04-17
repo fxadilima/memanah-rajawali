@@ -227,14 +227,14 @@ tergantung di dinding. Lukisan itu menggambarkan seorang sastrawan setengah baya
 sebuah jurus pedang di halaman belakang, di bawah sinar bulan. Tetapi ekspresi muka sastrawan itu terlihat
 kesepian. Di pojok kiri atas lukisan itu ada sebuah puisi.
 
-> Malam sunyi tanpa kicauan burung.
-> Sudah larut malam ketika aku tertidur pulas.
-> Aku bangun hanya untuk terus sendirian,
-> tak seorang pun hadir selain terang bulan di atas sana.
-> Seratus keping mendapat pengakuan dan sukses.
-> Bukit-bukit menua dan ranting-ranting layu menghalangi jalanku.
-> Banyak hal terkubur di dalamku namun tak seorang pun ingin mendengar,
-> kepadda siapa aku bisa bercerita tentang masalahku?
+    > Malam sunyi tanpa kicauan burung.
+    > Sudah larut malam ketika aku tertidur pulas.
+    > Aku bangun hanya untuk terus sendirian,
+    > tak seorang pun hadir selain terang bulan di atas sana.
+    > Seratus keping mendapat pengakuan dan sukses.
+    > Bukit-bukit menua dan ranting-ranting layu menghalangi jalanku.
+    > Banyak hal terkubur di dalamku namun tak seorang pun ingin mendengar,
+    > kepadda siapa aku bisa bercerita tentang masalahku?
 
 
 
