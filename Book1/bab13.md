@@ -248,6 +248,21 @@ Huang Rong menjawab, "Aku akan mengatakan pendapatku, tapi kuharap Lu Xiansheng 
 
 Lu Xiansheng berkata, "Silakan."
 
+Huang Rong berkata, "Puisi di atas lukisan itu adalah karya Yue Fei yang berjudul 'Bukit Kecil Yang Kuat', yang
+ditulisnya di dalam koleksi buku perangnya. Isinya menggambarkan suasana hati yang tertekan dan muram. Tetapi ada
+makna khusus di situ. Jendral Yue Fei adalah seorang pribadi yang berjiwa pemberani dan gagah, ia berjuang keras
+untuk rakyat dan negaranya. Baris yang berbunyi 'Seratus keping mendapat pengakuan dan sukses' barangkali menunjukkan
+kepribadiannya yang sederhana. Saat itu banyak pejabat yang korup, dan memihak Jin. Yue Fei adalah seorang pejabat
+kuat, tapi sayangnya tak seorang pun bersedia mendengarkan dia. Itu barangkali alasannya menulis 'Banyak hal terkubur
+dalamku namun tak seorang un ingin mendengar, kepada siapa aku bisa bercerita tentang masalahku?' Baris itu 
+menggambarkan Yue Fei yang putus asa, tapi itu belum tentu berarti ia ingin menentang pemerintah. Namun demikian, 
+ketika Xiansheng menulis ini, Xiansheng dalam keadaan keadaann gelisah dan agresif, maka Xiansheng memakai cukup
+banyak tenaga dalam guratannya. Tampaknya seolah Xiansheng ingin memerangi seorang musuh bebuyutan, karenanya suasana
+hati dan tujuan Xiansheng tidak selaras dengan Yue Fei pada saat dia menulis buku perangnya. Maafkan kelancanganku,
+tetapi sepengetahuanku kalau orang berusaha terlalu keras untuk mencapai atau mengekspresikan secara berlebihan di dalam
+sebuah karya seni, maka niat yang murni dan benar akan hilang, dan hasilnya tidak akan bisa cemerlang."
+
+
 
 ***
 
