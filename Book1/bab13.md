@@ -52,7 +52,7 @@ cerita itu dengan bagaimana Wu Zixu dibunuh oleh Raja Fuchai dari Wu, dan Wen Zh
 Guo Jing bingung setelah mendengar cerita Huang Rong. Setelah agak lama barulah ia menarik kesimpulan. "Fan Li memang
 pintar, tetapi Wu Zixu dan Wen Zhong juga pantas dikagumi, karena mereka siap mati untuk negara." katanya.
 
-Huang Rong tertawa. "Betul sekalu. Seperti pepatah: Kalau negara baik, dan orang tidak berubah, dialah yang terkuat. 
+Huang Rong tertawa. "Betul sekali. Seperti pepatah: Kalau negara baik, dan orang tidak berubah, dialah yang terkuat. 
 Kalau negara korup, dan dia tetap tidak berubah, maka dia tetap yang terkuat."
 
 "Apa maksudnya itu?" tanya Guo Jing.
