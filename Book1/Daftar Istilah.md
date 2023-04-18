@@ -18,6 +18,10 @@ Quanzhen Qi Zi (全真七子) = 7 Pendekar Quanzhen.
 Nan Xiren (南希仁)
 Nan Shan Qiao Zi (南山樵子) = Julukan Nan Xiren = Pemotong Kayu dari Pegunungan Selatan
 
+Julukan Sha Tongtian (沙通天) adalah Gui Men Long Wang (鬼門龍王), yang berarti 'Raja Naga dari Gerbang Hantu',
+demi estetika sebaiknya 'Raja Naga dari Gerbang Iblis', atau malah 'Raja Naga dari Gerbang Maut'?
+
+
 Liang Ziweng (梁子翁)
 Dewa Ginseng (參仙老怪) = julukan Liang Ziweng. Literal: "Lao Guai" di sini sebetulnya adalah "Orang tua aneh",
 dan diterjemahkan menjadi Old Monster. Tapi kelihatannya Dewa Ginseng lebih baik secara estetika. Ia berasal
@@ -231,6 +235,9 @@ kurang pas. Yang lebih tepat adalah:
 Dajia (大家) atau Gewei (各位).
 Kedua istilah terakhir itu banyak digunakan dalam Heavenly Sword and Dragon Slaying Sabre (2019).
 Zhang Cuisan menggunakan 'Gewei' dalam pidato pembelaan diri di hadapan orang-orang yang mencari kakak angkatnya.
+
+Men yang dipakai dalam 'Ni Men' dalam karakter tradisional adalah (們). Kalau karakter sebelah kiri dihilangkan,
+maka kita akan melihat karakter untuk 'Pintu' (門), yang mengucapannya kurang lebih sama.
 
 
 ***

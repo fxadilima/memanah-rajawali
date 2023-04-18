@@ -1247,19 +1247,19 @@ pasti akan kalah. Tapi kalau mundur, mereka akan kehilangan muka dan tidak bisa 
 
 "Betul," jawab Zhu Cong sambil tertawa. "Kalian siapa?"
 
-"Kami murid-murid Raja Naga dari Kelompok Iblis."
+"Kami murid-murid Raja Naga dari Gerbang Iblis."
 
 Para Orang Aneh sangat terkejut. Melihat cara mereka mengeroyok Guo Jing, mereka pikir orang-orang ini pastilah
-berandalan biasa tanpa guru, yang jelas tidak kenal aturan. Tapi Raja Naga dari Kelompok Iblis, Sha Tongtian,
-adalah tokoh berbobot di dunia persilatan. 
+berandalan biasa tanpa guru, yang jelas tidak kenal aturan. Tapi Raja Naga dari Gerbang Iblis, Sha Tongtian,
+adalah tokoh berbobot di dunia persilatan.
 
-"Kalian menyalahgunakan nama orang lain ya?" desak Ke Zhen'E dengan nada dingin. "Raja Naga dari Kelompok
-Iblis adalah orang terkenal. Mana mungkin dia punya murid-murid payah seperti kalian?"
+"Kalian menyalahgunakan nama orang lain ya?" desak Ke Zhen'E dengan nada dingin. "Raja Naga dari Gerbang Iblis 
+adalah orang terkenal. Mana mungkin dia punya murid-murid payah seperti kalian?"
 
 "Menyalahgunakan nama orang lain?" kata Si Manusia Kapak. "Ini kakak seperguruanku yang tertua, Shen Qinggang,
-julukannya 'Golok Pemutus Jiwa'. Yang ini kakak kedua Wu Qinglie, julukannya 'Tombak Perenggut Nyawa'. Yang ini 
-kakak ketiga, Ma Qingxiong, julukannya 'Cambuk Penangkap Jiwa'. Dan aku sendiri Qian Qingjian, julukanku 'Kapak
-Pengubur Keluarga'."
+julukannya 'Golok Pencabut Nyawa'. Yang ini kakak kedua Wu Qinglie, julukannya 'Tombak Pengejar Nyawa'. Yang ini 
+kakak ketiga, Ma Qingxiong, julukannya 'Cambuk Pengejar Jiwa'. Dan aku sendiri Qian Qingjian, julukanku 'Kapak
+Maut'."
 
 "Jadi kelihatannya benar," kata Ke Zhen'E. "Kalian adalah Empat Iblis dari Sungai Kuning. Kalian cukup punya
 nama di dunia persilatan, bagaimana kalian bisa merendahkan diri main keroyok, empat lawan satu?"

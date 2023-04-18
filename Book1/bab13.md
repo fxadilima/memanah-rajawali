@@ -377,7 +377,73 @@ ke perahu, dan semua lentera padam, sebelum melompat ke bagian belakang sebuah p
 perahu-perahu itu mulai bergerak, mereka melompat ke layar perahu dan melongok ke bawah. Saat itu mereka melihat
 seorang pria duduk di dalam kabin, orang itu adalah putra dari pemilik pemukiman besar itu, Lu Guanying.
 
+Ketika barisan perahu itu mulai bergerak, suara dari kulit kerang terdengar kembali. Seseorang di atas perahu melangkah
+maju, ia juga ikut meniup kulit kerang. Setelah perahu bergerak agak jauh, orang bisa melihat banyak perahu-perahu kecil
+bergerak di atas danau. Kumpulan perahu kecil itu tampak mirip semut-semut kecil dari kejauhan, seolah-olah orang
+menggambar titik-titik hitam di atas secarik kertas yang besar. Orang yang di atas perahu meniup kulit kerangnya, dan
+perahu besar itu menurunkan sekoci kecilnya ke tengah danau. Sekitar sepuluh sekoci mulai bergerak dari semua penjuru.
+Guo Jing dan Huang Rong bingung, mereka tidak tahu pasti apakah akan terjadi pertempuran di situ. Mereka melongok
+ke bawah untuk mengintip Lu Guanying, yang tampak normal dan tenang. Ia tidak memperlihatkan tanda-tanda panik, cemas,
+atau tegang seperti layaknya orang yang sedang menghadapi peperangan.
 
+Tak lama kemudian, perahu-perahu itu semakin mendekat. Setiap perahu ditumpangi oleh dua atau tiga orang, yang naik
+ke perahu besar. Setiap orang, setelah naik, akan membungkuk di hadapan Lu Guanying, dan gerak-geriknya terlihat
+sangat hormat. Kelihatannya mereka sudah menyiapkan kursi-kursi untuk para tamu dari perahu kecil menurut status
+mereka. Beberapa orang yang datang lebih awal duduk di belakang, dan beberapa yang datang kemudian ternyata duduk
+di depan. Seorang pelayan pengantar teh mengantar para pengunjung itu ke kursi mereka masing-masing. Muka para 
+pengunjung itu tegas dan kasar, sikap dan gerak-gerik mereka cepat dan garang. Meskipun mereka berdandan seperti 
+nelayan, tapi kelihatannya mereka semuanya mengerti ilmu silat, dan sama sekali bukan nelayan biasa.
+
+Lu Guanying mengangkat tangannya dan berkata, "Saudara Zhang, apa yang kau temukan?" Seorang pria kurus yang
+duduk di tengah bangkit berdiri dan berkata, "Menjawab pertanyaan [Shaoye](#shaoye "Tuan Muda"), Duta Besar Jin 
+memutuskan untuk berlayar menyeberangi danau malam ini. Komandan Duan seharusnya tiba dalam waktu 
+satu [shichen](#shichen "1 shichen = 2 jam"). Ia memakai alasan menyapa Duta Besar untuk melakukan penjarahan
+di sepanjang jalan, itu sebabnya dia terlambat."
+
+Lu Guanying bertanya, "Berapa banyak yang dijarahnya?"
+
+"Di setiap desa sedang panen. Dan tentaranya masih menjarah para penduduk desa sekarang. Waktu aku melihatnya naik 
+ke perahu, tentaranya berjuang mengangkat dua puluh peti harta karun yang berat."
+
+Lu Guanying bertanya lagi, "Ada berapa banyak tentara dan kuda yang dibawanya?"
+
+Orang itu menjawab, "Sekitar dua ribu. Mereka yang menyeberangi danau tidak membawa kuda. Karena perahu tidak cukup,
+maka ada sekitar seribu orang tersisa di bawah."
+
+Lu Guanying berpaling kepada para pengunjung dan bertanya, "saudara-saudara, apa pendapat kalian?"
+
+Mereka menjawab serempak, "Kami akan mengikuti perintah Shaoye!"
+
+Lu Guanying merangkap kedua tangannya di dalam jubah sambil berkata, "Para pejabat korup ini seenaknya menyita uang
+rakyat dengan cara yang tidak bermoral. Kita, sebagai orang danau, tidak bertindak adil jika kita tidak mendapatkan
+harta itu kembali. Kita akan berusaha sekuat tenaga untuk merampas kembali sebanyak mungkin. Setengah dari jumlahnya 
+akan kita berikan kepada para penduduk miskin di desa-seda sekitar danau ini, dan setengahnya lagi akan kita bagi
+di antara kita."
+
+Para pendengar saling bersahutan menyetujui rencana itu. Saat itu Guo Jing dan Huang Rong menyadari bahwa orang-orang
+ini adalah perompak danau, dan Lu Guanying kemungkinan besar adalah pemimpin mereka.
+
+Lu Guanying berkata, "Jangan buang waktu lagi, ayo kita mulai! Saudara Zhang, bawa lima sekoci kecil dan teruskan
+pengawasan!"
+
+Pria kurus itu menerima perintah, dan segera berlayar pergi. Selanjutnya Lu Guanying memimpin para anak buahnya
+dan menjelaskan tugas masing-masing secara rinci, siapa yang harus memimpin, siapa yang mendukung, siapa yang
+harus memimpin 'Pasukan Hantu Air' dan menciptakan kekacauan di perahu musuh, siapa yang mengambil harta, siapa
+yang menangkap para pejabat, dan seterusnya. Ia dengan cermat membagi tugas yang sudah direncanakan dengan 
+sangat rapi. 
+
+Guo Jing dan Huang Rong bingung. Mereka baru saja makan bersama dan mengobrol dengan Lu Guanying sebelumnya
+hari ini, dan mereka melihat Lu Guanying adalah pemuda yang sopan, lurus, dan terhormat, dan lagi ia datang dari
+keluarga yang kaya berbudaya. Tak disangka ia adalah seorang pemimpin perompak danau. Ketika Lu Guanying selesai
+membagi tugas dan orang-orang itu mulai berangkat, seseorang dari tengah-tengah kelompok itu berdiri dan berkata,
+"Kita tidak punya harta, dan tidak ada masalah kalau kita merampok saudagar kaya. Tapi kalau kita menyerang
+seorang pejabat seperti itu, bukankah akan menimbulkan masalah bagi kita di kemudian hari? Kita tidak seharusnya
+menyinggung Duta Besar Jin!"
+
+Guo Jing dan Huang Rong merasa suara itu tidak asing bagi mereka, dan ketika mengamati lebih teliti, ternyata
+orang itu adalah murid Sha Tongtian, salah seorang dari Empat Iblis Sungai Kuning, 
+[Duo Pobian](#empat-iblis "Cambuk Pengejar Arwah"), Ma Qingxiong. Mereka tidak tahu bagaimana dia bisa 
+berada di dalam kelompok ini. 
 
 
 ***
@@ -404,6 +470,22 @@ seorang pria duduk di dalam kabin, orang itu adalah putra dari pemilik pemukiman
         Secara literal bisa diterjemahkan menjadi "Aku yang rendah ini". Panggilan untuk diri sendiri sebagai
         orang ketiga tunggal yang bertujuan merendah di hadapan orang lain yang dipandang lebih tinggi derajatnya.
         Ini adalah bagian dari sopan-santun ketimuran, setara dengan 'kulo' dalam bahasa Jawa.
+    </dd>
+    <dt id="shaoye">Shao Ye (少爺)</dt>
+    <dd>Tuan Muda, kurang lebih sama dengan Gong Zi</dd>
+    <dt id="shichen">Shi Chen (時辰)<dt>
+    <dd>Satuan waktu 'Shi Chen'. Satu shichen setara dengan 2 jam.</dd>
+    <dt id="empat-iblis">Empat Iblis Sungai Kuning (黃河四鬼)</dt>
+    <dd>
+        Huang He Si Gui, barangkali lebih tepat disebut sebagai 'Empat Hantu Sungai Kuning', tetapi istilah tersebut
+        kurang enak dibaca maupun didengar. Secara estetika istilah 'Empat Iblis' terlihat lebih baik. 4 murid 
+        Sha Tongtian ini masing-masing adalah:
+        <ol>
+            <li>Shen Qinggang (沈青剛; Shěn Qīnggāng), julukannya "Golok Pencabut Nyawa" (斷魂刀)</li>
+            <li>Wu Qinglie (吳青烈; Wú Qīngliè), julukannya "Tombak Pengejar Nyawa" (追命槍)</li>
+            <li>Ma Qingxiong (馬青雄; Mǎ Qīngxióng), julukannya "Cambuk Pengejar Jiwa" (奪魄鞭)</li>
+            <li>Qian Qingjian (錢青健; Qián Qīngjiàn), julukannya "Kapak Gerbang Maut" (喪門斧)</li>
+        </ol>
     </dd>
 </dl>
 
