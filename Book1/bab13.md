@@ -11,10 +11,10 @@ Ketika Huang Rong pulang ke penginapan malam itu, ia berpikir bahwa ia baru saja
 teramat sangat senang. Seiring dengan hal itu, ia tertidur pulas dan nyaman, lalu menceritakan semuanya kepada
 Guo Jing pada saat ia bangun keesokan harinya. Guo Jing sebelumnya telah menghabiskan banyak energi untuk menangani
 masalah itu. Yang terakhir, ia terjebak dalam situasi kacau dan harus bertempur mati-matian dengan Wanyan Kang, dan
-ia juga nyaris terpkasa menikahi Mu Nianci. Ketika mendengar bahwa Mu Nianci dan Yang Kang saling mencintai, diam-diam
-ia merasa sangat lega dan bahagia, terutama sekali karena baik Qiu Chuji maupun Enam Orang Aneh dari Jiangnan tidak
-akan bisa lagi memaksanya menikahi Mu Nianci. Ia mengobrol santai sambil sarapan bersama Huang Rong, dan setelah
-menunggu beberapa lama, Mu Nianci masih juga belum kembali.
+ia juga nyaris terpaksa harus menikahi Mu Nianci. Ketika mendengar bahwa Mu Nianci dan Yang Kang saling mencintai, 
+diam-diam ia merasa sangat lega dan bahagia, terutama sekali karena baik Qiu Chuji maupun Enam Orang Aneh dari 
+Jiangnan tidak akan bisa lagi memaksanya menikahi Mu Nianci. Ia mengobrol santai sambil sarapan bersama 
+Huang Rong, dan setelah menunggu beberapa lama, Mu Nianci masih juga belum kembali.
 
 Huang Rong tersenyum dan berkata, "Kita tidak harus menunggu dia." Setelah itu ia kembali ke kamarnya dan memakai
 penyamaran sebagai pria. Mereka berdua pergi ke pasar untuk membeli keledai, lalu pergi ke kediaman keluarga Jiang.
