@@ -424,8 +424,6 @@ seorang pria duduk di dalam kabin, orang itu adalah putra dari pemilik pemukiman
 atau 'Pa' atau 'Pak' berarti 'Delapan', sedangkan 'Gua' atau 'Kwa' adalah 'Tiga Garis' atau 'Trigram'. Setiap 'Gua' terdiri dari tiga simbol Yao. Singkatnya, Ba Gua punya sembilan bidang yang membentuk oktagon. Di titik pusatnya terdapat simbol Yin-Yang dari ajaran Tao. Delapan bidang yang mengelilinginya diisi dengan Delapan 'Gua' tadi (yang bervariasi).
 
 
-***
-
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>
 
 Fan Li adalah seorang menteri dari Kerajaan Yue, yang sempat menjadi tawanan politik bersama-sama dengan Raja Guojian 
