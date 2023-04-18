@@ -5,6 +5,30 @@ Huang Rong (黄蓉), tokoh utama cerita ini.
 
 Jiangnan Qi Guai (江南七怪) = Tujuh Orang Aneh dari Jiangnan (Selatan Sungai Yangtze)
 
+Wang Chongyang (王重陽).
+Zhong Shentong, atau Central Divine (中神通) = Julukan Wang Chongyang.
+
+Zhou Botong (周伯通)
+Lao Wantong (老頑童) = Old Urchin/Old Imp/Bocah Tua Nakal. Secara literal adalah "Orang tua yang senang bermain-main".
+(Cukup menarik bahwa terjemahan alternatif dalam Google Translate adalah "Old Naughty Boy").
+
+Quanzhen Qi Zi (全真七子) = 7 Pendekar Quanzhen.
+
+
+Nan Xiren (南希仁)
+Nan Shan Qiao Zi (南山樵子) = Julukan Nan Xiren = Pemotong Kayu dari Pegunungan Selatan
+
+Liang Ziweng (梁子翁)
+Dewa Ginseng (參仙老怪) = julukan Liang Ziweng. Literal: "Lao Guai" di sini sebetulnya adalah "Orang tua aneh",
+dan diterjemahkan menjadi Old Monster. Tapi kelihatannya Dewa Ginseng lebih baik secara estetika. Ia berasal
+dari Gunung Changbai.
+
+Lingzhi (靈智)
+Shang Ren (上人) = Gelar Lingzhi, rasanya lebih baik kita tulis Lingzhi Shangren. Shang Ren sendiri berarti 
+"Pimpinan Tertinggi", atau seseorang yang dipandang "Superior" atau Master.
+
+
+
 ## Nama-nama Jurus
 
 Xiang Long Shiba Zhang (降龙十八掌) = 18 Jurus Penakluk Naga.
@@ -13,6 +37,9 @@ Jiu Yin Baigu Zhao (九陰白骨爪) adalah salah satu ilmu yang terdapat di dal
 Jiu Yin Zhen Jing (九阴真经). Nama ini saya terjemahkan menjadi 'Sembilan Jurus Cakar Tengkorak Putih',
 entah bisa dibenarkan ataukan tidak. Ilmu ini mula-mula dipopulerkan oleh Mei Chaofeng dan suaminya,
 yang kitabnya mereka curi dari Pulau Persik. Bahkan Huang Yaoshi sendiri tidak mempelajari ilmu ini.
+
+Yue Nu Jian Fa = Jurus Pedang Nona Yue/Yue Maiden Swordplay (越女劍法)
+
 
 # Nama Panggilan
 
@@ -61,8 +88,14 @@ Shi Xiong (师兄) = Kakak seperguruan (laki-laki).
 
 Sha Zi (傻子) = Anak Bodoh.
 
+Zhen Ren (真人) = Gelar tertinggi bagi seorang Pendeta Tao yang mencapai puncak pemahamannya. Contoh nyata adalah
+Wang Chongyang yg dipanggil Wang Zhenren, dan Zhang Sanfeng yg dipanggil Zhang Zhenren.
+
 
 ## Istilah Lain
+
+Ming Bai (明白) = Mengerti/Paham, atau understand.
+
 
 Xiao Gui (小鬼) = 'Setan Cilik'.
 
@@ -181,6 +214,26 @@ Grand Canal = Da Yun he (大運河, baca: Dà Yùnhé)
 Pottery = Tao (陶)
 
 Xiansheng (先生) = Tuan
+
+Gui Men Long Wang (鬼門龍王) = Gelar Sha Tongtian, literal: Raja Naga Pintu Gerbang Iblis. "Iblis" = Gui, bisa jadi 
+lebih tepat "Hantu'.
+
+Huang He Si Gui (黃河四鬼) = 4 murid Sha Tongtian = 4 Iblis Sungai Kuning.
+
+Wan Bei (晚辈) = Junior/Saya (sebagai orang ketiga tunggal dan merendahkan diri).
+Qian Bei (前辈) = Senior (generasi lebih tua).
+
+***
+
+Ternyata istilah 'Nimen' (你们) atau 'kalian'/'You' dianggap kurang tepat, atau setidaknya secara formal
+kurang pas. Yang lebih tepat adalah:
+
+Dajia (大家) atau Gewei (各位).
+Kedua istilah terakhir itu banyak digunakan dalam Heavenly Sword and Dragon Slaying Sabre (2019).
+Zhang Cuisan menggunakan 'Gewei' dalam pidato pembelaan diri di hadapan orang-orang yang mencari kakak angkatnya.
+
+
+***
 
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).

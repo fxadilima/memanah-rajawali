@@ -1847,10 +1847,16 @@ membuatnya sangat menghormati gadis itu. Ia tersenyum dan menghela napas.
   <dd>1 zhang sekitar 3.3 meter, atau 11 kaki.</dd>
   <dt id="meimei"><strong>Mei Mei (妹妹)</strong></dt>
   <dd>
-      Istilah umum untuk memanggil seorang adik perempuan, atau orang lain yang dianggap adik.
+    Istilah umum untuk memanggil seorang adik perempuan, atau orang lain yang dianggap adik.
   </dd>
   <dt id="jiejie"><strong>Jie Jie (姐姐)</strong></dt>
   <dd>Kakak perempuan</dd>
+  <dt id="zhenren">Zhen Ren (真人)</dt>
+  <dd>
+    Panggilan kehormatan untuk Pendeta Tao yang dianggap paling tinggi.
+    Dua contoh terbaik adalah Wang Chongyang, yang dipanggil Wang Zhenren, dan Zhang Sanfeng yang dipanggil
+    Zhang Zhenren. Arti literalnya tentu saja 'Orang Benar' atau 'Manusia Sejati', atau 'Orang Murni'.
+  </dd>
 </dl>
 
 ***

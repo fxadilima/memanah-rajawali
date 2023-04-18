@@ -254,13 +254,129 @@ makna khusus di situ. Jendral Yue Fei adalah seorang pribadi yang berjiwa pember
 untuk rakyat dan negaranya. Baris yang berbunyi 'Seratus keping mendapat pengakuan dan sukses' barangkali menunjukkan
 kepribadiannya yang sederhana. Saat itu banyak pejabat yang korup, dan memihak Jin. Yue Fei adalah seorang pejabat
 kuat, tapi sayangnya tak seorang pun bersedia mendengarkan dia. Itu barangkali alasannya menulis 'Banyak hal terkubur
-dalamku namun tak seorang un ingin mendengar, kepada siapa aku bisa bercerita tentang masalahku?' Baris itu 
+dalamku namun tak seorang pun ingin mendengar, kepada siapa aku bisa bercerita tentang masalahku?' Baris itu 
 menggambarkan Yue Fei yang putus asa, tapi itu belum tentu berarti ia ingin menentang pemerintah. Namun demikian, 
 ketika Xiansheng menulis ini, Xiansheng dalam keadaan keadaann gelisah dan agresif, maka Xiansheng memakai cukup
 banyak tenaga dalam guratannya. Tampaknya seolah Xiansheng ingin memerangi seorang musuh bebuyutan, karenanya suasana
 hati dan tujuan Xiansheng tidak selaras dengan Yue Fei pada saat dia menulis buku perangnya. Maafkan kelancanganku,
 tetapi sepengetahuanku kalau orang berusaha terlalu keras untuk mencapai atau mengekspresikan secara berlebihan di dalam
 sebuah karya seni, maka niat yang murni dan benar akan hilang, dan hasilnya tidak akan bisa cemerlang."
+
+Ketika Lu Xiansheng mendengar apa yang dikatakan Huang Rong, ia menghela napas panjang. Ia terlihat sedih dan diam.
+Huang Rong melihat reaksinya yang tidak biasa dan berpikir, "Sepertinya aku bicara terlalu langsung dan menyinggung
+perasaannya, tapi itu semua yang diajarkan ayah waktu dia menjelaskan makna puisi ini."
+
+Ia berkata, "[Zaixia](#zaixia "Aku yang rendah ini") terlalu bodoh dan mengumbar omong kosong, 
+tolong maafkan zaixia, Lu Xiansheng."
+
+Lu Xiansheng agak pulih dan air mukanya berubah cerah. Ia berkata sengan senang, "Huang Xiongdi, harap jangan
+bicara begitu. Kau orang pertama yang sungguh-sungguh bisa membaca perasaanku. sungguh sangat luar biasa. Mengenai
+penggunaan ekspresi berlebihan, mungkin itu salah satu kebiasaanku yang terburuk. Aku harus berterima kasih
+karena kau menunjukkannya." Ia berpaling kepada putranya dan berkata, "Cepat suruh pelayan menyiapkan hidangan."
+
+Guo Jing dan Huang Rong buru-buru menunjukkan rasa terima kasihnya. "Tolong jangan repot-repot." Tapi Lu Guangying
+sudah menghilang dari ruangan itu.
+
+Lu Xiansheng berkata, "Xiongdi sangat bijak dan berpengetahuan luas, kau pasti menguasai semua pelajaran klasik
+tingkat tinggi. Ayahmu pasti seorang guru yang pintar. Entah aku boleh tahu tidak siapa namanya?"
+
+Huang Rong menjawab, "Zaixia tidak terlalu banyak tahu, jadi tidak pantas menerima pujian itu. Ayahku hidup
+menyendiri dan tidak punya murid, maka namanya juga tidak dikenal."
+
+Lu Xiansheng menghela napas, "Sungguh sayang tidak bisa ketemu orang yang sangat berbakat."
+
+Setelah perjamuan mereka kembali ke ruang belajar untuk melanjutkan obrolan. Lu Xiansheng berkata, "Pemandangan di luar
+adalah salah satu dari yang terbaik. Kenapa kalian berdua tidak menginap di salah satu rumah di sini untuk menikmatinya?
+Dan lagi, sekarang ini sudah mulai malam, sudah waktunya untuk beristirahat."
+
+Guo Jing dan Huang Rong bangkit dan berpamitan. Huang Rong hendak meninggalkan ruangan ketika ia tiba-tiba mendongak
+dan melihat delapan keping potongan besi yang dipasang di ambang pintu ruangan itu. Kepingan potongan besi itu 
+disusun menurut aturan 'Delapan Diagram'[^bagua], tapi tidak serapi susunan biasanya. Potongan-potongan besi itu disusun
+dengan agak ngawur dan berantakan. Jantung Huang Rong terasa agak berdebar, tapi ia tidak menunjukkan ekspresi apa-apa
+dan mengikuti Guo Jing ke kamar tamu.
+
+Kamar tamu didekorasi dengan cara yang elegan, kedua tempat tidur saling berhadapan, bantal dan seprainya bersih.
+
+Pelayan yang melayani mereka berkata, "Kalau Gong Zi berdua membutuhkan sesuatu, silakan membunyikan lonceng di 
+sebelah tempat tidur itu, aku akan datang. Harap ingat, jangan meninggalkan ruangan." Setelah mengatakannya, ia 
+menginggalkan kamar dan menutup pintu dengan hati-hati.
+
+Huang Rong bertanya dengan suara rendah, "Kau lihat ada sesuatu yang aneh tidak mengenai tempat ini? Kenapa
+mereka meminta kita tidak meninggalkan kamar?"
+
+Guo Jing berkata, "Perumahan ini sangat luas, dan jalan-jalannya rumit, mungkin mereka takut kita tersesat
+kalau sembarangan melangkah."
+
+Huang Rong tertawa. "Perumahan ini tata letaknya tidak biasa," katanya. "Menurutmu orang macam apa Lu Xiansheng itu?"
+
+Guo Jing menebak, "Mungkin pensiunan pejabat?"
+
+Huang Rong menggelengkan kepalanya. "Orang ini tak diragukan lagi punya kungfu yang tinggi. Apa kau tidak lihat 
+ada simbol 'Delapan Diagram' tadi?"
+
+"Apa itu Delapan Diagram?" tanya Guo Jing.
+
+"Itu digunakan untuk melatih Jurus Mendorong Angin," jawab Huang Rong. "Ayah mengajarkan teknik ini, tapi aku bosan,
+jadi hanya belajar sebulan. Sama sekali tak kuduga aku akan menemukannya di sini."
+
+Guo Jing berkata, "Lu Xiansheng tidak berniat jahat. Karena dia tidak menyebut apa-apa soal ini, ya kita pura-pura
+tidak tahu saja."
+
+Huang Rong mengangguk sambil tersenyum. Ia mendorong dengan telapak tangannya, dan api lilin pun padam seiring dengan
+suara angin lembut yang meniupnya.
+
+Terdengar suara orang bersenandung di kejauhan, di tengah malam itu, membangunkan Guo Jing dan Huang Rong yang
+sebelumnya tertidur pulas. Mereka berusaha mendengar lebih teliti dan suara itu memang terdengar lagi, mirip suara
+yang ditiup melalui sebuah kulit kerang. Setelah jeda beberapa saat, lalu terdengar lagi. Kali ini jelas bahwa ada
+lebih dari satu orang yang membuat suara itu, karena kedua suara itu terdengar bersamaan. Kelihatannya ada dua
+orang yang terpisah sedang saling memberi isyarat melalui tiupan kulit kerang. Huang Rong berbisik, "Ayo kita keluar
+dan melihat ada apa!"
+
+Guo Jing berkata, "Ayo kita _tidak_ keluar, dan cari masalah!"
+
+Huang Rong membantah, "Siapa bilang cari masalah? Aku cuma bilang kita keluar untuk cari tahu sebenarnya ada apa."
+
+Mereka mendorong jendela pelan-pelan, dan melihat ke luar. Mereka melihat ada banyak orang sedang berlarian dengan
+lentera di tangan, tetapi tidak ada tanda-tanda mengapa mereka berlarian. Huang Rong mendongak dan melihat samar-samar
+ada tiga sampai empat sosok manusia sedang berjongkok di atas atap rumah terdekat. Cahaya dari lentera sempat menerangi
+sekilas sosok mereka, dan Huang Rong sempat melihat kilau dari senjata yang mereka pegang sedang bergerak. Setelah
+beberapa saat, sekumpulan pelayan keluar dari dalam perumahan. Huang Rong sangat penasaran dan menarik Guo Jing ke
+sisi jendela. Ia celingukan untuk memastikan tidak ada orang di sekitar situ, lalu melompat dengan ringan ke luar,
+sehingga orang-orang yang sedang di atap tidak menyadari kehadiran mereka.
+
+Huang Rong memberi isyarat kepada Guo Jing supaya berjalan mundur. Jalan setapak di areal pemukiman itu berkelok-kelok
+dan rumit. Yang paling tidak umum adalah, pilar dan pagar di setiap belokan tampak sama persis. Setelah beberapa
+belokan orang tidak akan bisa membedakan arah. Kendatipun begitu, Huang Rong tidak nampak mengalami kesulitan sama
+sekali, ia berjalan kesana-kemari tanpa terlihat kuatir atau curiga. Beberapa kali kelihatannya mereka seolah-olah
+tidak ada jalan, tetapi ia selalu bisa mengenali batu palsu dan berputar melewatinya. Atau ia hanya sekedar berputar
+melewati semak-semak bunga, dan mereka akan kembali ke jalan utama. Kadang-kadang sepertinya mereka menemui jalan buntu,
+tapi dengan salah satu cara, ternyata mereka selalu dapat melewati deretan pohon besar. Kadang-kadang ada jalan yang
+melewati mulut sebuag gua, tetapi Huang Rong tidak masuk ke situ. Sebaliknya, ia hampir selalu secara ajaib menemukan
+pintu tersembunyi di balik dinding dan mendorongnya. Semakin jauh Guo Jing berjalan, ia jadi semakin penasaran.
+"Rong'er, jalan-jalan di tempat ini sungguh-sungguh aneh. Bagaimana kau bisa selalu menemukan jalan yang tepat?"
+
+Huang Rong memberi isyarat supaya ia diam. Setelah tujuh sampai delapan tikungan selanjutnya, mereka tiba di dinding
+halaman belakang. Huang Rong mengamati dinding itu sambil menggunakan jarinya untuk menghitung, lalu berjalan sambil
+menghitung langkahnya. Guo Jing mendengarnya bergumam, "Mula-mula membentuk tiga garis, ketiga siapkan, kelima tambahkan,
+ulangi yang ketujuh..." dan ia sama sekali tidak mengerti sepatah kata pun.
+
+Huang Rong menghitung sambil berjalan, dan setelah hitungan tertentu, ia berhenti di jalurnya sambil berkata,
+"Kita hanya bisa lewat melalui titik ini, semua tempat lainnya dipenuhi jebakan."
+
+Ia melompat ke atas dinding itu dan Guo Jing mengikutinya. "Tempat ini dibangun menurut enam puluh empat lapisan,
+dan semuanya tersembunyi. Ayahku adalah ahli dalam pola semacam ini. Untuk membangunnya orang harus merancang delapan
+rute yang berbeda-beda. Lu Xiansheng bisa menyesatkan orang lain, tapi dia tidak bakalan bisa menyesatkan aku." Nada
+bicaranya mengandung kebanggaan diri.
+
+Keduanya mendaki dua gundukan tanah yang terletak di belakang dan mengawasi arah timur. Mereka melihat seseorang
+berjalan ke arah danau dengan lentera dipegang tinggi-tinggi. Huang Rong menarik lengan jubah Guo Jing, dan keduanya
+segera melayang ke depan menggunakan ilmu meringankan tubuh mereka. Setelah mendekat, nereka memperhatikan barisan 
+perahu nelayan yang berada di tepi danau. Sekelompok orang menaiki perahu-perahu itu perlahan-lahan, dan setelah
+tiba di atasnya mereka segera mematikan lentera. Guo Jing dan Huang Rong menunggu sampai kelompok terakhir naik
+ke perahu, dan semua lentera padam, sebelum melompat ke bagian belakang sebuah perahu besar. Setelah mendengar
+perahu-perahu itu mulai bergerak, mereka melompat ke layar perahu dan melongok ke bawah. Saat itu mereka melihat
+seorang pria duduk di dalam kabin, orang itu adalah putra dari pemilik pemukiman besar itu, Lu Guanying.
+
 
 
 
@@ -283,6 +399,12 @@ sebuah karya seni, maka niat yang murni dan benar akan hilang, dan hasilnya tida
         Setara dengan "Tuan", tetapi biasanya digunakan untuk memanggil seorang terpelajar, seperti misalnya, 
         di masa itu, seorang sastrawan.
     </dd>
+    <dt id="zaixia">Zai Xia (载下)</dt>
+    <dd>
+        Secara literal bisa diterjemahkan menjadi "Aku yang rendah ini". Panggilan untuk diri sendiri sebagai
+        orang ketiga tunggal yang bertujuan merendah di hadapan orang lain yang dipandang lebih tinggi derajatnya.
+        Ini adalah bagian dari sopan-santun ketimuran, setara dengan 'kulo' dalam bahasa Jawa.
+    </dd>
 </dl>
 
 
@@ -298,6 +420,11 @@ sebuah karya seni, maka niat yang murni dan benar akan hilang, dan hasilnya tida
 
 [^panggilan-1]: Panggilan 'Xiong Di' memang ditujukan untuk laki-laki. Saat itu Huang Rong memang sedang berdandan seperti laki-laki. Karena itu tuan rumah memanggilnya begitu.
 
+[^bagua]: Delapan Diagram (Ba Gua, 八卦) adalah simbol dari sebuah sistem _kosmogoni_ dan filsafat Tiongkok Kuno. Sistem itu sendiri adalah cabang _astrofisika_ yang mempelajari asal-muasal dan struktur alam semesta. Kalau 'Ba Gua' terasa asing, barangkali kalau saya tulis 'Pat Kwa' atau 'Pa Kwa' menjadi lebih familiar bagi seorang Indonesia. Nama itu sendiri, 'Ba',
+atau 'Pa' atau 'Pak' berarti 'Delapan', sedangkan 'Gua' atau 'Kwa' adalah 'Tiga Garis' atau 'Trigram'. Setiap 'Gua' terdiri dari tiga simbol Yao. Singkatnya, Ba Gua punya sembilan bidang yang membentuk oktagon. Di titik pusatnya terdapat simbol Yin-Yang dari ajaran Tao. Delapan bidang yang mengelilinginya diisi dengan Delapan 'Gua' tadi (yang bervariasi).
+
+
+***
 
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>
 
