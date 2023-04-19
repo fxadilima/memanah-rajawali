@@ -1015,7 +1015,7 @@ berharap bahwa sabuk itu bisa kembali kepada pemiliknya sekali lagi. Diam-diam i
 dan menikahinya, maka ia akan senang sekali membantunya mengenakan sabuk ini. Setelah berangan-angan sejenak, ia
 lalu menyimpan sabuk itu di balik jubahnya, dan berpikir, "Sabuk ini seperti tangannya, yang melingkar di pinggangku."
 Dengan segera ia tersipu dan tidak berani melanjutkan pikirannya. Setelah terburu-buru makan semangkuk mie, ia 
-melihat matahari mukai bergerak ke Barat, dan ia bergegas melanjutkan perjalanan ke Utara, mengikuti petunjuk
+melihat matahari mulai bergerak ke Barat, dan ia bergegas melanjutkan perjalanan ke Utara, mengikuti petunjuk
 Wanyan Kang untuk menemukan gurunya.
 
 Jalan di atas bukit itu sepi dan Mu Nianci merasa gelisah ketika mendengar suara-suara aneh yang dibuat oleh 
