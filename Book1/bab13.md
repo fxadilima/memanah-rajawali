@@ -1013,7 +1013,7 @@ mulai mengukir kalimat seperti yang dikatakan Wanyan Kang ke atas gesper sabukny
 sebelum ini sabuk itu masih dipakai oleh pemiliknya, dan ia dalam hati berdoa demi keselamatan Wanyan Kang, sambil
 berharap bahwa sabuk itu bisa kembali kepada pemiliknya sekali lagi. Diam-diam ia berharap supaya Wanyan Kang sadar
 dan menikahinya, maka ia akan senang sekali membantunya mengenakan sabuk ini. Setelah berangan-angan sejenak, ia
-lalu menyimpan sabuk itu de balik jubahnya, dan berpikir, "Sabuk ini seperti tangannya, yang melingkar di pinggangku."
+lalu menyimpan sabuk itu di balik jubahnya, dan berpikir, "Sabuk ini seperti tangannya, yang melingkar di pinggangku."
 Dengan segera ia tersipu dan tidak berani melanjutkan pikirannya. Setelah terburu-buru makan semangkuk mie, ia 
 melihat matahari mukai bergerak ke Barat, dan ia bergegas melanjutkan perjalanan ke Utara, mengikuti petunjuk
 Wanyan Kang untuk menemukan gurunya.
