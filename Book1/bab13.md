@@ -1359,7 +1359,7 @@ dan makan waktu. Pilnya terdiri dari berbagai jenis tumbuhan langka dan berharga
 Huang Rong tahu bahwa Lu Xiansheng terlalu murah hati memberi mereka begitu banyak dan berkata, "Sungguh tidak 
 gampang membuat Jiu Hua Yulu Wan. Kami akan sangat berterima kasih menerima masing-masing dua pil."
 
-Lu Xiansheng agak kaget dan bertanya, "Dari mana [Guniang](#guniang "Nona") tahu nama pil ini?"
+Lu Xiansheng agak kaget dan bertanya, "Dari mana [guniang](#guniang "Nona") tahu nama pil ini?"
 
 Huang Rong menjawab, "Aku tahu karena aku lemah ketika masih kecil dan seorang guru yang terhormat memberiku 
 tiga pil yang punya efek positif setelah kuminum."
@@ -1371,7 +1371,79 @@ Lu Xiansheng melanjutkan dengan nada serius, "Aku sudah menyiapkan perahu, jadi 
 Bahkan kalau kalian melihat ada sesuatu yang aneh, jangan repot-repot berhenti. Ingat ini baik-baik!"
 
 Sebenarnya Guo Jing berniat tetap tinggal untuk membantu, tapi ia melihat isyarat mata dari Huang Rong, maka
-ia tidak punya pilihan kecuali menyetujui Lu Xiansheng anjuran.
+ia tidak punya pilihan kecuali menyetujui anjuran Lu Xiansheng.
+
+Huang Rong berkata, "Maafkan kelancangan [xiao mei](#xiaomei "Adik perempuan"), tapi xiao mei ingin menanyakan
+sesuatu."
+
+Lu Xiansheng berkata, 'Silakan guniang bicara."
+
+Huang Rong menjawab, "Karena Lu Xiansheng tahu bahwa ada musuh yang tangguh datang untuk membalas dendam, 
+mengapa tidak bersembunyi saja? Seperti kata pepatah, 'seorang pahlawan menghindari bahaya yang sudah pasti'."
+
+Lu Xiansheng menghela nafas panjang dan menjawab, "Kedua orang itu sudah membuatku sangat menderita! Merekalah yang
+menyebabkan aku lumpuh. Selama dua puluh tahun terakhir aku tidak membalas dendam karena aku tidak bisa berjalan. 
+Karena mereka datang sekarang, apapun yang terjadi aku akan mempertaruhkan nyawaku untuk melawan mereka. 
+Bagaimanapun juga mereka menyinggung guruku. Bahkan jika aku tidak dapat membalas dendam untuk diri sendiri, 
+aku pasti harus membalas dendam untuk guruku dengan segala cara. Aku tidak berharap untuk mengalahkan mereka. 
+Aku sangat senang selama aku bisa mati bersama dengan mereka, dengan begitu aku membalas kebaikan guruku."
+
+Huang Rong berpikir, "Kenapa dia terus bilang ada dua orang? Ah, rupanya ia masih berpikir bahwa Si Mayat Tembaga, 
+Chen Xuanfeng, masih hidup. Aku ingin tahu ada permusuhan apa di antara mereka? Sayang sekali baginya,
+tetapi aku tidak akan menyelidiki lebih jauh, meskipun masih ada yang bikin penasaran." Ia bertanya dengan lantang, 
+"Lu Xiansheng, tidak mengherankan kalau Xiansheng bisa melihat tahu kalau aku sebenarnya perempuan, tapi bagaimana 
+Xiansheng tahu bahwa kami belum menikah, padahal kami tinggal di satu kamar?"
+
+Lu Xiansheng tercengang dan berpikir, "Jelas dia masih perawan, tapi bagaimana aku bisa menjelaskannya? Nona kecil 
+ini cerdas dan berbakat di semua bidang tapi kenapa dia bisa buta dalam hal hal-hal seperti ini?" Ia sedang 
+memikirkan cara untuk menjawab ketika Lu Guanying memasuki ruang belajar dan berkata dengan suara rendah, 
+"Aku sudah memberikan perintah tapi pemimpin Zhang, Gu, Wang dan Tan menolak untuk pergi. Mereka mengatakan 
+bahwa mereka akan tetap berada di Rumah Awan meskipun itu berarti mempertaruhkan nyawa mereka."
+
+Lu Xiansheng menghela napas dan berkata, "Tidak banyak orang-orang pemberani dan setia seperti mereka ini! Cepat,
+antarkan kedua tamu ini keluar!"
+
+Huang Rong dan Guo Jing mengucapkan selamat tinggal kepada Lu Xiansheng sebelum mengikuti Lu Guanying keluar. 
+Pengurus rumah sudah menyiapkan kuda merah kecil Guo Jing dan keledai mereka di atas kapal. Guo Jing berbisik 
+kepada Huang Rong, "Masa kita akan naik perahu?"
+
+Huang Rong balas berbisik kepadanya, "Kita pergi — dan kembali lagi."
+
+Lu Guanying tidak merasa terganggu meskipun mereka berbisik-bisik, karena ia dalam keadaan bingung dan ingin 
+segera mengirim para tamu itu pergi, supaya bisa membantu persiapan melawan musuh ayahnya. Guo Jing dan Huang Rong 
+hendak menaiki perahu ketika Huang Rong melihat seseorang di tepi sungai, berjalan cepat ke arah mereka. 
+Orang itu terlihat aneh karena ia menopang guci besar di kepalanya sambil berjalan ke arah mereka tanpa berhenti. 
+Ketika ia mendekat, Guo Jing, Huang Rong dan Lu Guanying melihat bahwa rambut pria itu sudah putih, ia mengenakan 
+jubah kuning pendek dan membawa kipas bulu besar di tangan kanannya, mengipasi dirinya perlahan-lahan sambil 
+mempercepat langkahnya. Guci itu terlihat seperti terbuat dari besi dan sepertinya beratnya seratus jin[^satuan-jin]. 
+
+Orang itu berjalan melewati Lu Guanying, menatap mereka dengan acuh tak acuh dan terus berjalan. Ia baru saja 
+mengambil beberapa langkah lagi ketika tubuhnya membungkuk sedikit dan air tumpah keluar dari gucinya. Ketiganya 
+kemudian menyadari bahwa guci itu berisi air, yang menambah beratnya sekitar seratus jin. Orang tua itu pasti 
+sangat hebat, bisa menahan beban yang begitu berat di kepalanya, dan sekaligus menjaga keseimbangan!
+
+Lu Guanying agak grogi dan berpikir, "Apa mungkin orang ini musuh ayah?" Ia mengabaikan bahaya dan pergi ke pria 
+itu, sementara Guo Jing dan Huang Rong saling melirik sebelum mengikutinya. Guo Jing mendengar enam gurunya 
+menyebutkan pertarungan mereka dengan Qiu Chuji di 'Paviliun Dewa Mabuk' sebelumnya dan tahu bahwa Qiu Chuji 
+cukup kuat untuk mengangkat guci besar. Tetapi ukuran guci yang diangkat Qiu Chuji seperti yang dijelaskan oleh 
+gurunya rasanya tidak sebesar guci yang diangkat orang itu sekarang. Guo Jing curiga bahwa kungfu orang tua ini 
+berada di atas Pendeta Qiu Chuji. Orang tua itu berjalan terus sebelum mencapai tepi sungai kecil yang dipehuni 
+kuburan.
+
+Lu Guanying berpikir dalam hati, "Di sini tidak ada jembatan, aku ingin lihat apakah dia menyeberangi sungai ke 
+utara atau ke barat."
+
+Lu Guanying tercengang melihat apa yang terjadi kemudian. Orang tua itu berjalan tanpa jeda di atas sungai, 
+tubuhnya mantap dan hanya kaki bagian bawahnya yang terendam air. Ketika sampai di seberang sungai, ia meletakkan 
+guci besar itu di rerumputan di sebelah bukit sebelum kembali ke sungai dan berjalan di atas air ke sisi 
+lainnya lagi.
+
+Huang Rong dan Guo Jing telah mendengar senior-senior mereka bicara tentang segala jenis keterampilan dari 
+berbagai sekte dan perguruan, tetapi mereka tidak pernah mendengar tentang ilmu yang baru saja diperagakan 
+oleh orang tua itu. Membawa guci besar di kepalanya dan berjalan di atas air. Mereka mengira keterampilan 
+seperti itu hanya ada dalam mitos dan legenda. Siapa sangka keterampilan seperti itu benar-benar ada 
+di bumi? Jika tidak melihat sendiri, mereka tidak akan pernah percaya hal-hal seperti itu dan diam-diam kagum 
+kepada orang tua ini.
 
 
 
@@ -1448,6 +1520,11 @@ ia tidak punya pilihan kecuali menyetujui Lu Xiansheng anjuran.
     </dd>
     <dt id="guniang">Gu Niang (姑娘)</dt>
     <dd>Nona, panggilan umum untuk seorang perempuan muda yang belum menikah.</dd>
+    <dt id="xiaomei">Xiao Mei (小妹)</dt>
+    <dd>
+       Sama seperti "Mei Mei" yang berarti "Adik Perempuan", istilah ini biasa dipakai untuk memanggil diri sendiri 
+       sebagai orang ketiga tunggal dalam percakapan yang agak formal. Xiao (小) berarti "kecil".
+    </dd>
 </dl>
 
 
@@ -1465,6 +1542,8 @@ ia tidak punya pilihan kecuali menyetujui Lu Xiansheng anjuran.
 
 [^bagua]: Delapan Diagram (Ba Gua, 八卦) adalah simbol dari sebuah sistem _kosmogoni_ dan filsafat Tiongkok Kuno. Sistem itu sendiri adalah cabang _astrofisika_ yang mempelajari asal-muasal dan struktur alam semesta. Kalau 'Ba Gua' terasa asing, barangkali kalau saya tulis 'Pat Kwa' atau 'Pa Kwa' menjadi lebih familiar bagi seorang Indonesia. Nama itu sendiri, 'Ba',
 atau 'Pa' atau 'Pak' berarti 'Delapan', sedangkan 'Gua' atau 'Kwa' adalah 'Tiga Garis' atau 'Trigram'. Setiap 'Gua' terdiri dari tiga simbol Yao. Singkatnya, Ba Gua punya sembilan bidang yang membentuk oktagon. Di titik pusatnya terdapat simbol Yin-Yang dari ajaran Tao. Delapan bidang yang mengelilinginya diisi dengan Delapan 'Gua' tadi (yang bervariasi).
+
+[^satuan-jin]: 1 jin kira-kira 1.1 pound. 100 jin yang disebutkan itu kira-kira 110 pound, atau sekitar 50kg.
 
 
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>
