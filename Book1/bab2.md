@@ -631,7 +631,7 @@ melompat ke samping.
 Orang-orang yang berkumpul di ujung atas tangga terdiam ketakutan, dan mereka saling 
 dorong dan berebut menuruni tangga dengan panik.
 
-Si 'Buddha Tersenyum' Zhang Ahsheng merasa bahwa meskipun tong itu berat, tapi ia yakin akan
+Si 'Budha Tersenyum' Zhang Ahsheng merasa bahwa meskipun tong itu berat, tapi ia yakin akan
 bisa menanganinya. Ia lalu bangkit, mengerahkan tenaga dalam ke tangan kanannya, 
 menunggu sampai tong itu tiba di dekatnya, lalu ia menangkapnya. Otot-otot punggung
 dan bahunya menonjol ketika ia berhasil mengendalikan tong itu sendirian. Ketika ia

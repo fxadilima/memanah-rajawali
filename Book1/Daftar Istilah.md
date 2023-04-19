@@ -209,7 +209,9 @@ Ji Ran Ru Ci (既然如此) = 'Kalau begitu,...'
 
 Xiong (兄) = panggilan umum untuk saudara laki-laki, atau orang lain yang dianggap saudara.
 
-The "Twin Killers in the Dark Wind" (黑風雙煞) 
+The "Twin Killers in the Dark Wind" (黑風雙煞) Hei Feng Shuang Sha. Literal: Sepasang Penjahat Angin Hitam,
+_mungkin_ yang cocok adalah Sepasang Iblis Angin Hitam.
+
 
 Locust Tree = Zao Jia(baca: zào jiá, 皂荚) adalah pohon _locust_ yang bisa jadi buahnya bisa dimakan (rasanya manis),
 atau malah beracun (Black Locust). 

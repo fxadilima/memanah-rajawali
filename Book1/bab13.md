@@ -3,7 +3,7 @@
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |
-| ![Ilustrasi Bab 13](https://res.cloudinary.com/drzjshskk/image/upload/v1676692862/sdyxz/originals/loch-13_q1tnfz.jpg) | _Saat perompak Danau Tai dan perahu pejabat Jin mendekat, terdengar suara teriakan, omelan, benturan senjata, dan suara cipratan saat tubuh-tubuh manusia jatuh ke air. Setelah beberapa saat, perahu pejabat Jin terbakar, apinya menerangi langit yang gelap dan memancarkan sinar merah menyala di atas danau._ |
+| ![Ilustrasi Bab 13](https://res.cloudinary.com/drzjshskk/image/upload/v1676692862/sdyxz/originals/loch-13_q1tnfz.jpg) | _Saat perompak Danau Tai dan perahu pejabat Jin mendekat, terdengar suara teriakan, makian, benturan senjata, dan suara cipratan air, saat tubuh-tubuh manusia jatuh ke air. Setelah beberapa saat, perahu pejabat terbakar, apinya menerangi langit yang gelap dan memancarkan sinar merah menyala di atas danau._ |
 
 ***
 
@@ -442,8 +442,928 @@ menyinggung Duta Besar Jin!"
 
 Guo Jing dan Huang Rong merasa suara itu tidak asing bagi mereka, dan ketika mengamati lebih teliti, ternyata
 orang itu adalah murid Sha Tongtian, salah seorang dari Empat Iblis Sungai Kuning, 
-[Duo Pobian](#empat-iblis "Cambuk Pengejar Arwah"), Ma Qingxiong. Mereka tidak tahu bagaimana dia bisa 
-berada di dalam kelompok ini. 
+[Duo Pobian](#empat-iblis "Cambuk Pengejar Jiwa"), Ma Qingxiong. Mereka tidak tahu bagaimana dia bisa 
+berada di dalam kelompok ini. Air muka Lu Guanying berubah. Ia belum bersuara untuk menanggapi, ketika para perompak
+itu saling berlomba untuk mencemooh Ma Qingxiong.
+
+Lu Guanying berkata, "Saudara Ma adalah orang baru, dia belum kenal kebiasaa kita di sini. Karena kalian semua
+begitu tidak sabar untuk mulai, mari kita berikan usaha yang terbaik, pastikan semua prajurit itu tidak bisa melawan,
+dengan begitu kita mati tanpa penyesalan!"
+
+Ma Qingxiong berkata, "Baiklah, kalian semua selamat berjuang! Aku lebih baik tidak ikut campur dan cari masalah."
+Sambil bicara, ia berpaling dan mulai turun dari perahu. Dua orang mencegatnya dan berkata, "Saudara Ma, kau sudah
+bersumpah untuk menghadapi tebal dan tipisnya resiko bersama kami!"
+
+Ma Qingxiong mendorongnya dengan kedua tangan dan melawan. "Minggir!" Kedua orang itu terpukul dan jatuh ke samping.
+Kerika Ma Qingxiong hendak meninggalkan perahu, ia tiba-tiba merasa ada desiran angin menuju ke punggungnya, dan ketika
+angin itu melewatinya, ia menggunakan tangan kirinya untuk mengambil pisau dari sepatu botnya, memutar lengannya, dan
+mendorong pisau di belakangnya. Lu Guanying mengulurkan lengan kirinya dan meletakkannya di jalan masuk perahu,
+secara bersamaan, ia melompat dan mendorong tangannya ke depan. Ma Qingxiong menggunakan tangan kanannya untuk 
+menangkis, dan tangan kirinya untuk mendorong pisau ke depan. Kedua orang itu saling bergebrak di pintu perahu yang
+sempit. Guo Jing pernah bertarung melawan Ma Qingxiong di Mongolia. Ketika pertama kalinya melihat gerakan Lu Guanying,
+ia mengira tidak akan mudah baginya untuk memenangkan pertarungan itu. Tapi setelah beberapa jurus ternyata ia
+berada di atas angin, dan tampaknya pasti akan menang. Guo Jing curiga dan berpikir, "Mengapa Ma Qingxiong tampaknya
+tidak sekuat dulu lagi? Ah, tentu saja, dulu waktu melawan aku dia dibantu saudara-saudaranya, sekarang dia sendirian,
+dan pasti takut." Tapi Guo Jing tidak tahu bahwa alasan utama sebenarnya adalah latihan keras yang didapatnya dari
+Hong Qigong dalam dua bulan terakhir ini. Sekarang Guo Jing menguasai lima belas dari Delapan Belas Jurus Penakluk
+Naga, yang didukung oleh petunjuk langsung dari Hong Qigong sendiri. Karena itu, meskipun ia belum menguasai esensi 
+dari ilmu tersebut, kungfunya sudah maju sangat pesat, dan sekarang ia berada di tingkat yang jauh lebih tinggi
+dari ilmu yang didapatnya dari Tujuh Orang Aneh dari Jiangnan. Pada saat itu Guo Jing sendiri masih belum menyadari
+bahwa kungfunya sudah melampaui kemampuan dari keenam gurunya, maka ia beranggapan bahwa ia masih berada di bawah
+Ma Qingxiong. Ia melihat kedua orang itu saling bergebrak dan Lu Guanying mengirimkan kepalan kirinya, Ma Qingxiong
+terpukul, terhuyung-huyung dan jatuh ke belakang. Kedua perompak di belakangnya menghujamkan pisau mereka, dan 
+Ma Qingxiong terkapar, tewas seketika. Kedua orang itu segera mengangkatnya dan membuang jenasah itu ke danau.
+
+Lu Guanying melanjutkan, "Saudara-saudara, mari kita lanjutkan misi kita dengan berani!" Kumpulan orang itu mulai
+bersorak-sorai dengan penuh semangat, lalu mereka berpisah dan menaiki perahu mereka masing-masing, menuju ke timur.
+Perahu besar Lu Guanying berlayar di belakang perahu mereka semua. Tak lama kemudian, mereka melihat sepuluh perahu
+besar, yang suasana di dalamnya terang-benderang, sedang menuju ke barat, ke arah mereka.
+
+Guo Jing dan Huang Rong berpikir, "Perahu-perahu besar itu pastilah milik para pejabat!"
+
+Keduanya diam-diam memanjat tiang layar, lalu sambil menyilangkan tangan mereka bersembunyi di balik layar. Mereka
+mendengar suara tiupan kulit kerang yang datang dari sekoci-sekoci kecil ketika pihak lawan semakin mendekat. Terdengar
+suara teriakan, makian, benturan senjata, dan cipratan air ketika tubuh-tubuh manusia jatuh ke air. Selang beberapa
+saat, perahu para pejabat terbakar, apinya menerangi kegelapan langit, dan memancarkan sinar merah menyala di atas danau.
+Guo Jing dan Huang Rong tahu bahwa para perompak itu telah menyelesaikan misi mereka dengan sukses dan melihat beberapa
+sekoci sedang bergerak ke depan dengan cepat, diiringi suara-suara teriakan, "Para prajurit sudah kalah dan komandan
+telah tertangkap!"
+
+Lu Guanying sangat senang, ia berjalan ke badan perahu dan berteriak, "Beri tahu pemimpin di setiap perahu untuk 
+berusaha sedikit lagi, supaya kita bisa menangkap Duta Besar Jin!" Perompak yang menyampaikan berita menurut, dan
+segera melesat pergi untuk menyampaikan perintah itu.
+
+Guo Jing dan Huang Rong secara serempak saling menyikut dengan pikiran yang sama. "Si Duta Besar Jin itu pastilah
+Wanyan Kang. Aku ingin tahu bagaimana caranya menangani masalah ini."
+
+Mereka mendengar bunyi tiupan kulit kerang dari berbagai perahu sekali lagi dan melihat bahwa kolompok perahu itu
+telah berbalik arah untuk kembali, para perompak sedang menarik-narik layar mereka. Angin barat tiba-tiba bertiup 
+kencang, menyebabkan perahu itu melaju seperti anak panah menuju ke timur. Perahu Lu Quanying berada di ujung belakang,
+tetapi sekarang perahunya menjadi yang terdepan. Guo Jing dan Huang rong sekarang duduk di atap kabin, dan angin bertiup
+di punggung mereka. Mereka berlayar dengan sangat cepat menyeberangi danau, dengan bintang-bintang bertaburan di langit,
+mereka merasakan dorongan untuk bernyanyi keras-keras. Tiba-tiba sekoci-sekoci kecil melaju lewat satu per satu, dan 
+akhirnya mereka berada di depan perahu di mana Guo Jing dan Huang Rong berada.
+
+Perahu-perahu itu berlayar sekitar satu jam dan langit jadi lebih terang, sebelum dua perahu meluncur ke arah perahu
+mereka. Salah seorang pria di dalam perahu melambaikan bendera hijau dan berseru, "Kami sudah menemukan perahu Jin!
+Perahu komandan sudah meluncur di depan untuk menangkapnya!"
+
+Lu Guanying yang berdiri di badan perahu berteriak, "Bagus!"
+
+Tak lama kemudian perahu kecil lain datang melapor, "Si Duta Bangsat itu punya cakar maut! Komandan cedera berat,
+tapi saat ini Kapten Peng dan Dong sedang berusaha mengalahkannya!"
+
+Dua orang perompak menggotong orang-orang yang cedera dan komandan mereka yang pingsan ke atas perahu Lu Guanying.
+Ketika Lu Guanying sedang memeriksa luka mereka, dua sekoci lagi datang mendekat, dan perompak di dalamnya
+menggotong pemimpin mereka naik ke perahu Lu Guanying. Orang itu juga melaporkan bahwa pemimpin Puncak Piao Miao,
+yang bernama Guo, terkena pukulan maut dari Duta Besar Jin, dan jatuh ke dalam air. Lu Guanying sangat marah dan
+berteriak, "Aku akan membunuh Anjing Jin yang jahat ini dengan tanganku sendiri!"
+
+Guo Jing dan Huang Rong sangat menentang Wanyan Kang, tetapi mereka tidak tega membiarkan dia melawan bajak-bajak danau
+ini sendirian. Hal itu akan membuat Mu Nianci membenci mereka selamanya. Huang Rong berbisik ke telinga Guo Jing,
+"Apa kita akan menolongnya?"
+
+Guo Jing menjawab sambil mendesah pelan, "Selamatkan dia, tapi buat dia bertobat!" Huang Rong mengangguk.
+
+Saat itu Lu Guanying sudah melompat ke dalam sekoci dan berteriak, "Ayo berangkat!"
+
+Huang Rong berkata kepada Guo Jing, "Ayo kita hentikan sekoci itu!" Keduanya melompat ke sisi sekoci dan mendengar 
+suara teriakan dari perompak di depan. Mereka melihat perahu-perahu besar Duta Besar Jin perlahan-lahan tenggelam
+satu per satu. Mereka pikir ini pasti ulah para 'Hantu Air', yang bertugas melubangi dasar perahu dari bawah.
+
+Sementara para perompak melambaikan bendera hijau, dua sekoci didayung dengan cepat dan melaporkan, "Anjing Jin
+itu jatuh ke air dan tertangkap oleh kami!"
+
+Lu Guanyig sangat senang, dan melompat kembali ke perahunya. Tak lama kemudian terdengar lagi suara tiupan kulit
+kerang, dan semua sekoci berkumpul, satu per satu membawa Duta Besar Jin bersama para pengawalnya ke atas perahu.
+Guo Jing dan Huang Rong melihat tangan dan kaki Wanyan kang terikat, dan matanya tertutup rapat. Mereka berpikir
+bahwa ia pastilah terlalu banyak menelan air, tetapi dadanya tidak sesak, ia masih bernapas. Saat itu langit sudah 
+terang, dan matahari bersinar terang menampakkan deretan perahu terapung anggun di atas danau.
+
+Lu Guanying memberi perintah, "Para pemimpin dipersilakan kembali ke perkampungan dan berpesta untuk merayakan.
+Pimpin tim kalian dengan tertib dan silakan menunggu hadiah!"
+
+Para perompak itu bersorak ramai, lalu mereka saling berpisah, dan pelan-pelan menghilang di tengah kabut. Danau
+itu kembali tenang dan damai sekali lagi. Guo Jing dan Huang Rong menunggu sampai perahu itu berlayar kembali 
+ke pemukiman keluarga Lu, dan setelah Lu Guanying dan kelompok perompaknya pergi, mereka meluncur turun ke tepian.
+Para perompak terlalu larut dalam kemenangan dan hadiah yang mereka terima, dan tidak memperhatikan bahwa ada orang
+yang menyelinap ke dalam perahu mereka. Huang Rong mencari jalan dan membawa Guo Jing masuk ke pemukiman dan kembali
+ke kamar mereka.
+
+Saat itu pelayan yang bertugas melayani mereka sudah memeriksa beberapa kali, tetapi karena pintu kamar masih
+tertutup ia mengira keduanya pasti kelelahan kemarin, jadi mereka tidur agak lama. Seelah tiba di kamar, 
+Guo Jing membuka pintu, dan dua orang pelayan yang sudah menunggu menyapa mereka, sebelum masuk untuk menghidangkan 
+sarapan. Salah seorang berkata, "Lu Xiansheng sudah menunggu di ruang belajar, silakan menemuinya setelah sarapan."
+Keduanya makan bakpao dengan beberapa makanan kecil, sebelum mengikuti pelayan ke ruang belajar Lu Xiansheng.
+
+Lu Xiansheng tersenyum dan berkata, "Angin dari danau sangat keras, dan ketika bertiup ke tepian, suaranya agak
+mengganggu. Kalian bisa tidur nyenyak?"
+
+Guo Jing tidak terbiasa berbohong, maka ketika mendengar pertanyaan itu ia terdiam sejenak. Huang Rong 
+menjawab, "Kami hanya mendengar suara tiupan dari kulit kerang semalam. Kupikir pasti itu dari para biksu
+dan pendeta Tao yang sedang berdoa dan melakukan upacara ritual mereka."
+
+Lu Xianshen tertawa dan tidak bertanya lagi. Sebaliknya, ia berkata, "Aku mengumpulkan beberapa karya seni, dan
+aku berharap kalian berdua melihatnya."
+
+Huang Rong menjawab, "Oh, tentu saja. Apa pun yang dikumpulkan Lu Xiansheng pasti tak ternilai harganya."
+
+Lu Xiansheng menyuruh pelayan membawa masuk beberapa karya seni, dan Huang Rong mengamati beberapa di antaranya
+dengan penasaran. Tiba-tiba suara ribut-ribut terdengar di luar, mereka bisa mendengar langkah kaki dari beberapa
+orang yang sedang mengejar seseorang. Sebuah suara berkata, "Sekali kau menginjakkan kaki ke perkampungan ini, mustahil
+bisa keluar!"
+
+Lu Xianshen bersikap seolah-olah tidak terjadi sesuatu apa pun, dan seolah ia tidak mendengar apa-apa. Ia bertanya,
+"Seni kaligrafi dalam dinasti kita didominasi oleh enpat keluarga, Su, Huang, Mi dan Cai. Aku bertanya-tanya, karya
+keluarga yang mana yang paling disukai adik Huang?"
+
+Huang Rong hendak menjawab, ketika pintu ruangan itu mendadak dibuka dengan kasar, dan seseorang yang basah kuyup dari
+ujung kepala sampai ujung kaki menerjang masuk. Itu ternyata Wanyan Kang. Huang Rong menarik lengan jubah Guo Jing
+dan berbisik, "Lihat karya-karya seni itu, jangan lihat dia!" Keduanya berpaling dan menundukkan kepala sambil mengamati
+kaligrafi yang ada di hadapan mereka.
+
+Wanyan Kang tidak bisa berenang, ketika perahunya tenggelam sebelumnya, meskipun kungfunya bagus, ia tidak mampu
+menyelamatkan diri. Ia pingsan, dan ketika sadar ternyata ia sudah dibawa ke pemukiman keluarga Lu untuk diinterogasi
+oleh Lu Guanying. Ia melihat bahwa perompak yang menjaganya tidak membawa pisau yang biasa dibawanya, dan sebuah
+gagasan muncul di benaknya. Ia mengumpulkan tenaga dalamnya dan menarik tali pengikatnya, lalu menggunakan Cakar
+Tengkorak Putih untuk membebaskan diri. Si pengawal terkejut dan bergegas maju untuk menangkapnya kembali, tetapi 
+pengawal itu langsung ambruk terkena cakarnya. Wanyan Kang bergegas keluar, namun ia tidak menyangka 
+bahwa pemukiman itu disusun dengan jalan-jalan yang membingungkan. Kalau seorang asing yang tidak mengenal rahasianya
+masuk tanpa petunjuk dari tuan rumah, ia akan segera terperangkap di bawah tanah.
+Wanyan Kang yang panik karena tidak menemukan jalan keluar, menerjang masuk ke ruang belajar Lu Xiansheng. Meskipun
+Lu Guanying tahu bahwa ia berhasil meloloskan diri dari penjagaan, tapi ia juga tahu bahwa Wanyan Kang tidak akan
+bisa lolos dari perangkap, dan ia sama sekali tidak kuatir. Ia mengejar Wanyan Kang dan melihatnya menuju ke ruang
+belajar Lu Xiansheng. Karena takut ayahnya akan cedera, maka ia menerjang maju dan berdiri di hadapan ayahnya. 
+Pemimpin kelompok Danau Tai menutup jalan di pintu.
+
+Wanyan Kang yang marah karena terperangkap, menudingkan jarinya kepada Lu Guanying dan berteriak, "Bajak keparat!
+Kalian memakai cara kotor untuk menenggelamkan kapalku! Apa kalian tidak malu? Kalian tidak takut ditertawakan
+semua pendekar di Jianghu?"
+
+Lu Guanying tertawa terbahak-bahak. "Kau seorang Pangeran Jin, apa urusanmu dengan kami para pendekar Han? 
+Apa hubungannya orang-orang dari dunia persilatan denganmu?"
+
+Wanyan Kang menjawab, "Waktu aku berada di Yanjing, aku sudah mendengar banyak cerita tentang para pendekar Jiangnan,
+dan kupikir orang-orang Jiangnan semuanya orang benar dan pemberani. Bah! Tak kusangka ternyata reputasi kalian
+hanya omong kosong!"
+
+Lu Guanying sangat marah dan berteriak, "Jadi?"
+
+Wanyan Kang menjawab, "Kalian tak lebih dari pengecut keparat, yang bisanya main keroyok!"
+
+Lu Guanying tertawa dingin. "Jadi kalau seseorang melawanmu sendirian, dan menang, maka kau akan mati tanpa penyesalan?"
+
+Wanyang Kang bermain dengan kata-kata untuk memancing kemarahan Lu Guanying, dan menggiringnya untuk mengatakan
+tepat seperti yang baru saja dikatakannya. Ia dengan segera menjawab, "Kalau di perumahan ini ada satu orang saja
+yang bisa mengungguli aku dalam duel, aku akan menyerah dengan sukarela dan mati tanpa penyesalan. Tapi mana ada 
+orang seperti itu?" Sambil berkata begitu, dengan arogan ia melihat ke sekeliling ruangan dengan tangan di punggungnya
+dan tertawa dingin.
+
+Ucapan itu membangkitkan amarah Ketua Puncak Mo Li dari Danau Tai, pemimpin bagian, 'Batu Emas', yang bereriak, "Bangsat,
+aku yang akan melawanmu!" Ia menerjang masuk ke ruang belajar, mengulurkan kedua tinjunya, dan menggunakan gaya
+'Suara Lonceng Yang Menyolok' dengan sasaran titik akupuntur Taiyang dari Wanyan Kang.
+
+Wanyan Kang dengan lembut menggeser tubuhnya dan membalikkan telapak tangan kirinya untuk memegang bagian belakang 
+jubah lawannya sebelum melemparkannya keluar dari pintu.
+
+Lu Guanying yang melihat serangan kejam Wanyan Kang diam-diam waspada. Ia tahu bahwa tak satu pun kepala bagian yang
+bisa menandinginya. Ia berteriak, "Kungfu hebat! Biar aku mencoba beberapa jurus. Ayo kita keluar ke halaman!" Lu
+Guanying tahu bahwa lawannya sangat kuat. Kalau mereka berkelahi di ruang belajar, ia takut salah satu dari mereka
+akan tanpa sengaja melukai ayahnya atau kedua tamunya, karena mereka semua tidak bisa berkelahi.
+
+Wanyan Kang menjawab, "Di mana saja sama, kenapa tidak di sini? Silakan menunjukkan jurusmu, Pak Pemimpin!" Sebetulnya
+ucapannya punya makna lain. Ia dalam hati berkata, "Aku hanya perlu beberapa jurus untuk mengalahkanmu, kenapa harus
+repot-repot pindah tempat?"
+
+Kemarahan Lu Guanying terpancing, ia berkata, "Baik, karena kau tamu, silakan mulai!"
+
+Wanyan Kang menyimpan tangan kanannya dan menggunakan telapak tangan kirinya untuk menyerang dada Lu Guanying. 
+Serangan pertamanya sudah menggunakan Jiu Yin Baigu Zhao, dan dimaksudkan untuk melukai lawannya dengan segera.
+
+Lu Guanying sangat tersinggung. "Dasar arogan! Rasakan ini!" Ia mengempiskan dadanya sedikit, tetapi tidak mundur. 
+Sebaliknya, ia menggunakan tinju kanannya untuk menyerang sikut lawan yang sedang bergerak, sementara dua jari tangan
+kirinya menunjuk ke arah muka Wanyang Kang, dengan tujuan menusuk matanya. Wanyan Kang melihat bahwa gerakannya cepat,
+dan ia agak grogi. Diam-diam ia berpikir, "Tak disangka di tempat terpencil ini ada seorang ahli kungfu!" Ia buru-buru 
+mundur setengah langkah, membalik pergelangan tangannya dan mengincar lengan Lu Guanying. Lu Guanying berputar ke 
+kiri dan menyatukan kedua tangan membentuk kantong dengan ibu jari dan jari telunjuk satu tangan menghadap ke tangan 
+lainnya. Langkah itu tidak lain adalah 'Memegang Bulan Menghadap Dada Lawan'. Wanyan Kang tahu bahwa lawannya 
+kuat dan tidak berani meremehkannya lagi. Ia mulai serius dan memakai jurus tangan kosong Quanzhen yang diajarkan 
+Qiu Chuji. Lu Guanying adalah murid favorit Biksu Kumu dari biara Yun Qi. Ia belajar jurus tangan kosong dari 
+Perguruan Xian Xia, yang berafiliasi dengan biara Shaolin di perbukitan Henan. Oleh karena itu, keterampilan 
+yang dipelajari Lu Guanying adalah ortodoks. Ia berhati-hati terhadap lawannya dan menggunakan kungfu yang berbeda 
+untuk melawan apa pun yang digunakan lawannya. Ia tahu bahwa teknik cakar Wanyan Kang lebih unggul dan dengan 
+demikian memastikan bahwa ia tidak membiarkan jari-jari Wanyan Kang menyentuh tubuhnya. Saat melihat kesempatan untuk 
+menyerang Wanyan Kang, ia menggunakan kakinya. Gurunya telah mengajarkan, "Gunakan tinjumu tiga puluh persen dan 
+kakimu tujuh puluh persen. Tanganmu seperti kipas, berkonsentrasi pada tendanganmu."
+
+Kungfu yang dipelajari Lu Guanying bukan milik keluarganya dan teknik tendangannya sangat bagus. Semakin lama 
+keduanya bertarung, semakin cepat gerakan mereka dan mereka tampak seperti dua bayangan menari-nari yang sedang 
+bertarung di ruang belajar. Guo Jing dan Huang Rong tidak ingin Wanyan Kang mengenali mereka dan mundur ke sisi 
+rak buku dan diam-diam mengamati pertarungan itu. Wanyan Kang makin lama makin gelisah dan diam-diam berpikir, 
+"Jika ini terus berlanjut, bahkan jika aku bisa mengalahkannya dalam ronde ini, masih ada orang lain yang ingin 
+bertarung denganku. Pada saat itu aku mana punya sisa energi untuk melawan?"
+
+Sebenarnya ia jauh lebih unggul dari Lu Guanying, tetapi karena ia hampir tenggelam dan menelan begitu banyak air, 
+ia kehilangan banyak energi dan tubuhnya kelelahan. Selain itu, ini adalah pertama kalinya ia terjebak dalam 
+situasi seperti ini dan agak gugup, karena itu Lu Guanying unggul lebih dari sepuluh jurus. Ia memaksa dirinya 
+untuk berkonsentrasi dan mengerahkan lebih banyak tenaga dalam serangannya. Suara retak terdengar saat bahu 
+Lu Guanying terluka oleh tinju Wanyan Kang. Lu Guanying tersandung dan mundur ke belakang. Ia melihat lawannya 
+menggunakan kesempatan ini untuk menyerang lebih jauh dan melompat, ia menendang dengan kaki kanannya ke depan 
+menuju dada Wanyan Kang. Jurus itu sangat cepat dan kuat, yang telah dipraktekkan Lu Guanying sejak muda. 
+Ia biasa mengikat dirinya pada seutas tali untuk melatih kecepatannya karena jurus tersebut mengandalkan 
+kecepatan tendangan sehingga lawan terkejut dan tidak dapat mempertahankan diri tepat waktu.
+
+Wanyan Kang merasa dadanya sakit dan ia memutar tangan kanannya untuk menusukkan jarinya ke betis Lu Guanying. 
+Ia menggunakan telapak tangan kirinya untuk mendorong betis Lu Guanying sambil berteriak, "Jatuh!"
+
+Lu Guanying sebenarnya berdiri dengan satu kaki tetapi setelah pukulan kuat dari Wanyan Kang, ia kehilangan 
+keseimbangan dan jatuh ke belakang, ke arah ayahnya. Lu Xiansheng merentangkan lengan kirinya dan menangkap 
+Lu Guanying, dan dengan lembut meletakkannya di lantai. Ketika ia melihat darah yang mengalir dari kaki anaknya 
+ia terkejut dan marah. Lu Xiansheng berteriak, "Apa hubunganmu dengan 'Sepasang Iblis Angin Hitam'?"
+
+Semua orang sangat terkejut waktu Lu Xiansheng turun tangan. Para kepala bagian tidak ada yang tahu bahwa ia
+mengerti ilmu silat. Dan bahkan Lu Guanying juga tidak tahu. Semua orang berpikir, karena Lu Xiansheng cacat,
+maka secara alamiah ia tidak akan mengerti ilmu silat, maka otomatis tidak bisa berkelahi. Sejak kecil Lu Guanying
+tidak pernah menanyakan atau berusaha mencari tahu urusan ayahnya. Siapa yang menduga gerakan Lu Xiansheng ketika
+menyelamatkan anaknya begitu kuat dan mantap? Huang Rong telah melihat simbol Delapan Diagram yang tergantung
+di atas pintu ruang belajar Lu Xiansheng, dan menjelaskannya kepada Guo Jing. Hanya mereka berdua yang tidak
+terlalu terkejut.
+
+Ketika Wanyan Kang mendengar Lu Xiansheng menyebut nama Hei Feng Shuang Sha, ia terdiam sejenak sebelum menjawab,
+"Siapa itu 'Sepasang Iblis Anu'?" Meskipun Mei Chaofeng mengajarinya kungfu, tetapi ia tidak pernah menceritakan
+masa lalunya, dan Wanyan Kang bahkan tidak tahu namanya. Karena itu bisa dipahami kalau ia tidak tahu apa-apa
+mengenai Hei Geng Shuang Sha.
+
+Lu Xianshen sangat marah dan berteriak, "Kau pikir siapa yang kau bohongi? Siapa yang mengajarimu jurus maut
+Cakar Tengkorak Putih?"
+
+Wanyan Kang menjawab, "Aku tidak punya waktu untuk mendengarkan omong kosongmu, selamat tinggal!" Sambil bicara
+ia melangkah ke arah pintu.
+
+Para kepala bagian sangat marah dan mengeluarkan senjata mereka, siap untuk menjaga pintu. Wanyan Kang berpaling
+kepada Lu Guanying dan tertawa dingin, "Bukannya tadi kau sudah berjanji?"
+
+Lu Guanying terlihat lemah dan pucat. Ia melambaikan tangannya dan berkata, "Para pendekar Danau Tai selalu
+menepati janji. Saudara-saudara, harap membiarkan dia pergi. Saudara Zhang, antar dia keluar!"
+
+Para kepala bagian sebetulnya tidak rela melakukannya, tetapi karena majikan muda mereka sudah memberi perintah,
+mereka tidak bisa membantah. Pemimpin Zhang berkata, "Ikuti aku kalau begitu. Berani taruhan, bajingan seperti kau
+tidak akan bisa keluar sendiri."
+
+Wanyan Kang bertanya, "Mana orang-orangku?"
+
+Lu Guanyin berkata, "Kami sudah membebaskan mereka semua."
+
+Wanyan Kang menudingkan jari kepadanya, "Bagus, kalau begitu kau sungguh pria sejati yang menepati janji. Untuk
+semua pemimpin lain... selamat tinggal!" Ia bicara dengan kasar dan arogan.
+
+Ketika ia hendak meninggalkan ruangan, Lu Xiansheng tiba-tiba berkata, "Tahan! Orang tua ini tidak berbakat, tapi
+ingin mencicipi Jurus Cakar Tengkorakmu!" 
+
+Wanyan Kang berhenti di jalan dan tertawa. "Baik!"
+
+Lu Guanying buru-buru berkata, "Ayah, sebaiknya kau tidak menantang si brengsek ini di usiamu."
+
+Lu Xiansheng menjawab, "Jangan kuatir! Cakar Tengkoraknya masih belum cukup matang." Ia menatap Wanyan Kang dan
+berkata dengan lemah, "Aku cacat dan tidak bisa bergerak, kau kemarilah!"
+
+Wanyan Kang tertawa tetapi tidak bergerak. Kaki Lu Guanying yang cedera terasa sakit, tetapi ia tidak ingin ayahnya
+menghadapi Wanyan Kang. Ia melompat keluar pintu dan berteriak, "Aku akan mewakili ayahku dan menghadapimu." Wanyan
+Kang tertawa dan berkata, "Bagus, ayou kita latihan lagi!"
+
+Lu Xiansheng berteriak, "Ying'er, minggir!" Ia melompat, tangan kirinya memegang kuat-kuat bangku panjang yang
+digunakannya, ia menggunakan kekuatan tangan kirinya untuk menyanggah beban tubuhnya. Tangan kanannya menyerang
+kepala Wanyan Kang. Mendengar suara hembusan napas penonton yang cemas, Wanyan Kang mengangkat tangannya untuk 
+menangkis pukulan itu tetapi merasa pergelangan tangan kirinya terperangkap. Ia sudah melihat bayangan cepat 
+telapak tangan lawannya yang mengarah ke bahunya, tetapi Wanyan Kang tidak menyangka cekalan lawannya begitu 
+cepat dan unik. Ia buru-buru menggunakan tangan kanannya untuk menyerang balik sambil berjuang melepaskan tangan 
+kirinya dari cekalan lawan. Lu Xiansheng memindahkan berat badannya ke pergelangan tangan Wanyan Kang dan mampu 
+melayang di udara. Telapak tangan kirinya melancarkan beberapa serangan maut sementara Wanyan Kang menggunakan 
+seluruh kekuatannya untuk melepaskan diri dari cekalannya tetapi tidak berhasil. Ia mencoba melepaskan tendangan 
+terbang ke arah Lu Xiansheng tetapi gagal. Semua orang sangat senang saat menyaksikan pertarungan itu. Lu Xiansheng
+mengangkat telapak tangannya, siap untuk melepaskan serangan ke Wanyan Kang, sementara Wanyan Kang menjulurkan jarinya 
+dan mengarahkannya ke telapak tangan Lu Xiansheng. Lu Xiansheng tiba-tiba menurunkan telapak tangannya dan memukul 
+jalan darah di bahu Wanyan Kang. Wanyan Kang merasakan tubuh bagian atasnya mati rasa, dan setelah itu pergelangan 
+tangan kanannya juga dicekal oleh Lu Xiansheng. Dua suara terdengar sebelum pergelangan tangan Wanyan Kang dilepaskan. 
+Tangan kanan Lu Xiansheng dengan cepat mendorong pinggang Wanyan Kang sementara tangan kirinya mendorong ke bahunya,
+meminjam tenaga Wanyan Kang untuk melompat ke belakang dengan mantap ke sofa. Wanyan Kang merasa kedua kakinya 
+lemas dan ia pingsan. Para kepala bagian tercengang, setelah hening sesaat barulah mereka mulai bersorak.
+
+Lu Guanying berlari ke arah ayahnya dan bertanya, "Ayah, kau tidak apa-apa?"
+
+Lu Xiansheng tersenyum dan menggelengkan kepalanya tetapi air mukanya berubah menjadi curiga, ia berkata, 
+"Kalau guru anjing Jin ini datang, aku harus berbicara serius dengan orang itu."
+
+Dua kepala bagian mengambil beberapa tali dan mengikat Wanyan Kang. Pemimpin Zhang berkata, "Di antara 
+barang-barang milik Komandan Duan, kami menemukan kunci dan rantai besi, mari kita gunakan untuk bajingan ini 
+dan lihat apakah ia mampu mematahkannya!" Semua orang bersorak setuju dan seseorang berlari keluar untuk 
+mengambil rantai dan kunci, lalu kembali untuk mengikat Wanyan Kang. Rasa sakit di pergelangan tangannya 
+menyiksanya dan Wanyan Kang berkeringat deras, tapi ia mengeraskan hati dan tidak bersuara.
+
+Lu Xiansheng berkata, "Bawa dia ke sini." Dua pria mencengkeram bahu Wanyan Kang dan membawanya ke hadapan
+Lu Xiansheng. Lu Xiansheng mengetuk titik akupuntur di punggung bawah dan dada kiri Wanyan Kang. Wanyan Kang 
+tiba-tiba merasakan sakitnya mereda dan meskipun dalam hati ia masih marah, diam-diam ia terkejut. Sebelum 
+ia bisa mengatakan apa-apa, ia dibawa pergi sementara para kepala bagian lainnya perlahan meninggalkan ruangan.
+
+Lu Xiansheng kemudian menoleh ke arah Huang Rong dan Guo Jing dan tersenyum, "Aku berkonsentrasi begitu keras 
+untuk bertarung dengan pemuda itu sehingga lupa sopan santun, kuharap kalian tidak tertawa."
+
+Huang Rong melihat bahwa jurus tangan kosong dan teknik akupuntunya adalah milik keluarganya dan ia jadi 
+lebih heran. Ia tersenyum dan bertanya, "Siapa itu? Apakah dia mencuri dari pemukiman ini dan membuat 
+Xiansheng marah?"
+
+Lu Xiansheng tertawa terbahak-bahak dan berkata, "Ya, dia memang mencuri banyak dari kita semua. Ayo, 
+jangan sampai kita terganggu oleh bajingan itu. Ayo kita teruskan membahas karya seni."
+
+Lu Guanying meninggalkan ruangan untuk mereka bertiga. Lu Xiansheng mengobrol tentang latar belakang pemandangan, 
+ekspresi manusia dan lebih banyak lagi dengan Huang Rong, sementara Guo Jing hanya mendengarkan tanpa memahami 
+satu hal pun seperti biasanya. Setelah makan siang, Lu Xiansheng memerintahkan dua pelayan untuk menemani mereka 
+berkeliling pedesaan dan mereka bersenang-senang sampai malam tiba sebelum kembali ke rumah Lu Xiansheng. 
+Sebelum tidur, Guo Jing bertanya, "Rong'er. Bagaimana kita akan menyelamatkannya?"
+
+Huang Rong berkata, "Sebaiknya kita tinggal di sini beberapa hari lagi, karena aku masih belum bisa menebak
+siapa Lu Xiansheng sebenarnya."
+
+Guo Jing berkata, "Kungfunya sangat mirip denganmu."
+
+Huang Rong menarik napas dalam-dalam. "Itu bagian yang tidak umum, dan, hmm! Apa dia kenal Mei Chaofeng?"
+
+Keduanya tidak bisa menebak, dan mereka takut ada orang yang menguping pembicaraan, karena itu tidak melanjutkan. 
+Di tengah malam, mereka tiba-tiba mendengar ada suara halus di atas atap, diikuti oleh suara di tanah. Mereka
+segera bangkit dari tempat tidur dan mendorong jendela dan mengintip ke luar. Mereka melihat bayangan hitam
+di antara semak mawar. Orang itu celingukan sebelum menuju ke timur. Orang itu tampaknya bukan salah satu penghuni
+rumah, karena ia sangat waspada dan terlihat berhati-hati. Sebelumnya Huang Rong sempat berpikir bahwa tempat itu
+hanya menampung para perompak yang heroik dari Danau Tai, tetapi setelah melihat kemampuan Lu Xiansheng, ia jadi
+sangat penasaran dan memutuskan untuk menyelidiki lebih dalam. Ia memberi isyarak kepada Guo Jing, lalu mereka
+melompat keluar lewat jendela untuk membuntuti si penyusup. Setelah membuntutinya beberapa saat, cahaya bulan
+memperlihatkan bahwa orang itu adalah seorang wanita dengan kungfu biasa saja. Huang Rong mempercepat langkahnya
+untuk mendekati wanita itu. Ia sempat berpaling sejenak, dan ternyata ia adalah Mu Nianci.
+
+Huang Rong tertawa dalam hati dan berpikir, "Bagus, penolongnya sudah datang. Ayo kita lihat, mau pakai cara apa?"
+
+Mu Nianci mengitari taman dan dengan segera kehilangan arah. Huang Rong memahami tata letak taman ini karena ayahnya, 
+Huang Yaoshi, adalah ahli dari formasi ini dan sesekali akan mengajaknya berdiskusi. Ia pikir formasi di taman ini 
+tidak biasa tapi tidak ada apa-apanya dibandingkan dengan yang ada di Pulau Bunga Persik, yang aneh dan membingungkan, 
+seperti pemiliknya.
+
+Huang Rong berpikir, "Kalau terus berjalan seperti itu, kau tidak akan dapat menemukannya dalam seratus tahun." 
+Ia lalu mengambil sedikit tanah dan ketika melihat Mu Nianci ragu-ragu di jalurnya, ia melemparkan sebongkah tanah 
+ke sisi kiri dan berkata dengan suara rendah, "Ke sana." Sebelum bersembunyi di balik semak bunga.
+
+Mu Nianci terkejut, ia berbalik tetapi tidak melihat siapa pun. Ia meraih belatinya dan berjalan ke kiri. 
+Ilmu meringankan tubuh Huang Rong dan Guo Jing jauh lebih baik, dan mereka menyembunyikan diri, tidak membiarkan
+Mu Nianci melihat mereka.
+
+Mu Nianci kuatir dan berpikir, "Aku tidak tahu orang ini membantu atau malah menyesatkan. Tetapi karena aku tidak 
+bisa menemukan jalan, sebaiknya aku mengikuti petunjuknya." Ia lalu mengikuti petunjuk dan berjalan ke arah kiri. 
+Setiap kali ia sampai di sebuah persimpangan, ia mendengar suara sebongkah tanah yang dilempar untuk menunjukkan 
+jalan. Yang berikutnya mengenai jendela sebuah gubuk kecil. Mu Nianci melihat dua sosok hitam yang agak kabur 
+dengan cepat terbang dan menghilang. Mu Nianci berpikir sejenak dan kemudian berlari menuju gubuk kecil itu. Ia 
+melihat dua penjaga tergeletak di tanah. Meskipun mata mereka terbuka lebar dan menatapnya, mereka tidak bergerak 
+dan tidak mengambil senjata mereka. Mu Nianci menduga bahwa seseorang pasti telah menotok mereka. Mu Nianci tahu 
+bahwa seseorang diam-diam membantunya. Ia mendorong pintu dengan pelan dan mendengarkan, sepertinya ada seseorang 
+yang bernapas di dalam. Ia memanggil dengan suara rendah, "Kakak Kang, itu kau?"
+
+Wanyan Kang terkejut saat melihat penjaga di pintu roboh terkapar. Tapi setelah mendengar suara Mu Nianci, 
+ia semakin terkejut dan senang. Ia memanggil dengan lembut, "Ini aku!"
+
+Mu Nianci sangat gembira dan berjalan menuju suara dalam kegelapan dan berkata, "Syukurlah aku menemukanmu, 
+ayo kita pergi."
+
+Wanyan Kang bertanya, "Kau bawa senjata?"
+
+Mu Nianci balas bertanya, "Kenapa?"
+
+Wanyan Kang menggerakkan tangannya pelan-pelan, dan terdengar suara rantai. Mu Nianci mengulurkan tangannya menyentuh
+rantai itu. Ia merasa menyesal dan mengomel, "Aku seharusnya tidak memberikan pisau itu kepada Huang Mei Mei!"
+
+Huang Rong dan Guo Jing mendengarkan dari luar. Huang Rong tertawa dalam hati dan berpikir, "Biar kau kuatir
+sebentar, nanti kukembalikan."
+
+Mu Nianci sangat cemas dan berkata, "Aku akan mencuri kuncinya."
+
+Wanyan Kang menjawab, "Jangan! Orang-orang di tempat ini berilmu tinggi. Tidak ada gunanya kau mengambil resiko
+dan tertangkap!"
+
+Mu Nianci berkata, "Kalau begitu aku akan menggendongmu keluar!"
+
+Wanyan Kang tertawa, "Seharusnya kau menciumku."
+
+Mu Nianci menjauh dan berkata, "Aku kuatir, dan kau masih bisa bercanda?"
+
+Wanyan Kang tertawa nakal, "Siapa yang bercanda, aku serius!"
+
+Mu Nianci mengabaikannya, dan berusaha mencari akal. Wanyan Kang bertanya, "Bagaimana kau tahu aku ada di sini?"
+
+Mu Nianci berkata, "Aku mengikutimu."
+
+Wanyan Kang merasa sangat terharu, ia berkata, "Coba kau bersandar kepadaku, aku akan mengatakan sesuatu." Mu Nianci
+duduk di lantai dan menyandarkan diri ke lengannya.
+
+Wanyan Kang berkata, "Aku Duta Besar Jin, kukira mereka tidak akan berani melakukan apa-apa terhadapku. Tapi kalau
+aku terus ada di sini, itu akan merusak rencana ayahku! Lalu bagaimana? Mei Mei, tolong aku melakukan sesuatu."
+
+Mu Nianci berkata, "Melakukan apa?"
+
+Wanyan Kang berkata, "Tolong lepas segel emas yang tergantung di leherku." Mu Nianci mengulurkan tangannya dan melepas
+segel itu.
+
+Wanyan Kang melanjutkan, "Ini segel dari Duta Besar Jin. Bawa Ke Lin'an, cari bantuan Perdana Menteri Shi Miyuan 
+dari Dinasti Song."
+
+Mu Nianci bertanya, "Perdana Menteri Shi? Masa dia mau menemui orang biasa seperti aku?"
+
+Wanyan Kang berkata, "Setelah melihat segel ini, dia akan menyambutmu. Katakan kepadanya bahwa aku telah ditangkap
+oleh para perompak Danau Tai, dan tidak bisa datang menemuinya secara pribadi. Tapi kau harus ingat satu hal,
+kalau ternyata Duta Besar Mongolia ada di sana, pastikan supaya dia dan Perdana Menteri Shi tidak bertemu dengan
+resiko apa pun juga. Ini adalah misi rahasia yang diperintahkan oleh Kekaisaran Jin, kau harus melaksanakannya."
+
+Mu Nianci bertanya, "Mengapa?"
+
+Wanyan Kang menjawab, "Ini semua urusan militer, kau tidak akan mengerti. Kau akan melakukan hal yang sangat penting
+bagiku dengan mengatakan apa yang baru saja kukatakan tadi kepada Perdana Menteri Shi. Kalau Duta Besar Mongolia
+sampai di Lin'an lebih dahulu dan bertemu dengan para pejabat Song, maka itu akan menempatkan kita, bangsa Jin, dalam posisi
+yang sangat tidak menguntungkan."
+
+Mu Nianci bertanya dengan marah, "Apa itu 'kita, bangsa Jin'? Aku rakyat Dinasti Song. Kalau kau tidak menjelaskan
+semuanya kepadaku, aku tidak akan membantumu melakukan misi itu."
+
+Wanyan Kang tersenyum samar. "Bukankah kau akan menjadi selir dari seorang Jin nantinya?"
+
+Mu Nianci bangkit berdiri dengan marah. "Ayah angkatku adalah ayah kandungmu. Kau sebenarnya adalah seorang Han. 
+Jadi kau masih ingin menjadi pangeran Jin? Aku tahu kau... kau..."
+
+Wanyan Kang bertanya, "Apa?"
+
+Mu Nianci menjawab, "Aku selalu berpikir bahwa kau adalah seorang pria yang kuat, pintar, dan _jujur_. Kupikir kau
+hanya berpura-pura menjadi seorang Pangeran Jin untuk sementara, untuk membantu Kekaisaran Song. Tapi ternyata kau...
+kau _sungguh-sungguh_ ingin menganggap musuh sebagai ayahmu?" Wanyan Kang mendengar nada bicaranya berubah menjadi
+sangat marah, ia tersedak oleh amarahnya hingga tidak bisa bicara untuk sesaat. 
+
+Mu Nianci melanjutkan, "Kekaisaran Song sudah kehilangan separuh wilayah di tangan Jin, begitu banyak orang Han
+disiksa dan dibantai oleh mereka. Kau sungguh tidak merasa terganggu oleh hal itu? Kau... kau..." Ia terhenti
+sampai di sini, tidak bisa melanjutkan. Lalu ia melemparkan segel emas itu ke lantai dan hendak pergi. Wanyan Kang
+memanggilnya, "Mei Mei, aku keliru, tolong kembali!"
+
+Mu Nianci berhenti dan berpaling. "Apa?"
+
+Wanyan Kang berkata, "Kalau aku sudah bebas dari beban berat sebagai Duta Besar Jin, aku tidak akan kembali. Aku
+akan menjalani kehidupan bebas dan sederhana sebagai rakyat biasa bersamamu. Itu jauh lebih baik daripada menderita
+dalam diam seperti ini."
+
+Mu Nianci menghela napas dan diam. Sejak dia bertarung dalam lomba melawan Wanyan Kang dan kemudian sungguh-sungguh
+jatuh cinta kepadanya, ia selalu melihatnya sebagai seorang pendekar yang jujur dan adil. Ia berpikir bahwa pasti 
+ada alasan kuat mengapa Wanyan Kang tidak mau mengakui ayah kandungnya. Ketika ia menjadi Duta Besar Jin, ia masih
+juga mencari alasan untuk membenarkan tindakan Wanyan Kang... bahwa ia diam-diam memata-matai musuh untuk Song, bahwa
+ia akan membantu Song menghancurkan musuh. Ia tidak menyangka bahwa semua itu hanya angan-angannya sendiri. Wanyan
+Kang tidak lebih hanya seorang pengkhianat yang serakah dan tak tahu malu. Ia patah hati dan merasa sangat sedih.
+
+Wanyan Kang bertanya dengan nada rendah, "Mei Mei, ada apa?" Mu Nianci tidak menjawab.
+
+Wanyan kang berkata lagi, "Ibuku bilang bahwa ayah angkatmu adalah ayah kandungku. Aku tidak punya kesempatan
+untuk menyelidiki kebenarannya, dan mereka berdua meninggal. Kewarganegaraan dan asal-usulku tidak bisa disebutkan
+secara asal-asalan dan segampang itu, kan?"
+
+Mu Nianci diam-diam merasa agak lega mendengarnya. "Jadi dia masih belum jelas tentang kewarganegaraannya sendiri.
+Dia tidak sepenuhnya bisa disalahkan kalau begitu." Ia berkata keras-keras, "Jangan sebut lagi soal membawa 
+segel emas kepada Perdana Menteri Shi. Aku akan mencari Huang Mei Mei dan meminta pisau untuk menyelamatkanmu."
+
+Huang Rong sungguh berpikir untuk mengembalikan belati itu kepada Mu Nianci, tetapi ketika mendengar Wanyan Kang
+berkata tentang membantu bangsa Jin, ia jadi marah dan berpikir, "Ayah sangat membenci bangsa Jin. Kalau seperti itu,
+biarkan saja dia terkurung di sini beberapa hari lagi."
+
+Wanyan Kang melanjutkan, "Jalan di sini sangat aneh dan membingungkan, bagaimana kau bisa menemukan jalan?"
+
+Mu Nianci menjawab, "Untungnya ada dua orang ahli yang diam-diam membantuku. Meskipun aku tidak kenal siapa
+mereka, dan mereka juga tidak ingin menunjukkan diri."
+
+Wanyan Kang menghela napas dalam-dalam. "Mei Mei, aku takut kau akan ketahuan kalau ke sini lagi. Kalau kau
+memang mau membantuku, tolong cari seseorang."
+
+Mu Nianci menjawab dengan marah, "Aku tidak mau membantumu mencari seorang Perdana Menteri segala!"
+
+Wanyan Kang menjawab, "Bukan Perdana Menteri, tolong bantu aku menemukan guruku."
+
+Mu Nianci menyahut, "Ah!"
+
+"Bawa sabukku, gunakan pisau untuk mengukir kalimat 'Wanyan Kang sedang dalam bahaya di Pemukiman Guiyun,
+di Tepi Barat Danau Tai' di gesper emasnya. Setelah itu pergilah ke Suzhou, teruskan ke Utara sejauh tiga puluh _li_,
+sampai ke sebuah bukit terpencil. Temukan sembilan tengkorak manusia di situ, lalu susun membentuk piramid,
+dengan lima di paling bawah, tiga di atasnya, dan satu di puncak. Terakhir, taruh sabuk itu di bawah tumpukan
+paling atas."
+
+Mu Nianci bingung dan bertanya, "Untuk apa semua ini?"
+
+Wanyan Kang menjawab, "Guruku buta, tapi kalau dia menemukan sabuk itu dan meraba tulisan yang diukir di gespernya,
+dia pasti akan datang untuk menyelamatkan aku. Karena itu kau harus mengukirnya dalam-dalam."
+
+Mu Nianci bertanya, "Bukankah gurumu 'Musim Semi Abadi', Qiu Dao Zhang? Masa dia buta?"
+
+Wanyan Kang menjawab, "Bukan, itu bukan Pendeta Qiu, tapi guruku yang lain. Setelah meletakkan sabuk itu
+kau harus cepat pergi. Temperamen guruku aneh, kalau sampai menemukan kau di situ, kau bisa celaka. Ilmunya
+sangat tinggi, dia pasti bisa menyelamatkan aku. Kau cukup menunggu aku di depan Biara Xuan Miao, di Suzhou."
+
+Mu Nianci berkata, "Kau harus bersumpah tidak akan mengakui musuh sebagai ayahmu dan mengkhianati bangsamu
+sendiri."
+
+Wanyan Kang menolak dan berkata, "Seelah aku menemukan kebenaran tentang semuanya, aku akan bertindak sesuai
+dengan moralku. Untuk apa memaksaku bersumpah saat ini? Kalau kau tidak bersedia menolongku, ya sudah!"
+
+Mu Nianci menjawab, "Baik! Aku akan menolongmu mencari bantuan." Lalu ia melepaskan sabuk Wanyan Kang.
+
+Wanyan kang bertanya, "Mei Mei, kau pergi begitu saja? Coba ke sini dulu, aku ingin menciummu."
+
+"Tidak!" jawab Mu Nianci. Ia bangkit dan menuju ke pintu.
+
+"Aku kuatir mereka akan membunuhku sebelum guruku datang. Kalau begitu aku bahkan tidak bisa bertemu
+denganmu lagi," kata Wanyan kang.
+
+Hati Mu Nianci meleleh, ia menghela napas panjang dan kembali ke pelukannya, membiarkannya mencium pipinya
+beberapa kali. Lalu mendadak ia memukul rantai Wanyan kang dan berkata, "Kalau nantinya kau tidak mau 
+kembali ke jalan yang benar, aku tidak bisa berbuat apa-apa kecuali menyalahkan diriku sendiri dan mati
+di hadapanmu."
+
+Wanyan Kang ingin memeluk dan merayunya sebentar, setengah berharap bahwa dia akan berubah pikiran, dan
+mau mengantarkan segel emas itu. Tapi kemudian ia merasa bahwa tubuhnya gemetar dan napasnya memburu, 
+pertanda bahwa dia sangat marah. Ia tidak menyangka Mu Nianci akan mengatakan hal semacam itu, dan untuk
+beberapa saat ia terpana. Mu Nianci bangkit dan berjalan keluar.
+
+Ketika berada di luar, sekali lagi Huang Rong menuntunnya diam-diam, dan Mu Nianci berlari sampai ia melihat
+tembok yang menuju ke luar pemukiman itu. Sebelum pergi ia berseru, "Karena _Qianbei_ tidak ingin menunjukkan 
+diri, maka _wanbei_ hanya bisa memandang ke langit dan menghaturkan terima kasih." Ia berlutut di tanah dan
+_kowtow_ tiga kali. Lalu ia mendengar suara jernih yang cekikikan sambil berkata, "Wah, aku tidak bisa
+menerima yang ini!"
+
+Ketika mengangkat kepala, ia hanya melihat bintang-bintang di langit dan sekelilingnya tidak ada orang lain.
+Mu Nianci bingung, ia berpikir bahwa suara itu mirip suara Huang Rong, tapi mana mungkin dia ada di sini,
+dan bagaimana dia bisa tahu semua rahasia jalan setapak yang membingungkan ini? Ia memikirkan semua itu
+sambil berjalan tapi tetap tidak bisa memecahkan teka-teki itu. Setelah berjalan kira-kira 
+sepuluh [li](#satuan-li "1 li kurang lebih 500mm berarti sekitar 5 km") dari pemukiman, ia beristirahat
+di bawah sebuah pohon besar dan menunggu perahu yang bisa membawanya ke Suzhou keesokan harinya.
+
+Suzhou adalah sebuah kota yang sibuk di sebelah Tenggara, meskipun tidak bisa dibandingkan dengan ibukota
+Hangzhou, tapi tetap sebuah daerah yang makmur dan ramai. Para pejabat Dinasti Song yang memerintah di Jiangnan
+hampir melupakan penderitaan rakyat yang bermukim di Utara, yang harus hidup di bawah pemerintahan Dinasti Jin.
+Kenyataan bahwa Suzhou dan Hangzhou adalah tempat yang makmur seolah mengangkat sebuah pepatah 'Di atas ada Surga,
+di bawah ada Su Hang', menunjukkan betapa penting dan agungnya kedua kota itu. Sebenarnya Sungai Huai adalah sumber
+dari segala kekayaan, dan juga simbol keindahan dari kedua kota itu di wilayah Selatan.
+
+Mu Nianci menikmati pemandangan penuh warna di kota itu sebelum memasuki sebuah penginapan. Lalu ia dengan hati-hati
+mulai mengukir kalimat seperti yang dikatakan Wanyan Kang ke atas gesper sabuknya. Ia berpikir bahwa tidak lama
+sebelum ini sabuk itu masih dipakai oleh pemiliknya, dan ia dalam hati berdoa demi keselamatan Wanyan Kang, sambil
+berharap bahwa sabuk itu bisa kembali kepada pemiliknya sekali lagi. Diam-diam ia berharap supaya Wanyan Kang sadar
+dan menikahinya, maka ia akan senang sekali membantunya mengenakan sabuk ini. Setelah berangan-angan sejenak, ia
+lalu menyimpan sabuk itu de balik jubahnya, dan berpikir, "Sabuk ini seperti tangannya, yang melingkar di pinggangku."
+Dengan segera ia tersipu dan tidak berani melanjutkan pikirannya. Setelah terburu-buru makan semangkuk mie, ia 
+melihat matahari mukai bergerak ke Barat, dan ia bergegas melanjutkan perjalanan ke Utara, mengikuti petunjuk
+Wanyan Kang untuk menemukan gurunya.
+
+Jalan di atas bukit itu sepi dan Mu Nianci merasa gelisah ketika mendengar suara-suara aneh yang dibuat oleh 
+burung-burung, dan matahari juga mulai terbenam. Ia meninggalkan jalan utama dan pergi ke lembah di sisi lain 
+bukit untuk mencari tengkorak seperti yang dikatakan Wanyan Kang. Saat hari perlahan berubah menjadi malam, 
+ia masih tidak dapat menemukannya. Ia merenungkan masalah ini dan memutuskan untuk melanjutkan pencarian 
+keesokan harinya. Lalu ia pergi untuk melihat apakah ada tempat terdekat di mana ia bisa berlindung untuk 
+malam itu. Ia berlari menaiki sebuah gundukan tanah, melihat ke kejauhan dan melihat sebuah rumah bangsawan 
+di sebelah barat. Ia lega dan bergegas menuju ke sana.
+
+Ketika mendekati tempat itu, ia menyadari bahwa rumah itu sebenarnya adalah sebuah kuil kumuh dan ada papan nama 
+di atas pintunya, bertuliskan 'Kuil Tanah'. Ia mendorong pintu perlahan-lahan dan pintu itu berderit sebelum jatuh, 
+meniup tumpukan debu sampai berhamburan. Saat itulah Mu Nianci menyadari bahwa itu adalah kuil yang terlantar 
+dan tidak ada yang tinggal di sana. Ia berjalan ke aula dan melihat sarang laba-laba memenuhi 
+[Tu Di Po dan Tu Di Gong](#dewa-dewi-tanah "Dewi dan Dewa Tanah, kepercayaan setempat."). Ia menekan meja dan 
+memukulnya tetapi ternyata meja itu masih kokoh dan tidak pecah. Ia menemukan sejumlah jerami untuk membersihkan 
+meja dan mengembalikan pintu yang rusak ke posisinya. Ia makan beberapa makanan kering sebelum berbaring di atas 
+meja dan tidur dengan tas sebagai bantalnya. Ia tidak bisa menahan perasaan sedih dan malu saat memikirkan 
+kepribadian Wanyan Kang, air mata mengalir di pipinya. Tetapi ketika memikirkan kelembutan dan kata-katanya 
+yang manis, ia merasakan sedikit kehangatan di hatinya. Pikirannya dipenuhi banyak hal, dan ia mencoba menepiskan 
+semuanya sebelum akhirnya ia bisa tertidur.
+
+Di tengah malam, Mu Nianci mendengar suara aneh. Karena cemas, ia duduk tegak saat suara itu semakin keras. 
+Ia bergegas ke pintu dan mengintip keluar. Ia sangat kaget ketika sinar bulan memperlihatkan ribuan ular 
+yang menggeliat-geliat ke arahnya. Bau amis masuk melalui pintu. Setelah beberapa lama, jumlah ular mulai 
+berkurang dan ia kemudian mendengar langkah kaki, tiga pria berbaju putih muncul dengan tongkat panjang 
+di tangan mereka, menggiring kawanan ular itu. Mu Nianci takut ketahuan dan bersembunyi di balik pintu aula, 
+tidak berani melihat lebih lama lagi. Ia mendengar beberapa langkah kaki dan mengintip keluar lagi. Ular-ular 
+itu menghilang dan lingkungan menjadi sunyi dan sepi. Ia merasa seperti sedang bermimpi dan tidak percaya 
+apa yang baru saja dilihatnya.
+
+Ia membuka pintu utama dengan hati-hati dan mengintip keluar. Ia berjalan ke arah ular-ular itu pergi, 
+tetapi tidak dapat menemukan pria-pria berbaju putih itu. Ia agak lega dan hendak kembali ke kuil ketika 
+melihat cahaya bulan menyinari tumpukan benda putih yang aneh di kejauhan. Ia pergi untuk melihat lebih 
+dekat dan menjerit tertahan. Itu adalah tumpukan tengkorak yang tersusun rapi dalam bentuk piramid, 
+lima di bawah, tiga di tengah, dan satu di atas. Ia mencari-cari mereka tadi siang tetapi tidak menemukannya.
+Sekarang tiba-tiba, mereka muncul di depannya, di tengah malam. Susunan tengkorak itu menakutkan, tetapi 
+jantungnya berdetak kencang karena ia senang telah menemukannya. Pelan-pelan ia mendekati tumpukan tengkorak 
+itu dan mengeluarkan sabuk Wanyan Kang. Dengan tangan gemetar, ia mengulurkan tangan untuk mengangkat 
+tengkorak yang paling atas. Ia menyentuh tengkorak itu dan merasakan lima lubang di dalamnya yang pas 
+dengan kelima jarinya, seolah-olah tengkorak itu telah membentuk mulut, yang menelan jari-jarinya.
+Mu Nianci tercengang dan berteriak sebelum berbalik untuk lari. Ia berlari beberapa saat, lalu berhenti 
+dan menyadari bahwa ia hanya ketakutan sendiri. Ia terkikik gugup dan kembali memasang sabuk di atas 
+tiga tengkorak sebelum meletakkan tengkorak di tangannya kembali ke atas susunan itu.
+
+Ia berpikir, "Gurunya benar-benar aneh, Apa mukanya juga menakutkan?" Setelah mengembalikan tengkorak 
+itu ke tempatnya, ia diam-diam berharap, "Kuharap guru mendapatkan sabuk itu dan segera pergi menyelamatkan
+dia. Kuharap kau akan mengajarinya dengan benar, supaya dia mengakhiri kebiasaan buruknya dan mengubah cara
+hidupnya."
+
+Ia sedang memikirkan si tampan Wanyan Kang yang bermulut manis, ketika ia merasa seseorang menepuk bahunya 
+dengan lembut. Ia terkejut dan tidak berani berbalik. Karena kegugupannya, tidak sengaja ia jatuh ke 
+tumpukan tengkorak. Mu Nianci mencengkeram dadanya dan berbalik. Saat itu seseorang dengan lembut menepuk 
+bahunya lagi. Ia berbalik sekitar enam kali lagi, tapi masih tidak bisa melihat orang di belakangnya. 
+Ia tidak tahu apakah itu hantu atau iblis. Mu Nianci berkeringat dingin dan tidak berani bergerak. 
+Dengan gemetar ia bertanya, "Siapa kau?"
+
+Orang itu meletakkan kepalanya di dekat lehernya dan mengendus sebelum tertawa, "Hmm, harum! Coba tebak siapa aku."
+
+Mu Nianci buru-buru berbalik dan melihat seorang pria berpakaian sastrawan dengan kipas di tangan dan ekspresi 
+genit. Ternyata dia adalah salah satu dari orang-orang yang memaksa ayah tirinya untuk bunuh diri di Yanjing, 
+Ouyang Ke. Ia terkejut dan marah, tetapi karena tahu bahwa ia bukan tandingannya, ia berbalik untuk lari. 
+Tapi Ouyang Ke sudah di depannya, tertawa dengan tangan terentang siap untuk memeluknya jika ia maju beberapa 
+langkah lagi. Mu Nianci buru-buru mundur lalu berlari ke kanan. Ia baru berlari beberapa langkah saat 
+Ouyang Ke berada di depannya lagi. Ia berlari ke segala arah tetapi tetap tidak bisa melepaskan diri.
+
+Ouyang Ke melihat wajahnya yang cantik menjadi pucat, dan merasa senang. Ia tahu bahwa ia bisa menangkapnya 
+dalam satu gerakan, tapi ia ingin main kucing-kucingan dulu, menjebaknya dan membiarkannya lari lagi. 
+Mu Nianci tahu bahwa ia dalam bahaya dan mengeluarkan belati hijau, mengarah ke matanya.
+
+Ouyang Ke tertawa dan berkata, "Wah, jangan kasar." Ia memutar tubuhnya, menangkap lengan Mu Nianci dengan 
+tangan kirinya sambil memegang pinggangnya dengan tangan kanan. Mu Nianci meronta tetapi ia merasa tenggorokannya 
+mati rasa dan belatinya telah direbut Ouyang Ke. Ia berhasil membebaskan diri setelah beberapa saat, tetapi
+masuk lagi dalam pelukannya. Cara Ouyang Ke memeluknya mirip dengan cara yang digunakannya untuk menangkap 
+Huang Rong di kediaman Wanyan Kang, membuat tangan Mu Nianci menotok jalan darahnya sendiri.
+
+Ouyang Ke tertawa ringan dan berkata, "Angkat aku sebagai gurumu, dan aku akan segera melepaskanmu, 
+dan mengajarimu jurus ini. Tapi takutnya saat itu kau tidak ingin kulepaskan lagi."
+
+Mu Nianci terjebak di tangannya dan Ouyang Ke menggunakan tangan kanannya untuk mengusap pipinya dengan lembut. 
+Setalah tahu bahwa ia tidak berdaya, ia sangat ketakutan dan jatuh pingsan. Setelah beberapa saat, Mu Nianci 
+bangun tetapi ia merasa mati rasa dan lemah di sekujur tubuhnya. Seseorang memeluknya dengan erat dan dalam 
+kebingungan ia mengira itu adalah Wanyan Kang dan merasa senang. Kemudian ia membuka matanya dan menyadari 
+bahwa orang yang memeluknya adalah Ouyang Ke. Ia malu dan gugup, dan berjuang untuk berdiri, tapi kemudian 
+menyadari bahwa ia tidak bisa bergerak. Ia membuka mulut untuk berteriak, tetapi menyadari bahwa Ouyang Ke 
+telah membungkam mulutnya dengan sapu tangan. Ia duduk di tanah dengan cemas. Di kedua sisi Ouyang Ke ada 
+delapan wanita berbaju putih masing-masing dengan senjata di tangan mereka dan semuanya menatap dengan 
+curiga tanpa bersuara ke arah tumpukan tengkorak.
+
+Mu Nianci penasaran dan mencoba menebak apa yang sedang mereka inginkan. Ketika menoleh ia ketakutan karena 
+melihat ribuan ular hijau di belakang Ouyang Ke. Ular-ular itu tidak bergerak tetapi mendesis ketika lidah 
+mereka menjulur keluar. Cahaya bulan menyinari sesuatu yang tampak seperti lautan lidah merah, pemandangan 
+yang mengerikan. Di tengah-tengah kawanan ular itu berdiri tiga pria berbaju putih dengan tongkat panjang 
+di tangan mereka. Mereka adalah pria yang sebelumnya dilihat Mu Nianci. Ia tidak berani melihat lagi dan 
+berbalik. Saat itulah ia melihat sabuk emas mengkilap di antara sembilan tengkorak dan berpikir dengan cemas, 
+"Ah, mereka pasti sedang menunggu gurunya. Dari muka mereka, kelihatannya mereka siap menghadapi gurunya. 
+Jika gurunya datang sendirian, bagaimana bisa menghadapi begitu banyak orang? Dan ada begitu banyak ular 
+berbisa di sekitarnya."
+
+Ia sangat cemas dan berharap guru Wanyan Kang tidak datang. Tapi ia juga berharap gurunya sudah tahu apa yang 
+sedang terjadi dan siap mengalahkan orang-orang jahat ini dan menyelamatkannya. Setelah menunggu lebih dari 
+setengah jam, bulan semakin tinggi dan ia melihat Ouyang Ke terus-menerus menatap bulan. Ia berpikir dalam hati, 
+"Apa mungkin gurunya hanya akan muncul saat bulan ada di tempat tertentu?"
+
+Ia melihat bulan terbit di atas puncak pohon. Sekelilingnya kosong, cacing-cacing bersuara di tanah dan 
+terdengar suara burung di kejauhan. Ouyang Ke melirik bulan sekali lagi sebelum menempatkan Mu Nianci ke 
+pelukan seorang wanita di sampingnya. Ia mengeluarkan kipas dengan tangan kanannya dan menatap ke tepi bukit. 
+Mu Nianci tahu bahwa orang yang mereka tunggu akan segera datang. Keheningan dipecahkan oleh nada seruling 
+yang kuat dan tajam, yang makin mendekat setelah beberapa saat. Sesosok tubuh wanita melintas dengan rambut 
+panjangnya secara tiba-tiba dari arah tebing. Saat lewat ia memperlambat gerakannya, sepertinya ia telah 
+menyadari bahwa ada orang di dekatnya. Itu adalah Si Mayat Besi, Mei Chaofeng.
+
+Setelah mendapatkan beberapa baris rahasia untuk melatih _neigong_ dari Guo Jing, Mei Chaofeng mempelajarinya 
+dengan tekun dan cermat, dan tidak lebih dari sebulan kakinya pulih, ia bisa bergerak dengan normal. 
+Selain itu tenaga dalamnya meningkat pesat. Sejak tahu bahwa Enam Orang Aneh dari Jiangnan telah 
+kembali dari Mongolia, ia mulai merencanakan untuk balas dendam sambil mengikuti Pangeran Kecil waktu 
+memulai misinya. Ia melatih kungfunya setiap malam. Mei Chaofeng merasa tidak nyaman naik perahu dengan 
+banyak orang dan karenanya memutuskan untuk pergi sendiri di malam hari. Ia telah berjanji untuk bertemu 
+dengan Wanyan Kang di Suzhou. Ia tidak tahu bahwa Wanyan Kang jatuh ke tangan para perompak Danau Tai, ia 
+juga tidak tahu bahwa Ouyang Ke yang ingin membalas dendam kepadanya karena membunuh anak buahnya dan 
+mempermalukannya sebelumnya, ingin merampas Kitab Sembilan Bulan. Sebelumnya Ouyang Ke sudah mencari dan 
+menemukan keberadaannya, mengumpulkan ribuan ular, dan sekarang diam-diam menunggunya di tempat ia melatih 
+kungfunya setiap malam. Ia baru saja lewat ketika mendengar napas beberapa orang dan segera berhenti untuk 
+mendengarkan dengan lebih teliti. Ia mendengar suara-suara aneh di belakang sekelompok orang.
+
+Ouyang Ke melihat kewaspadaannya dan mengutuk dalam hati, "Iblis betina buta yang brilian!" Sambil mengipasi 
+diri pelan-pelan, ia berdiri dan mengumpulkan tenaga dalamnya. Ia hendak menyerang Mei Chaofeng ketika 
+melihat orang lain datang dari tebing. Ia buru-buru menahan serangannya dan mengamati orang itu. Ia melihat 
+pria itu kurus dan tinggi, mengenakan jubah hijau dan sebagian rambutnya diikat dengan kain persegi. Ia 
+tampak seperti orang yang terpelajar, tetapi Ouyang Ke tidak dapat melihat wajahnya dengan jelas.
+
+Tapi hal yang paling menakjubkan adalah Ouyang Ke tidak dapat mendengar langkah kaki atau napas apa yang 
+datang dari arah pria itu. Bahkan orang yang sangat hebat seperti Mei Chaofeng pasti akan mengeluarkan 
+suara pelan ketika berjalan, tetapi orang ini berjalan dengan santai, seolah-olah tubuhnya melayang, 
+membentuk bayangan yang seperti hantu. Sepertinya tak ada yang bisa menyebabkan dia bersuara saat bergerak. 
+Orang itu melirik arah Ouyang Ke sebelum berdiri di belakang Mei Chaofeng. Ouyang Ke mengamati wajahnya 
+dengan teliti dan tersentak. Orang itu memiliki wajah yang sangat aneh dan selain dari sepasang mata yang 
+melirik ke sekeliling, sisa wajahnya seperti orang mati. Meski kulitnya kaku, tidak jelek tapi juga tidak 
+menarik. Pria itu terlihat sangat dingin dan tanpa emosi dan itu membuat orang merinding. Ouyang Ke sadar 
+kembali dan melihat bahwa Mei Chaofeng sedang mendekatinya. Ia tahu bahwa serangannya akan ganas dan 
+mematikan dan tahu bahwa ia harus berusaha untuk unggul sedini mungkin. Ia memberi isyarat dengan tangan 
+kirinya dan ketiga orang yang menggiring ular-ular itu mulai meniup seruling mereka, membuat ular-ular 
+itu meluncur ke depan. Kedelapan wanita berbaju putih duduk diam karena mereka sudah menelan obat yang 
+menyebabkan ular-ular itu mengabaikan mereka dan lewat begitu saja.
+
+Mei Chaofeng mendengar suara ular mendekat dan tahu jumlahnya tak terhitung. Ia terkejut dan melompat 
+mundur agak jauh. Para pawang ular menggunakan tiang panjang mereka untuk menggiring ribuan ular ke 
+segala arah. Mu Nianci melihat muka Mei Chaofeng memucat karena ketakutan dan mau tidak mau ia kuatir. 
+Ia berpikir, "Apakah wanita nyentrik ini gurunya?" Ia melihat Mei Chaofeng tiba-tiba berbalik dan 
+melepaskan cambuk perak panjang dari pinggangnya untuk melindungi diri. Namun ia terkepung oleh ular 
+berbisa dan beberapa ular yang tergerak oleh nada seruling mulai menyerangnya, tetapi tertebas cambuknya.
+
+Ouyang Ke berseru, "Mei [Monu](#monu "Iblis perempuan"), aku tidak menginginkan nyawamu. Kau hanya perlu
+menyerahkan Jiu Yin Zhen Jing, dan aku akan melepaskanmu!"
+
+Ketika berada di kediaman Pangeran Zhao, ia mendengar bahwa Jiu Yin Zhen Jing ada di tangan Mei Chaofeng,
+dan sesuai dengan tabiatnya yang serakah, ia sangat tergoda untuk mendapatkannya dengan segala cara. Itu 
+pasti akan membuat pamannya yang telah mencoba segala cara untuk mendapatkan kitab itu sangat senang. 
+Mei Chaofeng mengabaikan Ouyang Ke dan menggunakan cambuknya untuk menyerang dengan lebih ganas.
+
+Ouyang Ke berseru, "Karena kau begitu keras kepala, kita lihat saja berapa lama kau sanggup bisa menari. 
+Aku akan menunggu sampai besok, akan kita lihat kau mau menyerahkan kitab itu atau tidak."
+
+Mei Chaofeng gelisah dan mencoba berpikir bagaimana cara untuk meloloskan diri. Ia mendengarkan dengan teliti
+dan menyadari bahwa ular ada di mana-mana. Ia tidak berani terlalu banyak bergerak, dan takut bahwa ular itu
+akan menggigitnya kalau sampai terinjak.
+
+Ouyang Ke duduk diam, dan setelah beberapa saat ia berseru dengan arogan, "Kakak Mei, kau sudah mencuri kitab itu
+dan menghafal isinya selama dua puluh tahun terakhir. Buat apa mati konyol mencoba mempertahankannya? Mengapa 
+tidak meminjamkannya kepadaku? Ayo kita berteman saja, bukankah lebih baik begitu?"
+
+Mei Chaofeng menjawab, "Singkirkan dulu ular-ular ini!"
+
+Ouyang Ke berkata sambil tertawa, "Berikan dulu kitabnya!"
+
+Isi Jiu Yin Zhen Jing itu ditato di kulit mendiang suaminya dan Mei Chaofeng menghargainya lebih dari nyawanya. 
+Tentu saja ia tidak rela menyerahkannya. Ia memutuskan bahwa jika ia digigit ular, maka ia akan segera merobek 
+kitab itu menjadi berkeping-keping.
+
+Mu Nianci ingin berteriak dan menyuruhnya melompat ke pohon agar ular tidak bisa menggigitnya, tetapi dia 
+tidak bisa melakukannya karena mulutnya dibungkam dengan kain. Mei Chaofeng tidak menyadari ada beberapa pohon 
+tinggi di dekatnya. Ia tahu bahwa jika ia terus bertarung, maka ia akan kehabisan tenaga dan dengan pikiran itu 
+ia mengeluarkan sesuatu dari sakunya sambil berteriak, "Baiklah, aku menyerah, ambillah!"
+
+Ouyang Ke berkata, "Lemparkan ke sini."
+
+Mei Chaofeng berseru, "Tangkap!" sambil melemparkan sesuatu dengan tangan kanannya.
+
+Mu Nianci mendengar jerit ketakutan dan melihat dua wanita berbaju putih roboh. Ouyang Ke jatuh ke tanah 
+dan berhasil menghindari senjata rahasia yang mematikan. Ia berkeringat dingin, terkejut sekaligus marah. 
+Ia mundur beberapa langkah dan berteriak, "Bangsat! Aku akan membuatmu sangat menderita!"
+
+Mei Chaofeng telah menembakkan tiga Jarum Tak Berbentuk yang melesat secepat kilat. Diam-diam ia terkesan 
+dengan kemampuan Ouyang Ke untuk mengelak dari serangannya dan semakin cemas. Ouyang Ke mengamati tangan
+wanita itu dan bermaksud mengirimkan ular kepadanya begitu dia lengah. Pada saat itu Mei Chaofeng telah 
+membunuh ratusan ular tetapi masih ada ribuan lagi yang mengelilinginya. Mana mungkin ia membunuh semuanya? 
+Ouyang Ke melihat bahwa permainan cambuknya sangat hebat, dan tahu bahwa ia memiliki senjata rahasia maut,
+dan karenanya tidak berani mendekat.
+
+Setelah setengah jam, bulan bergerak ke arah barat dan Mei Chaofeng mulai merasa semakin cemas, napasnya 
+jadi lebih berat. Tarian cambuknya tidak semulus sebelumnya, karena itu ia menyerang dari jarak yang lebih 
+dekat untuk menghemat tenaganya. Ouyang Ke senang dan memerintahkan ular-ular itu untuk bergerak lebih dekat. 
+Tapi ia juga kuatir, jika Mei Chaofeng masih tidak mau menyerah dan menghancurkan kitab itu, maka rencananya
+akan rusak. Ini saat kritis baginya. Mei Chaofeng mendengar ular-ular itu bergerak semakin dekat, dan mau 
+tidak mau menyentuh kitab di balik bajunya. Ia terlihat pucat dan mengutuk diam-diam, "Aku belum membalas 
+dendam, dan tak disangka aku akan mati di tangan keparat ini."
+
+Tiba-tiba, terdengar suara yang terdengar seperti nada dari [qin](#sitar "sitar"), tapi juga terdengar 
+seperti suara yang dibuat oleh batu giok. Setelah itu, terdengar suara seruling yang jernih dan halus. 
+Semua orang terkejut. Ouyang Ke mendongak dan melihat pria aneh berbaju hijau duduk di atas pohon tinggi, 
+memainkan serulingnya. Ouyang Ke bingung. Ia tahu bahwa penglihatannya sangat tajam, tapi bahkan di bawah 
+sinar bulan yang begitu terang, ia tidak menyadari bahwa pria itu telah naik ke atas pohon. Angin bertiup 
+dan pepohonan bergoyang, tetapi pria itu masih bisa duduk dengan mantap dan tidak bergerak di atasnya. 
+Ouyang Ke telah diajari oleh pamannya sejak masih muda dan tahu bahwa meskipun ia berlatih selama 
+dua puluh tahun lagi, ia tidak akan dapat mencapai menandingi pria ini. Apa mungkin pria itu hantu?
+
+Pada saat itu nada dari seruling terus mengalir dan Ouyang Ke kehilangan kendali, tersenyum secara tidak 
+wajar. Ia merasa dadanya berdebar kencang dan darah mengalir deras di sekujur tubuhnya, dan harus 
+menari dengan gila-gilaan agar merasa lebih baik. Ia baru saja mengulurkan tangannya untuk menari dan 
+terkejut. Ia mencoba berkonsentrasi dan menyadari bahwa semua ular bergegas bersembunyi di bawah pohon, 
+dan menggeliat mengikuti irama seruling. Ketiga pria dan enam wanita berbaju putih menari-nari di bawah 
+pohon dengan gila-gilaan. Mereka merobek pakaian mereka sendiri dan menggaruk wajah mereka dengan marah, 
+meninggalkan caruk-maruk berdarah di wajah mereka sambil tertawa bodoh. Sepertinya mereka semua sudah 
+gila dan tidak menyadari rasa sakit.
+
+Ouyang Ke sangat terkejut dan tahu bahwa ia berhadapan dengan lawan tangguh malam ini. Ia mengeluarkan 
+enam senjata beracun dan melemparkannya ke arah kepala, dada, dan kaki pria itu. Saat kumpulan senjata itu 
+tiba, pria itu dengan lembut melambaikan ujung serulingnya dan memblokir semua senjata rahasia itu. Ketika 
+menggunakan serulingnya untuk memblokir, bibirnya terus meniup dan tidak meninggalkan lubang seruling 
+sesaat pun. Nada yang keluar dari seruling tidak terputus sedetik pun. Ouyang Ke tidak tahan lagi dan 
+membuka kipasnya, ingin menari lagi.
+
+Untungnya Ouyang Ke punya tenaga dalam yang cukup kuat, dan tahu bahwa jika ia mulai menari, kecuali 
+lawannya berhenti meniup seruling, maka ia tidak akan berhenti menari sampai mati kelelahan. Ouyang Ke 
+adalah orang yang berpikiran jernih dan tajam. Ia memaksa diri untuk menarik kembali tangan berikut 
+kipasnya. Ia tiba-tiba mendapat ide untuk menyumbat telinganya dengan robekan kain jubahnya, supaya
+suara seruling itu setidaknya bisa diredam. Tapi suara seruling itu luar biasa. Meskipun Ouyang Ke 
+sudah menyumbat telinganya, nada seruling tetap membuatnya kehilangan kendali. Ia berjuang tetapi 
+tidak bisa memasukkan kain ke telinganya. Ia terkejut, ketakutan, kehabisan akal, dan berkeringat dingin. 
+Ia melihat Mei Chaofeng duduk di tanah dengan kepala menunduk, menyalurkan tenaga dalamnya ke seluruh tubuh. 
+Ia menduga bahwa perempuan itu sedang menggunakan tenaga dalam untuk melawan suara seruling.
+
+Pada saat itu tiga murid Ouyang Ke yang paling lemah telah jatuh ke tanah, merobek pakaian mereka sendiri 
+sambil berputar-putar tak terkendali. Jalan darah Mu Nianci tertotok dan tidak bisa bergerak. Meskipun 
+emosi dan konsentrasinya sangat terganggu dan terprovokasi oleh alunan seruling, ia tidak menendang atau 
+menari liar karena ia tidak bisa bergerak dan hanya berbaring diam di tanah.
+
+Pipi Ouyang Ke merah padam, kepalanya terasa panas, tenggorokannya kering dan tidak nyaman. Ia tahu 
+jika tidak menghentikan semua ini sekarang dan melarikan diri, ia bisa mati. Ia membulatkan tekadnya 
+dan menggigit lidahnya. Rasa sakit mengalihkan perhatiannya dari nada seruling dan suara itu tidak 
+terlalu berpengaruh pada dirinya untuk sesaat. Ia mengambil kesempatan itu untuk melarikan diri dan 
+menyelamatkan nyawanya. Tidak sampai beberapa _li_ jauhnya dari tempat itu, ia tidak bisa mendengar 
+suara seruling lagi, ia merasa lega. Ouyang Ke benar-benar kelelahan dan merasa sangat lemah, 
+seolah-olah sakit parah. Ia berpikir, "Siapa orang aneh itu? Siapa orang aneh itu?"
+
+***
+
+Sementara itu, Huang Rong dan Guo Jing kembali ke kamar mereka untuk tidur setelah mengantar Mu Nianci 
+pergi. Mereka senang dengan petualangan santai mereka di danau sejauh ini. Guo Jing tahu bahwa begitu 
+Mu Nianci pergi, Mei Chaofeng akan segera muncul. Ia sangat ganas dan serangannya mematikan. Ia kuatir 
+tidak akan ada yang bisa menandinginya, dan banyak orang akan terluka. Guo Jing memutuskan untuk 
+berkonsultasi dengan Huang Rong dan bertanya, "Kupikir lebih baik kita memberi tahu Lu Xiansheng 
+tentang Mei Chaofeng dan memohon padanya untuk membiarkan Wanyan Kang pergi dan menyelamatkan 
+orang-orang di pemukiman dari kemungkinan cedera."
+
+Huang Rong menggoyangkan tangannya tak setuju, dan menjawab, "Itu bukan ide yang baik. Wanyan Kang 
+jahat, biar dia menderita beberapa hari lagi. Kalau dia dibebaskan segampang itu, maka dia tidak akan 
+bertobat." Sebenarnya Huang Rong tidak peduli apakah Wanyan Kang bertobat atau tidak. Ia berpikir, 
+karena Wanyan Kang adalah murid dari dua 'telur busuk' Qiu Chuji dan Mei Chaofeng, maka sebaiknya 
+tetap dibiarkan jadi penjahat. Ia senang bisa menyulitkan Wanyan Kang. Tapi Huang Rong juga takut 
+kalau Wanyan Kang tidak bertobat, maka Mu Nianci tidak akan menikah dengannya, dan jika Mu Nianci tidak 
+punya suami, orang-orang sibuk itu akan sekali lagi mencoba memaksa Guo Jing untuk menikahinya. 
+Ini akan jadi bencana. Oleh karena itu ia tetap memutuskan lebih baik Wanyan Kang bertobat.
+
+Guo Jing bertanya, "Kita musti bagaimana kalau Mei Chaofeng datang?"
+
+Huang Rong tersenyum, "Maka kita bisa menguji ilmu ajaran Qigong!"
+
+Guo Jing tahu tak ada gunanya mencoba berdebat dengan Huang Rong, maka ia hanya membalas tersenyum. 
+Tapi ia merasa Lu Xiansheng sudah memperlakukan mereka berdua dengan sangat baik, ia akan mempertaruhkan
+nyawanya untuk membela semua orang di pemukiman ini apa pun juga yang terjadi.
+
+Dua hari kemudian mereka memberi tahu Lu Xiansheng bahwa mereka tidak akan pergi dulu. Lu Xiansheng 
+bahkan lebih baik lagi kepada mereka karena ia berharap mereka akan tinggal lebih lama. Pada pagi ketiga, 
+Lu Xiansheng sedang mengobrol dengan Huang Rong dan Guo Jing di ruang kerjanya, ketika Lu Guanying masuk 
+dengan wajah pucat. Di belakangnya ada salah satu pembantu rumah tangga yang membawa nampan kayu. Ada 
+sesuatu di nampan yang terbungkus kain hijau.
+
+Lu Guanying berkata, "Ayah, ada orang mengirimkan ini." Sambil bicara ia membuka kain hijau itu, memperlihatkan
+sebuah tengkorak manusia dengan lima lubang jari tangan. Jelas sekali itu hasil karya Mei Chaofeng.
+
+Guo Jing dan Huang Rong tidak terkejut, karena mereka tahu bahwa Mei Chaofeng cepat atau lambat akan muncul. 
+Tapi Lu Xiansheng terkejut, mukanya pucat. Dengan gemetar ia bertanya, "Siapa... siapa yang membawa benda 
+ini ke sini?" Ia menegakkan tubuhnya ketika bertanya.
+
+Lu Guanying tahu bahwa tengkorak itu tampak aneh, tetapi ia seorang pendekar yang berani dan kuat, dan 
+lebih jauh lagi, ia adalah pemimpin para perompak di danau. Oleh karena itu ia tidak menganggap masalah 
+ini terlalu serius. Tetapi ketika melihat betapa kesalnya ayahnya, ia terkejut dan bahkan lebih ketakutan. 
+Ia menjawab dengan tergesa-gesa, "Seseorang memasukkan benda ini ke dalam kotak dan mengirimkannya ke sini. 
+Pengurus rumah mengira itu hadiah biasa dan memberi tip kepada orang itu tanpa menanyakan asalnya. Waktu 
+membawanya ke gudang dan membuka kotaknya, ia menemukan tengkorak itu, dan waktu ia menanyakan siapa yang 
+mengirim hadiah itu, orang itu sudah pergi. Ayah, menurutmu apa arti semua ini?"
+
+Lu Xiansheng tidak menjawab tetapi memasukkan jari-jarinya ke dalam lubang di tengkorak, yang pas dengan jari-jarinya. 
+Lu Guanying bertanya dengan kaget, "Lubang di tengkorak itu dibuat dengan jari? Masa jari bisa sekuat itu?"
+
+Lu Xiansheng mengangguk dan menghela nafas dalam-dalam, lalu berkata, "Suruh para pelayan berkemas dan 
+mengirim ibumu ke rumah utara di kota untuk tinggal di situ sementara waktu. Perintahkan para kepala bagian
+untuk berkumpul dan tinggal dengan kelompok mereka selama tiga hari. Apa pun yang terjadi di dalam rumah ini, 
+beri tahu mereka supaya tidak ikut campur."
+
+Lu Guanying terperanjat dan bertanya, "Kenapa ayah?"
+
+Lu Xiansheng tersenyum lemah dan menoleh ke arah Guo Jing dan Huang Rong sambil berkata, "Sungguh sebuah berkat 
+bisa berteman dengan kalian berdua. Aku berharap kalian bisa tinggal lebih lama, tetapi aku membuat permusuhan
+dengan dua orang waktu aku masih muda, dan mereka datang untuk membalas dendam. Bukannya aku ingin mengusir
+kalian, tapi Rumah Awan ini... dalam bahaya. Kalau aku cukup beruntung bisa selamat, kita akan bertemu lagi. 
+Tapi... tapi kemungkinannya sangat kecil untuk itu." Ia tertawa getir dan menggelengkan kepalanya, lalu 
+menoleh ke penjaga ruang belajar dan berkata, "Bawakan empat puluh tael emas." Penjaga pergi untuk melakukannya. 
+Lu Guanying tidak berani bertanya lagi dan meninggalkan ruang belajar untuk melaksanakan instruksi ayahnya.
+
+Setelah beberapa saat, penjaga kembali dengan uang dan Lu Xiansheng menawarkannya kepada Guo Jing sambil 
+berkata, "Nona ini cantik dan berbakat, dan sangat cocok untukmu. Sedikit uang ini untuk upacara pernikahan 
+kalian nantinya, terimalah hadiah sederhana ini."
+
+Huang Rong tersipu dan berpikir, "Pengamatan orang ini sangat jeli, ia sudah tahu sejak awal aku perempuan,
+tapi tidak mengatakannya. Tapi bagaimana ia tahu kalau aku dan Jing Gege belum menikah?"
+
+Guo Jing tidak mengerti tata-krama dan hanya berterima kasih kepada Lu Xiansheng, lalu menerima hadiah itu. 
+Lu Xiansheng kemudian mengambil botol kaca dari meja belajar dan menuangkan lebih dari sepuluh pil merah sebelum
+membungkusnya dengan kertas. Ia melanjutkan, "Aku tidak berbakat tetapi guruku mengajari aku beberapa resep 
+obat dan aku menggunakannya untuk membuat pil yang bisa memperpanjang umur kalau diminum. Ambil ini sebagai 
+tanda rasa hormatku."
+
+Saat Lu Xiansheng menuangkan pil, ada aroma manis di udara. Ketika Huang Rong menciumnya, ia langsung tahu bahwa 
+itu adalah [Jiu Hua Yulu Wan](#jiuhuayuluwan "Pil Embun Sembilan Bunga Batu Giok"). Ia telah membantu ayahnya membuat 
+pil itu sebelumnya dan harus mengumpulkan tetesan embun dari sembilan jenis bunga yang berbeda. Untuk membuat pil 
+itu, orang harus tahu cara menyeduh bahan pada hari dan musim yang tepat. Itu adalah proses yang sangat melelahkan 
+dan makan waktu. Pilnya terdiri dari berbagai jenis tumbuhan langka dan berharga.
+
+Huang Rong tahu bahwa Lu Xiansheng terlalu murah hati memberi mereka begitu banyak dan berkata, "Sungguh tidak 
+gampang membuat Jiu Hua Yulu Wan. Kami akan sangat berterima kasih menerima masing-masing dua pil."
+
+Lu Xiansheng agak kaget dan bertanya, "Dari mana [Guniang](#guniang "Nona") tahu nama pil ini?"
+
+Huang Rong menjawab, "Aku tahu karena aku lemah ketika masih kecil dan seorang guru yang terhormat memberiku 
+tiga pil yang punya efek positif setelah kuminum."
+
 
 
 ***
@@ -487,6 +1407,38 @@ berada di dalam kelompok ini.
             <li>Qian Qingjian (錢青健; Qián Qīngjiàn), julukannya "Kapak Gerbang Maut" (喪門斧)</li>
         </ol>
     </dd>
+    <dt id="ayah-ibu-bumi">Tu Di Po (土地婆) dan Tu Di Gong (土地公)</dt>
+    <dd>
+        Tu Di Po kurang lebih bermakna 'Land Lady' dan Tu Di Gong adalah Sang 'Tuan' (Land Lord). Keduanya adalah simbol
+        dari kepercayaan setempat. Secara tradisional orang-orang Tionghoa percaya bahwa 'Tanah' atau bumi yang dipijak
+        ini ada pemiliknya (yang kurang lebih bersifat 'ilahi'). Maka kalau Sang Pemilik itu perempuan, otomatis
+        mereka menyebutnya 'Po' (seperti dalam istilah 'Popo'), sedangkan laki-laki akan disebut 'Gong', yang
+        berarti 'Tuan Tanah', tetapi dalam arti spiritual. Secara umum istilah ini bisa diterjemahkan menjadi
+        <a href="https://zh.wikipedia.org/wiki/File:%E7%A6%8F%E5%BE%B7%E6%AD%A3%E7%A5%9E%E9%A6%99%E7%81%AB%E7%A5%9E%E4%BD%8D.jpg" title="Dewa dan Dewi Tanah" target="_blank">Dewa dan Dewi Tanah</a>. 
+    </dd>
+    <dt id="monu">Mo Nu (魔女)</dt>
+    <dd>
+        Arti literalnya adalah 'Perempuan Jahat', tapi dalam konteks cerita silat istilah ini biasa diterjemahkan
+        menjadi Iblis Perempuan atau Perempuan Iblis.
+        Contoh nyata adalah Mei Chaofeng, yang dipanggil "Mei Monu" (梅魔女).
+    </dd>
+    <dt id="sitar">Qin (琴)</dt>
+    <dd>Sitar</dd>
+    <dt id="jiuhuayuluwan">Jiu Hua Yulu Wan (九花玉露丸)</dt>
+    <dd>
+        Arti literal per karakter dari istilah ini adalah sbb:
+        <ul>
+            <li>Jiu (九) = Sembilan</li>
+            <li>Hua (花) = Bunga</li>
+            <li>Yu (玉) = Batu Giok</li>
+            <li>Lu (露) = Embun</li>
+            <li>Wan (丸) = Pil</li>
+        </ul>
+        Mengingat ada uraian bahwa pil tersebut dibuat dengan mengumpulkan embun dari 9 bunga, maka cukup masuk
+        akal kalau kita terjemahkan menjadi 'Pil Embun Sembilan Bunga Batu Giok'.
+    </dd>
+    <dt id="guniang">Gu Niang (姑娘)</dt>
+    <dd>Nona, panggilan umum untuk seorang perempuan muda yang belum menikah.</dd>
 </dl>
 
 
@@ -504,6 +1456,8 @@ berada di dalam kelompok ini.
 
 [^bagua]: Delapan Diagram (Ba Gua, 八卦) adalah simbol dari sebuah sistem _kosmogoni_ dan filsafat Tiongkok Kuno. Sistem itu sendiri adalah cabang _astrofisika_ yang mempelajari asal-muasal dan struktur alam semesta. Kalau 'Ba Gua' terasa asing, barangkali kalau saya tulis 'Pat Kwa' atau 'Pa Kwa' menjadi lebih familiar bagi seorang Indonesia. Nama itu sendiri, 'Ba',
 atau 'Pa' atau 'Pak' berarti 'Delapan', sedangkan 'Gua' atau 'Kwa' adalah 'Tiga Garis' atau 'Trigram'. Setiap 'Gua' terdiri dari tiga simbol Yao. Singkatnya, Ba Gua punya sembilan bidang yang membentuk oktagon. Di titik pusatnya terdapat simbol Yin-Yang dari ajaran Tao. Delapan bidang yang mengelilinginya diisi dengan Delapan 'Gua' tadi (yang bervariasi).
+
+[^nine-flower-jade-dew-pills]: The complete name in Chinese is : 九花玉露丸; 九= Nine; 花=Flower; 玉=Yue in mandarin means jade; 露=Lu = dew; 丸 =pill.
 
 
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>
