@@ -998,7 +998,7 @@ Ketika mengangkat kepala, ia hanya melihat bintang-bintang di langit dan sekelil
 Mu Nianci bingung, ia berpikir bahwa suara itu mirip suara Huang Rong, tapi mana mungkin dia ada di sini,
 dan bagaimana dia bisa tahu semua rahasia jalan setapak yang membingungkan ini? Ia memikirkan semua itu
 sambil berjalan tapi tetap tidak bisa memecahkan teka-teki itu. Setelah berjalan kira-kira 
-sepuluh [li](#satuan-li "1 li kurang lebih 500mm berarti sekitar 5 km") dari pemukiman, ia beristirahat
+sepuluh [li](#satuan-li "1 li kurang lebih 500m berarti sekitar 5 km") dari pemukiman, ia beristirahat
 di bawah sebuah pohon besar dan menunggu perahu yang bisa membawanya ke Suzhou keesokan harinya.
 
 Suzhou adalah sebuah kota yang sibuk di sebelah Tenggara, meskipun tidak bisa dibandingkan dengan ibukota
@@ -1287,7 +1287,7 @@ bertobat." Sebenarnya Huang Rong tidak peduli apakah Wanyan Kang bertobat atau t
 karena Wanyan Kang adalah murid dari dua 'telur busuk' Qiu Chuji dan Mei Chaofeng, maka sebaiknya 
 tetap dibiarkan jadi penjahat. Ia senang bisa menyulitkan Wanyan Kang. Tapi Huang Rong juga takut 
 kalau Wanyan Kang tidak bertobat, maka Mu Nianci tidak akan menikah dengannya, dan jika Mu Nianci tidak 
-punya suami, orang-orang sibuk itu akan sekali lagi mencoba memaksa Guo Jing untuk menikahinya. 
+punya suami, orang-orang sok sibuk itu akan sekali lagi mencoba memaksa Guo Jing untuk menikahinya. 
 Ini akan jadi bencana. Oleh karena itu ia tetap memutuskan lebih baik Wanyan Kang bertobat.
 
 Guo Jing bertanya, "Kita musti bagaimana kalau Mei Chaofeng datang?"
@@ -1364,6 +1364,15 @@ Lu Xiansheng agak kaget dan bertanya, "Dari mana [Guniang](#guniang "Nona") tahu
 Huang Rong menjawab, "Aku tahu karena aku lemah ketika masih kecil dan seorang guru yang terhormat memberiku 
 tiga pil yang punya efek positif setelah kuminum."
 
+Lu Xiansheng tersenyum dan berkata, "Kau tidak perlu menolak tawaranku. Sia-sia menyimpannya." Huang Rong tahu 
+bahwa itu artinya ia sudah siap untuk mati, maka ia tidak membantah dan menyimpan pilnya.
+
+Lu Xiansheng melanjutkan dengan nada serius, "Aku sudah menyiapkan perahu, jadi tolong cepat menyeberangi danau. 
+Bahkan kalau kalian melihat ada sesuatu yang aneh, jangan repot-repot berhenti. Ingat ini baik-baik!"
+
+Sebenarnya Guo Jing berniat tetap tinggal untuk membantu, tapi ia melihat isyarat mata dari Huang Rong, maka
+ia tidak punya pilihan kecuali menyetujui Lu Xiansheng anjuran.
+
 
 
 ***
@@ -1393,7 +1402,7 @@ tiga pil yang punya efek positif setelah kuminum."
     </dd>
     <dt id="shaoye">Shao Ye (少爺)</dt>
     <dd>Tuan Muda, kurang lebih sama dengan Gong Zi</dd>
-    <dt id="shichen">Shi Chen (時辰)<dt>
+    <dt id="shichen">Shi Chen (時辰)</dt>
     <dd>Satuan waktu 'Shi Chen'. Satu shichen setara dengan 2 jam.</dd>
     <dt id="empat-iblis">Empat Iblis Sungai Kuning (黃河四鬼)</dt>
     <dd>
@@ -1457,8 +1466,6 @@ tiga pil yang punya efek positif setelah kuminum."
 [^bagua]: Delapan Diagram (Ba Gua, 八卦) adalah simbol dari sebuah sistem _kosmogoni_ dan filsafat Tiongkok Kuno. Sistem itu sendiri adalah cabang _astrofisika_ yang mempelajari asal-muasal dan struktur alam semesta. Kalau 'Ba Gua' terasa asing, barangkali kalau saya tulis 'Pat Kwa' atau 'Pa Kwa' menjadi lebih familiar bagi seorang Indonesia. Nama itu sendiri, 'Ba',
 atau 'Pa' atau 'Pak' berarti 'Delapan', sedangkan 'Gua' atau 'Kwa' adalah 'Tiga Garis' atau 'Trigram'. Setiap 'Gua' terdiri dari tiga simbol Yao. Singkatnya, Ba Gua punya sembilan bidang yang membentuk oktagon. Di titik pusatnya terdapat simbol Yin-Yang dari ajaran Tao. Delapan bidang yang mengelilinginya diisi dengan Delapan 'Gua' tadi (yang bervariasi).
 
-[^nine-flower-jade-dew-pills]: The complete name in Chinese is : 九花玉露丸; 九= Nine; 花=Flower; 玉=Yue in mandarin means jade; 露=Lu = dew; 丸 =pill.
-
 
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>
 
@@ -1489,7 +1496,7 @@ Xi Shi tidak menyadari rencana Raja Goujian untuk menyerang Wu. Pada tahun 473 S
 serangannya, dan menghancur-leburkan Kerajaan Wu. Raja Fuchai meratapi kebodohannya, dan berkata bahwa seharusnya ia
 mendengarkan nasehat Wu Zixu, tetapi semuanya sudah terlambat. Ia berakhir dengan bunuh diri setelah kekalahan itu.
 
-Setelah berhasl menaklukkan Wu, Fan Li sendiri mengundurkan diri dari pemerintahan. Menurut legenda, ia hidup menyepi
+Setelah berhasil menaklukkan Wu, Fan Li sendiri mengundurkan diri dari pemerintahan. Menurut legenda, ia hidup menyepi
 di Danau Tai bersama dengan Xi Shi, yang menjadi istrinya.
 
 Fan Li yang telah mengundurkan diri memberikan nasehat kepada rekannya, Wen Zhong, setelah menyadari bahwa Raja Goujian
