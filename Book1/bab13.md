@@ -1747,7 +1747,7 @@ yang kedua."
 
 Huang Rong bertanya, "Ada kompetisi Hua Shan yang kedua?"
 
-Qiu Qianren menjawab, "Setiap dua puluh lima tahun sekali. Kalau yang tua meninggal, maka generasi yang lebih mudah 
+Qiu Qianren menjawab, "Setiap dua puluh lima tahun sekali. Kalau yang tua meninggal, maka generasi yang lebih muda 
 akan mengambil alih. Kompetisi Hua Shan berikutnya akan berlangsung dalam waktu satu tahun. Tapi selama beberapa
 tahun belakangan ini tidak ada bakat baru yang menonjol. Kurasa berikutnya masih akan kami-kami yang tua ini lagi.
 Ah, tidak ada keturunan yang menonjol, berarti kemampuan generasi mendatang tidak akan sebagus generasi sebelumnya."
