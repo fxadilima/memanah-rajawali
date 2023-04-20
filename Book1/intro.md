@@ -15,7 +15,7 @@ Pada saat itu wilayah padang rumput di bagian Utara Tiongkok terbagi menjadi
 beberapa konfederasi dari suku-suku nomad seperti Naiman, Khamag Mongol, Merkit,
 Keraite, dan juga Tatar. Sedangkan di sebelah Selatan, Dinasti Song sendiri
 mulai dari tahun 1184 sudah kehilangan kendali atas wilayah Utara mereka, yang jatuh
-ke tangan suku Jurchen, yang akhirnya mendirikan Dinasti Jin[^1].
+ke tangan suku Jurchen[^nuzhen], yang akhirnya mendirikan Dinasti Jin[^1].
 
 Dalam perkembangan nama Jurchen ini nantinya akan berganti menjadi Manchu.
 
@@ -205,3 +205,6 @@ Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 [^wangchuyi]:
     **Pendeta Wang Chuyi**, seperti saudara seperguruannya, Qiu Chuji, juga adalah seorang tokoh
     Aliran Quanzhen yang pernah hidup dalam sejarah.
+
+[^nuzhen]: Nu Zhen (女真) adalah bahasa mandarin untuk Jurchen.
+

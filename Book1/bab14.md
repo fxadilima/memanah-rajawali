@@ -12,5 +12,13 @@ Yang dilihatnya adalah enam orang, lima pria dan satu wanita, memasuki aula. Mer
 Mereka menjelajah ke utara dan selatan dan pada hari itu tiba di Danau Tai, di mana mereka bertemu dengan beberapa orang
 Jianghu di atas perahu yang menerima mereka dengan penuh perhatian.
 
-Mereka telah jauh dari kampung halaman mereka begitu lama sehingga mereka tidak mengetahui urusan dunia seni bela diri saat ini. Mereka tidak yakin siapa orang-orang ini, jadi Zhu Cong berbasa-basi dengan mereka. Ternyata orang-orang ini adalah Manajer Zhang [zhai zhu] dan anak buahnya dari 'Cloud Manor' [gui yun zhuang].
+Mereka telah jauh dari kampung halaman mereka begitu lama sehingga mereka tidak mengetahui urusan dunia seni bela diri saat ini. Mereka tidak yakin siapa orang-orang ini, jadi Zhu Cong berbasa-basi dengan mereka. Ternyata orang-orang ini adalah Manajer Zhang [zhai zhu] dan anak buahnya dari [Gui Yun Zhuang](#cloud-manor "Rumah Awan").
 
+
+<dl>
+    <dt id="cloud-manor">Gui Yun Zhuang (traditional: 歸雲莊 simplified: 归云庄)</dt>
+    <dd>
+        Rumah Awan, atau 'Cloud Manor' dalam terjemahan bahasa Inggris, atau yang lebih tepat adalah Cloud Assembly Manor.
+        Tempat ini adalah gedung utama di mana Lu Chengfeng dan keluarganya tinggal di Danau Tai.
+    </dd>
+</dl>

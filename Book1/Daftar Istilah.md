@@ -2,6 +2,9 @@
 
 Guo Jing (郭靖), tokoh utama cerita ini.
 Huang Rong (黄蓉), tokoh utama cerita ini.
+Mu Nianci (穆念慈), karakter yang akan menjadi ibu Yang Guo.
+Yang Kang (楊康), ayah Yang Guo.
+
 
 Jiangnan Qi Guai (江南七怪) = Tujuh Orang Aneh dari Jiangnan (Selatan Sungai Yangtze)
 
@@ -228,6 +231,15 @@ Huang He Si Gui (黃河四鬼) = 4 murid Sha Tongtian = 4 Iblis Sungai Kuning.
 
 Wan Bei (晚辈) = Junior/Saya (sebagai orang ketiga tunggal dan merendahkan diri).
 Qian Bei (前辈) = Senior (generasi lebih tua).
+
+Cloud Manor =  Gui Yun Zhuang (traditional: 歸雲莊 simplified: 归云庄)
+Intinya adalah 2 karakter ini:
+Yun (云) = Awan
+Zhuang (庄) = Manor, yang bisa diartikan "Rumah".
+Tambahan Gui (归) di depan itu _mungkin_ bisa diartikan _assembly_, karena salah satu artikel menyebutkan
+Tetapi ternyata Gui (traditional: 歸) adalah 'return' atau 'kembali'.
+
+Jurchen = Nu Zhen (女真)
 
 
 ***
