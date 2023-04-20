@@ -1448,7 +1448,8 @@ kepada orang tua ini.
 Rambut orang tua itu putih, ia tertawa terbahak-bahak sambil menoleh kepada Lu Guanying. "Kau pastilah
 kepala bajak danau itu — [Lu Shaoye](#shaoye "Tuan Muda Lu"), betul kan?"
 
-Lu Guanying membungkuk dan menjawab. 'Wanbei tidak berani menerima pujian itu, entah siapa nama Qianbei?"
+Lu Guanying membungkuk dan menjawab. "[Wanbei](#wanbei "saya") tidak berani menerima pujian itu, entah siapa 
+nama [Qianbei](#qianbei "senior")?"
 
 Orang tua itu menuding ke arah Guo Jing dan Huang Rong sambil berseru, "Kalian berdua silakan ke sini juga."
 
@@ -1724,7 +1725,7 @@ mereka."
 Dengan kata-kata itu, Qiu Qianren mengejutkan Lu Xiansheng, Huang Rong, dan Guo Jing. Lu Guanying tidak tahu apa-apa 
 tentang lima orang hebat itu, dan tidak tahu mengapa yang lainnya terkejut. Huang Rong sebenarnya kagum pada Qiu Qianren
 ketika melihatnya unjuk kebolehan, tetapi ketika mendengar ucapannya yang dianggap tidak hormatnya terhadap ayahnya, 
-ia sangat marah dan tertawa sopan sebelum bertanya, "Jadi kalau _qianbei_ bisa mengalahkan lima pendekar besar, 
+ia sangat marah dan tertawa sopan sebelum bertanya, "Jadi kalau qianbei bisa mengalahkan lima pendekar besar, 
 bukankah itu akan jadi prestasi luar biasa bagimu?"
 
 Qiu Qianren menjawab, "Wang Chongyang sudah meninggal. Aku terjebak dalam beberapa urusan di rumah selama kompetisi di Hua
@@ -1924,6 +1925,15 @@ Ia diam-diam berpikir, "Mengapa ada enam orang? Mungkinkah Hei Feng Shuang Sha m
         dengan "Kaisar", di mana Raja hanya bertanggung jawab kepada Kaisar, dan diangkat oleh Kaisar.  Kedudukan Raja 
         tersebut adalah kurang lebih setara dengan seorang Gubernur dalam sistem modern. Karakter Xiao (小) artinya 
         adalah "kecil". Secara keseluruhan panggilan ini ditujukan kepada putra seorang Raja (bukan Kaisar).
+    </dd>
+    <dt id="wanbei">Wan Bei (晚辈)</dt>
+    <dd>
+        Panggilan untuk diri sendiri sebagai orang ketiga tunggal, dengan tujuan merendahkan diri. Ini dipakai seseorang
+        ketika sedang berhadapan dengan seorang senior (Qianbei 前辈).
+    </dd>
+    <dt id="qianbei">Qian Bei (前辈)</dt>
+    <dd>
+        Panggilan hormat kepada generasi yang lebih tua.
     </dd>
 </dl>
 

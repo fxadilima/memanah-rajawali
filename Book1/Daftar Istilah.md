@@ -229,6 +229,7 @@ Huang He Si Gui (黃河四鬼) = 4 murid Sha Tongtian = 4 Iblis Sungai Kuning.
 Wan Bei (晚辈) = Junior/Saya (sebagai orang ketiga tunggal dan merendahkan diri).
 Qian Bei (前辈) = Senior (generasi lebih tua).
 
+
 ***
 
 Ternyata istilah 'Nimen' (你们) atau 'kalian'/'You' dianggap kurang tepat, atau setidaknya secara formal
