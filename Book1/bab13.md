@@ -1706,7 +1706,7 @@ yang lalu berubah menjadi bubuk, yang melayang di atas meja. Semua orang terceng
 
 Qiu Qianren menyapu debu dan bubuk itu dari atas meja dan menaruh semuanya di pakaiannya dan berjalan ke tengah
 ruangan untuk melepaskan semuanya di situ. Ia tertawa pelan sambil berjalan kembali ke tempat duduknya dan berkata,
-Memang mengagumkan melihat Lu Shaoye mampu memecahkan batu bata dengan telapak tangan, tapi coba pikir seperti ini,
+"Memang mengagumkan melihat Lu Shaoye mampu memecahkan batu bata dengan telapak tangan, tapi coba pikir seperti ini,
 lawan kita bukan batu bata, dan tidak akan diam saja berdiri di situ dan menunggumu memukulnya. Lebih jauh lagi,
 kalau lawanmu punya tenaga dalam lebih kuat, dan kau menyerangnya dengan telapak tangan seperti tadi, dan ia kemudian
 menyambut tanganmu, maka kau akan langsung terluka parah." Lu Guanying mengangguk dalam diam.
