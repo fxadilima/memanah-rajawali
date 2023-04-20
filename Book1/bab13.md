@@ -1826,7 +1826,7 @@ tetap percuma kalau tidak punya moral yang baik. Kuharap qianbei mau memberi pet
 kami akan merasa sangat berterima kasih. Aku tidak mencari harta atau imbalan."
 
 Qiu Qianren mengelus jenggotnya dan tertawa. Ia baru hendak menjawab ketika pengurus rumah tergopoh-gopoh masuk
-dan melaporkan, "Pemimpin Zhange melihat enam orang yang mencurigakan di danau. Mereka sudah sampai di depan rumah."
+dan melaporkan, "Pemimpin Zhang melihat enam orang yang mencurigakan di danau. Mereka sudah sampai di depan rumah."
 
 Lu Xiansheng pucat. Ia berkata, "Cepat undang mereka masuk!"
 
