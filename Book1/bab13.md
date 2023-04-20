@@ -1807,7 +1807,7 @@ Qiu Qianren menatap Wanyan Kang dan bertanya, "[Xiao Wangye](#xiao-wangye "Pange
 
 Wanyan Kang mengangguk dan berpikir, "Entah bagaimana Guo Jing dan Huang Rong bisa ada di sini." Ketika ia berkelahi
 dengan Lu Guanying dan Lu Xiansheng hari itu, ia tidak melihat mereka berdua, yang bersembunyi di salah satu sudut.
-Ketiganya saling melihatm tapi tidak saling menyapa.
+Ketiganya saling melihat, tapi tidak saling menyapa.
 
 Qiu Qianren menoleh kepada Lu Xiansheng dan berkata, "Ada begitu banyak harta di depan rumahmu ini, kenapa Saudara Lu
 tidak mengambilnya?"
