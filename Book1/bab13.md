@@ -1910,6 +1910,20 @@ Ia diam-diam berpikir, "Mengapa ada enam orang? Mungkinkah Hei Feng Shuang Sha m
        Sama seperti "Mei Mei" yang berarti "Adik Perempuan", istilah ini biasa dipakai untuk memanggil diri sendiri 
        sebagai orang ketiga tunggal dalam percakapan yang agak formal. Xiao (小) berarti "kecil".
     </dd>
+    <dt id="wulin">Wu Lin (武林)</dt>
+    <dd>
+        Makna literal karakter Wu (武) adalah 'ilmu perang' atau boleh dibilang 'ilmu bela diri', atau 'ilmu silat'.
+        Sedangkan Lin (林) adalah 'hutan'.
+        Dengan demikian istilah ini bisa diartikan 'Rimba Persilatan', atau yang lebih populer bagi kita adalah
+        'Dunia Persilatan'.
+    </dd>
+    <dt id="xiao-wangye">Xiao Wang Ye (小王爷)</dt>
+    <dd>
+        Wang Ye (王爷) sendiri adalah panggilan untuk seorang Raja dalam sistem Kekaisaran yang diwariskan Qin Shi Huang,
+        dan dikembangkan lebih lanjut dengan berbagai revisi dari jaman ke jaman. Kedudukan Raja tersebut adalah
+        kurang lebih setara dengan seorang Gubernur dalam sistem modern. Karakter Xiao (小) artinya adalah "kecil".
+        Secara keseluruhan, panggilan ini ditujukan kepada putra seorang Raja.
+    </dd>
 </dl>
 
 

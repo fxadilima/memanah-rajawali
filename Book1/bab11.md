@@ -1754,13 +1754,6 @@ Sambil tersenyum manis, Huang Rong mengambil sepotong besar daging mentah dari d
 dengan tanah lembab. Mengumpulkan ranting dan dedaunan, mereka kemudian menyalakan api. Ia berkata,
 "Biarkan kuda merah itu istirahat sebentar. Kita berangkat setelah makan."
 
-After they had finished the beef and the little red horse had had its fill of grass, the two
-of them mounted the horse and went back the way they came. Not long after passing a
-sign they arrived at the inn. Guo Jing held Huang Rong’s hand and together, they
-stepped inside. The shopkeeper had once been recipient of Guo Jing’s silver and looked
-joyous at seeing his return. Hurrying forward, he welcomed Guo Jing, saying, “Good
-day to you, sir! All the other guests have left the city. What would you like to eat?”
-
 Setelah mereka selesai dengan daging bakar dan kuda merah itu juga sudah kenyang terisi rumput,
 keduanya naik ke atas kuda dan berpacu kembali ke tempat mereka semula. Tidak lama setelah melewati
 sebuah tanda, mereka tiba kembali di penginapan itu. Guo Jing menggandeng tangan Huang Rong dan 

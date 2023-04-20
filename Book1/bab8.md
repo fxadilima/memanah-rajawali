@@ -606,12 +606,6 @@ Mereka berjalan ke arah pintu. Tiba-tiba Ling Zhi berkata, "Kungfu Dao Zhang sun
 aku sangat kagum." Ia merangkapkan kedua tangannya dengan sikap doa dan membungkuk. Mendadak ia
 mendorong dengan kedua telapak tangannya, mengerahkan seluruh tenaganya ke depan.
 
-Wang Chuyi also pushed out both his palms in defense, using internal energy to meet
-Ling Zhi’s blow. Just as the palms were about to meet, Ling Zhi suddenly switched from
-internal to external energy and used his left hand to grab Wang Chuyi’s wrist. Wang
-Chuyi reacted swiftly by grabbing his opponent’s wrist; both sides used their utmost
-force and both wrists met briefly before separating.
-
 Wang Chuyi juga mendorong dengan kedua telapak tangannya untuk bertahan, menggunakan 
 tenaga dalamnya untuk menyambut pukulan Ling Zhi. Tepat pada saat telapak tangan keduanya 
 bertemu, Ling Zhi mendadak beralih dari tenaga dalam dan memakai tenaga luar, dan menggunakan

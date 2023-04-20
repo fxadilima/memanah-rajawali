@@ -1158,12 +1158,12 @@ dari seorang Pendeta Tao dari Perguruan Quanzhen."
 
 Mu Yi sekali lagi terkejut. "Mana mungkin anak muda kurang ajar ini belajar dari Quanzhen?"
 
-"Lian Xiansheng punya mata yang tajam," kata si kecil lagi. "Kau tinggal di kaki gunung Yong Baishan,
+"Liang Xiansheng punya mata yang tajam," kata si kecil lagi. "Kau tinggal di kaki gunung Yong Baishan,
 menghabiskan waktu untuk bermeditasi dan mempelajari obat-obatan. Orang bilang kau jarang sekali
 menginjakkan kaki di dataran tengah ini, tapi kau tahu banyak tentang ilmusilat dataran tengah, sungguh
 sangat mengagumkan."
 
-"Pujian Peng Xion terlalu tinggi," jawab si orang tua, sambil tersenyum.
+"Pujian Peng Xiong terlalu tinggi," jawab si orang tua, sambil tersenyum.
 
 "Tapi," kata si kecil lagi. "para pendeta Quanzhen punya sifat yang sangat aneh dan tak terduga. Mana
 mungkin mereka bisa menerima Xiao Wangye sebagai murid, ini agak mengherankan."
