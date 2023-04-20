@@ -1445,6 +1445,391 @@ seperti itu hanya ada dalam mitos dan legenda. Siapa sangka keterampilan seperti
 di bumi? Jika tidak melihat sendiri, mereka tidak akan pernah percaya hal-hal seperti itu dan diam-diam kagum 
 kepada orang tua ini.
 
+Rambut orang tua itu putih, ia tertawa terbahak-bahak sambil menoleh kepada Lu Guanying. "Kau pastilah
+kepala bajak danau itu — [Lu Shaoye](#shaoye "Tuan Muda Lu"), betul kan?"
+
+Lu Guanying membungkuk dan menjawab. 'Wanbei tidak berani menerima pujian itu, entah siapa nama Qianbei?"
+
+Orang tua itu menuding ke arah Guo Jing dan Huang Rong sambil berseru, "Kalian berdua silakan ke sini juga."
+
+Lu Guanying berpaling dan kaget setelah melihat Guo Jing dan Huang Rong berdiri di belakangnya. Baru saat itu
+ia menyadari bahwa sejak tadi mereka berdua terus mengikutinya. Ilmu meringankan tubuh keduanya sangat bagus,
+langkah mereka sama sekali tidak terdengar, ia sama sekali tidak merasakan kehadiran mereka. Guo Jing membungkuk
+hormat. "Salam untuk Lao Qianbei."
+
+Orang tua itu tertawa dan berkata, "Tidak perlu sikap hormat segala." Ia berpaling kepada Lu Guanying. "Ini bukan
+tempat yang bagus untuk mengobrol. Ayo kita cari tempat duduk dulu."
+
+Lu Guanying curiga dan berpikir, "Mungkinkah dia salah satu musuh ayahku?" Ia memutuskan untuk bicara langsung,
+lalu bertanya, "Qianbei kenal ayahku?"
+
+Orang tua itu berkata, "Lu Xiansheng? Aku belum pernah ketemu dia."
+
+Lu Guanying merasa orang tua itu tidak berbohong, maka ia melanjutkan, "Ayahku menerima hadiah yang agak aneh
+pagi ini. Apa qianbei tahu soal ini?"
+
+Orang tua itu bertanya, "Hadiah aneh apa?"
+
+Lu Guanying menjawab, "Itu tengkorak manusia yang di atasnya berlubang lima jari."
+
+Orang tua itu berkata, "Wah, itu agak lucu, mungkin ada orang mau main-main dengan ayahmu?"
+
+Lu Guanying diam-diam berpikir, "Kungfu orang ini sangat tinggi. Kalaupun dia ingin bertarung dengan ayah, pasti akan
+melakukannya terang-terangan dan tidak perlu berbohong. Kelihatannya dia tidak tahu apa-apa soal ini. Kalau begitu
+kenapa tidak mengundangnya ke rumah untuk membantu? Kalau dia setuju, akan bagus sekali, tak peduli setinggi apa
+kungfu musuh ayah itu." Makin dipikir, ia makin senang, maka ia menjawab, "Kalau qianbei tidak keberatan, kenapa 
+tidak mampir saja ke rumah kami untuk sekedar minum teh?"
+
+Orang tua itu bergumam perlahan dan menjawab, "Itu boleh juga." Lu Guanying senang sekali, ia mempersilakan
+orang tua itu berjalan di depan.
+
+Orang tua itu menjunjuk ke arah Guo Jing dan bertanya, "Dua anak muda ini tamu kalian, kan?"
+
+"Mereka teman ayahku," jawab Lu Guanying. Orang tua itu tidak bertanya lebih lanjut. Ia berjalan di depan, dengan
+Guo Jing dan Huang Rong mengikuti di belakang Lu Guanying. Ketika tiba di rumah, Lu Guanying mengantar orang tua itu
+ke bangunan utama, lalu ia cepat-cepat menemui ayahnya.
+
+Tak lama kemudian dua orang pelayan datang mengantar Lu Xiansheng yang duduk di atas dipan bambu. Lu Xiansheng
+menyapa orang tua itu dengan sopan dan berkata, "Kuharap anakku yang kurang mengerti sopan-santun tidak menyinggung
+perasaan Qianbei."
+
+Orang tua itu menggeser tubuhnya sedikit, tetapi tidak membalas sikap itu. Ia berkata dengan lembut, "Lu Xiansheng
+harap mengabaikan formalitas."
+
+Lu Xiansheng bertanya, "Entah siapakah nama qianbei?"
+
+Orang tua itu menjawab, "Margaku Qiu, namaku Qianren."
+
+Lu Xianshen sangat terkejut dan bertanya, "Apa mungkin qianbei dikenal sebagai 'Telapak Besi Mengapung Di Air', Qiu
+qianbei?"
+
+Qiu Qianren tersenyum ringan dan berkata, "Kalau kau masih mengingat julukanku, berarti ingatanmu bagus. Aku sudah
+dua puluh tahun tidak aktif di Jianghu, kukira semua orang sudah melupakan aku."
+
+Nama 'Telapak Besi Mengapung Di Air' memang sangat terkenal dua puluh tahun yang lalu. Lu Xiansheng tahu bahwa ia adalah
+ketua Aliran Telapak Besi di Hunan. Dia sangat terkenal dan cukup giat di Jianghu, tetapi tiba-tiba menghilang sangat
+lama, maka tidak heran kalau generasi muda tidak ada yang mengenalnya.
+
+Lu Xiansheng terkejut. "Entah apa maksud kedatangan qianbei ke Danau Tai ini? Kalau perlu bantuan, wanbei dengan senang
+hati akan membantu."
+
+Qiu Qianren mengelus jenggotnya sambil tertawa. "Sebetulnya tidak ada masalah serius, hanya saja aku ini sudah lama
+terlalu lembut hati, dan sepertinya sudah takdir, maka akan selalu begitu... hmm, aku hanya ingin mencari tempat
+terpencil untuk latihan kungfu. Kita bicara lagi nanti malam."
+
+Lu Xiansheng melihat bahwa di wajahnya tidak ada niat jahat, tetapi ia masih belum yakin, karena itu ia bertanya,
+"Aku tidak tahu apakah qianbei pernah mengenal Hei Feng Shuang Sha?"
+
+Qiu Qianren menjawab, "Sepasang Iblis Angin Hitam? Pasangan jahat itu masih belum mati juga rupanya ya?"
+
+Lu Xiansheng sangat lega mendengar jawaban itu, lalu berkata, "Ying'er, tolong bawa Qiu qianbei ke ruang belajar untuk
+beristirahat." Qiu Qianren menganggukkan kepala kepada semua orang dan pergi bersama Lu Guanying.
+
+Meskipun Lu Xiansheng tidak pernah bertatap muka dengan Qiu Qianren sebelumnya, ia sudah mendengar nama besarnya.
+Waktu lima pendekar terbesar di dunia persilatan saling mengadu kekuatan, mereka juga mengundang Qiu Qianren,
+tetapi karena ia sedang ada urusan lain, maka ia menolak undangan itu. Kungfunya sudah jelas sangat istimewa kalau
+sampai diundang, meskipun ia tidak dapat menyamai kelima pendekar itu, tetapi pasti tidak terlalu jauh dari tingkat
+mereka. Kalau Sepasang Iblis datag, mereka pasti tidak mampu menandinginya.
+
+Ia berpaling kepada Guo Jing dan Huang Rong. "Kalian masih belum pergi? Kungfu Qiu qianbei itu luar biasa, sungguh
+beruntung dia tiba-tiba muncul di saat seperti ini. Aku tidak harus akut lagi melawan musuhku! Nanti kalian bisa
+menginap di kamar kalian lagi, tapi tolong jangan keluar, maka kalian akan baik-baik saja."
+
+Huang Rong tertawa ringan, "Boleh aku menonton?"
+
+Lu Xiansheng menghela napas panjang dan berkata, "Aku kuatir musuhku akan membawa banyak orang, jadi aku masih kuatir
+aku bahkan tidak bisa melindungi diri, dengan begitu kalian bisa terluka. Bolehlah, tapi kalian harus terus di dekatku.
+Dengan adanya Qiu qianbei tidak jadi soal berapa banyak orang yang mereka bawa!"
+
+Huang Rong bertepuk tangan dengan gembira. "Aku senang melihat pertarungan! Sungguh menarik waktu kau mengalahkan
+Pangeran Kecil Jin itu."
+
+Lu Xiansheng berkata, "Kali ini yang datang adalah gurunya, yang jauh lebih kuat. Makanya aku sangat kuatir."
+
+"Ah! Kau tahu dari mana?" sahut Huang Rong.
+
+Lu Xiansheng berkata, "Nona Huang, kau tidak akan mengerti urusan kungfu ini. Ilmu cakar yang dipakai Pangeran Kecil
+itu untuk melukai kaki anakku Ying'er, adalah sama dengan yang dipakai untuk membuat lima lubang di bagian atas tengkorak!"
+
+Huang Rong menjawab, "Oh, aku mengerti sekarang. Ilmu kaligrafi Wang Xianzhi diajarkan oleh Wang Yizhi, dan ilmu
+Wang Yizhi sendiri diajarkan oleh Wei Furen, yang mana belajar dari Zhong You. Karena itu, seorang ahli pasti akan bisa
+menebak asal-usul atau aliran dari seorang penulis kaligrafi, hanya dengan melihat hasil kerjanya."
+
+Lu Xiansheng tertawa. "Nona sangat cerdas. Aku hanya memberikan sedikit petunjuk, dan kau mampu memahami semuanya.
+Kedua musuhku sangat licik dan jahat. Kalau dibandingkan dengan Zhong Wang, mereka hanya akan mengotori reputasi
+guru dan leluhurnya."
+
+Huang Rong menarik jubah Guo Jing dan berkata, "Ayo kita lihat kungfu apa yang dilatih Kakek Jenggot Putih itu."
+
+Lu Xiansheng jadi kuatir dan berkata, "Ah, tolong jangan... jangan ganggu dia."
+
+Huang Rong tertawa, "Tidak apa-apa." Ia bangkit berdiri dan pergi.
+
+Lu Xiansheng duduk di bangkunya dan tidak dapat bergerak. Ia berpikir dengan agak gugup, "Anak perempuan ini
+sungguh sangat nakal. Untuk apa dia memata-matai orang tua itu."
+
+Ia segera menyuruh para pelayan untuk mengangkat dipan bambunya, dan buru-buru ke ruang belajar untuk menghentikan ulah
+mereka. Ketika tiba di situ, ia melihat mereka sedang membungkuk untuk mengintip ke dalam ruangan itu melalui lubang
+yang dibuat di jendela. Ketika Huang Rong mendengar langkah kaki para pelayan, ia buru-buru berpaling dan memberi
+isyarat supaya mereka tidak bersuara. Ia juga memberi isyarat kepada Lu Xiansheng supaya datang mendekat dan melihat.
+
+Lu Xiansheng kuatir jika ia tidak mendekat, nona kecil itu akan tidak senang, lalu mengejutkan Qiu Qianren. Ia segera
+menyuruh pelayan membantunya dengan hati-hati mendekat ke jendela. Waktu mengintip melalui lubang yang dibuat Huang Rong,
+ia heran melihat Qiu Qianren sedang duduk bersila dengan mata terpejam, dan kepulan asap keluar terus-menerus dari
+mulutnya.
+
+Guru Lu Xiansheng sangat ahli dan berpengetahuan luas. Waktu ia berlatih di bawah bimbingannya di masa mudanya, ia
+sering mendengar penuturan gurunya tentang aneka macam ilmu silat dari berbagai aliran dan sekte. Tetapi ia belum
+pernah mendengar ada ilmu yang berhubungan dengan mengeluarkan asap melalui mulut. Ia tidak berani melihat lebih 
+lanjut, dan menarik lengan jubah Guo Jing sebagai isyarat supaya tidak melihat lagi. Guo Jing menghormati dia, dan
+ia juga merasa bahwa memata-matai seseorang itu bukan tindakan yang pantas. Guo Jing buru-buru berdiri dan
+menarik tangan Huang Rong, lalu berjalan mengikuti Lu Xiansheng kembali ke gedung utama.
+
+Huang Rong cekikikan. "Ilmu orang tua itu lucu. Ada api di dalam perutnya!"
+
+Lu Xiansheng berkata, "Kau tidak mengerti. Itu salah satu ilmu tenaga dalam yang sangat mengagumkan."
+
+"Apa dia bisa menyemburkan api untuk membakar orang?" tanya Huang Rong. Ia tidak bercanda waktu mengatakan hal ini,
+ia sungguh-sungguh penasaran dengan ilmu Qiu Qianren yang misterius itu.
+
+"Tidak ada orang yang bisa menyemburkan api," kata Lu Xiansheng. "Tapi bisa untuk mencapai tingkat tenaga dalam yang
+seperti itu, artinya adalah ia kemungkinan sanggup melukai orang hanya dengan menggunakan bunga atau daun."
+
+Huang Rong tertawa, 'Ah, memetik bunga untuk melukai orang."
+
+Lu Xiansheng tersenyum kecil. "Nona sangat pintar."
+
+Ada sebuah puisi yang berjudul 'Budha Biadab', yang ditulis oleh seorang tak dikenal di jaman Dinasti Tang, yang
+berbunyi "Saat peoni menampakkan mutiara sejati, wanita cantik muncul di tengah ruangan. Sambil tertawa lembut ia 
+bertanya kepada pria itu, 'Mana yang lebih indah, bunga atau wanita ini?' Pria itu merenungkannya lalu berkata, 'Bunga
+itu indah.' Wanita itu agak kesal, ia melemparkan bunga yang sudah hancur kepadanya."[^wanita-dan-bunga]
+
+Puisi itu kemudian tersebar luas. Suatu ketika ada kasus mengenai seorang istri jahat yang mematahkan kaki suaminya.
+Kaisar Xuanzhong dari Dinasti Tang yang mendengar kasus itu tertawa sambil berkata kepada Perdana Menteri, "Bukankah
+ini berarti melempar bunga untuk mencelakai orang?"
+
+Lu Xiansheng sangat lega setelah melihat betapa kuatnya Qiu Qianren. Ia memerintahkan Lu Guanying untuk mengamati
+danau dan secara sopan mengundang setiap orang yang tampak mencurigakan ke rumah. Ia juga memerintahkan pelayan untuk
+membuka pintu gerbang rumah itu bagi semua tamu yang ingin berkunjung. Ketika malam tiba, para pelayan menyalakan lilin
+di bangunan utama Rumah Awan. Cahaya lilin menerangi ruang utama itu, seolah sedang menunggu dimulainya sebuah pesta.
+Lu Guanying secara pribadi datang untuk mengundang Qiu Qianren ke ruang utama, di mana telah disiapkan sebuah tempat
+duduk di bagian tengah untuk tamu. Guo Jing dan Huang Roong duduk di sebelahnya, sementara Lu Xiansheng dan putranya
+duduk di sebuah meja di kursi di belakang mejanya. Lu Xiansheng bersulang untuk tamu-tamunya, tetapi tidak berani
+menanyakan maksud kedatangan Qiu Qianren ke daerah situ, dan hanya mengobrol tentang topik umum dengan para tamu.
+
+Setelah minum, Qiu Qianren berbicara, "Saudara Lu, Rumah Awan adalah pemimpin di antara semua pendekar danau, 
+karena itu kungfumu pasti bagus. Aku sedang bertanya-tanya, maukah menunjukkan satu-dua jurus?"
+
+Lu Xiansheng buru-buru menjawab, "Kungfuku tidak ada artinya kalau dibandingkan dengan kungfu qianbei, aku hanya
+akan mempermalukan diri sendiri. Dan lagi aku sudah cacat sejak lama, karena itu sudah tidak lagi menggunakan kungfu
+yang pernah diajarkan guruku di masa lalu."
+
+Qiu Qianren menjawab, "Siapa gurumu? Aku mungkin kenal dia."
+
+Lu Xiansheng menghela napas panjang dan mukanya pucat. Setelah agak lama ia baru menjawab, "Wanbei sangat bodoh dan
+kasar, dan tidak mampu melayani guruku. Akibat perbuatan orang lain guruku tidak mau mengakui aku lagi. Ini benar-benar
+cerita yang memalukan, kuharap qianbei bisa mengerti."
+
+Lu Guanying diam-diam berpikir, "Jadi ayah tidak diakui oleh gurunya, karena itu tidak pernah menunjukkan kungfunya.
+Kalau bukan karena Pangeran Jin mau mencelakai aku, ayah mungkin tidak bakal pernah menunjukkan kungfunya. Dia pasti
+mengalami saat-saat penuh penderitaan dan kebencian di dalam hidupnya." Lu Guanying merasa sangat sedih dan terganggu
+oleh pikiran ini.
+
+Qiu Qianren berkata lagi, "Lu Xiong sedang di usia puncak dalam hidup ini, dan adalah seorang pemimpin para pendekar.
+Kenapa tidak mengambil kesempatan ini untuk membuat namamu dikenal? Itu akan menyingkirkan segala penilaian yang keliru
+tentang dirimu dan membuat para senior di perguruanmu menyesal."
+
+Lu Xiansheng menjawab, "Wanbei cacat dan sudah putus asa. Anjuran qianbei punya wawasan yang sangat dalam, tapi sayangnya 
+wanbei tidak bisa menerimanya."
+
+Qiu Qianren berkata, "Lu Xiong terlalu sopan. Ada jalan, tetapi aku tidak yakin Lu Xiong bersedia menerimanya atau
+tidak."
+
+Lu Xiansheng menjawab, "Kalau begitu aku harus merepotkan qianbei untuk menolongku."
+
+Qiu Qianren tertawa halus, tapi meneruskan makannya dan tidak menjawab. Lu Xiansheng tahu bahwa orang ini telah
+menyembunyikan diri selama dua puluh tahun dan berpikir, "Pasti ada alasan khusus kenapa ia muncul lagi di dunia
+persilatan. Karena dia seorang senior, tidak pantas kalau aku mendesaknya, jadi aku hanya bisa menunggu sampai
+dia sendiri yang mengatakannya."
+
+Akhirnya Qiu Qianren berkata, "Kalau Lu Xiong tidak mau menunjukkan kungfu, tentu saja tidak apa-apa. Rumah Awan
+nama yang cukup terkenal, dan para pemimpinnya pasti dari perguruan terkenal juga."
+
+Lu Xiansheng tertawa. "Urusan Rumah Awan sudah lama ditangani oleh putraku Guanying. Gurunya adalah Biksu Kumu dari
+Biara Yun Qi."
+
+Qiu Qianren menjawab, "Ah! Kumu adalah seorang ahli kungfu dari aliran Xian Xia, yang berkaitan dengan Shaolin.
+Kemampuannya patut diacungi jempol. Bagaimana kalau Lu Shaoye menunjukkan sedikit jurusnya?"
+
+Lu Xiansheng berkata, "Adalah keberuntungan anakku bisa menerima petunjuk dari Qiu Qianbei."
+
+Lu Guanying berpikir sangat jarang bisa bertemu dengan ahli kungfu yang hebat dan nasihatnya akan sangat dalam 
+dan berharga. Karena itu ia berharap mendapat beberapa petunjuk. Ia segera berjalan ke tengah aula dan berkata, 
+"Qianbei, tolong berikan beberapa petunjuk."
+
+Ia mengambil posisi dan memamerkan kungfu terbaiknya, jurus 'Luo Han Menaklukkan Harimau'[^luohan] 
+yang menimbulkan desiran angin ketika ia memukul dengan tinjunya. Ia memang murid dari seorang ahli 
+kungfu yang tangguh. Keahliannya unik dan ia memamerkannya agak lebih lama, sebelum mengeluarkan raungan 
+keras yang terdengar seperti auman harimau, cahaya lilin goyah dan hembusan angin bertiup ke empat sudut 
+ruangan. Para pelayan merasakan sensasi yang dahsyat dan terkejut melihat demonstrasinya. Lu Guanying 
+melanjutkan dengan teknik telapak tangan sambil berteriak keras, terlihat sangat mengesankan. 
+Ia berbalik dan berjongkok di lantai, lalu tiba-tiba merentangkan telapak tangan kirinya lurus, menunjukkan sikap 'Telapak 
+Budha Ru Lai'[^tathagata]. Setelah beberapa saat, raungannya semakin pelan tetapi kecepatan Telapak Luo Han semakin 
+cepat dan dengan sikap terakhirnya, ia menyerang lantai dan kekuatan itu memecahkan beberapa batu bata di dekatnya. 
+Lu Guanying membalikkan badan ke posisi tegak dan dengan tangan kirinya di udara dan kaki kanannya menendang keluar, 
+ia dengan mantap dan tidak bergerak membentuk gambar Budha Luo Han.
+
+Guo Jing dan Huang Rong bersorak kagum, "Teknik tangan kosong yang hebat!"
+
+Lu Guanying mengendurkan sikapnya, kembali berdiri di posisi normal, lalu berpaling ke arah Qiu Qianren yang 
+tersenyum ringan.
+
+Lu Xiansheng bertanya, "Bagaimana kungfu tangan kosong anak ini?"
+
+Qiu Qianren menjawab, "Lumayan."
+
+Lu Xiansheng berkata, "Kalau jauh dari sempurna, harap Qiu qianbe sudi memberi petunjuk."
+
+Qiu Qianren berkata, "Kungfu tangan kosong anakmu berguna untuk membina fisiknya, tapi tidak berguna untuk 
+menghadapi lawan tangguh."
+
+Lu Xiansheng berkata, "Aku ingin mendengar komentar qianbei, supaya dia bisa memperbaiki kekurangannya."
+
+Guo Jing juga tidak bisa mengerti dan diam-diam berpikir, "Kungfu Lu Shaoye memang tidak terlalu menonjol, tapi
+kenapa Qiu qianbei bisa mengatakan 'tidak berguna'?"
+
+Qiu Qianren bangkit dan berjalan ke tengah ruangan, dan kembali ke tempatnya sambil membawa dua potong batu bata
+yang sebelumnya dipecahkan oleh Lu Guanying. Ia melakukan sesuatu dengan tangannya, dan terdengar suara 'krekk'
+ketika pecahan batu tersebut pecah lagi menjadi beberapa bagian yang lebih kecil. Ia lalu meremas-remas semuanya,
+yang lalu berubah menjadi bubuk, yang melayang di atas meja. Semua orang tercengang melihat semua itu.
+
+Qiu Qianren menyapu debu dan bubuk itu dari atas meja dan menaruh semuanya di pakaiannya dan berjalan ke tengah
+ruangan untuk melepaskan semuanya di situ. Ia tertawa pelan sambil berjalan kembali ke tempat duduknya dan berkata,
+Memang mengagumkan melihat Lu Shaoye mampu memecahkan batu bata dengan telapak tangan, tapi coba pikir seperti ini,
+lawan kita bukan batu bata, dan tidak akan diam saja berdiri di situ dan menunggumu memukulnya. Lebih jauh lagi,
+kalau lawanmu punya tenaga dalam lebih kuat, dan kau menyerangnya dengan telapak tangan seperti tadi, dan ia kemudian
+menyambut tanganmu, maka kau akan langsung terluka parah." Lu Guanying mengangguk dalam diam.
+
+Qiu Qianren menghela napas dan berkata, "Belakangan ini muncul banyak sekali pendekar silat, tapi hanya sedikit
+yang sungguh-sungguh bisa dibilang ahli."
+
+Huang Rong bertanya, "Yang sedikit itu siapa saja?"
+
+Qiu Qianren menjawab, "Lima Pendekar Besar yang sudah terkenal di [Wulin](#wulin "Dunia persilatan"), Si Sesat Timur,
+Racun Barat, Kaisar Selatan, Pengemis Utara, dan Dewa Pusat. Namun demikian, Dewa Pusat, Wang Chongyang punya kemampuan
+yang terbaik. Sementara keempat orang lainnya, mereka masing-masing adalah ahli di bidangnya. Tapi seseorang selain
+punya kekuatan, pasti juga punya kelemahan. Kalau orang bisa membaca kelemahan mereka, tidak sulit untuk mengalahkan
+mereka."
+
+Dengan kata-kata itu, Qiu Qianren mengejutkan Lu Xiansheng, Huang Rong, dan Guo Jing. Lu Guanying tidak tahu apa-apa 
+tentang lima orang hebat itu, dan tidak tahu mengapa yang lainnya terkejut. Huang Rong sebenarnya kagum pada Qiu Qianren
+ketika melihatnya unjuk kebolehan, tetapi ketika mendengar ucapannya yang dianggap tidak hormatnya terhadap ayahnya, 
+ia sangat marah dan tertawa sopan sebelum bertanya, "Jadi kalau _qianbei_ bisa mengalahkan lima pendekar besar, 
+bukankah itu akan jadi prestasi luar biasa bagimu?"
+
+Qiu Qianren menjawab, "Wang Chongyang sudah meninggal. Aku terjebak dalam beberapa urusan di rumah selama kompetisi di Hua
+Shan dan tidak bisa menghadirinya. Itu sebabnya pendeta Tao tua itu bisa mencuri gelar 'nomor satu'. Pada saat itu 
+mereka berlima bersaing untuk mendapatkan Jiu Yin Zhen Jing, memutuskan bahwa pemenangnya akan mendapatkan kitab itu. 
+Mereka berduel selama tujuh hari tujuh malam dan Sesat Timur, Racun Barat, Pengemis Utara, dan Kaisar Selatan kalah.
+Belakangan saat Wang Chongyang meninggal dunia, terjadi kekacauan lagi. Kudengar pendeta Tao tua itu memberikan 
+Jiu Yin Zhen Jing kepada adik seperguruannya, Zhou Botong. Sesat Timur, Huang Yaoshi buru-buru ke sana, dan Zhou Botong
+bukan tandingannya, maka Huang Yaoshi mendapatkan setengah dari kitab itu. Tidak ada yang tahu apa yang terjadi kemudian."
+
+Huang Rong dan Guo Jing diam-diam berpikir, "Ternyata di tengah-tengahnya masih banyak urusan yang rumit. Setengahnya
+lagi dicuri oleh Sepasang Iblis."
+
+Huang Rong berkata, "Karena qianbei punya kungfu lebih tinggi, maka kitab itu seharusnya jadi milik qianbei."
+
+Qiu Qiangren menjawab, "Aku tidak tertarik untuk itu. Keempat orang itu sebetulnya biasa saja, dan mereka sudah
+mempersiapkan diri sejak lama untuk memperebutkan gelar 'nomor satu'. Akan sangat menarik melihat kompetisi mereka
+yang kedua."
+
+Huang Rong bertanya, "Ada kompetisi Hua Shan yang kedua?"
+
+Qiu Qianren menjawab, "Setiap dua puluh lima tahun sekali. Kalau yang tua meninggal, maka generasi yang lebih mudah 
+akan mengambil alih. Kompetisi Hua Shan berikutnya akan berlangsung dalam waktu satu tahun. Tapi selama beberapa
+tahun belakangan ini tidak ada bakat baru yang menonjol. Kurasa berikutnya masih akan kami-kami yang tua ini lagi.
+Ah, tidak ada keturunan yang menonjol, berarti kemampuan generasi mendatang tidak akan sebagus generasi sebelumnya."
+Ia menggelengkan kepalanya sambil bicara, seolah-olah penuh penyesalan.
+
+Huang Rong bertanya, "Apa qianbei mau ikut kompetisi tahun depan? Kalau ya, tolong ajak kami, aku senang sekali
+melihat pertarungan kungfu."
+
+Qiu Qianren mendengus. "Wah, itu omongan anak kecil! Kau menganggap yang seperti itu bertarung? Alu tadinya tidak 
+ingin pergi. Aku sudah tua, kenapa harus berebut gelar yang tidak berguna itu? Tapi aku punya satu urusan penting,
+yang berhubungan dengan keselamatan semua orang. Aku akan jadi orang egois dan serakah kalau tidak mau maju untuk
+membantu, atau masalahnya bisa berubah menjadi malapetaka."
+
+Mereka berempat sangat terkejut mendengar nada bicaranya yang gelisah, dan buru-buru menanyakan apa masalah itu.
+
+Qiu Qianren menjawab, "Ini urusan rahasia. Karena Saudara Guo dan Huang bukan orang dunia persilatan, maka sebaiknya
+tidak mendengarnya."
+
+Huang Rong tertawa. "Lu Xiansheng teman baikku. Kalau kau memberi tahu dia dan tidak memberi tahu aku, dia akan tetap
+menceritakannya kepadaku." Lu Xiansheng diam-diam mengomeli Huang Rong karena begitu tebal muka, tapi ia tidak 
+membantah ucapannya.
+
+Qiu Qianren lalu berkata, "Kalau begitu aku akan memberi tahu kalian semua. Tapi sebelum masalah ini terpecahkan, 
+harap kalian bisa menjaga rahasia."
+
+Guo Jing berpikir, "Kami tidak punya hubungan apa-apa dengan dia, dan karena urusan itu rahasia, rasanya lebih baik
+tidak usah mendengar." Ia berdiri dan mengumumkan, "Kami berdua mohon pamit!"
+
+Ia menarik tangan Huang Rong dan hendak pergi ketika mendengar Qiu Qianren menjawab, "Karena kalian berdua adalah 
+teman baik Lu Xianshen, maka kalian bukan orang luar. Silakan duduk!" Sambil bicara ia menepuk bahu Guo Jing.
+Guo Jing tidak merasa tenaga dalamnya istimewa, tapi ia menurut dan kembali ke tempat duduknya.
+
+Qiu Qianren berdiri dan bersulang untuk keempat orang itu, sebelum melanjutkan penuturannya. "Tidak lebih dari 
+setengah tahun dari sekarang, Kekaisaran Song akan mengalami kesulitan besar. Ada yang tahu mengapa?" Semua orang
+terperanjat melihat ekspresi mukanya yang serius. Lu Guanying melambaikan tangannya kepada para pelayan supaya
+mereka meninggalkan ruangan, dan memerintahkan supaya jangan membawa masuk makanan lagi.
+
+Qiu Qianren melanjutkan, "Aku mendapat berita bahwa dalam waktu enam bulan, Kekaisaran Jin akan menyerang Selatan,
+dan Kekaisaran Song kita akan lenyap. Ah, ini begitu mendadak, tak ada sesuatu yang bisa kita lakukan!" 
+
+Guo Jing waspada dan berkata, "Kalau begitu Qiu qianbei harus pergi untuk memberi tahu Kekaisaran dan meminta mereka
+bersiap-siap dengan rencana untuk menghadapinya."
+
+Qiu Qianren menatapnya dan mengomel, "Kau anak muda tahu apa? Kalau Kekaisaran Song bersiap-siap, maka kita akan
+menderita kekalahan yang lebih besar lagi." Tak satu pun dari mereka memahami apa yang dikatakannya. Mereka memandangnya
+dengan cemas.
+
+Ia melanjutkan, "Kepalaku hampir pecah berusaha memeras otak untuk melindungi rakyat, dan kelihatannya hanya ada satu 
+jalan untuk menyelamatkan negeri ini. Aku sudah keliling seluruh Jiangnan untuk ini. Aku mendengar bahwa Pangeran 
+Kecil Jin dan juga Komandan Duan ditahan di rumah ini, kenapa tidak kita undang mereka untuk berdiskusi?"
+
+Lu Xiansheng tidak tahu bagaimana cara Qiu Qianren mengetahui hal itu, tapi ia segera menyuruh para pelayannya
+membawa kedua orang itu masuk. Ia memerintahkan supaya rantai mereka dibuka, tetapi tidak memberikan mereka makanan.
+Guo Jing dan Huang Rong melihat bahwa Wanyan Kang terlihat lemah dan kelelahan. Komandan Duan kira-kira berusia
+lima puluh tahun, dengan berewok tebal dan ekspresi muka ketakutan.
+
+Qiu Qianren menatap Wanyan Kang dan bertanya, "[Xiao Wangye](#xiao-wangye "Pangeran Kecil") menderita?"
+
+Wanyan Kang mengangguk dan berpikir, "Entah bagaimana Guo Jing dan Huang Rong bisa ada di sini." Ketika ia berkelahi
+dengan Lu Guanying dan Lu Xiansheng hari itu, ia tidak melihat mereka berdua, yang bersembunyi di salah satu sudut.
+Ketiganya saling melihatm tapi tidak saling menyapa.
+
+Qiu Qianren menoleh kepada Lu Xiansheng dan berkata, "Ada begitu banyak harta di depan rumahmu ini, kenapa Saudara Lu
+tidak mengambilnya?"
+
+Lu Xiansheng penasaran dan bertanya, "Aku hidup sederhana sebagai orang desa, apa maksud qianbei 'harta'?
+
+Qiu Qianren menjawab, "Waktu tentara Jin menyerang Selatan, peperangan besar akan dimulai dan korban jiwa akan
+sangat banyak. Kalau Saudara Lu mengumpulkan para pendekar dari Jiangnan, dan maju bersama, maka kalian akan
+menyingkirkan tentara Jin dan bisa mendamaikan negeri ini."
+
+Lu Xiansheng diam-diam berpikir, "Ini ternyata benar-benar masalah serius." Ia buru-buru menjawab, "Adalah kehormatan
+bagiku bisa ikut berperang untuk negaraku, dan itu juga adalah tanggung jawabku. Aku berusaha setia kepada negaraku,
+tetapi para pejabat negara tidak menghargainya. Kalau seseorang pada dasarnya jahat, meskipun menjadi pendeta akan
+tetap percuma kalau tidak punya moral yang baik. Kuharap qianbei mau memberi petunjuk, dan wanbei akan mengikuti,
+kami akan merasa sangat berterima kasih. Aku tidak mencari harta atau imbalan."
+
+Qiu Qianren mengelus jenggotnya dan tertawa. Ia baru hendak menjawab ketika pengurus rumah tergopoh-gopoh masuk
+dan melaporkan, "Pemimpin Zhange melihat enam orang yang mencurigakan di danau. Mereka sudah sampai di depan rumah."
+
+Lu Xiansheng pucat. Ia berkata, "Cepat undang mereka masuk!"
+
+Ia diam-diam berpikir, "Mengapa ada enam orang? Mungkinkah Hei Feng Shuang Sha menemukan sekutu?"
 
 
 ***
@@ -1468,7 +1853,7 @@ kepada orang tua ini.
     </dd>
     <dt id="zaixia">Zai Xia (载下)</dt>
     <dd>
-        Secara literal bisa diterjemahkan menjadi "Aku yang rendah ini". Panggilan untuk diri sendiri sebagai
+        Bisa diterjemahkan secara bebas menjadi "Aku yang rendah ini". Panggilan untuk diri sendiri sebagai
         orang ketiga tunggal yang bertujuan merendah di hadapan orang lain yang dipandang lebih tinggi derajatnya.
         Ini adalah bagian dari sopan-santun ketimuran, setara dengan 'kulo' dalam bahasa Jawa.
     </dd>
@@ -1544,6 +1929,12 @@ kepada orang tua ini.
 atau 'Pa' atau 'Pak' berarti 'Delapan', sedangkan 'Gua' atau 'Kwa' adalah 'Tiga Garis' atau 'Trigram'. Setiap 'Gua' terdiri dari tiga simbol Yao. Singkatnya, Ba Gua punya sembilan bidang yang membentuk oktagon. Di titik pusatnya terdapat simbol Yin-Yang dari ajaran Tao. Delapan bidang yang mengelilinginya diisi dengan Delapan 'Gua' tadi (yang bervariasi).
 
 [^satuan-jin]: 1 jin kira-kira 1.1 pound. 100 jin yang disebutkan itu kira-kira 110 pound, atau sekitar 50kg.
+
+[^wanita-dan-bunga]: Cerita itu sebetulnya bermaksud menunjukkan sikap kasar seorang perempuan, yang dipandang tidak terhormat. Di masa itu seorang wanita ideal seharusnya bersikap lemah-lembut dan patuh.
+
+[^tathagata]: Istilah "Budha Rulai" dalam bahasa Mandarin dan Jepang adalah (如来, dibaca Ru Lai) adalah sebuah istilah di dalam agama Budha. Dalam bahasa Sansekerta dan Pali adalah "Tathāgata". Istilah itu bisa diartikan "Ia telah pergi", namun bisa juga diartikan "Ia telah datang", tetapi mengingat konteks spiritualnya, kemungkinan makna sebenarnya adalah "Ia telah menemukan kebenaran". Konon, istilah ini digunakan oleh Siddhartha Gautama untuk memanggil dirinya sendiri dalam bentuk orang ketiga tunggal.
+
+[^luohan]: Luohan adalah istilah bahasa mandarin untuk Arhat, atau Arahant. Adalah salah seorang dari murid langsung Siddhartha Gautama, pelopor ajaran Budha. Siddhartha Gautama adalah pribadi yang dirujuk oleh istilah "Budha" itu sendiri. Luohan atau Arhat adalah muridnya yang dianggap telah mendapatkan pencerahan mengenai sifat sejati dari keberadaan, dan menerima "Nirwana", sehingga terbebas dari siklus berulang yang disebut "inkarnasi" atau dilahirkan kembali. Arhat sendiri adalah seorang _murid historis_ (bandingkan dengan 'murid spiritual') dari Siddhartha Gautama. Di Indonesia barangkali istilah ini menjadi populer seiring dengan mencuatnya sejenis ikan hias yang diberi nama "Luohan", pada saat terjadi krisis moneter di tahun 1998.
 
 
 ### <a name="perang-antara-wu-yue" id="perang-antara-wu-yue">Perang Antara Wu — Yue</a>

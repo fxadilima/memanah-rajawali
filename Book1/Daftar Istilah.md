@@ -244,6 +244,13 @@ maka kita akan melihat karakter untuk 'Pintu' (門), yang mengucapannya kurang l
 
 ***
 
+## Mengenai Budha Rulai
+
+Tathagata (Devanagari: तथागत, dilafalkan ta-thā-ga-ta; Pali dan Sanskerta: Tathāgata; Tionghoa dan Jepang: 如来; Korea: 여래; Vietnam: Như Lai) adalah kata yang oleh Siddhartha Gautama untuk memanggil dirinya sendiri ketika ia masih hidup.
+
+Arti istilah Ru Lai (如来) bisa diartikan, "Ia yang telah pergi" (Tathā-gata) dan atau 
+"Ia yang telah datang" (Tathā-āgata). Kata ini mungkin juga dapat diartikan "Ia yang telah menemukan kebenaran".
+
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
