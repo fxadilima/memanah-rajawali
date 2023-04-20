@@ -1920,9 +1920,10 @@ Ia diam-diam berpikir, "Mengapa ada enam orang? Mungkinkah Hei Feng Shuang Sha m
     <dt id="xiao-wangye">Xiao Wang Ye (小王爷)</dt>
     <dd>
         Wang Ye (王爷) sendiri adalah panggilan untuk seorang Raja dalam sistem Kekaisaran yang diwariskan Qin Shi Huang,
-        dan dikembangkan lebih lanjut dengan berbagai revisi dari jaman ke jaman. Kedudukan Raja tersebut adalah
-        kurang lebih setara dengan seorang Gubernur dalam sistem modern. Karakter Xiao (小) artinya adalah "kecil".
-        Secara keseluruhan, panggilan ini ditujukan kepada putra seorang Raja.
+        dan dikembangkan lebih lanjut dengan berbagai revisi dari jaman ke jaman. Tentu saja "Raja" di sini harus dibedakan
+        dengan "Kaisar", di mana Raja hanya bertanggung jawan kepada Kaisar, dan diangkat oleh Kaisar.  Kedudukan Raja 
+        tersebut adalah kurang lebih setara dengan seorang Gubernur dalam sistem modern. Karakter Xiao (小) artinya 
+        adalah "kecil". Secara keseluruhan panggilan ini ditujukan kepada putra seorang Raja (bukan Kaisar).
     </dd>
 </dl>
 
