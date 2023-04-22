@@ -591,8 +591,8 @@ hingga mencapai tingkat sempurna!"
 
 [^tong-shi]: Tong Shi (铜尸) adalah julukan Chen Xuanfeng, yang berarti 'Mayat Tembaga'.
 
-[^murid-murid-huang-yaoshi]: <details><summary>Daftar murid-murid Huang Yaoshi</summary> 
-### Berdasarkan Senioritas
+[^murid-murid-huang-yaoshi]: Daftar murid-murid Huang Yaoshi <details>
+<summary>Berdasarkan Senioritas</summary>
 - Chen Xuanfeng (陳玄風), suami Mei Chaofeng yang berjuluk Tong Shi (銅屍), Si Mayat Tembaga.
 - Mei Chaofeng (梅超風), yang berjuluk Tie Shi (鐵屍), Si Mayat Besi. Ia dan Chen Xuanfeng dikenal sebagai Hei Feng Shuang Sha (黑風雙煞). Nama aslinya adalah Mei Ruohua (梅若華). Huang Yaoshi mengganti namanya untuk disesuaikan dengan ciri khas nama semua muridnya yang diakhiri dengan "Feng" (Angin).
 - Qu Lingfeng (曲靈風), yang mula-mula dikenal oleh Guo Xiaotian dan Yang Tiexin sebagai tetangga mereka yang cacat dan bernama Qu San (曲三). San (三) di sini dipinjam dari urutannya yang ketiga sebagai murid Huang Yaoshi.
