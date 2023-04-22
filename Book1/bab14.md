@@ -301,7 +301,7 @@ Lu Chengfeng terperanjat, "Apa benar begitu?" tanyanya.
 "Kenapa tidak benar?" balas Qiu Qianren. "Dia dikepung dan akhirnya tewas dibunuh oleh Tujuh Pendekar dari Quanzhen,
 murid-murid Wang Chongyang!"
 
-Sebelum ia selesai berbicara, Mei Chaofeng dan Lu Chengfeng berteriak dengan keras. Dengan suara keras Huang Rong 
+Sebelum ia selesai berbicara, Mei Chaofeng dan Lu Chengfeng berteriak nyaring. Dengan suara keras Huang Rong 
 jatuh ke belakang dari kursinya — tak sadarkan diri. Yang lain awalnya tidak percaya bahwa dengan kungfunya
 yang tinggi, Huang Yaoshi akan dengan mudah dibunuh oleh siapa pun. Tetapi karena itu adalah Tujuh Pendekar Quanzhen, 
 mereka mau tidak mau mempercayainya. Mereka tahu betul kekuatan gabungan dari Ma Yu, Qiu Chuji, Wang Chuyi dan yang 
