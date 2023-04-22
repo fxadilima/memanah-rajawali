@@ -256,7 +256,7 @@ Enam Orang Aneh saling bertukar pandang dengan Guo Jing. Mereka dengan jelas men
 hari ini," katanya. "Mei Chaofeng sendirian sudah sulit dihadapi, sekarang dia punya Shidi!"
 
 Huang Rong di sisi lain diam-diam menganggukkan kepalanya. "Kungfu dan pengetahuan sastra orang ini, dan 
-tingkah laku, juga cara berbicaranya secara umum mirip dengan ayah. Aku sudah curiga dia pasti hubungan 
+tingkah laku, juga cara berbicaranya secara umum mirip dengan ayah. Aku sudah curiga dia pasti punya hubungan 
 tertentu dengan kami. Tapi siapa sangka dia adalah murid ayah."
 
 Mei Chaofeng menjawab dengan dingin, "Apa yang bicara ini adik seperguruanku Lu Chengfeng?"
