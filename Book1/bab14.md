@@ -325,9 +325,10 @@ Lu Guanying tahu bahwa ayahnya terlalu sedih untuk bicara dengan masuk akal. Ia 
 
 Lu Chengfeng mengabaikan anaknya dan berteriak, "Mei Chaofeng! Kau iblis! Kau membuatku celaka! Kau melarikan diri 
 dengan pacarmu, aku bisa mengerti, tapi untuk apa kalian mencuri Jiu Yin Zhen Jing juga? Dalam kemarahannya Shifu
-menghancurkan persendian kaki kami berempat[^murid-murid-huang-yaoshi]. Bukan hanya itu, Shifu juga mengusir kami 
-dari Pulau Persik. Aku masih berharap Shifu akan berubah pikiran, dan mengasihani kami yang tidak ikut berbuat dosa
-sehingga harus dihukum seperti ini. Tapi sekarang Shifu sudah meninggal, harapanku hancur..."
+menghancurkan persendian kaki [kami berempat](#murid-murid-huang-yaoshi "Baca selengkapnya daftar murid-murid Huang Yaoshi"). 
+Bukan hanya itu, Shifu juga mengusir kami dari Pulau Persik. Aku masih berharap Shifu akan berubah pikiran, dan 
+mengasihani kami yang tidak ikut berbuat dosa sehingga harus dihukum seperti ini. Tapi sekarang Shifu sudah meninggal, 
+harapanku hancur..."
 
 "Aku selalu berpikir kau ini tidak punya tulang," omel Mei Chaofeng. "Dan sampai sekarang kau tetap tidak punya tulang!
 Tiga-empat kali kau memimpin begitu banyak orang untuk melawan kami, suami-istri, dan memaksa kami sampai kami tak
@@ -568,6 +569,19 @@ hingga mencapai tingkat sempurna!"
         berbau mitos, salah satu yang paling terkenal adalah cerita yang ditulis pada era Dinasti Ming, Feng 
         Shen Yan Yi (Investiture of The Gods).
     </dd>
+    <dt id="murid-murid-huang-yaoshi">Murid-murid Huang Yaoshi</dt>
+    <dd>
+        <details>
+            <summary>Berdasarkan Senioritas</summary>
+            - Chen Xuanfeng (陳玄風), suami Mei Chaofeng yang berjuluk Tong Shi (銅屍), Si Mayat Tembaga.
+            - Mei Chaofeng (梅超風), yang berjuluk Tie Shi (鐵屍), Si Mayat Besi. Ia dan Chen Xuanfeng dikenal sebagai Hei Feng Shuang Sha (黑風雙煞). Nama aslinya adalah Mei Ruohua (梅若華). Huang Yaoshi mengganti namanya untuk disesuaikan dengan ciri khas nama semua muridnya yang diakhiri dengan "Feng" (Angin).
+            - Qu Lingfeng (曲靈風), yang mula-mula dikenal oleh Guo Xiaotian dan Yang Tiexin sebagai tetangga mereka yang cacat dan bernama Qu San (曲三). San (三) di sini dipinjam dari urutannya yang ketiga sebagai murid Huang Yaoshi.
+            - Lu Chengfeng (陸乘風), pemilik Rumah Awan yang dijadikan markas para bajak Danau Tai. Seorang sastrawan yang dikenal Guo Jing dan Huang Rong sebagai Lu Xiansheng, ayah dari Lu Guanying.
+            - Wu Mianfeng (武眠風), meinggal karena sakit, tidak tampil dalam cerita ini.
+            - Feng Mofeng (馮默風), murid keenam yang tidak tampil dalam cerita ini, tapi tampil di buku kedua, Pendekar Rajawali Sakti.
+            - Shagu (傻姑), putri tunggal Qu Lingfeng yang mengalami kelainan mental.
+        </details>
+    </dd>
 </dl>
 
 
@@ -590,18 +604,6 @@ hingga mencapai tingkat sempurna!"
 [^tong-bi-wu-xing-zhang]: Sama seperti di atas, tetapi ini berkaitan dengan lima elemen.
 
 [^tong-shi]: Tong Shi (铜尸) adalah julukan Chen Xuanfeng, yang berarti 'Mayat Tembaga'.
-
-[^murid-murid-huang-yaoshi]: Daftar murid-murid Huang Yaoshi <details>
-<summary>Berdasarkan Senioritas</summary>
-- Chen Xuanfeng (陳玄風), suami Mei Chaofeng yang berjuluk Tong Shi (銅屍), Si Mayat Tembaga.
-- Mei Chaofeng (梅超風), yang berjuluk Tie Shi (鐵屍), Si Mayat Besi. Ia dan Chen Xuanfeng dikenal sebagai Hei Feng Shuang Sha (黑風雙煞). Nama aslinya adalah Mei Ruohua (梅若華). Huang Yaoshi mengganti namanya untuk disesuaikan dengan ciri khas nama semua muridnya yang diakhiri dengan "Feng" (Angin).
-- Qu Lingfeng (曲靈風), yang mula-mula dikenal oleh Guo Xiaotian dan Yang Tiexin sebagai tetangga mereka yang cacat dan bernama Qu San (曲三). San (三) di sini dipinjam dari urutannya yang ketiga sebagai murid Huang Yaoshi.
-- Lu Chengfeng (陸乘風), pemilik Rumah Awan yang dijadikan markas para bajak Danau Tai. Seorang sastrawan yang dikenal Guo Jing dan Huang Rong sebagai Lu Xiansheng, ayah dari Lu Guanying.
-- Wu Mianfeng (武眠風), meinggal karena sakit, tidak tampil dalam cerita ini.
-- Feng Mofeng (馮默風), murid keenam yang tidak tampil dalam cerita ini, tapi tampil di buku kedua, Pendekar Rajawali Sakti.
-- Shagu (傻姑), putri tunggal Qu Lingfeng yang mengalami kelainan mental.
-</details>
-
 
 [^lan-hua-fu-xue-shou]: Lan Hua Fu Xue Shou (兰花拂穴手) adalah ilmu totokan khas keluarga Huang Rong yang diajarkan ayahnya. Arti literal dari nama tersebut adalah, Lanhua = Anggrek, Fu = Mengocok, Xue = Titik/Jalan darah, Shou = Tangan. Semuanya bisa diartikan "Ilmu Totokan Anggrek"
 
