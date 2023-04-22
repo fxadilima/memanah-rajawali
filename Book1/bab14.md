@@ -210,7 +210,7 @@ memapahnya dan bertanya, "Jing Gege, kau tidak apa-apa?" Hatinya sangat tergetar
 bisa dicegah dari matanya.
 
 Jawaban Guo Jing sungguh tak terduga, "Aku tidak apa-apa, biar kucoba lagi!" Ia membusungkan dada, lalu melangkah
-ke arah Qiu Qianren dan berkata dengan tantang dan berani, "Kau kan Telapak Besi Mengapung Di Air, coba pukul aku
+ke arah Qiu Qianren dan berkata dengan lantang dan berani, "Kau kan Telapak Besi Mengapung Di Air, coba pukul aku
 lagi!"
 
 Qiu Qianren sangat marah, ia segera melontarkan pukulan telapak tangan berikutnya di dada Guo Jing dengan sepenuh
