@@ -591,7 +591,9 @@ hingga mencapai tingkat sempurna!"
 
 [^tong-shi]: Tong Shi (铜尸) adalah julukan Chen Xuanfeng, yang berarti 'Mayat Tembaga'.
 
-[^murid-murid-huang-yaoshi]: Mereka semua, dari yang paling senior hingga yang termuda adalah, 
+[^murid-murid-huang-yaoshi]: <detail><summary>Daftar murid-murid Huang Yaoshi</summary> 
+
+### Berdasarkan Senioritas
 - Chen Xuanfeng (陳玄風), suami Mei Chaofeng yang berjuluk Tong Shi (銅屍), Si Mayat Tembaga.
 - Mei Chaofeng (梅超風), yang berjuluk Tie Shi (鐵屍), Si Mayat Besi. Ia dan Chen Xuanfeng dikenal sebagai Hei Feng Shuang Sha (黑風雙煞). Nama aslinya adalah Mei Ruohua (梅若華). Huang Yaoshi mengganti namanya untuk disesuaikan dengan ciri khas nama semua muridnya yang diakhiri dengan "Feng" (Angin).
 - Qu Lingfeng (曲靈風), yang mula-mula dikenal oleh Guo Xiaotian dan Yang Tiexin sebagai tetangga mereka yang cacat dan bernama Qu San (曲三). San (三) di sini dipinjam dari urutannya yang ketiga sebagai murid Huang Yaoshi.
@@ -599,6 +601,9 @@ hingga mencapai tingkat sempurna!"
 - Wu Mianfeng (武眠風), meinggal karena sakit, tidak tampil dalam cerita ini.
 - Feng Mofeng (馮默風), murid keenam yang tidak tampil dalam cerita ini, tapi tampil di buku kedua, Pendekar Rajawali Sakti.
 - Shagu (傻姑), putri tunggal Qu Lingfeng yang mengalami kelainan mental.
+
+</detail>
+
 
 [^lan-hua-fu-xue-shou]: Lan Hua Fu Xue Shou (兰花拂穴手) adalah ilmu totokan khas keluarga Huang Rong yang diajarkan ayahnya. Arti literal dari nama tersebut adalah, Lanhua = Anggrek, Fu = Mengocok, Xue = Titik/Jalan darah, Shou = Tangan. Semuanya bisa diartikan "Ilmu Totokan Anggrek"
 
