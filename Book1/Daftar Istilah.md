@@ -264,6 +264,26 @@ Tathagata (Devanagari: तथागत, dilafalkan ta-thā-ga-ta; Pali dan Sansk
 Arti istilah Ru Lai (如来) bisa diartikan, "Ia yang telah pergi" (Tathā-gata) dan atau 
 "Ia yang telah datang" (Tathā-āgata). Kata ini mungkin juga dapat diartikan "Ia yang telah menemukan kebenaran".
 
+## About Niu Bi
+
+Salah satu artikel (atau chat):
+傻逼 is a curse word, not 牛逼
+
+Tapi Bi (逼) di atas ternyata berarti "memaksa" atau "to press".
+Kalau Niu (牛) memang berarti Sapi/Kerbau.
+Bi yang = Hidung adalah 鼻
+Tetapi tidak ada referensi yang meyakinkan untuk "Hidung Sapi/Kerbau",
+yang ada justru 牛逼 (yang pertama) seringkali ditulis di internet dan dikaitkan dengan omong jorok,
+setidaknya kata-kata kasar dan tidak pantas.
+
+Berarti istilah "Niu Bi" yg dipakai Huang Rong dan 7 Orang Aneh itu sebetulnya ejekan umum yg kasar,
+tapi blm tentu "Bi" itu karakter yg sama dengan "Sapi".
+
+
+
+
+
+***
 
 [Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
 
