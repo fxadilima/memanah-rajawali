@@ -560,7 +560,7 @@ hingga mencapai tingkat sempurna!"
             target="_blank">
             <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682151619/misc/st_meridian_9-18_jg7tzd.gif"
                 alt="Que Pen Acupoint"
-                style="float:right;"/>
+                style="float:left;"/>
         </a>
     </dd>
     <dt id="taishan">Tai Shan (泰山)</dt>
