@@ -241,7 +241,7 @@ merayap di punggung mereka. Mereka segera mengalihkan pandangan mereka dari oran
 wajahnya lagi dengan jantung mereka berdebar lebih kencang.
 
 Lu Xiansheng bingung. Ia tidak mengira bahwa Qiu Qianren yang terkenal di dunia persilatan akan runtuh secara tak 
-terduga pada serangan pertama lawannya. Ia hendak tersenyum, tetapi keika melihat kedatangan Mei Chaofeng 
+terduga pada serangan pertama lawannya. Ia hendak tersenyum, tetapi ketika melihat kedatangan Mei Chaofeng 
 senyumnya membeku.
 
 Wanyan Kang jadi bersemangat ketika melihat gurunya. Ia segera melangkah maju untuk memberi hormat. Semua orang 
