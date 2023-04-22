@@ -266,7 +266,7 @@ Mei Chaofeng menjawab dengan dingin, "Apa yang bicara ini adik seperguruanku Lu 
 "Untuk apa kau bertanya?" jawab Mei Chaofeng. "Kedua mataku buta. Kau tidak melihatnya? Kakak seperguruanmu 
 Xuanfeng sudah tewas dibunuh orang sejak lama. Itu harapanmu, kan?"
 
-Tuan Lu senang dan sekaligus terkejut. Sepasang Iblis Angin Gelap telah menjelajahi Jianghu dan 
+Lu Chengfeng senang dan sekaligus terkejut. Sepasang Iblis Angin Gelap telah menjelajahi Jianghu dan 
 menjungkirbalikkannya, bagaimana mungkin Tong Shi[^tong-shi] dibunuh? Tapi ia juga lega karena musuhnya
 berkurang satu, dan terlebih lagi, yang tertinggal buta. Namun ia mengingat masa lalu mereka bersama di 
 Pulau Bunga Persik dan merasa sedih. "Siapa yang membunuh Chen Shige?" ia menghela nafas dan bertanya. 
