@@ -559,7 +559,8 @@ hingga mencapai tingkat sempurna!"
             title="Titik Akupuntur Que Pen"
             target="_blank">
             <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682151619/misc/st_meridian_9-18_jg7tzd.gif"
-                alt="Que Pen Acupoint">
+                alt="Que Pen Acupoint"
+                style="float:right;"/>
         </a>
     </dd>
     <dt id="taishan">Tai Shan (泰山)</dt>
