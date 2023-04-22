@@ -282,7 +282,7 @@ urusan pribadi kita."
 "Mei Chaofeng!" seru Han Baoju yang tak bisa menahan diri lagi. Ia menggebrak meja dan berkata, "Musuh bebuyutanmu 
 semuanya ada di sini!"
 
-Ia bermaksud menerjang, tetapi Quan Jinfa buru-buru menariknya. Di pihal lain, Mei Chaofeng sangat terkejut,
+Ia bermaksud menerjang, tetapi Quan Jinfa buru-buru menariknya. Di pihak lain, Mei Chaofeng sangat terkejut,
 "Kau... kau...?" ia tergagap.
 
 Saat itu Qiu Qianren yang dari tadi terdiam karena dadanya sakit akibat pukulan Guo Jing, merasakan sakitnya mereda. 
