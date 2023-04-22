@@ -232,7 +232,7 @@ terbang keluar dari aula melalui pintu masuk utama seperti layang-layang putus t
 Saat semua orang berteriak kaget, seseorang tiba-tiba muncul di pintu masuk. Ia mencengkeram kerah baju Qiu Qianren 
 sambil memasuki aula utama dengan langkah lebar. Ia meletakkan Qiu Qianren di lantai dan berdiri dengan tenang di 
 tengah aula. Wajahnya dingin dan tanpa ekspresi dan rambut panjangnya tergerai di bahunya. Ia melihat ke atas. 
-Itu tidak lain adalah Si Mayat Besi, Mei Chaofeng. Jantung berdetak kencang.
+Itu tidak lain adalah Si Mayat Besi, Mei Chaofeng. Jantung mereka berdetak kencang.
 
 Di belakangnya ada orang lain yang tidak kalah anehnya dengan Mei Chaofeng. Orang itu tinggi dan agak kurus dan 
 mengenakan jubah hijau tua. Wajahnya pucat dan tanpa ekspresi. Selain matanya, sisa wajahnya tampak membeku seperti 
