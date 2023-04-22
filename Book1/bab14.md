@@ -382,7 +382,7 @@ ia menangis lagi.
 "Jangan menangis, [Guniang](#guniang "Nona")", Zhu Cong menghiburnya, "Qiu Qianbei ini suka menipu orang dan 
 kata-katanya belum tentu benar." Huang Rong bingung dan ia menatap Zhu Cong dengan tatapan bertanya.
 
-"Kungfu ayahmu sangat hebat, mana mungkin dia bisa dibunuh oleh orang semudah itu?" Kata Zhu Cong sambil tersenyum. 
+"Kungfu ayahmu sangat hebat, mana mungkin dia bisa dibunuh orang semudah itu?" Kata Zhu Cong sambil tersenyum. 
 "Juga Tujuh Pendekar Quanzhen adalah orang-orang terhormat dan mereka tidak punya dendam dengan ayahmu. Mengapa mereka
 membunuhnya tanpa alasan?"
 
