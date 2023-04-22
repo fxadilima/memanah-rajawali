@@ -578,10 +578,13 @@ hingga mencapai tingkat sempurna!"
                 <li>Mei Chaofeng (梅超風), yang berjuluk Tie Shi (鐵屍), Si Mayat Besi. Ia dan Chen Xuanfeng dikenal sebagai Hei Feng Shuang Sha (黑風雙煞). Nama aslinya adalah Mei Ruohua (梅若華). Huang Yaoshi mengganti namanya untuk disesuaikan dengan ciri khas nama semua muridnya yang diakhiri dengan "Feng" (Angin).</li>
                 <li>Qu Lingfeng (曲靈風), yang mula-mula dikenal oleh Guo Xiaotian dan Yang Tiexin sebagai tetangga mereka yang cacat dan bernama Qu San (曲三). San (三) di sini dipinjam dari urutannya yang ketiga sebagai murid Huang Yaoshi.</li>
                 <li>Lu Chengfeng (陸乘風), pemilik Rumah Awan yang dijadikan markas para bajak Danau Tai. Seorang sastrawan yang dikenal Guo Jing dan Huang Rong sebagai Lu Xiansheng, ayah dari Lu Guanying.</li>
-                <li>Wu Mianfeng (武眠風), meinggal karena sakit, tidak tampil dalam cerita ini.</li>
-                <li>Feng Mofeng (馮默風), murid keenam yang tidak tampil dalam cerita ini, tapi tampil di buku kedua, Pendekar Rajawali Sakti.</li>
+                <li>Wu Mianfeng (武眠風), meninggal karena sakit, tidak tampil dalam cerita ini.</li>
+                <li>Feng Mofeng (馮默風), murid keenam yang tidak tampil dalam cerita ini, tetapi tampil di buku kedua, Pendekar Rajawali Sakti.</li>
                 <li>Shagu (傻姑), putri tunggal Qu Lingfeng yang mengalami kelainan mental.</li>
             </ol>
+            Huang Rong tentulah yang paling muda di antara mereka semua, secara otomatis mereka memanggilnya Shimei,
+            kecuali Shagu. Bagi Shagu, Huang Rong juga seorang Bibi Guru karena satu peringkat dengan ayahnya, meskipun
+            usia Huang Rong lebih muda.
         </details>
     </dd>
 </dl>
