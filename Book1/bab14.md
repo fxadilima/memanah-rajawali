@@ -554,7 +554,8 @@ hingga mencapai tingkat sempurna!"
     </dd>
     <dt id="quepen">Titik Akupuntur Que Pen (缺盆)</dt>
     <dd>
-        Titik akupuntur yang terletak di perbatasan antara leher dan dada atas.<br/>
+        Titik akupuntur yang terletak di perbatasan antara leher dan dada atas.
+        Perhatikan ST12 pada gambar berikut.<br/>
         <a href="https://res.cloudinary.com/drzjshskk/image/upload/v1682151619/misc/st_meridian_9-18_jg7tzd.gif"
             title="Titik Akupuntur Que Pen"
             target="_blank">
