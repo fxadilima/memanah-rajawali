@@ -903,17 +903,17 @@ tetapi ia tidak mengerti apa maksudnya. Maka Huang Rong berteriak lagi, "Bertaru
     <dd>
         Ini sebenarnya adalah sebuah kutipan dari literatur kuno, era Dinasti Zhou, yang dikenal sebagai Zhouyi, atau
         Perubahan Zhou. Sama seperti Li She Da Chuan.
-        <blockquote>
+        <pre>
             鴻漸于陸，	Hong jian yu lu,
             夫征不復，	fu zheng bu fu,
             婦孕不育。	fu yun bu yu.
-        </blockquote>
+        </pre>
         Kira-kira bisa diterjemahkan menjadi ungkapan berikut:
-        <blockquote>
+        <pre>
         Pelan-pelan maju ke tanah kering.
         Seorang suami pergi tidak kembali, 
         dan seorang istri yang hamil tetapi tidak mau menyusui anaknya.
-        </blockquote>
+        </pre>
     </dd>
     <dt id="li-she-da-chuan">Li She Da Chuan (利涉大川)</dt>
     <dd>
@@ -922,7 +922,7 @@ tetapi ia tidak mengerti apa maksudnya. Maka Huang Rong berteriak lagi, "Bertaru
         biji-bijian atau Grain/Cereal, dan Dao (刂 dalam perkembanganmenjadi 刀), yang artinya Pisau. Dengan demikian
         kelihatannya Li mula-mula punya makna 'Tajam'. Tetapi dengan segera makna ini bergeser menjadi Keuntungan, atau
         Menguntungkan, Benefit/Favorable. Akhirnya di dalam literatur-literatur, Li lebih sering punya makna ini, meskipun
-        ada filsuf yang kurang menyukainya, karena ada semacam makna merendahkan dalam makna 'Keuntungan' atau Profit.
+        ada filsuf yang kurang menyukainya, karena ada semacam nada merendahkan dalam makna 'Keuntungan' atau Profit.
         Di dalam Zhouyi, karakter Li banyak dipakai untuk memberikan semacam nasihat kepada pembaca, dan salah satu kutipan
         yang sering dipakai adalah "Li She Da Chuan", yang kira-kira bisa diartikan 'Sangat berguna mengarungi sungai besar'.
         'Beneficial to ford a great river'. Kalau kita pakai untuk menggambarkan sebuah gerakan ilmu bela diri, kelihatannya
