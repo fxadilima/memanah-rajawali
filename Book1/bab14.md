@@ -727,7 +727,7 @@ Huang Rong tahu jika pertarungan ini diperpanjang lagi, Guo Jing akan menderita 
 seratus jurus dan dengan cepat akan mencapai jurus ke dua ratus. Kau masih tidak mau mengaku kalah?" serunya. Tapi Mei 
 Chaofeng menutup telinga dan meningkatkan intensitas serangannya.
 
-Tiba-tiba Huang Rong mendapat ide; dia melompat ke pilar terdekat dan berseru, "Jing Gege, lihat aku!" Guo Jing mengirimkan
+Tiba-tiba Huang Rong mendapat ide, ia melompat ke pilar terdekat dan berseru, "Jing Gege, lihat aku!" Guo Jing mengirimkan
 dua jurus berturut-turut, [Manfaat Mengarungi Sungai Besar](#li-she-da-chuan "Dikutip dari Literatur Dinasti Zhou") dan 
 [Pelan-pelan Maju Ke Tanah Kering](#hong-jian-yu-lu), dan berhasil mendorong Mei Chaofeng ke belakang cukup jauh sehingga
 ia bisa mengalihkan pandangannya ke Huang Rong. Ia melihatnya berlari di sekitar pilar dan membuat isyarat tangan, 
