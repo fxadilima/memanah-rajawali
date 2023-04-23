@@ -241,6 +241,8 @@ Tetapi ternyata Gui (traditional: 歸) adalah 'return' atau 'kembali'.
 
 Jurchen = Nu Zhen (女真)
 
+Du (独) = Alone/Single
+
 
 ***
 
@@ -253,6 +255,23 @@ Zhang Cuisan menggunakan 'Gewei' dalam pidato pembelaan diri di hadapan orang-or
 
 Men yang dipakai dalam 'Ni Men' dalam karakter tradisional adalah (們). Kalau karakter sebelah kiri dihilangkan,
 maka kita akan melihat karakter untuk 'Pintu' (門), yang mengucapannya kurang lebih sama.
+
+***
+
+Xiao Yao Quan (逍遙拳) = Jurus yang diajarkan Hong Qigong kepada Huang Rong dan Mu Nianci, mula-mula saya pikir
+ini Xiao Yao You (逍遥游).
+
+You (游) = Travelling.
+Sedangkan:
+Quan (拳) = Fist/Tinju/Jurus 
+
+Dan:
+Yao (遥) = Remote/Faraway/Jauh/Terpencil
+
+Padahal:
+Xiao (逍) = Happy/Tertawa Gembira/Carefree
+
+Entah mana yang benar, tapi bagi saya Xiao Yao You lebih masuk akal.
 
 
 ***
@@ -272,7 +291,7 @@ Salah satu artikel (atau chat):
 Tapi Bi (逼) di atas ternyata berarti "memaksa" atau "to press".
 Kalau Niu (牛) memang berarti Sapi/Kerbau.
 Bi yang = Hidung adalah 鼻
-Tetapi tidak ada referensi yang meyakinkan untuk "Hidung Sapi/Kerbau",
+Tetapi tidak ada referensi yang meyakinkan untuk "Hidung Sapi/Kerbau", Hidung (鼻子) dari seekor Niu.
 yang ada justru 牛逼 (yang pertama) seringkali ditulis di internet dan dikaitkan dengan omong jorok,
 setidaknya kata-kata kasar dan tidak pantas.
 

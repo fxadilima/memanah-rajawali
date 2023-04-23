@@ -487,6 +487,184 @@ caramu melakukannya?" tanyanya.
 "Aku sudah tua. Kungfuku tidak lagi sebagus dulu," kata Qiu Qianren. "Tapi ilmu meringankan tubuhku sudah dilatih
 hingga mencapai tingkat sempurna!"
 
+"Bagus sekali," kata Huang Rong. "Di halaman depan ada kolam ikan mas, kenapa kau tidak memamerkan ilmu itu —
+Mengambang Di Atas Air — sebentar saja, biar kami semua bisa mengaguminya. Keluar dari aula ini, belok kiri,
+di bawah [pohon Gui Hua](#guihua "Osmanthus (桂花)") yang harum." 
+
+"Bagaimana bisa latihan di dalam kolam ikan...?" gumam Qiu Qianren. Ia belum menyelesaikan kalimatnya ketika sebuah
+bayangan terang berkelebat di hadapannya, dan tanpa sadar kakinya sudah ditangkap, ia tergantung jungkir-balik dengan
+kepala di bawah.
+
+"Ajalmu sudah di depan mata, masih juga membual!" teriak Mei Chaofeng. Cambuk Naga Peraknya[^cambuk-perak] meliuk-liuk
+di udara dan mengantarkan Qiu Qianren ke kolam ikan mas, sesuai dengan petunjuk Huang Rong.
+
+Huang Rong bergegas ke kolam ikan sambil melambaikan potongan baja berbentuk kupu-kupu dengan sikap mengancam. 
+"Aku tidak akan membiarkanmu keluar dari situ, kecuali kau jelaskan bagaimana kau 'Mengambang di Air'!"
+
+Qiu Qianren menjejakkan kaki ke dasar kolam, berusaha melompat keluar dan melarikan diri, tetapi lempengan baja
+Huang Rong menusuk bahunya. Ia tercebur kembali ke kolam sampai basah kuyup. Ia meringis kesakitan dan berkata,
+"Di dalam guci itu ada lempengan besi tipis yang direkatkan ke situ, di atasnya aku menuangkan air kira-kira sedalam
+tiga inci. Aku menyembunyikan galah di sungai itu, kira-kira lima sampai enam inci di bawah permukaan air, jadi tidak
+kelihatan."
+
+Huang Rong tertawa, lalu berjalan kembali ke dalam ruangan, tidak lagi mempedulikan Qiu Qianren, yang segera melompat 
+keluar dari kolam dan bergegas melarikan diri tanpa menoleh ke belakang.
+
+Mei Chaofeng dan Lu Chengfeng tersenyum malu. Mereka sudah bertengkar dan menangis tanpa alasan. Guru mereka ternyata
+tidak tewas. Sekarang setelah semuanya jelas, mereka saling merasa tidak enak. Mei Chaofeng ragu-ragu sejenak, lalu
+berdehem dan berkata, "Lu Chengfeng, bebaskan muridku. Demi guru kita, aku tidak akan mengingat lagi segala perbedaan
+kita di masa lalu. Kalau soal kami, suami-istri, sampai lari ke Mongolia, yah... aku terima hal itu sebagai nasib."
+
+Lu Chengfeng menghela napas panjang. "Suaminya meninggal," pikirnya. "Matanya buta, ia hidup sendirian dan merana.
+Kedua kakiku cacat, tapi aku punya istri dan anak. Aku punya keluarga dan juga punya pekerjaan. Sebetulnya keadaanku
+seratus kali lipat lebih baik. Kami berdua sudah puluhan tahun lebih tua dibanding dulu. Kenapa aku masih juga menyimpan
+dendam?" Karena itu ia berkata, "Silakan kau bawa muridmu pergi. Mei Shijie, Shidi ingin pergi ke Pulau Persik untuk
+mengunjungi guru kita yang baik, kamu mau ikut tidak?"
+
+"Kau berani ke situ?" tanya Mei Chaofeng dengan suara gemetar.
+
+"Mengunjungi Pulau Persik tanpa seijin guru adalah sebuah pelanggaran mengingat kita semua sudah diusir. Tetapi setelah
+mendengar omong kosong Qiu Qianren, hatiku gelisah. Aku ingin memastikan Shifu sungguh-sungguh tidak apa-apa. Kalau
+tidak pergi, aku akan merasa dihantui ketidakpastian sepanjang hidupku."
+
+Sebelum Mei Chaofeng bisa menjawab, Huang Rong sudah berkata, "Ayo kita sama-sama pergi, aku akan memohon maaf untuk kalian
+di hadapannya."
+
+Mei Chaofeng terdiam beberapa saat. Dua titik air mata menetes di pipiya. "Aku tak punya muka ketemua dia," katanya.
+"Shifu begitu baik berbelas kasihan kepada anak terlantar seperti aku. Dia mengangkatku menjadi murid dan membesarkan
+aku, tapi hanya karena ambisi liar aku mengkhianati dia..." Tiba-tiba ia mengangkat kepala dan berteriak, "Aku hanya
+ingin membalas dendam suamiku. Setelah itu aku tahu apa yang harus kulakukan. Tujuh Orang Aneh dari Jiangnan... ayo kita
+bereskan urusan kita hari ini. Lu Shidi, Shimei, kalian berdua minggir! Jangan berusaha ikut campur. Tak peduli siapa
+yang hidup atau mati, aku tidak ingin kalian membela pihak mana pun. Mengerti?"
+
+Ke Zhen'E melangkah lebar ke tengah ruangan, tongkat besinya menghantam lantai batu bata dengan keras. Lalu ia bicara
+dengan lantang dengan suaranya yang kasar, "Mei Chaofeng, kau tidak bisa melihatku dan aku juga tidak bisa melihatmu.
+Malam itu ketika kita bertarung di bukit, suamimu tewas secara mengenaskan, tapi saudara kelima kami juga tewas
+di tangan kalian. Kau tidak tahu?"
+
+"Oh, jadi sekarang kalian tinggal berenam?" tanya Mei Chaofeng.
+
+"Kami berjanji kepada pendeta Ma Yu untuk tidak lagi bermusuhan denganmu, tapi ternyata justru engkaulah yang datang
+mencari kami. Bagus! Meskipun dunia ini luas, tapi kita selalu ketemu. Kelihatannya Surga tidak mengijinkan kami berenam
+hidup bersama denganmu di dunia ini. Ayo!" kata Ke Zhen'E dengan dingin.
+
+Mei Chaofeng mendengus. "Kalian berenam boleh maju bersama." katanya dengan nada sedingin es.
+
+Zho Cong dan keempat orang lainnya berdiri di dekatnya dengan senjata di tangan, waspada terhadap serangan kilat 
+Mei Chaofeng.
+
+Tiba-tiba Guo Jing melangkah maju. "Biar muridmu yang melawannya dulu," karanya.
+
+Lu Chengfeng dalam situasi sulit. Ia mendengar tantangan Mei Chaofeng dan Keenam Orang Aneh itu menerimanya. Ia tak
+tahu bagaimana harus menengahi. Ia benci sekali merasa tidak punya otoritas maupun pengaruh apa-apa terhadap mereka.
+Tetapi mendengat ucapan Guo Jing, mendadak sebuah gagasan melintas di benaknya. "Kedua pihak tolong tahan dulu. Tolong
+dengarkan kata-kata adikmu ini. Meskipun Mei Shijie dan Enam Orang Aneh dari Jiangnan punya permusuhan yang dalam,
+tetapi kedua pihak sudah menderita hehilangan yang sangat menyedihkan. Menurut pendapatku tidak perlu lagi ada pertumpahan
+darah. Biarlah pertarungan hari ini hanya untuk menentukan siapa yang kalah dan menang. Jangan lagi memperdalam
+permusuhan. Meskipun Enam Orang Aneh selalu menghadapi musuh bersama, tetapi tetaplah masih enam lawan satu, yang
+menurutku tidak adil. Mengapa Mei Shijie tidak mengajarkan beberapa jurus kepada adik Guo?"
+
+Mei Chaofeng mendengus dan berkata. "Bagaimana aku bisa melawan anak muda yang tak dikenal?"
+
+"Suamimu tewas di tanganku, apa hubungannya dengan guru-guruku?" kata Guo Jing.
+
+Mei Chaofeng murka. Ia melompat dan berteriak, "Betul sekali! Aku akan membunuhmu dulu, bajingan kecil!" Dengan 
+mendengarkan ia tahu posisi lawan. Ia mengulurkan tangannya ke arah batok kepala Guo Jing.
+
+Guo Jing melompat untuk menghindari serangannya. "Mei Qianbei," serunya. "Aku masih kecil dan tidak mengerti waktu
+itu, dan tidak sengaja membunuh suamimu. Tapi orang harus bertanggungjawab atas tindakannya sendiri. Kalau hari ini 
+kau ingin membunuhku, aku tidak akan lari. Tapi apakah Qianbei masih akan terus mengejar guru-guruku setelah itu?"
+Ia sadar bahwa ia bukan tandingan Mei Chaofeng dan siap mati di tangannya, tapi ia sudah bertekad untuk melindungi
+semua gurunya dengan segala cara yang bisa dilakukannya.
+
+"Kau sungguh tidak akan lari?" tanya Mei Chaofeng.
+
+"Tidak!" jawab Guo Jing.
+
+"Bagus!" kata Mei Chaofeng. 'Aku akan menghapus semua hutang Enam Orang Aneh! Anak baik, ayo ikut aku!"
+
+Tiba-tiba Huang Rong berseru, "Mai Shijie, dia laki-laki sejati. Sebaliknya, kau akan jadi bahan tertawaan semua
+pendekar di Jianghu!"
+
+"Bagaimana bisa begitu?" tanya Mei Chaofeng marah.
+
+"Dia pewaris tunggal ilmu [Jiangnan Qi Guai](#jiangnanqiguai "Tujuh Orang Aneh dari Jiangnan")," jelas Huang Rong.
+"Kungfu Enam Orang Aneh dari Jiangnan yang sekarang tidak bisa dibandingkan dengan kungfu mereka yang dulu. Akan
+sangat mudah kalau mereka ingin mencabut nyawamu. Tapi mereka memaafkanmu. Tak hanya itu, mereka bahkan memberimu
+muka. Justru kaulah yang tidak bisa membedakan mana yang baik, dan kau masih membanggakan diri?"
+
+"Apa aku minta maaf kepada mereka? Bah!" Mei Chaofeng sangat marah. "Enam Orang Aneh, kungfu kalian maju pesat ya?
+Mau menjajal aku?"
+
+"Buat apa mereka melawanmu? Bahkan murid mereka pun belum tentu kalah melawanmu!" kata Huang Rong.
+
+Mei Chaofeng begitu marahnya sampai nyaris menjerit. "Kalau aku tidak bisa membunuhnya dalam tiga jurus, aku akan
+bunuh diri di sini sekarang juga!" Ia sudah pernah melawan Guo Jing di istana Zhao, dan mengira ia tahu persis
+sejauh mana tingkat kungfunya. Yang tidak diketahuinya adalah Guo Jing selama beberapa bulan ini sudah digembleng
+oleh Si Dewa Pengemis Sembilan Jari, Hong Qigong. Kungfunya yang sekarang sama sekali tidak bisa disamakan dengan yang
+ditemui Mei Chaofeng saat itu.
+
+"Bagus!" kata Huang Rong. "Biar semua orang jadi saksi. Tiga jurus terlalu singkat. Biar kita jadikan sepuluh jurus."
+
+"Aku akan melawan Mei Qianbei lima belas jurus," kata Guo Jing. Ia hanya menguasai lima belas dari Delapan Belas
+Jurus Penakluk Naga, jadi ia merasa setidaknya ia bisa bertahan lima belas jurus.
+
+"Mintalah kepada Lu Shige dan tamu yang datang menemanimu untuk mrnjadi saksi," tambah Huang Rong. 
+
+"Siapa yang datang menemaniku?" tanya Mei Chaofeng heran. "Aku datang ke rumah ini sendirian... siapa yang datang bersamaku?"
+
+"Lalu siapa itu yang di belakangmu?" tanya Huang Rong.
+
+Mei Chaofeng mengirimkan serangan mendadak ke belakangnya. Tak seorang pun melihat orang itu bergerak, tetapi serangan
+Mei Chaofeng menghantam angin. Orang itu bergerak seperti hantu, dan yang menakjubkan adalah gerakannya sama sekali
+tanpa suara.
+
+Setelah tiba di Jiangnan, Mei Chaofeng selalu merasa ada orang mengikutinya, tetapi bagaimana pun caranya menyerang atau
+bicara, ia ta pernah mendengar apa pun juga. Ia merasa sepertinya ia sudah kehilangan ingatan, atau itu hantu yang sedang
+menakut-nakutinya. Lalu ia mendengar suara seruling yang mengusir ular, ia jadi yakin bahwa ada seorang berilmu tinggi
+sedang membuntutinya. Ia sudah berusaha untuk menyatakan rasa terima kasihnya ke udara, tetapi tidak terdengar suara
+apa pun juga. Ia menunggu di balik pepohonan, tapi tidak yakin apakah orang itu sudah pergi. Sekarang ia mendengar Huang
+Rong bicara, ia tak bisa lagi menyembunyikan perasaannya.
+
+"Siapa kau?" tanyanya, gemetar. "Apa yang kau inginkan dariku?"
+
+Orang itu tidak menjawab, dan tak seorang pun tahu apakah ia mendengar pertanyaan itu. Mei Chaofeng mendadak menerjang
+ke depan, orang itu kelihatannya tidak bergerak, tetapi sekali lagi Mei Chaofeng menghantam angin. Semua orang terkesiap.
+Mereka belum pernah melihat orang yang kungfunya tak terukur seperti itu.
+
+Lu Chengfeng memberanikan diri bertanya, "Tamu yang terhormat ini datang dari jauh, aku bahkan belum sempat menyambut
+kedatanganmu. Bagaimana kalau kita duduk dan minum bersama?"
+
+Orang itu berpaling, kelihatannya seperti sedang melayang di udara ketika ia berjalan keluar.
+
+Mei Chaofeng mengumpulkan keberaniannya untuk bertanya, "Apakah Qianbei ini orang yang meniup seruling untuk
+membantuku? Mei Chaofeng sungguh sangat berterima kasih."
+
+Semua orang tak bisa menahan kekaguman mereka. Sebagai orang buta, Mei Chaofeng punya pendengaran yang sangat tajam,
+tetapi ia tidak bisa mendengar bahwa orang itu meninggalkan ruangan.
+
+"Mei Shijie, orang itu sudah pergi," kata Huang Rong.
+
+Mei Chaofeng terkejut, "Betulkan? Aku... kenapa aku tidak mendengarnya?"
+
+"Cepat kejar dia, jangan membanggakan diri di sini," kata Huang Rong.
+
+Mei Chaofeng tercengang. Wajahnya sedih, tapi ada semburat kemarahan. Tiba-tiba ia berteriak, "Bocah Guo, terimalah!" 
+Ia mengangkat kedua tangan dengan sepuluh jari terentang, memancarkan aura hijau kebiruan yang menyeramkan di bawah 
+cahaya lilin, tapi ia tidak menyerang.
+
+"Aku di sini," kata Guo Jing.
+
+Saat mendengar kata 'aku', tangan kanan Mei Chaofeng bergerak, diikuti oleh kelima jari tangan kirinya, menyambar
+muka Guo Jing.
+
+Guo Jing melihat kecepatan geraknya, ia memiringkan tubuhnya ke samping sedikit dan mengarahkan telapak tangan kirinya 
+ke arahnya. Mei Chaofeng mendengar suara telapak tangan dan hendak menghindar, tapi ia tidak cukup cepat untuk 
+menghindari gerakan indah Delapan Belas Jurus Penakluk Naga dan bahunya terpukul. Ia terguncang dan terpaksa mundur 
+tiga langkah. Tapi kungfunya tidak lemah. Sambil melangkah mundur ia mengirim kukunya untuk melakukan serangan balik.
+Guo Jing terkejut dan pergelangan tangan kanannya tercekal oleh Mei Chaofeng pada tiga titik akupunktur 
+[Nei Guan](#neiguan "Pintu Dalam"), [Wai Guan](#waiguan "Pintu Luar"), dan [Hui Zong](#huizong "Pertemuan Leluhur"). 
+Guo Jing dengan hati-hati mengindahkan peringatan tuannya, bahwa 'Cakar Tulang Putih Sembilan Yin' Mei Chaofeng [jiu yin bai gu zhua] sangat mematikan; karenanya dia menjaga dirinya dengan hati-hati. Tapi sekarang dia tidak bisa menghindari digenggam oleh jari-jari yang mematikan itu. "Tidak baik!" dia berteriak.
 
 
 ***
@@ -588,6 +766,60 @@ hingga mencapai tingkat sempurna!"
             usia Huang Rong lebih muda.
         </details>
     </dd>
+    <dt id="niubi">Niu Bi (牛鼻)</dt>
+    <dd>
+        Arti literal kedua karakter di atas adalah "Hidung Sapi/Kerbau".
+        Karakter kedua Bi (鼻) di atas barangkali kurang tepat, meskipun kalau dibaca dari terjemahan bahasa Inggris,
+        "Ox-nosed", berarti memang itu. Dalam upaya untuk menemukan apa tepatnya makna istilah ini, saya menemukan
+        sejumlah referensi yang memakai karakter Bi (逼), dan bukan 鼻. Ini jadi sangat membingungkan dan tak terpecahkan
+        sampai sekarang, karena artikel tersebut juga menyebutkan bahwa istilah Bi (鼻) tersebut bukanlah istilah yang
+        pantas/layak diucapkan di depan umum atau di forum yang berbau formal dan sopan, meskipun tidak mengatakan
+        bahwa maknanya jorok atau sebuah makian berbau sex. Artikel itu hanya menyinggung bahwa jika seorang perempuan
+        yang bukan berasal dari <em>mainland</em> pernah menyebutkannya di salah satu media sosial karena kurang mengerti,
+        maka lain kali setelah ia tahu, ia tidak akan pernah lagi memakai istilah itu.
+        Entah yang mana yang benar, tetapi dalam konteks ini keduanya bisa saja benar, karena Huang Rong dan beberapa
+        orang lain, termasuk guru Guo Jing, Zhang Ahsheng, memakainya untuk mengolok-olok Qiu Chuji. Intinya istilah 
+        tersebut memang bukan kata-kata yang baik, dan dipakai sebagai cemoohan.
+    </dd>
+    <dt id="guihua">Gui Hua (桂花)</dt>
+    <dd>
+        Pohon Osmanthus, yang bunganya dicampur dengan teh hitam atau Green Tea bisa dibuat menjadi teh Gui Hua 
+        (Gui Hua Cha, 桂花茶), yang dianggap berkhasiat untuk tubuh.
+    </dd>
+    <dt id="waiguan">Titik Akupuntur Wai Guan (外关)</dt>
+    <dd>
+        Wai Guan kurang lebih berarti "Pintu Luar", titik ini terletak di pergelangan tangan sebelah luar,
+        sekitar tiga jari dari perbatasan telapak tangan.<br/>
+        <a href="https://res.cloudinary.com/drzjshskk/image/upload/v1682256295/misc/waiguan_kbd6ob.png"
+            title="Titik Akupuntur Wai Guan"
+            target="_blank">
+            <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682256295/misc/waiguan_kbd6ob.png"
+                alt="Wai Guan Acupoint">
+        </a>        
+    </dd>
+    <dt id="neiguan">Titik Akupuntur Nei Guan (内关)</dt>
+    <dd>
+        Nei Guan kurang lebih berarti "Pintu Dalam", titik ini terletak di pergelangan tangan sebelah dalam,
+        sekitar tiga jari dari perbatasan telapak tangan.<br/>
+        <a href="https://res.cloudinary.com/drzjshskk/image/upload/v1682256801/misc/neiguan_iefn5h.png"
+            title="Titik Akupuntur Nei Guan"
+            target="_blank">
+            <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682256801/misc/neiguan_iefn5h.png"
+                alt="Nei Guan Acupoint">
+        </a>        
+    </dd>
+    <dt id="huizong">Hui Zong (会宗)</dt>
+    <dd>
+        Nama Hui Zong ini sendiri bisa diartikan "Pertemuan Aliran", barangkali menjelaskan makna titik ini yang 
+        seolah-olah menjadi penghubung beberapa titik akupuntur lain. Perhatikan bahwa letaknya tepat di sebelah Wai Guan
+        Ini bisa membuat orang yang kurang ahli keliru.<br/>
+        <a href="https://res.cloudinary.com/drzjshskk/image/upload/v1682257784/misc/huizong_rev0tv.png"
+            title="Titik Akupuntur Hui Zong"
+            target="_blank">
+            <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682257784/misc/huizong_rev0tv.png"
+                alt="Hui Zong Acupoint">
+        </a>        
+    </dd>
 </dl>
 
 
@@ -612,4 +844,6 @@ hingga mencapai tingkat sempurna!"
 [^tong-shi]: Tong Shi (铜尸) adalah julukan Chen Xuanfeng, yang berarti 'Mayat Tembaga'.
 
 [^lan-hua-fu-xue-shou]: Lan Hua Fu Xue Shou (兰花拂穴手) adalah ilmu totokan khas keluarga Huang Rong yang diajarkan ayahnya. Arti literal dari nama tersebut adalah, Lanhua = Anggrek, Fu = Mengocok, Xue = Titik/Jalan darah, Shou = Tangan. Semuanya bisa diartikan "Ilmu Totokan Anggrek"
+
+[^cambuk-perak]: Cambuk Naga Perak, Du Long Yin Bian (独龙银鞭), yang dipakai sebagai senjata oleh Mei Chaofeng. Bisa disingkat menjadi Cambuk Perak. Karakter "Du" (独) di atas adalah hasil pencarian saya sendiri, kemungkinan salah. Artinya adalah "Tunggal" atau "Single/Alone/Independent". Ini yang paling masuk akal dibandingkan "Du" lainnya. 
 
