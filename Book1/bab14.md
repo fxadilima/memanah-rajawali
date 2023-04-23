@@ -664,7 +664,75 @@ menghindari gerakan indah Delapan Belas Jurus Penakluk Naga dan bahunya terpukul
 tiga langkah. Tapi kungfunya tidak lemah. Sambil melangkah mundur ia mengirim kukunya untuk melakukan serangan balik.
 Guo Jing terkejut dan pergelangan tangan kanannya tercekal oleh Mei Chaofeng pada tiga titik akupunktur 
 [Nei Guan](#neiguan "Pintu Dalam"), [Wai Guan](#waiguan "Pintu Luar"), dan [Hui Zong](#huizong "Pertemuan Leluhur"). 
-Guo Jing dengan hati-hati mengindahkan peringatan tuannya, bahwa 'Cakar Tulang Putih Sembilan Yin' Mei Chaofeng [jiu yin bai gu zhua] sangat mematikan; karenanya dia menjaga dirinya dengan hati-hati. Tapi sekarang dia tidak bisa menghindari digenggam oleh jari-jari yang mematikan itu. "Tidak baik!" dia berteriak.
+Guo Jing ingat peringatan guru-gurunya bahwa Cakar Tengkorak Putih Sembilan Bulan Mei Chaofeng sangat mematikan, 
+karenanya ia selalu waspada. Tapi sekarang ia tidak bisa berkutik dicekal oleh jari-jari maut itu. "Celaka!" teriaknya.
+Seluruh tubuhnya terasa lemas. Pada saat kritis itu ia berhasil menekuk dua jarinya, dan dengan tangan membentuk 
+setengah telapak tangan ia memukul Mei Chaofeng. Itu adalah Naga Terpendam Tidak Berguna[^qianlongwuyong]...
+Seharusnya diikuti oleh _hook_ kirinya – jurus brilian yang sulit untuk dilawan, tapi karena pergelangan tangan kirinya 
+berada dalam cekalan musuh, ia hanya bisa meluncurkan setengah jurus. Meskipun begitu, Delapan Belas Jurus Penakluk Naga
+memang luar biasa, bahkan setengah jurus pun tidak bisa diremehkan.
+
+Mei Chaofeng mendengar hembusan angin kuat yang dihasilkan oleh gerakan setengah telapak-setengah tinju ini. Ia tidak 
+berani menangkis tetapi mencoba menghindarinya. Tetap saja bahunya terpukul sangat keras dan ia terpaksa melepaskan Guo Jing.
+
+Ketika Guo Jing berjuang untuk membebaskan diri, ia menarik tangannya dengan keras, jadi ketika tangannya tiba-tiba bebas,
+kedua orang itu terlempar ke belakang dan masing-masing menabrak pilar. Atap berguncang dan batu bata, batu, dan debu jatuh 
+ke aula. Orang-orang rumah menjerit dan berlari untuk menyelamatkan diri.
+
+Enam Orang Aneh dari Jiangnan saling memandang dengan takjub tetapi juga terkejut. "Dari mana Jing'er belajar kungfu ini?" 
+tanya mereka dalam hati. Han Baoju memandang Huang Rong dengan curiga, pikirnya gadis cilik itulah yang mengajar Guo Jing 
+dan diam-diam merasa kagum, "Kungfu Pulau Bunga Persik sungguh luar biasa."
+
+Saat ini Guo Jing dan Mei Chaofeng terlibat dalam pertarungan sengit. Telapak tangan, tinju, dan cakar saling beradu. 
+Mei Chaofeng sangat marah dan ia bertarung dengan penuh semangat. Guo Jing tenang tapi gesit. Keduanya mengerahkan 
+segenap kekuatan mereka, aula dipenuhi suara pukulan mereka.
+
+Tiba-tiba Mei Chaofeng melompat tinggi, serangannya sepertinya datang dari segala penjuru, satu demi satu, terus berubah. 
+Guo Jing tahu serangan ini ganas dan ia akan kalah jika ia lengah dalam pertahanan. Ia ingat pelajaran dari Hong Qigong
+tentang bagaimana menangani Telapak Pedang Dewa Bunga Persik[^tao-hua-shen-jian-zhang] milik Huang Rong. Tidak peduli 
+seberapa banyak perubahan yang dilakukan lawannya, ia terus menggunakan lima belas gerakan dari Delapan Belas Jurus 
+Penakluk Naga, dan berusaha melakukan setiap gerakan dengan secermat mungkin.
+
+Dengan mengulangi lima belas jurus tersebut, ia mampu bertahan hingga empat sampai lima puluh jurus, tanpa memberikan
+ruang sejengkal pun bagi Mei Chaofeng untuk berkembang.
+
+Huang Rong menatap Jing Gege-nya dengan senyum di wajahnya yang cantik. Enam Orang Aneh berdiri diam dengan takjub,
+kadang-kadang mendecakkan lidah memuji Guo jing. Lu Chengfeng dan putranya hanya bisa menonton dengan cemas.
+
+"Kungfu Mei Shijie sudah maju pesat," pikir Lu Chengfeng. "Jika aku harus melawannya, aku pasti akan kehilangan nyawaku 
+hanya dalam sepuluh jurus... Adik Guo yang masih bocah ini, bagaimana dia bisa menguasai kungfu yang begitu mendalam di
+usianya yang begitu muda? Aku benar-benar buta.. Untungnya aku tidak ceroboh atau sembarangan, tetapi memperlakukannya 
+dengan sopan dan hormat."
+
+Wanyan Kang juga kesal. "Aku harus melawan orang ini, dengan kungfunya yang seperti ini. Bagaimana aku bisa menang?"
+
+"Mei Shijie, kau telah bertarung lebih dari delapan puluh jurus. Kenapa tidak mengaku kalah?" Huang Rong berseru keras-keras. Sebenarnya mereka baru bertarung sekitar enam puluh jurus, tapi ia melebih-lebihkan dengan menambahkan dua puluh jurus lagi.
+
+Mei Chaofeng makin marah. "Aku sudah keras selama puluhan tahun tetapi tidak dapat mengatasi anak ini?" pikirnya. 
+Ia mengabaikan ucapan Huang Rong dan meningkatkan kecepatan serangannya. Sebenarnya kungfunya jauh lebih baik 
+daripada Guo Jing, tetapi pertama ia sudah di bawah angin karena buta, dan kedua ia tidak dapat berpikir jernih 
+karena hatinya dipenuhi amarah dalam usahanya membalas dendam untuk suaminya. Kemarahan adalah tabu besar dalam 
+pertarungan antara dua ahli seni bela diri. Ketiga Guo Jing memiliki keuntungan dari tenaga seorang anak muda, 
+ditambah lagi ia telah menguasai sebagian besar Delapan Belas Jurus Penakluk Naga. Oleh karena itu pertarungan 
+antara keduanya sangat sengit dan berimbang.
+
+Setelah sekitar seratus jurus, Mei Chaofeng mulai mengenali dan menjadi terbiasa dengan lima belas jurus andalan Guo Jing.
+Ia tahu garis pertahanan Guo Jing sangat tangguh, ia bisa merasakan angin dari jarak lebih dari sepuluh kaki. Tapi ia 
+juga tahu bahwa melakukan Delapan Belas Jurus Penakluk Naga itu membutuhkan banyak energi, dan tenaga dalamnya 
+lebih kuat daripada Guo Jing. Oleh karena itu Mei Chaofeng mengubah taktiknya dan berusaha menguras tenaga Guo Jing. 
+Ia menggunakan Jiu Yin Baigu Zhua dan [Telapak Penghancur Sukma](#cui-xin-zhang "Telapak Penghancur Sukma (Cui Xin Zhang)") 
+secara bergantian.
+
+Huang Rong tahu jika pertarungan ini diperpanjang lagi, Guo Jing akan menderita kekalahan. "Mei Shijie, ini lebih dari
+seratus jurus dan dengan cepat akan mencapai jurus ke dua ratus. Kau masih tidak mau mengaku kalah?" serunya. Tapi Mei 
+Chaofeng menutup telinga dan meningkatkan intensitas serangannya.
+
+Tiba-tiba Huang Rong mendapat ide; dia melompat ke pilar terdekat dan berseru, "Jing Gege, lihat aku!" Guo Jing mengirimkan
+dua jurus berturut-turut, [Manfaat Mengarungi Sungai Besar](#li-she-da-chuan "Dikutip dari Literatur Dinasti Zhou") dan 
+[Pelan-pelan Maju Ke Tanah Kering](#hong-jian-yu-lu), dan berhasil mendorong Mei Chaofeng ke belakang cukup jauh sehingga
+ia bisa mengalihkan pandangannya ke Huang Rong. Ia melihatnya berlari di sekitar pilar dan membuat isyarat tangan, 
+tetapi ia tidak mengerti apa maksudnya. Maka Huang Rong berteriak lagi, "Bertarung di sini!"
+
 
 
 ***
@@ -820,6 +888,46 @@ Guo Jing dengan hati-hati mengindahkan peringatan tuannya, bahwa 'Cakar Tulang P
                 alt="Hui Zong Acupoint">
         </a>        
     </dd>
+    <dt id="cui-xin-zhang">Cui Xin Zhang (摧心掌)</dt>
+    <dd>
+        Ilmu yang didapat dari mempelajari Jiu Yin Zhen Jing dengan cara yang agak sesat, dipraktekkan oleh Chen Xuanfeng,
+        dan diajarkannya kepada Mei Chaofeng juga. Secara literal ketiga karakter tersebut bermakna sbb:
+        <ul>
+            <li>Cui (摧) = Menghancurkan/Mematahkan</li>
+            <li>Xin (心) = Hati/Perasaan</li>
+            <li>Zhang (掌) = Telapak</li>
+        </ul>
+        Dengan demikian secara keseluruhan masih masuk akal kalau kita terjemahkan menjadi 'Telapak Penghancur Sukma'.
+    </dd>
+    <dt id="hong-jian-yu-lu">Hong Jian Yu Lu (鴻漸于陸)</dt>
+    <dd>
+        Ini sebenarnya adalah sebuah kutipan dari literatur kuno, era Dinasti Zhou, yang dikenal sebagai Zhouyi, atau
+        Perubahan Zhou. Sama seperti Li She Da Chuan.
+        <blockquote>
+            鴻漸于陸，	Hong jian yu lu,
+            夫征不復，	fu zheng bu fu,
+            婦孕不育。	fu yun bu yu.
+        </blockquote>
+        Kira-kira bisa diterjemahkan menjadi ungkapan berikut:
+        <blockquote>
+        Pelan-pelan maju ke tanah kering.
+        Seorang suami pergi tidak kembali, 
+        dan seorang istri yang hamil tetapi tidak mau menyusui anaknya.
+        </blockquote>
+    </dd>
+    <dt id="li-she-da-chuan">Li She Da Chuan (利涉大川)</dt>
+    <dd>
+        Sama seperti di atas, ungkapan ini juga adalah bagian dari literatur jaman Dinasti Zhou, yaitu salah satu kutipan
+        mengenai karakter Li (利). Karakter tersebut adalah karakter gabungan, yaitu dari He (禾), yang berarti
+        biji-bijian atau Grain/Cereal, dan Dao (刂 dalam perkembanganmenjadi 刀), yang artinya Pisau. Dengan demikian
+        kelihatannya Li mula-mula punya makna 'Tajam'. Tetapi dengan segera makna ini bergeser menjadi Keuntungan, atau
+        Menguntungkan, Benefit/Favorable. Akhirnya di dalam literatur-literatur, Li lebih sering punya makna ini, meskipun
+        ada filsuf yang kurang menyukainya, karena ada semacam makna merendahkan dalam makna 'Keuntungan' atau Profit.
+        Di dalam Zhouyi, karakter Li banyak dipakai untuk memberikan semacam nasihat kepada pembaca, dan salah satu kutipan
+        yang sering dipakai adalah "Li She Da Chuan", yang kira-kira bisa diartikan 'Sangat berguna mengarungi sungai besar'.
+        'Beneficial to ford a great river'. Kalau kita pakai untuk menggambarkan sebuah gerakan ilmu bela diri, kelihatannya
+        memang lebih baik disingkat menjadi 'Keuntungan Mengarungi Sungar Besar', atau bahkan 'Mengarungi Sungai besar'.
+    </dd>
 </dl>
 
 
@@ -846,4 +954,9 @@ Guo Jing dengan hati-hati mengindahkan peringatan tuannya, bahwa 'Cakar Tulang P
 [^lan-hua-fu-xue-shou]: Lan Hua Fu Xue Shou (兰花拂穴手) adalah ilmu totokan khas keluarga Huang Rong yang diajarkan ayahnya. Arti literal dari nama tersebut adalah, Lanhua = Anggrek, Fu = Mengocok, Xue = Titik/Jalan darah, Shou = Tangan. Semuanya bisa diartikan "Ilmu Totokan Anggrek"
 
 [^cambuk-perak]: Cambuk Naga Perak, Du Long Yin Bian (独龙银鞭), yang dipakai sebagai senjata oleh Mei Chaofeng. Bisa disingkat menjadi Cambuk Perak. Karakter "Du" (独) di atas adalah hasil pencarian saya sendiri, kemungkinan salah. Artinya adalah "Tunggal" atau "Single/Alone/Independent". Ini yang paling masuk akal dibandingkan "Du" lainnya. 
+
+[^qianlongwuyong]: Istilah Qian Long Wu Yong (潜龙勿用) _barangkali_ bisa kita terjemahkan menjadi 'Naga Terpendam Tidak Berguna'. Karena Qian Long adalah Naga Terpendam, sedangkan Wu Yong di situ berarti 'Jangan Digunakan'.
+
+[^tao-hua-shen-jian-zhang]: Tao Hua Shen Jian Zhang (桃花神剑掌), ilmu silat khas Pulau Persik yang diajarkan Huang Yaoshi. Ilmu ini menggunakan tangan kosong, tetapi seolah-olah tangan tersebut bertindak sebagai pedang.
+
 

@@ -299,6 +299,29 @@ Berarti istilah "Niu Bi" yg dipakai Huang Rong dan 7 Orang Aneh itu sebetulnya e
 tapi blm tentu "Bi" itu karakter yg sama dengan "Sapi".
 
 
+## Karakter Li (利)
+
+[Reference](https://brill.com/display/book/9789004513945/BP000009.xml?rskey=N2QmxE&result=10)
+
+The word li 利 is one of the most common words in the Zhou Changes, occurring 119 times. A “conjoined meaning” character (huiyizi 會意字) composed of a “stalk of grain” (禾) and a knife (刂, i.e., 刀), li seems originally to have meant “sharp.” However, it soon took on the sense of “benefit, favorable,” in which sense it is used throughout all Chinese literature, even though some philosophers regarded the word negatively, akin to pejorative senses of “profit.” In the Zhou Changes, li introduces many formulaic phrases that are understood to be advice to the user or reader:
+
+(bu) li you you wang (不)利有攸往 “(not) beneficial to have somewhere to go” (12×)29
+**li she da chuan** 利涉大川 “beneficial to ford a great river” (10×)30
+li jian da ren 利見大人 “beneficial to see a great person” (7×)
+li jian hou 利建侯 “beneficial to establish a lord” (3×)
+li yu kou 利禦冦 “beneficial to drive off bandits” (2×)
+There are also seventeen similar phrases of advice that occur only once. The following is but a sampling of these phrases.
+
+li yong xing ren 利用刑人 “beneficial to use a punished person”
+li yong qin fa 利用侵伐 “beneficial herewith to invade and attack”
+li yong xing shi zheng bang 利用行師征邦 “beneficial herewith to set in motion an army and campaign against a country”31
+li yong xiang si 利用享祀 “beneficial herewith to offer and sacrifice”
+These phrases all share the same grammatical structure, in which li functions as a predicate-complement followed by a main verb. Two other formulas in which li occurs frequently also show it to function as a predicate:
+
+wu you li 无攸利 “nothing for which it benefits” (10×)
+wu bu li 无不利 “nothing not beneficial” (13×)
+The negative bu 不 always negates verbs, while you 攸 is the standard pre-verbal object substitute of early archaic Chinese, which later came to be replaced by the word suo 所. In both of these expressions, li must be understood as a verb; i.e., “it benefits to do something; beneficial to do something.” Thus, in all of these uses, li is understood by everyone to mean something like “it benefits” to do something.32
+
 
 
 
