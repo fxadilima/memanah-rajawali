@@ -708,7 +708,7 @@ Wanyan Kang juga kesal. "Aku harus melawan orang ini, dengan kungfunya yang sepe
 
 "Mei Shijie, kau telah bertarung lebih dari delapan puluh jurus. Kenapa tidak mengaku kalah?" Huang Rong berseru keras-keras. Sebenarnya mereka baru bertarung sekitar enam puluh jurus, tapi ia melebih-lebihkan dengan menambahkan dua puluh jurus lagi.
 
-Mei Chaofeng makin marah. "Aku sudah keras selama puluhan tahun tetapi tidak dapat mengatasi anak ini?" pikirnya. 
+Mei Chaofeng makin marah. "Aku sudah latihan keras selama puluhan tahun tetapi tidak dapat mengatasi anak ini?" pikirnya. 
 Ia mengabaikan ucapan Huang Rong dan meningkatkan kecepatan serangannya. Sebenarnya kungfunya jauh lebih baik 
 daripada Guo Jing, tetapi pertama ia sudah di bawah angin karena buta, dan kedua ia tidak dapat berpikir jernih 
 karena hatinya dipenuhi amarah dalam usahanya membalas dendam untuk suaminya. Kemarahan adalah tabu besar dalam 
