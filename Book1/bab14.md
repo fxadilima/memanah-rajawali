@@ -798,7 +798,7 @@ darah perlahan berubah menjadi hitam. Ia tiba-tiba teringat saat mendaki bukit i
 dan melihat sembilan tengkorak yang ditinggalkan Mei Chaofeng. Pendeta Ma Yu telah memberitahu bahwa kuku 
 Mei Chaofeng mengandung racun yang mematikan, dan ia segera tahu bahwa hidupnya dalam bahaya besar.
 
-"Rong'er, aku kena racun!" serunya. Tanpa menunggu respon Huang Rong ia langsung melompat ke depan dan 
+"Rong'er, aku kena racun!" serunya. Tanpa menunggu jawaban Huang Rong ia langsung melompat ke depan dan 
 melepaskan pukulan kedua telapak tangannya ke arah Mei Chaofeng. Niatnya adalah untuk menangkapnya dan 
 memaksanya menyerahkan penawar racun. Itu satu-satunya kesempatan untuk bertahan hidup.
 
@@ -810,7 +810,7 @@ diikuti oleh Huang Rong dan Lima Orang Aneh lainnya melompat ke depan dan mengep
 
 Mei Chaofeng merasa serangan Guo Jing sangat cepat dan berbahaya, ia tidak berani mengambil resiko kehilangan
 konsentrasinya dengan menjawab Huang Rong. Dalam hati ia senang. "Semakin banyak tenaga yang kau keluarkan,
-makin cepat racun itu bereaksi. Kalau pun aku harus mati sekarang dan di sini, setidaknya aku sudah membalas
+semakin cepat racun itu bereaksi. Kalau pun aku harus mati sekarang dan di sini, setidaknya aku sudah membalas
 dendam suamiku!"
 
 Guo Jing merasa pandangannya kabur, kepalanya pening dan seluruh tubuhnya terasa lemah. Ketika ia berangsur-angsur
