@@ -54,6 +54,10 @@ Gege (哥哥) = Koko (kakak laki-laki).
 
 Diē (爹, dibaca: Tiē) = 'Ayah'.
 
+Shi Bo (師伯) = Paman/Bibi guru, yang lebih tinggi tingkatnya daripada sang guru.
+Shi Su (師叔) = Paman/Bibi guru, yang lebih rendah tingkatnya daripada sang guru.
+
+
 Zai Xia (载下) = istilah dalam bentuk orang ketiga tunggal untuk diri sendiri,
 umumnya dipakai untuk merendahkan diri. 
 
@@ -171,7 +175,15 @@ Jiang Cheng Fei Hua = Diterjemahkan menjadi River Town Flying Blossom
 
 Wu Gong (武功) = Ilmu silat.
 
-Di Zi (弟子, dibaca: 'teecu', menurut gaya Kho Ping Hoo)
+Di Zi (弟子, dibaca: 'teecu', menurut gaya Kho Ping Hoo), atau bisa jadi
+Tu Di (徒弟), yang justru dibaca "Du Ti", atau malah "Tu'er" seperti istilah yang dipakai Zhang Cuisan di hadapan 
+Zhang Sanfeng.
+
+Tai (太) = Very/Sangat/Overly/Too, pendeknya "Maha"
+Tai (台) = Menara/Tower/
+Sedangkan Shifu (师傅) atau (师父) artinya "Guru"
+Tai Shifu (太师父) seharusnya "Mahaguru"
+
 
 Nu Da Wang (Raja Besar Perempuan), di sini istilah 'Da Wang' yang secara literal berarti 'Raja Besar' biasa dipakai orang
 untuk memanggil seorang Kepala Perampok, sedangkan 'Nu' artinya adalah 'Perempuan'. 

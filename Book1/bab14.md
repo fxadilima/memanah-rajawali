@@ -819,7 +819,7 @@ Huang Rong melihatnya linglung dan berseru, "Jing Gege, mundur!" Sambil mengelua
 melompat ke arah Mei Chaofeng.
 
 Guo Jing mendengar panggilannya dan semangatnya bangkit. Ia mengirimkan telapak tangan kirinya menggunakan jurus
-ke sebelas dari Delapan Belas Jurusk Penakluk Naga, [Bangkit Mendadak](#tu-ru-qi-lai "Tu Ru Qi Lai (突如其来)"), hanya saja,
+ke sebelas dari Delapan Belas Jurus Penakluk Naga, [Bangkit Mendadak](#tu-ru-qi-lai "Tu Ru Qi Lai (突如其来)"), hanya saja,
 lengannya bergerak lebih lambat dari seharusnya.
 
 Huang Rong, Han Baoju, Nan Xiren dan Quan Jinfa bergerak serempak untuk menyerang Mei Chaofeng, tetapi melihat 
@@ -870,12 +870,257 @@ ditaburkan ke lukanya. Ini _memang_ obat penawarnya."
 
 Mei Chaofeng mendengar percakapan mereka dan segera menyadari apa yang terjadi. Dengan marah ia melompat ke arah mereka. 
 Ke Zhen'E mengayunkan tongkat besinya untuk memblokirnya, dibantu oleh 
-[Cambuk Naga Emas](#jin-long-bian "Jin Long Bian (金龙鞭)")
-milik Han Baoju, [Timbangan](#cheng-gan "Cheng Gan (秤杆)") milik Quan Jinfa, dan 
-[Pikulan Baja Murni](#chun-gang-bian-dan "Chun Gang Bian Dan adalah tongkat pikulan yang terbuat dari baja murni (纯钢扁担),yang sangat berat.") 
-milik Nan Xiren. Mei Chaofeng segera mengambil 
+[Cambuk Naga Emas](#jin-long-bian "Jin Long Bian (金龙鞭)") milik Han Baoju, 
+[Timbangan](#cheng-gan "Cheng Gan (秤杆)") milik Quan Jinfa, dan 
+[Pikulan Baja Murni](#chun-gang-bian-dan "Chun Gang Bian Dan adalah tongkat pikulan yang terbuat dari baja murni (纯钢扁担),yang sangat berat.") milik Nan Xiren. 
+Mei Chaofeng segera mengambil 
 Cambuk Naga Perak dari pinggangnya, tetapi tiba-tiba mendengar hembusan angin dari pedang yang datang ke arahnya. 
 Han Xiaoying menyerang dengan Ilmu Pedang Nona Yue. Ia terpaksa menangkis serangan ini terlebih dahulu.
+
+Sementara itu Zhu Cong memberikan penawar itu kepada Huang Rong. "Suruh dia menelan sebagian, lalu taburkan di lukanya," 
+katanya. Kemudian ia memasukkan belati yang diambil dari Mei Chaofeng ke dalam saku Guo Jing. "Belati ini milikmu," 
+katanya. Bergabung dengan saudara-saudaranya, ia mengangkat kipas besinya untuk menyerang Mei Chaofeng. Mereka berenam 
+telah berlatih keras selama sepuluh tahun terakhir ini kungfu mereka telah maju secara signifikan. Oleh karena itu, 
+pertempuran ini jauh lebih sengit daripada pertempuran di bukit tandus Mongolia itu.
+
+Lu Chengfeng dan putranya takjub menyaksikan pertempuran sengit ini. "Kungfu Mei Chaofeng tidak diragukan lagi cepat, 
+ganas, dan kejam, tetapi Enam Orang Aneh dari Jiangnan ini benar-benar sesuai dengan nama mereka," pikir mereka. 
+"[Gewei](#gewei "Saudara-saudara sekalian"), tolong hentikan! Tolong dengarkan aku!" teriak Lu Chengfeng keras-keras. 
+Tapi kedua belah pihak sedang bertarung dengan sengit, tak seorang pun punya waktu untuk mendengarkannya.
+
+Tidak lama setelah minum penawar racunnya, kesadaran Guo Jing berangsur-angsur pulih. Racun itu menyerang dengan cepat, 
+tetapi penawarnya juga menetralkannya dengan cepat. Lukanya masih sakit, tapi ia bisa menggerakkan lengan kirinya. 
+Setelah meletakkan belati itu, ia segera melompat dan bergabung kembali dalam pertempuran. Belajar dari kesalahan 
+sebelumnya, ia mulai perlahan dan ketika telapak tangannya hampir menyentuh tubuh Mei Chaofeng, ia menambahkan 
+lebih banyak tenaga. Jurus yang dipakainya adalah [Guncangan Ratusan Li](#zhen-jing-bai-li "Zhen Jing Bai Li (震惊百里)"). 
+Mei Chaofeng sibuk menangkis penyerangnya dan tidak bisa mendengar datangnya telapak tangan Guo Jing. Ia 
+tiba-tiba terpukul dan langsung jatuh tepat pada saat cambuk Han Baoju dan tiang pikulan Nan Xiren menimpanya.
+
+Guo Jing membungkuk dan menangkis kedua senjata itu, "San Shifu, Si Shifu! Tolong tunjukkan belas kasihan!" teriaknya. 
+Kedua Orang Aneh itu menurutinya, diikuti saudara-saudara mereka lainnya.
+
+Mei Chaofeng berdiri dan bersiap untuk bertarung lagi. Sadar bahwa kungfu Guo Jing sangat hebat dan ia tidak bisa melihat,
+ia mengambil Cambuk Naga Perak dan memasang kuda-kuda. Guo Jing tidak bergerak, "Kami tidak akan melawanmu lagi. Kau 
+bebas pergi!" teriaknya.
+
+Mei Chaofeng menyinpan cambuknya dan berkata, "Tolong kembalikan kitabku." Zhu Cong bingung. "Aku tidak mengambil kitabmu,"
+katanya. "Kau tahu Tujuh Orang Aneh tidak pernah berbohong." Ia tidak menyadari bahwa kulit yang membungkus belati itu 
+adalah Jiu Yin Zhen Jing.
+
+Mei Chaofeng tahu bahwa meskipun Tujuh Orang Aneh dari Jiangnan punya permusuhan yang mendalam terhadapnya, mereka 
+selalu bersungguh-sungguh dengan apa yang mereka katakan dan tidak pernah menipu siapa pun. Ia pikir kitab itu pasti 
+jatuh tercecer saat ia berkelahi melawan Guo Jing beberapa saat yang lalu. Jadi ia membungkuk dan meraba-raba di 
+tanah mencarinya. Tapi tentunya usaha itu sia-sia.
+
+Pemandangan seorang wanita buta yang meraba-raba tanah sungguh menyayat hati. Lu Chengfeng segera memberi tahu putranya,
+"Guanying, bantu [Mei Shibo](#shibo "梅師伯, Bibi Guru Mei") untuk mencari." Tetapi di dalam hatinya ia berpikir bahwa 
+kitab itu adalah milik gurunya, oleh karena itu, kitab itu harus dikembalikan kepada gurunya. Ia pura-pura batuk untuk 
+memberi isyarat kepada putranya dan Lu Guanying mengerti. Ia mengangguk. Guo Jing juga melihat-lihat, tapi tentu saja
+ia tidak akan menemukannya, padahal kitab yang dicari ada di dalam sakunya bersama belatinya.
+
+"Mei Shijie, kitabmu tidak ada disini," kata Lu Chengfeng. "Mungkin tercecer di parjalananmu menuju ke sini."
+
+Mei Chaofeng tidak menjawab, ia masih terus meraba-raba. Tiba-tiba mata semua orang kabur ketika pria berjubah hijau 
+itu muncul kembali di samping Mei Chaofeng. Gerakannya begitu cepat sehingga tidak ada yang melihat apa pun saat 
+tubuh Mei Chaofeng terangkat dari tanah dan sesaat kemudian mereka berdua lenyap, menghilang di antara pepohonan 
+di luar aula. Kungfu Mei Chaofeng sangat tinggi, namun pria itu menangkapnya tanpa usaha apapun. Mereka saling 
+pandang dengan heran. Kungfu orang ini sungguh tidak bisa dipercaya.
+
+Aula itu sunyi, hanya suara ombak danau yang menyapu pantai di kejauhan bisa terdengar. Beberapa saat kemudian 
+Ke Zhen'E memecahkan keheningan. "Muridku yang masih muda berkelahi dengan wanita jahat itu dan merusak rumahmu. 
+Aku merasa sangat tidak enak."
+
+"Wah, aku tidak berani mengeluh," jawab Lu Chengfeng. "Enam Orang Aneh dan Pendekar Guo sudi hadir di tempat kami 
+hari ini merupakan suatu kehormatan bagi kami semua. Tidak perlu disebutkan lagi bahwa kalian telah membantu 
+keluargaku lolos dari bencana. Pendekar Ke bilang begitu, bukankah itu akan membuat kita jadi seperti orang asing?"
+
+"Aku mengundang para pendekar semua untuk beristirahat di aula," kata Lu Guanying. "Kakak Guo, kau masih sakit?"
+
+"Aku tidak apa-apa," jawab Guo Jing. Saat itu orang berjubah hijau kembali bersama Mei Chaofeng. Mereka berdiri 
+di depan aula. Mei Chaofeng meletakkan tangan di pinggangnya dan berteriak, "Bocah Guo! Kau menggunakan 
+kungfu Hong Qigong, Delapan Belas Jurus Penakluk Naga untuk melawanku. Aku buta dan tidak bisa melihat gerakanmu. 
+Mei Chaofeng tidak peduli urusan hidup atau mati, menang atau kalah, tetapi jika masalah ini tersebar di dunia 
+Jianghu, bukankah reputasi guruku di Pulau Bunga Persik akan hancur? Ayo kita mulai lagi!"
+
+"Aku bukan tandinganmu," kata Guo Jing mengaku. "Aku mengambil keuntungan dari kebutaanmu untuk menyelamatkan
+nyawaku. Sebelum ini aku sudah mengaku kalah."
+
+"Delapan Belas Jurus Penakluk Naga terdiri dari delapan belas jurus," lanjut Mei Chaofeng. "Kenapa kau hanya
+memakai sebagian?"
+
+"Karena aku tidak pintar..." jawab Guo Jing. Huang Rong memberi isyarat supaya ia tidak membocorkan rahasianya
+sendiri. Tapi Guo Jing melanjutkan, "... karena itu Hong Lao Qianbei hanya mengajarkan lima belas jurus."
+
+"Bagus sekali!" kata Mei Chaofeng. 'Kau hanya tahu lima belas jurus, tapi sudah mengalahkan aku. Masa Si Tua Hong Qigong
+itu sehebat itu? Tidak! Aku tidak bisa terima ini! Ayo kita mulai lagi!"
+
+Semua orang merasa heran, tampaknya Mei Chaofeng kembali bukan untuk membalas dendam, tapi untuk memperdebatkan 
+reputasi Huang Yaoshi dan Hong Qigong.
+
+Guo Jing tetap tenang. "Nona Huang Rong jauh lebih muda dari aku, tapi aku bukan tandingannya, bagaimana aku bisa
+menandingimu?" katanya. "Aku selalu mengagumi kungfu para pendekar Pulau persik."
+
+"Mei Shijie," sela Huang Rong. "Kau ini ngomong apa sih? Siapa di dunia ini yang bisa menandingi kungfu ayah?"
+
+"Aku tetap harus melawannya lagi!" Mei Chaofeng bersikeras. Tanpa menunggu jawaban Guo Jing, ia merentangkan
+cakarnya ke arah Guo Jing. Guo Jing tidak bisa menunggu lagi, ia buru-buru berkelit. "Kalau begitu," katanya. "aku
+mohon supaya Qianbei memberiku pelajaran." Lalu ia melancarkan serangan balasan yang dahsyat.
+
+Mei Chaofeng menangkis dengan membalikkan telapak tangannya. "Pakai jurusmu yang lambat dan tenang seperti sebelumnya,
+kau bukan tandinganku kalau memakai jurus seperti ini."
+
+Guo Jing melompat mundur beberapa langkah dan berkata, "Mata guruku yang pertama, Ke Da Shifu, tidak sempurna. Aku 
+benci sekali kalau ada orang mengejeknya dengan gerakan yang tanpa suara dan lamban. Bagaimana aku bisa menggunakan 
+gerakan lamban untuk melawanmu? Saya terluka oleh racunmu dan pada saat kritis itu aku secara tidak sengaja 
+menggunakan gerakan lamban. Kalau kita bertarung dengan adil dan jujur, terus terang aku bukan tandinganmu."
+
+Mei Chaofeng bisa mendengar ketulusan dalam suaranya, hatinya tergerak oleh haru. "Anak ini baik hati," pikirnya. 
+Tapi ia berteriak, "Aku menyuruhmu menggunakan jurus lambat. Aku punya cara untuk melawannya, mengapa kau terus 
+mengoceh seperti nenek-nenek?"
+
+Guo Jing menatap pria aneh berjubah hijau itu. "Mungkinkah dia mengajarinya cara mengatasi gerakan lambat tadi?" 
+pikirnya. Tetapi karena Mei Chaofeng bersikeras, ia tidak punya pilihan kecuali menurutinya. "Baiklah," katanya. 
+"Aku akan melawanmu lima belas jurus lagi." Ia berpikir bahwa dengan menggunakan lima belas dari Delapan Belas 
+Jurus Penakluk Naga ia mungkin tidak akan menang, tapi setidaknya ia bisa membela diri.
+
+Guo Jing melompat untuk mendekatinya, lalu melanjutkan dengan berjingkat ke depan, perlahan mengirimkan telapak 
+tangannya untuk menyerang. Tapi sebelum telapak tangannya mengenai sasaran, ia mendengar suara pelan dan 
+Mei Chaofeng memutar pergelangan tangannya untuk mencekal tangannya. Sepertinya matanya tidak buta sama sekali. 
+Guo Jing terkejut, ia segera menarik telapak tangan kirinya dan menggeser tubuhnya ke kiri untuk meluncurkan 
+[Mengarungi Sungai Besar](#li-she-da-chuan "Li She Da Chuan, nama yang dikutip dari literatur Dinasti Zhou") 
+secara perlahan.
+
+Tangannya baru bergerak beberapa inci ketika lagi-lagi ia mendengar suara pelan, dan Mei Chaofeng sekali lagi
+berhasil memblokir serangannya. Guo Jing agak terlambat menarik kembali tangannya, dan kuku Mei Chaofeng lewat
+sangat dekat dengan mukanya. Ia buru-buru melompat mundur dan berpikir, "Bagaimana ia bisa tahu kemana arah
+seranganku selanjutnya?"
+
+Serangan ketiganya adalah jurusnya yang paling dahsyat, [Naga Angkuh Punya Penyesalan](#kang-long-you-hui "Kang Long You Hui (康龙有悔)"), tetapi sekali lagi, menyusul suara pelan, kuku Mei Chaofeng yang seperti baja itu bergerak untuk mencekal 
+pergelangan tangannya. Guo Jing tahu rahasianya pasti ada pada suara pelan itu, jadi sambil melancarkan serangan keempatnya 
+ia mencuri pandang ke arah orang aneh itu. Kali ini ia bisa melihat orang itu menyentil sesuatu ke udara dengan jarinya,
+dan benda itu menimbulkan suara pelan.
+
+"Ah, ternyata benar-benar dia!" pikir Guo Jing mengerti. "Tapi bagaimana dia bisa tahu kemana langkahku selanjutnya? 
+Hm... ini seperti saat Huang Rong melawan Si Tua Liang Ziweng itu, Hong Qigong bisa membaca serangannya sebelum 
+dilakukan. Sekarang orang ini memakai cara yang sama untuk mengalahkanku. Baiklah, aku akan berjuang untuk lima 
+belas jurus penuh, dan setelah itu aku akan mengaku kalah."
+
+Meskipun semua gerakan Delapan Belas Jurus Penakluk Naga tidak berubah, dan Guo Jing belum mempelajari seluruh 
+rangkaiannya, serangannya tidak ringan. Namun Mei Chaofeng selalu tahu sebelumnya ke mana serangannya akan pergi 
+dan kadang-kadang dia akan bergerak di depan Guo Jing, sehingga bukannya bertahan, dia malah menyerang dengan agresif.
+
+Beberapa jurus kemudian orang aneh itu menyentil tiga kerikil berturut -turut. Mei Chaofeng mengikuti suara itu 
+dan meluncurkan tiga serangan berturut-turut. Guo Jing terpaksa mengelak, dan nyaris tidak berhasil menangkis 
+dua serangan terakhir.
+
+Pertarungan semakin sengit dan angin yang dihasilkan oleh tangan mereka semakin kuat. Secara berkala suara pelan
+dari kerikil terdengar. Huang Rong mengerti situasinya tidak menguntungkan. Ia diam -diam memilih beberapa puing 
+dari lantai dan menjentikkannya. Adakalanya hanya ditujukan untuk mencoba membingungkan Mei Chaofeng, tapi kadang-kadang
+ditujukan untuk menjatuhkan kerikil pria aneh itu. Tapi secara tak terduga, kerikil pria itu tidak bisa dirobohkan 
+oleh puing-puing yang dilemparkan Huang Rong. Sebaliknya, puing -puing Huang Rong yang jatuh sementara kerikilnya 
+terus terbang. Petunjuknya kepada Mei Chaofeng tidak terhalang.
+
+Lu Chengfeng, putranya, bersama dengan enam orang aneh, sangat kagum. "Tenaga jari orang ini luar biasa. Bagaimana 
+dia bisa menyalurkan tenaga ke kerikil seperti itu? Bahkan panah tidak akan menimbulkan suara sekuat itu. Jika 
+kerikil ini mengenai seseorang, tulang orang itu akan hancur!" pikir mereka.
+
+Saat itu Huang Rong sudah berhenti mengganggu. Ia berdiri dan menatap kosong ke arah orang aneh itu. Sementara itu 
+Guo Jing mulai kalah. Serangan Mei Chaofeng menjadi lebih cepat dan dahsyat.
+
+Tiba-tiba dua desingan keras terdengar ketika dua kerikil terbang dari tangan orang aneh itu. Yang pertama lebih 
+lambat dari yang terakhir. Yang terakhir menabrak yang pertama dan dua kerikil pecah berkeping-keping dan 
+terbang ke segala arah. Mei Chaofeng mengambil kesempatan itu untuk menerkam Guo Jing. Ia tersandung ketika mencoba 
+menghindari serangan itu. Mengingat nasihat Nan Xiren, 'Jika kau tidak bisa menang, larilah!'[^da-bu-gou-pao] 
+Dia berbalik dan lari.
+
+Di luar dugaan siapa pun, Huang Rong berseru, "[Die](#die "(爹) Ayah")!" Ia memburu maju ke arah orang aneh itu dan
+menjatuhkan diri ke pelukannya sambil menangis keras. "Die, mukamu... Mukamu kenapa?" Tak seorang pun menduga akan
+ada kejadian semacam ini, dan orang aneh itu hanya berdiri diam tanpa mengatakan sepatah kata pun.
+
+Guo Jing berbalik dan melihat Mei Chaofeng berdiri sangat dekat dengannya. Ia sedang mencoba mendengarkan suara kerikil. 
+Guo Jing melihat peluang yang sangat bagus dan mengarahkan telapak tangan kanannya perlahan ke bahu Mei Chaofeng dengan
+hanya menggunakan sekitar sepuluh persen dari kekuatannya. Tapi begitu telapak tangannya mengenai sasaran, telapak tangan
+kirinya menyusul dengan kekuatan penuh. Mei Chaofeng terpukul telak dan jatuh, tidak bisa berdiri kembali.
+
+Lu Chengfeng mendengar Huang Rong menyebut orang aneh itu ayahnya. Seketika ia dipenuhi dengan sukacita dan kesedihan 
+pada saat yang sama. Ia lupa kakinya timpang dan melompat ke arah pria itu, tetapi jatuh telungkup di lantai.
+
+Lengan kiri pria aneh itu berada di pelukan Huang Rong, ia mengangkat tangan kanannya untuk perlahan-lahan melepas 
+topeng tipis dari wajahnya. Ia mengenakan topeng kulit asli. Tidak heran wajahnya tanpa emosi seperti mayat. 
+Penampilannya yang sebenarnya bersih dan tampan, dengan ekpresi agak sendu. Namun ia dikelilingi aura yang penuh 
+martabat, orang jadi punya kesan seolah-olah ia seorang dewa.
+
+Air mata Huang Rong belum kering, ia berteriak kegirangan. Ia mengambil topeng itu dari tangan ayahnya dan 
+meletakkannya di wajahnya sendiri sambil melompat-lompat dan memeluk leher pria itu, cekikikan terus menerus. 
+Pria itu memang pemilik Pulau Bunga Persik, Huang Yaoshi.
+
+“Ayah, kenapa datang ke sini?” tanyanya sambil tersenyum lebar. "Orang tua Qiu itu mengatakan hal-hal buruk 
+tentang ayah. Mengapa ayah tidak memberinya pelajaran?"
+
+"Kenapa ke sini?" tanya Huang Yaoshi dengan nada tajam. "Aku mencarimu!" Huang Rong sangat gembira. Ia bertepuk tangan
+dan berseru, "Ayah! Kau mencariku? Luar biasa... itu luar biasa!"
+
+"Apanya yang luar biasa?" kata Huang Yaoshi kesal. "Kau kira luar biasa mencari anak perempuan tidak berguna seperti
+kau?"
+
+Huang Rong merasa tidak enak. Ia tahu setelah kehilangan setengah bagian dari Jiu Yin Zhen Jing yang dicuri oleh
+kedua muridnya, Chen Xuanfeng dan Mei Chaofeng, ayahnya bertekad untuk menguasai ilmu itu dengan kemampuannya sendiri.
+Ia pernah berkata bahwa Jiu Yin Zhen Jing itu ditulis oleh manusia. Kalau seorang manusia bisa menulisnya, kenapa
+dia sendiri tidak bisa menulisnya sekali lagi. Ia lalu bersumpah untuk tidak meninggalkan Pulau Persik sebelum
+menguasai ilmu itu. Tapi kemudian anaknya yang bengal melarikan diri, jadi ia terpaksa melanggar sumpahnya sendiri
+dan pergi mencarinya.
+
+"Ayah, aku berjanji untuk menjadi anak yang baik, dan mendengarkan kata-katamu mulai sekarang sampai aku mati," 
+kata Huang Rong.
+
+Huang Yaoshi sangat gembira ketika menemukan anaknya dalam keadaan baik-baik saja, dan mendengar ucapannya
+barusan suasana hatinya langsung cerah. "Bantu kakakmu bangun," katanya.
+
+Huang Rong segera menurut. Lu Guanying ikut berlutut di hadapan Huang Yaoshi bersama ayahnya. Huang Yaoshi
+menghela napas dalam-dalam dan berkata, "Chengfeng, kau murid yang baik. Aku salah sudah kehilangan kendali
+dan terburu-buru, dan salah menuduhmu."
+
+Lu Chengfeng menangis. "Shifu, kau baik-baik saja?" tanyanya. Huang Yaoshi menjawab, "Untungnya aku belum
+mati saking kesalnya." Huang Rong menatap ayahnya dengan pandangan nakal. "Ayah, maksudmu bukan gara-gara aku, kan?"
+Huang Yaoshi mendengus dan berkata, "Kau salah satunya."
+
+Huang Rong menjulurkan lidahnya dan mengalihkan perhatian ayahnya. "Ayah, mari kuperkenalkan. Ini Enam Orang Aneh
+dari Jiangnan, guru-guru Jing Gege."
+
+Huang Yaoshi bahkan tidak melihat mereka. "Aku tidak mau ketemu orang luar," katanya dengan nada dingin. Enam Orang
+Aneh sangat kesal melihat sikapnya yang arogan, tapi karena mereka tahu orang ini punya ilmu tingkat dewa, maka
+mereka tetap bersikap damai.
+
+"Apa ada barang lain yang ingin kau bawa pulang?" tanya Huang Yaoshi kepada putrinya. "Ambil semuanya, kita langsung
+pulang."
+
+"Tidak ada," jawab Huang Rong sambil tersenyum. "Tapi ada yang ingin kukembalikan kepada Lu Shige." Ia merogoh sakunya
+dan mengeluarkan Pil Sembilan Embun Bunga Batu Giok, lalu memberikannya kepada Lu Chengfeng. "Lu Shige, pil-pil ini
+sungguh tidak mudah dibuat. Kami sudah punya dua pil darimu, itu sudah cukup."
+
+Lu Chengfeng melambaikan tangannya dan berkata kepada Huang Yaoshi, "Hari ini [di zi](#dizi "Di Zi (弟子), muridmu ini")
+bisa ketemu Shifu, aku sudah sangat bahagia. Aku ingin menghadiahkan ini untukmu. Aku masih berharap kamu mau menginap
+beberapa hari lagi di rumahku yang sederhana. Aku akan..."
+
+"Dia anakmu?" sela Huang Yaoshi sambil menunjuk Lu Guanying. 
+
+"Betul," jawab muridnya.
+
+Lu Guanying tidak menunggu perintah ayahnya, ia langsung berlutut dan memberi salam, "Cucu murid memberi hormat
+kepada [Kakek Guru](#taishifu "Tai Shifu (太师父)")."
+
+"Ya, ya," kata Huang Yaoshi. Tanpa membungkukkan tubuhnya ia mengulurkan tangan, seolah hendak membantu Lu Guanying
+bangkit berdiri. Tapi secara tak terduga tangan kanannya memukul bahu Lu Guanying.
+
+Lu Chengfeng terperanjat. "Shifu! Dia anakku satu-satunya..." Pukulan Huang Yaoshi tidak ringan, Lu Guanying terpental
+tujuh sampai delapan langkah ke belakang, dan jatuh tertelungkup di lantai.
+
+"Kau sungguh-sungguh murid yang baik," kata Huang Yaoshi kepada Lu Chengfeng. "Kau tidak menurunkan kungfumu kepadanya.
+Apa dia murid [Perguruan Xian Xia](#xianxia-pai "Xian Xia Pai (仙霞派), sebuah perguruan silat di sekitar bukit Xian Xia. Klik untuk membaca selengkapnya.")?"
+
+Lu Chengfeng merasa lega setelah tahu gurunya hanya menguji ilmu bela diri putranya. "Di zi tidak berani melanggar 
+aturan perguruan kita. Di zi tidak berani mengajarkan kungfu kita kepada orang lain tanpa seijin Shifu. Anak ini 
+memang murid dari Biksu Agung Kumu[^ku-mu-da-shi] dari Xian Xia Pai."
 
 
 
@@ -893,7 +1138,8 @@ Han Xiaoying menyerang dengan Ilmu Pedang Nona Yue. Ia terpaksa menangkis serang
         Istilah ini punya arti sama dengan Nimen (你们), yaitu "kalian", tetapi umumnya dipakai dalam forum yang 
         lebih formal, dan gaya bahasanya memang lebih formal dan sopan. Istilah lain yang juga formal dengan makna
         sama adalah Da Jia (大家, arti literal per karakter adalah "Rumah Besar").
-        Secara umum Ge Wei sendiri berarti "Semua Orang".
+        Secara umum Ge Wei sendiri berarti "Semua Orang". Bisa juga dipakai untuk menggantikan makna 'Saudara-saudara
+        sekalian' dalam sebuah pidato.
     </dd>
     <dt id="wulin">Wu Lin (武林)</dt>
     <dd>
@@ -1092,15 +1338,49 @@ Han Xiaoying menyerang dengan Ilmu Pedang Nona Yue. Ia terpaksa menangkis serang
         </a>
     </dd>
     <dt id="jin-long-bian">Jin Long Bian (金龙鞭)</dt>
-    <dd></dd>
+    <dd>Cambuk kuda, senjata milik Han Baoju yang berjuluk Dewa Kuda.</dd>
     <dt id="cheng-gan">Cheng Gan (秤杆)</dt>
-    <dd></dd>
+    <dd>
+        Neraca atau alat timbangan, yang sampai sekarang masih banyak dipakai di toko-toko obat tradisional di
+        kawasan Glodok dan sekitarnya. Ini adalah senjata khas Quan Jinfa, yang adalah seorang pedagang.
+    </dd>
     <dt id="chun-gang-bian-dan">Chun Gang Bian Dan (纯钢扁担)</dt>
     <dd>
         Bian Dan (扁担) adalah tongkat atau tiang pikulan. Karakter Gang (钢)
         adalah "Baja". Secara keseluruhan Gang Bian Dan adalah pikulan yang terbuat dari baja.
         Chun (纯) berarti "murni", maksudnya adalah "Baja Murni".
         Ini adalah senjata yang dipakai oleh Nan Xiren, yang sangat berat.
+    </dd>
+    <dt id="zhen-jing-bai-li">Zhen Jing Bai Li (震惊百里)</dt>
+    <dd>Salah satu jurus dalam 18 Jurus Penakluk Naga milik Hong Qigong.</dd>
+    <dt id="shibo">Shi Bo (師伯)</dt>
+    <dd>
+        Panggilan untuk saudara seperguruan dari guru (Shifu) seseorang, yang lebih tinggi peringkatnya
+        dibandingkan sang guru itu sendiri. Panggilan ini sama untuk laki-laki dan perempuan.
+    </dd>
+    <dt id="kang-long-you-hui">Kang Long You Hui (康龙有悔)</dt>
+    <dd>
+        Empat karakter itu punya arti literal masing-masing: 
+        <ol>
+            <li>Kang (康) yang paling umum dipakai untuk istilah 'Sehat', seperti dalam Jian Kang (健康), 
+                tetapi juga bisa berarti 'Damai' atau 'Peaceful', makna inilah yang dipakai dalam konteks tersebut. 
+                Seekor Naga yang merasa dirinya tinggi akan bersikap sombong, tetapi karena menyesalinya maka 
+                ia akan merasa damai.
+            </li>
+            <li>Long (龙) berarti Naga</li>
+            <li>You (有) adalah kata sambung, di sini bisa berarti 'ada' atau 'punya'.</li>
+            <li>Hui (悔) berarti 'Menyesal', seperti dalam Houhui 后悔.</li> 
+        </ol>
+        Demi mempertahankan estetika, saya menerjemahkan semuanya menjadi Naga Angkuh Punya Penyesalan.
+    </dd>
+    <dt id="xianxia-pai">Xian Xia Pai (仙霞派)</dt>
+    <dd>
+        Xian Xia Pai adalah salah satu cabang dari Shaolin, yang terletak di wilayah perbukitan Xian Xia. Salah
+        satu anggota perguruan ini adalah Biksu Kumu, Kepala Biara Fahua di Lin'an, yang adalah paman dari
+        Duan Tiande, perwira Song Selatan yang mengepung rumah Guo Xiaotian dan Yang Tiexin, dan berakhir dengan
+        insiden berdarah yang membawa anak-anak mereka berdua sampai di kondisi seperti saat ini, dalam jilid ini.
+        Selain itu masih ada Biksu Jiaomu yang tewas dalam insiden itu. Lu Guanying adalah murid langsung dari
+        Biksu Kumu, dan secara tidak langsung ia mewarisi ilmu silat Shaolin.
     </dd>
 </dl>
 
@@ -1132,5 +1412,9 @@ Han Xiaoying menyerang dengan Ilmu Pedang Nona Yue. Ia terpaksa menangkis serang
 [^qianlongwuyong]: Istilah Qian Long Wu Yong (潜龙勿用) _barangkali_ bisa kita terjemahkan menjadi 'Naga Terpendam Tidak Berguna'. Karena Qian Long adalah Naga Terpendam, sedangkan Wu Yong di situ berarti 'Jangan Digunakan'.
 
 [^tao-hua-shen-jian-zhang]: Tao Hua Shen Jian Zhang (桃花神剑掌), ilmu silat khas Pulau Persik yang diajarkan Huang Yaoshi. Ilmu ini menggunakan tangan kosong, tetapi seolah-olah tangan tersebut bertindak sebagai pedang.
+
+[^da-bu-gou-pao]: Da bu gou, pao! (打不够 , 跑 !) Kata-kata ini adalah istilah gabungan yang tidak bisa diterjemahkan begitu saja secara literal. Da (打) artinya adalah berkelahi/fight, sedangkan Bu (不) adalah kata sifat yang berfungsi sebagai kata sambung negatif, yang berarti "Tidak". Gou (够) berarti "Cukup". Sedangkan karakter terakhir adalah karakter independen, Pao, yang berarti "Lari". Rangkaian karakter "Da bu gou" itu maknanya kira-kira adalah "Perlawanan tidak cukup", yang berarti kita tidak cukup kuat untuk menang dalam sebuah pertarungan. Singkatnya bisa diartikan 'Kalau kalah, lari!'.
+
+[^ku-mu-da-shi]: Biksu Agung Kumu (Kumu Da Shi, 枯木大師) adalah Kepala Biara Fahua di Lin'an. Ia juga adalah anggota dari Perguruan Silat Xian Xia, yang adalah salah satu cabang Shaolin.
 
 
