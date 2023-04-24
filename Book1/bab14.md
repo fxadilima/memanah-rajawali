@@ -646,7 +646,7 @@ tetapi ia tidak bisa mendengar bahwa orang itu meninggalkan ruangan.
 
 "Mei Shijie, orang itu sudah pergi," kata Huang Rong.
 
-Mei Chaofeng terkejut, "Betulkan? Aku... kenapa aku tidak mendengarnya?"
+Mei Chaofeng terkejut, "Betulkah? Aku... kenapa aku tidak mendengarnya?"
 
 "Cepat kejar dia, jangan membanggakan diri di sini," kata Huang Rong.
 
