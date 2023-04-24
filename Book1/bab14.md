@@ -1164,10 +1164,10 @@ Lu Guanying mengambil obor dari aula. Ia mendekati ayahnya dan memegang obor unt
 Lu Chengfeng dapat melihat kertas-kertas itu penuh dengan karakter dan simbol. Itu adalah instruksi untuk 
 latihan kungfu dengan tulisan tangan Huang Yaoshi sendiri. Ia tidak melihat tulisan tangan gurunya selama 
 dua puluh tahun, namun ia masih mengenalinya. Tulisan tangan Sang Guru tinggi dan lurus, seanggun yang diingatnya. 
-Di sebelah kanan adalah judul, teknik 
-[Xuan Feng Sao Ye Tui Fa](#xuan-feng-sao-ye-tui-fa "(旋風掃葉腿) Tendangan Angin Puyuh Menyapu Dedaunan"), enam karakter. 
-Lu Chengfeng tahu bahwa teknik tendangan itu dan 
-[Luo Ying Shen Jian Zhang](#luo-ying-shen-jian-zhang "Ilmu Pedang Dewa (落英神劍掌)") adalah kungfu ciptaan gurunya yang cerdik.
+Di sebelah kanan adalah judul, 
+[Xuan Feng Sao Ye Tui Fa](#xuan-feng-sao-ye-tui-fa "Teknik Tendangan Angin Puyuh Menyapu Dedaunan. Klik untuk membaca uraian selengkapnya."), enam karakter. Lu Chengfeng tahu bahwa teknik tendangan itu dan 
+[Luo Ying Shen Jian Zhang](#luo-ying-shen-jian-zhang "Ilmu Pedang Dewa (落英神劍掌). Klik untuk membaca selengkapnya.") adalah kungfu ciptaan gurunya yang cerdik.
+
 
 
 ***
