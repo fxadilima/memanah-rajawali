@@ -531,7 +531,7 @@ tidak pergi, aku akan merasa dihantui ketidakpastian sepanjang hidupku."
 Sebelum Mei Chaofeng bisa menjawab, Huang Rong sudah berkata, "Ayo kita sama-sama pergi, aku akan memohon maaf untuk kalian
 di hadapannya."
 
-Mei Chaofeng terdiam beberapa saat. Dua titik air mata menetes di pipiya. "Aku tak punya muka ketemu Shifu," katanya.
+Mei Chaofeng terdiam beberapa saat. Dua titik air mata menetes di pipinya. "Aku tak punya muka ketemu Shifu," katanya.
 "Shifu begitu baik berbelas kasihan kepada anak terlantar seperti aku. Dia mengangkatku menjadi murid dan membesarkan
 aku, tapi hanya karena ambisi liar aku mengkhianati dia..." Tiba-tiba ia mengangkat kepala dan berteriak, "Aku hanya
 ingin membalas dendam suamiku. Setelah itu aku tahu apa yang harus kulakukan. Tujuh Orang Aneh dari Jiangnan... ayo kita
