@@ -487,28 +487,29 @@ caramu melakukannya?" tanyanya.
 "Aku sudah tua. Kungfuku tidak lagi sebagus dulu," kata Qiu Qianren. "Tapi ilmu meringankan tubuhku sudah dilatih
 hingga mencapai tingkat sempurna!"
 
-"Bagus sekali," kata Huang Rong. "Di halaman depan ada kolam ikan mas, kenapa kau tidak memamerkan ilmu itu —
+"Bagus sekali," kata Huang Rong. "Di halaman depan ada wadah ikan mas besar, kenapa kau tidak memamerkan ilmu itu —
 Mengambang Di Atas Air — sebentar saja, biar kami semua bisa mengaguminya. Keluar dari aula ini, belok kiri,
 di bawah [pohon Gui Hua](#guihua "Osmanthus (桂花)") yang harum." 
 
-"Bagaimana bisa latihan di dalam kolam ikan...?" gumam Qiu Qianren. Ia belum menyelesaikan kalimatnya ketika sebuah
+"Bagaimana bisa latihan di dalam wadah ikan...?" gumam Qiu Qianren. Ia belum menyelesaikan kalimatnya ketika sebuah
 bayangan terang berkelebat di hadapannya, dan tanpa sadar kakinya sudah ditangkap, ia tergantung jungkir-balik dengan
 kepala di bawah.
 
 "Ajalmu sudah di depan mata, masih juga membual!" teriak Mei Chaofeng. Cambuk Naga Peraknya[^cambuk-perak] meliuk-liuk
-di udara dan mengantarkan Qiu Qianren ke kolam ikan mas, sesuai dengan petunjuk Huang Rong.
+di udara dan mengantarkan Qiu Qianren ke wadah ikan mas, sesuai dengan petunjuk Huang Rong. Wadah itu terbuat dari
+porselen, ukurannya sangat besar, mirip pot raksasa.
 
-Huang Rong bergegas ke kolam ikan sambil melambaikan potongan baja berbentuk kupu-kupu dengan sikap mengancam. 
+Huang Rong bergegas ke wadah ikan sambil melambaikan potongan baja berbentuk kupu-kupu dengan sikap mengancam. 
 "Aku tidak akan membiarkanmu keluar dari situ, kecuali kau jelaskan bagaimana kau 'Mengambang di Air'!"
 
-Qiu Qianren menjejakkan kaki ke dasar kolam, berusaha melompat keluar dan melarikan diri, tetapi lempengan baja
-Huang Rong menusuk bahunya. Ia tercebur kembali ke kolam sampai basah kuyup. Ia meringis kesakitan dan berkata,
+Qiu Qianren menjejakkan kaki ke dasar wadah, berusaha melompat keluar dan melarikan diri, tetapi lempengan baja
+Huang Rong menusuk bahunya. Ia tercebur kembali ke wadah sampai basah kuyup. Ia meringis kesakitan dan berkata,
 "Di dalam guci itu ada lempengan besi tipis yang direkatkan ke situ, di atasnya aku menuangkan air kira-kira sedalam
 tiga inci. Aku menyembunyikan galah di sungai itu, kira-kira lima sampai enam inci di bawah permukaan air, jadi tidak
 kelihatan."
 
 Huang Rong tertawa, lalu berjalan kembali ke dalam ruangan, tidak lagi mempedulikan Qiu Qianren, yang segera melompat 
-keluar dari kolam dan bergegas melarikan diri tanpa menoleh ke belakang.
+keluar dari wadah ikan dan bergegas melarikan diri tanpa menoleh ke belakang.
 
 Mei Chaofeng dan Lu Chengfeng tersenyum malu. Mereka sudah bertengkar dan menangis tanpa alasan. Guru mereka ternyata
 tidak tewas. Sekarang setelah semuanya jelas, mereka saling merasa tidak enak. Mei Chaofeng ragu-ragu sejenak, lalu
@@ -735,6 +736,147 @@ dan berhasil mendorong Mei Chaofeng ke belakang cukup jauh sehingga ia bisa meng
 Ia melihatnya berlari di sekitar pilar dan membuat isyarat tangan, tetapi ia tidak mengerti apa maksudnya. 
 Maka Huang Rong berteriak lagi, "Bertarung di sini!"
 
+Guo Jing akhirnya mengerti, ia berbalik dan melompat ke arah pilar terdekat. Mei Chaofeng mengikuti dengan lima jarinya 
+untuk menangkapnya, tetapi cakarnya akhirnya menembus pilar. Karena buta, ia menggunakan suara untuk mengetahui posisi
+lawannya, tetapi pilar itu tetap di tempatnya dan tidak mengeluarkan suara sama sekali. Guo Jing bersembunyi di balik 
+salah satunya, karena itu ia tidak tahu.
+
+Segera setelah Guo Jing mengatasi keterkejutannya, ia segera melepaskan pukulan telapak tangan yang ditangkis oleh Mei
+Chaofeng. Kedua tangan bertabrakan dan keduanya terdorong mundur beberapa langkah sementara jari-jari Mei Chaofeng 
+terlepas dari pilar. Mei Chaofeng sangat marah dan tidak menyia-nyiakan waktu sedetik pun. Sebelum Guo Jing sempat
+menenangkan diri, ia mengirim serangan lain ke arahnya.
+
+Guo Jing berhasil menghindarinya, tetapi pakaiannya robek dan lengannya tergores oleh kuku Mei Chaofeng. Untungnya ia 
+tidak terluka parah, tapi Mei Chaofeng membuatnya ngeri. Guo Jing dengan cepat melakukan serangan balik dengan meluncurkan
+tiga jurus berturut-turut yang dikombinasikan dengan main petak-umpet di balik pilar. Mei Chaofeng berteriak dengan 
+marah ketika sekali lagi jarinya menembus pilar.
+
+Sebenarnya Guo Jing tidak ingin mengambil keuntungan dari kebutaannya, jadi ia berteriak dengan lantang, "Mei Qianbei,
+kungfuku jauh lebih rendah dari kungfumu, tolong tunjukkan belas kasihan!"
+
+Semua orang bisa melihat bahwa Guo Jing berada di atas angin meskipun dengan bantuan pilar. Mereka tahu ia sengaja 
+memberi muka kepada Mei Chaofeng dengan memintanya untuk berhenti. Lu Chengfeng juga berpikir bahwa ini saat yang 
+tepat untuk menghentikan pertarungan.
+
+Tapi Mei Chaofeng dengan dingin berkata, "Kalau hari ini kita sedang menguji kungfu dan waktu aku tidak bisa 
+mengalahkanmu dalam tiga jurus, aku seharusnya mengaku kalah. Tapi ini bukan urusan kungfu. Aku mau membalas dendam 
+untuk suamiku. Aku sudah kalah darimu, tapi aku masih ingin membunuhmu!" Segera setelah ia selesai berbicara, 
+kedua lengannya meluncurkan serangan beruntun, tiga kali dengan tangan kanannya dan tiga lagi dengan tangan kirinya. 
+Setiap serangan mengenai pilar dengan tepat. Akhirnya kedua tangannya membentur tiang secara bersamaan. Dengan 
+suara keras tiang itu patah dan atapnya roboh.
+
+Orang-orang di aula itu semuanya adalah ahli silat, meskipun terkejut mereka masih bisa melompat keluar untuk 
+melarikan diri. Lu Guanying meraih ayahnya dan bergegas keluar tepat sebelum separuh aula dipenuhi puing-puing. 
+Sayangnya perwira Jin itu tidak dapat melarikan diri dan kakinya terjepit di bawah balok. Ia berteriak minta tolong. 
+Wanyan Kang bergegas menyelamatkannya. Ia mengangkat balok itu, menariknya, meraih tangannya dan membawanya 
+keluar dari aula. Begitu mereka berbalik, mereka tiba-tiba merasa mati rasa, entah siapa orang yang telah menotok 
+titik akupuntur mereka.
+
+Mei Chaofeng selalu memusatkan perhatiannya pada Guo Jing. Begitu mendengar Guo Jing bergerak, ia mengikuti. Sekarang 
+di bawah awan tebal, bagian luar sudah gelap. Begitu semua orang bisa menenangkan dirinya sendiri, mereka bisa melihat pertarungan Guo Jing dan Mei Chaofeng menjadi lebih sengit dari sebelumnya. Mereka bertarung dalam cahaya redup, 
+kedua belah pihak bertukar pukulan dengan cepat, menciptakan hembusan angin dimana-mana. Dibandingkan dengan 
+pertarungan di dalam aula, pertarungan ini lebih jauh lebih seru.
+
+Kegelapan itu sungguh kerugian bagi Guo Jing, ia mulai jatuh di bawah angin menghadapi serangan gencar Mei Chaofeng. 
+Kaki kiri Mei Chaofeng melakukan gerakan menyapu, diikuti kaki kanannya yang menendang ke arah kakinya. Kalau kena, 
+kakinya pasti akan patah. Tapi tendangan ini adalah gerakan tipuan. Mei Chaofeng tiba-tiba menahan kakinya 
+setengah jalan dan lengan kirinya memegang kaki Guo Jing. Lu Guanying melihat dari pinggir. "Hati-Hati!" ia 
+menjerit. Ia kalah dari Wanyan Kang dengan jurus yang sama persis.
+
+Dalam situasi berbahaya ini Guo Jing berusaha keras untuk mengatasi rasa takutnya dan menggunakan tangan kirinya 
+untuk menangkis tangan Mei Chaofeng. Ia cukup cepat, tetapi kekuatannya memudar. Begitu tangan mereka bertabrakan, 
+Mei Chaofeng memahami situasinya. Ia segera membalikkan tangannya dan menggunakan tiga jari, jari tengah, manis, 
+dan kelingking untuk menggaruk punggung tangan Guo Jing. Guo Jing menyadari bahaya yang dihadapinya saat ia
+mendorong telapak tangan kanannya ke arah Mei Chaofeng. Itu serangan yang sengit, jika Mei Chaofeng tidak mundur, 
+keduanya akan terluka. Mei Chaofeng menghindari serangan itu dengan melompat ke samping dan kemudian tertawa sinis.
+
+Guo Jing merasakan tangan kirinya mati rasa dan gatal, lalu rasanya seperti terbakar. Menundukkan kepalanya, ia 
+melihat tiga bekas goresan di punggung tangan kirinya. Goresan itu hanya mengeluarkan sedikit darah tetapi 
+darah perlahan berubah menjadi hitam. Ia tiba-tiba teringat saat mendaki bukit itu di padang rumput Mongolia 
+dan melihat sembilan tengkorak yang ditinggalkan Mei Chaofeng. Pendeta Ma Yu telah memberitahu bahwa kuku 
+Mei Chaofeng mengandung racun yang mematikan, dan ia segera tahu bahwa hidupnya dalam bahaya besar.
+
+"Rong'er, aku kena racun!" serunya. Tanpa menunggu respon Huang Rong ia langsung melompat ke depan dan 
+melepaskan pukulan kedua telapak tangannya ke arah Mei Chaofeng. Niatnya adalah untuk menangkapnya dan 
+memaksanya menyerahkan penawar racun. Itu satu-satunya kesempatan untuk bertahan hidup.
+
+Mei Chaofeng mengenali serangannya yang berbahaya, dan melompat mundur untuk menghindar. Huang Rong dan 
+yang lainnya sangat terkejut mendengar teriakan Guo Jing. Hampir bersamaan Ke Zhen'E dengan tongkat besinya 
+diikuti oleh Huang Rong dan Lima Orang Aneh lainnya melompat ke depan dan mengepung Mei Chaofeng.
+
+"Mei Shijie," seru Huang Rong. "Kau sudah kalah, kenapa masih terus ngotot! Cepat berikan penawarnya!"
+
+Mei Chaofeng merasa serangan Guo Jing sangat cepat dan berbahaya, ia tidak berani mengambil resiko kehilangan
+konsentrasinya dengan menjawab Huang Rong. Dalam hati ia senang. "Semakin banyak tenaga yang kau keluarkan,
+makin cepat racun itu bereaksi. Kalau pun aku harus mati sekarang dan di sini, setidaknya aku sudah membalas
+dendam suamiku!"
+
+Guo Jing merasa pandangannya kabur, kepalanya pening dan seluruh tubuhnya terasa lemah. Ketika ia berangsur-angsur
+tidak mampu lagi mengendalikan tangan kirinya, ia memutuskan untuk berhenti melawan. Racunnya sudah mulai bekerja,
+kalau saja sebelumnya ia tidak minum darah ular kemungkinan besar ia sekarang sudah mati.
+
+Huang Rong melihatnya linglung dan berseru, "Jing Gege, mundur!" Sambil mengeluarkan jarum kupu-kupu baja, ia
+melompat ke arah Mei Chaofeng.
+
+Guo Jing mendengar panggilannya dan semangatnya bangkit. Ia mengirimkan telapak tangan kirinya menggunakan jurus
+ke sebelas dari Delapan Belas Jurusk Penakluk Naga, [Bangkit Mendadak](#tu-ru-qi-lai "Tu Ru Qi Lai (突如其来)"), hanya saja,
+lengannya bergerak lebih lambat dari seharusnya.
+
+Huang Rong, Han Baoju, Nan Xiren dan Quan Jinfa bergerak serempak untuk menyerang Mei Chaofeng, tetapi melihat 
+telapak tangan Guo Jing mengenai bahu Mei Chaofeng dengan telak. Ia jatuh bahkan tanpa mencoba menangkis serangan 
+itu. Mei Chaofeng mengandalkan telinganya untuk menemukan gerakan lawannya dan serangan Guo Jing sangat lambat 
+sehingga tidak menimbulkan suara. Itulah alasannya ia terpukul telak.
+
+Huang Rong terkejut, tetapi Han Baoju, Nan Xiren, dan Quan Jinfa secara serempak melemparkan diri ke tubuh 
+Mei Chaofeng untuk menangkapnya. Tapi ia berjuang dan mampu mengirim Han Baoju dan Quan Jinfa terbang mundur, 
+sementara pada saat yang sama menyerang ke belakang untuk mencekal lengan Nan Xiren. Nan Xiren melihat serangan 
+ini datang dan menyingkir.
+
+Mei Chaofeng memanfaatkan situasi kacau ini untuk melompat, tetapi telapak tangan Guo Jing tiba-tiba mendarat 
+di punggungnya dan ia jatuh sekali lagi. Telapak tangan Guo Jing cepat dan tak bersuara, tapi lemah. Meskipun 
+terpukul di tempat vital, ia tidak terluka.
+
+Setelah menyerang dua kali Guo Jing kehabisan tenaga, ia terhuyung dan jatuh tepat di sebelah Mei Chaofeng. 
+Huang Rong segera melemparkan diri ke arahnya untuk melindunginya.
+
+Mei Chaofeng mendengar seseorang jatuh di sampingnya dan tanpa membuang waktu sedetik pun ia mengirim lima jari 
+untuk menangkap, tetapi yang mengejutkan, ia merasa tangannya sakit seperti tertusuk benda tajam. Ia sadar bahwa 
+ia telah memukul duri pada [Perisai Landak](#ruan-wei-jia "Ruan Wei Jia (软猬甲)") Huang Rong. Dengan tergesa-gesa ia 
+menggunakan gerakan [Melompat Berdiri Seperti Ikan Mas](#li-yu-da-ting "Li Yu Da Ting (鲤鱼打挺)") untuk melarikan diri.
+
+Tiba-tiba seseorang berteriak, "Tangkap!" dan sesuatu terlempar ke arahnya. Mei Chaofeng tidak tahu apa yang dilemparkan
+jadi ia hanya mengangkat tangan kanannya untuk menangkis. Benda itu jatuh hingga hancur berkeping-keping. Ternyata itu 
+sebuah kursi.
+
+Kursi itu diikuti benda lain, lebih besar dari yang pertama. Kali ini Si Mayat Besi mengulurkan tangan kirinya 
+untuk meraihnya. Itu ternyata meja, lebar dan licin, sehingga ia tidak bisa menangkapnya dengan baik. Yang 
+melemparkan semua ini adalah Zhu Cong. Ia segera melemparkan beberapa kaki meja ke arahnya sebagai susulan. 
+Mei Chaofeng mengangkat kakinya dan menendang semuanya. Zhu Cong menghindar, tetapi pada saat yang sama mengulurkan 
+tangan kanannya dan tiba-tiba Mei Chaofeng merasakan tiga benda terlepas dari kerahnya. Semuanya dingin dan licin, 
+dan terus menggeliat di dalam pakaiannya. Ia ketakutan, "Apa ini? Sihir atau senjata rahasia?" Dengan tergesa-gesa 
+ia meraba-raba pakaiannya dan menangkap tiga ekor ikan mas.
+
+Ia lega, tapi tiba-tiba ia terpaku. Botol porselennya yang berisi penawar racun menghilang, bersama dengan belati 
+dan gulungan Jiu Yin Zhen Jing yang membungkus belati itu.
+
+Ketiga ikan mas tersebut berasal dari wadah ikan yang hancur saat atap runtuh. Zhu Cong tahu Mei Chaofeng berhati-hati 
+dan tidak mudah ditipu, tidak seperti Peng Lianhu atau Qiu Qianren, jadi ia menggunakan ikan mas untuk mengalihkan 
+perhatiannya sambil pada saat yang sama mennggunakan kecepatan tangannya untuk mencopet isi saku Mei Chaofeng. Ia 
+mengeluarkan botol porselen itu, menarik sumbatnya dan membawanya kepada Ke Zhen'E untuk dicium sambil berbisik 
+pelan, "Bagaimana?"
+
+Ke Zhen'E seorang ahli dalam menggunakan racun. Segera setelah mencium baunya, ia berkata, "Untuk diminum, dan juga
+ditaburkan ke lukanya. Ini _memang_ obat penawarnya."
+
+Mei Chaofeng mendengar percakapan mereka dan segera menyadari apa yang terjadi. Dengan marah ia melompat ke arah mereka. 
+Ke Zhen'E mengayunkan tongkat besinya untuk memblokirnya, dibantu oleh 
+[Cambuk Naga Emas](#jin-long-bian "Jin Long Bian (金龙鞭)")
+milik Han Baoju, [Timbangan](#cheng-gan "Cheng Gan (秤杆)") milik Quan Jinfa, dan 
+[Pikulan Baja Murni](#chun-gang-bian-dan "Chun Gang Bian Dan adalah tongkat pikulan yang terbuat dari baja murni (纯钢扁担),yang sangat berat.") 
+milik Nan Xiren. Mei Chaofeng segera mengambil 
+Cambuk Naga Perak dari pinggangnya, tetapi tiba-tiba mendengar hembusan angin dari pedang yang datang ke arahnya. 
+Han Xiaoying menyerang dengan Ilmu Pedang Nona Yue. Ia terpaksa menangkis serangan ini terlebih dahulu.
+
 
 
 ***
@@ -921,14 +1063,44 @@ Maka Huang Rong berteriak lagi, "Bertarung di sini!"
     <dd>
         Sama seperti di atas, ungkapan ini juga adalah bagian dari literatur jaman Dinasti Zhou, yaitu salah satu kutipan
         mengenai karakter Li (利). Karakter tersebut adalah karakter gabungan, yaitu dari He (禾), yang berarti
-        biji-bijian atau Grain/Cereal, dan Dao (刂 dalam perkembanganmenjadi 刀), yang artinya Pisau. Dengan demikian
+        biji-bijian atau Grain/Cereal, dan Dao (刂 dalam perkembangan menjadi 刀), yang artinya Pisau. Dengan demikian
         kelihatannya Li mula-mula punya makna 'Tajam'. Tetapi dengan segera makna ini bergeser menjadi Keuntungan, atau
         Menguntungkan, Benefit/Favorable. Akhirnya di dalam literatur-literatur, Li lebih sering punya makna ini, meskipun
         ada filsuf yang kurang menyukainya, karena ada semacam nada merendahkan dalam makna 'Keuntungan' atau Profit.
         Di dalam Zhouyi, karakter Li banyak dipakai untuk memberikan semacam nasihat kepada pembaca, dan salah satu kutipan
         yang sering dipakai adalah "Li She Da Chuan", yang kira-kira bisa diartikan 'Sangat berguna mengarungi sungai besar'.
         'Beneficial to ford a great river'. Kalau kita pakai untuk menggambarkan sebuah gerakan ilmu bela diri, kelihatannya
-        memang lebih baik disingkat menjadi 'Keuntungan Mengarungi Sungar Besar', atau bahkan 'Mengarungi Sungai besar'.
+        memang lebih baik disingkat menjadi 'Keuntungan Mengarungi Sungai Besar', atau bahkan 'Mengarungi Sungai besar'.
+    </dd>
+    <dt id="jiangnanqiguai">Jiangnan Qi Guai (江南七怪)</dt>
+    <dd>Tujuh Orang Aneh dari Jiangnan</dd>
+    <dt id="tu-ru-qi-lai">Tu Ru Qi Lai (突如其来)</dt>
+    <dd>Bangkit Mendadak</dd>
+    <dt id="ruan-wei-jia">Ruan Wei Jia (软猬甲)</dt>
+    <dd>Perisai Duri Landak</dd>
+    <dt id="li-yu-da-ting">Li Yu Da Ting (鲤鱼打挺)</dt>
+    <dd>
+        Nama ini dikutip dari sebuah gerakan yang sudah umum dalam ilmu bela diri, yang disebut 
+        Li Yu Da Ting Zhi Li (鲤鱼打挺直立). Artinya kira-kira adalah 'Melompat Berdiri Tegak Seperti Ikan Mas'.
+        Di dunia modern gerakan ini juga banyak dipakai dalam tarian seperti breakdance, senam, dan tentu saja
+        dalam film laga atau drama silat yang memakai ilmu bela diri.<br/>
+        <a href="https://res.cloudinary.com/drzjshskk/image/upload/v1682321337/misc/Kip-up_tpd0v8.gif"
+            title="Li Yu Da Ting Zhi Li"
+            target="_blank">
+            <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682321337/misc/Kip-up_tpd0v8.gif"
+                alt="Li Yu Da Ting Zhi Li">
+        </a>
+    </dd>
+    <dt id="jin-long-bian">Jin Long Bian (金龙鞭)</dt>
+    <dd></dd>
+    <dt id="cheng-gan">Cheng Gan (秤杆)</dt>
+    <dd></dd>
+    <dt id="chun-gang-bian-dan">Chun Gang Bian Dan (纯钢扁担)</dt>
+    <dd>
+        Bian Dan (扁担) adalah tongkat atau tiang pikulan. Karakter Gang (钢)
+        adalah "Baja". Secara keseluruhan Gang Bian Dan adalah pikulan yang terbuat dari baja.
+        Chun (纯) berarti "murni", maksudnya adalah "Baja Murni".
+        Ini adalah senjata yang dipakai oleh Nan Xiren, yang sangat berat.
     </dd>
 </dl>
 
