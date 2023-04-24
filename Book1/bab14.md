@@ -558,7 +558,7 @@ Tiba-tiba Guo Jing melangkah maju. "Biar muridmu yang melawannya dulu," karanya.
 
 Lu Chengfeng dalam situasi sulit. Ia mendengar tantangan Mei Chaofeng dan Keenam Orang Aneh itu menerimanya. Ia tak
 tahu bagaimana harus menengahi. Ia benci sekali merasa tidak punya otoritas maupun pengaruh apa-apa terhadap mereka.
-Tetapi mendengat ucapan Guo Jing, mendadak sebuah gagasan melintas di benaknya. "Kedua pihak tolong tahan dulu. Tolong
+Tetapi mendengar ucapan Guo Jing, mendadak sebuah gagasan melintas di benaknya. "Kedua pihak tolong tahan dulu. Tolong
 dengarkan kata-kata adikmu ini. Meskipun Mei Shijie dan Enam Orang Aneh dari Jiangnan punya permusuhan yang dalam,
 tetapi kedua pihak sudah menderita hehilangan yang sangat menyedihkan. Menurut pendapatku tidak perlu lagi ada pertumpahan
 darah. Biarlah pertarungan hari ini hanya untuk menentukan siapa yang kalah dan menang. Jangan lagi memperdalam
