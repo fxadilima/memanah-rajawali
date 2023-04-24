@@ -531,7 +531,7 @@ tidak pergi, aku akan merasa dihantui ketidakpastian sepanjang hidupku."
 Sebelum Mei Chaofeng bisa menjawab, Huang Rong sudah berkata, "Ayo kita sama-sama pergi, aku akan memohon maaf untuk kalian
 di hadapannya."
 
-Mei Chaofeng terdiam beberapa saat. Dua titik air mata menetes di pipiya. "Aku tak punya muka ketemua dia," katanya.
+Mei Chaofeng terdiam beberapa saat. Dua titik air mata menetes di pipiya. "Aku tak punya muka ketemu Shifu," katanya.
 "Shifu begitu baik berbelas kasihan kepada anak terlantar seperti aku. Dia mengangkatku menjadi murid dan membesarkan
 aku, tapi hanya karena ambisi liar aku mengkhianati dia..." Tiba-tiba ia mengangkat kepala dan berteriak, "Aku hanya
 ingin membalas dendam suamiku. Setelah itu aku tahu apa yang harus kulakukan. Tujuh Orang Aneh dari Jiangnan... ayo kita
@@ -903,7 +903,7 @@ Mei Chaofeng berdiri dan bersiap untuk bertarung lagi. Sadar bahwa kungfu Guo Ji
 ia mengambil Cambuk Naga Perak dan memasang kuda-kuda. Guo Jing tidak bergerak, "Kami tidak akan melawanmu lagi. Kau 
 bebas pergi!" teriaknya.
 
-Mei Chaofeng menyinpan cambuknya dan berkata, "Tolong kembalikan kitabku." Zhu Cong bingung. "Aku tidak mengambil kitabmu,"
+Mei Chaofeng menyimpan cambuknya dan berkata, "Kembalikan kitabku." Zhu Cong bingung. "Aku tidak mengambil kitabmu,"
 katanya. "Kau tahu Tujuh Orang Aneh tidak pernah berbohong." Ia tidak menyadari bahwa kulit yang membungkus belati itu 
 adalah Jiu Yin Zhen Jing.
 
@@ -918,7 +918,7 @@ kitab itu adalah milik gurunya, oleh karena itu, kitab itu harus dikembalikan ke
 memberi isyarat kepada putranya dan Lu Guanying mengerti. Ia mengangguk. Guo Jing juga melihat-lihat, tapi tentu saja
 ia tidak akan menemukannya, padahal kitab yang dicari ada di dalam sakunya bersama belatinya.
 
-"Mei Shijie, kitabmu tidak ada disini," kata Lu Chengfeng. "Mungkin tercecer di parjalananmu menuju ke sini."
+"Mei Shijie, kitabmu tidak ada disini," kata Lu Chengfeng. "Mungkin tercecer dalam perjalananmu menuju ke sini."
 
 Mei Chaofeng tidak menjawab, ia masih terus meraba-raba. Tiba-tiba mata semua orang kabur ketika pria berjubah hijau 
 itu muncul kembali di samping Mei Chaofeng. Gerakannya begitu cepat sehingga tidak ada yang melihat apa pun saat 
@@ -952,7 +952,7 @@ memakai sebagian?"
 sendiri. Tapi Guo Jing melanjutkan, "... karena itu Hong Lao Qianbei hanya mengajarkan lima belas jurus."
 
 "Bagus sekali!" kata Mei Chaofeng. 'Kau hanya tahu lima belas jurus, tapi sudah mengalahkan aku. Masa Si Tua Hong Qigong
-itu sehebat itu? Tidak! Aku tidak bisa terima ini! Ayo kita mulai lagi!"
+sehebat itu? Tidak! Aku tidak bisa terima ini! Ayo kita mulai lagi!"
 
 Semua orang merasa heran, tampaknya Mei Chaofeng kembali bukan untuk membalas dendam, tapi untuk memperdebatkan 
 reputasi Huang Yaoshi dan Hong Qigong.
@@ -1014,13 +1014,13 @@ dan meluncurkan tiga serangan berturut-turut. Guo Jing terpaksa mengelak, dan ny
 dua serangan terakhir.
 
 Pertarungan semakin sengit dan angin yang dihasilkan oleh tangan mereka semakin kuat. Secara berkala suara pelan
-dari kerikil terdengar. Huang Rong mengerti situasinya tidak menguntungkan. Ia diam -diam memilih beberapa puing 
-dari lantai dan menjentikkannya. Adakalanya hanya ditujukan untuk mencoba membingungkan Mei Chaofeng, tapi kadang-kadang
+dari kerikil terdengar. Huang Rong mengerti situasinya tidak menguntungkan. Ia diam-diam memilih beberapa puing 
+dari lantai dan menyentilnya. Adakalanya hanya ditujukan untuk mencoba membingungkan Mei Chaofeng, tapi kadang-kadang
 ditujukan untuk menjatuhkan kerikil pria aneh itu. Tapi secara tak terduga, kerikil pria itu tidak bisa dirobohkan 
-oleh puing-puing yang dilemparkan Huang Rong. Sebaliknya, puing -puing Huang Rong yang jatuh sementara kerikilnya 
+oleh puing-puing yang dilemparkan Huang Rong. Sebaliknya, puing -puing Huang Rong yang jatuh, sementara kerikilnya 
 terus terbang. Petunjuknya kepada Mei Chaofeng tidak terhalang.
 
-Lu Chengfeng, putranya, bersama dengan enam orang aneh, sangat kagum. "Tenaga jari orang ini luar biasa. Bagaimana 
+Lu Chengfeng, putranya, bersama dengan enam orang aneh sangat kagum. "Tenaga jari orang ini luar biasa. Bagaimana 
 dia bisa menyalurkan tenaga ke kerikil seperti itu? Bahkan panah tidak akan menimbulkan suara sekuat itu. Jika 
 kerikil ini mengenai seseorang, tulang orang itu akan hancur!" pikir mereka.
 
