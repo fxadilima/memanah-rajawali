@@ -1124,6 +1124,10 @@ Lu Chengfeng merasa lega setelah tahu gurunya hanya menguji ilmu bela diri putra
 aturan perguruan kita. Di zi tidak berani mengajarkan kungfu kita kepada orang lain tanpa seijin Shifu. Anak ini 
 memang murid dari Biksu Agung Kumu[^ku-mu-da-shi] dari Xian Xia Pai."
 
+Huang Yaoshi mencibir, "Kumu berani menyebut dirinya 'Guru Besar'[^dashi] dengan kungfunya? Kungfumu seratus kali 
+lipat lebih baik dari dia. Mulai besok kau akan mengajari putramu. Perguruan Xian Xia bahkan tidak layak memegang 
+lilin untuk kita."
+
 
 
 ***
@@ -1424,5 +1428,9 @@ memang murid dari Biksu Agung Kumu[^ku-mu-da-shi] dari Xian Xia Pai."
 [^da-bu-gou-pao]: Da bu gou, pao! (打不够 , 跑 !) Kata-kata ini adalah istilah gabungan yang tidak bisa diterjemahkan begitu saja secara literal. Da (打) artinya adalah berkelahi/fight, sedangkan Bu (不) adalah kata sifat yang berfungsi sebagai kata sambung negatif, yang berarti "Tidak". Gou (够) berarti "Cukup". Sedangkan karakter terakhir adalah karakter independen, Pao, yang berarti "Lari". Rangkaian karakter "Da bu gou" itu maknanya kira-kira adalah "Perlawanan tidak cukup", yang berarti kita tidak cukup kuat untuk menang dalam sebuah pertarungan. Singkatnya bisa diartikan 'Kalau kalah, lari!'.
 
 [^ku-mu-da-shi]: Biksu Agung Kumu (Kumu Da Shi, 枯木大師) adalah Kepala Biara Fahua di Lin'an. Ia juga adalah anggota dari Perguruan Silat Xian Xia, yang adalah salah satu cabang Shaolin.
+
+[^dashi]: Da Shi (大師) secara literal berarti 'Guru Besar'. Panggilan ini umumnya disandang oleh guru terbaik di antara guru-guru yang ada di suatu tempat. Ini juga termasuk Biksu. Seorang Kepala Biksu atau Kepala Biara umumnya akan dipanggil Da Shi. Bahkan biksu biasa akan cenderung dipanggil Dashi oleh orang awam yang ingin menunjukkan rasa hormatnya.
+
+
 
 
