@@ -1385,7 +1385,11 @@ memang murid dari Biksu Agung Kumu[^ku-mu-da-shi] dari Xian Xia Pai."
         Biksu Kumu, dan secara tidak langsung ia mewarisi ilmu silat Shaolin.
     </dd>
     <dt id="die">Die (爹)</dt>
-    <dd>Ayah dalam bahasa mandarin. Orang kuno lebih cenderung memakai istilah ini, dan bukan "Papa".</dd>
+    <dd>
+        Ayah dalam bahasa mandarin. Orang kuno lebih cenderung memakai istilah ini, dan bukan "Papa".
+        Istilah ini diucapkan "Tie", dan bukan dengan "D". Kita akan cenderung membayangkan istilah bahasa Inggris "Die",
+        yang berarti "Mati", tetapi cara pengucapannya sama sekali lain.
+    </dd>
 </dl>
 
 
