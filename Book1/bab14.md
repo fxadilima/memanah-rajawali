@@ -1128,6 +1128,46 @@ Huang Yaoshi mencibir, "Kumu berani menyebut dirinya 'Guru Besar'[^dashi] dengan
 lipat lebih baik dari dia. Mulai besok kau akan mengajari putramu. Perguruan Xian Xia bahkan tidak layak memegang 
 lilin untuk kita."
 
+Lu Chengfeng sangat gembira dan buru-buru memberi tahu putranya, "Cepat! Ungkapkan rasa terima kasihmu kepada 
+Kakek Guru!" Lu Guanying segera bersujud lagi ke Huang Yaoshi. Huang Yaoshi mengangkat kepalanya, sama sekali 
+mengabaikan Guanying.
+
+Lu Chengfeng pernah belajar kungfu di Pulau Bunga Persik, meskipun kedua kakinya lumpuh, ia tidak kehilangan 
+kungfu apa pun yang berkaitan dengan tubuh bagian atasnya. Ia sangat menyadari keunggulan sekolahnya sendiri. 
+Ia telah melihat dengan matanya sendiri betapa kerasnya Lu Guanying berlatih, namun prestasinya terbatas. Ini 
+membuatnya kesal, tetapi karena ia tidak berani melanggar peraturan perguruannya, ia harus menahan diri. 
+Agar tidak mengecewakan anaknya, ia berpura-pura tidak tahu ilmu silat sama sekali. Sekarang setelah gurunya 
+memberinya ijin, ia tahu kungfu putranya akan meningkat pesat. Mana mungkin ia tidak bahagia? Ia ingin mengungkapkan
+rasa terima kasihnya, tapi ia tersedak oleh haru.
+
+Huang Yaoshi melihat ini dan ia hanya berkata, "Ambil ini!" Ia melambaikan tangan kanannya dan dua lembar 
+kertas dengan lembut terbang ke arah Chengfeng. Jarak di antara mereka sebenarnya lebih dari sepuluh kaki, 
+tetapi kertas-kertas itu terbang dengan lembut seolah-olah dikirim langsung kepada Lu Chengfeng. Demonstrasi 
+tenaga dalam ini bahkan lebih mengesankan daripada menyentil kerikil, karena kertasnya tipis dan lebih sulit 
+untuk dilempar. Semua orang tak dapat menahan kekaguman mereka.
+
+Huang Rong sangat gembira, ia segera mendekati Guo Jing. "Jing Gege," katanya. "Apa pendapatmu tentang kungfu
+ayahku?"
+
+"Kungfu ayahmu sangat hebat," kata Guo Jing. "Rong'er, setelah sampai di rumah kau harus rajin berlatih, jangan
+buang waktu lagi untuk main-main."
+
+"Kau ikut kami, kan?" tanya Huang Rong.
+
+"Aku harus mengikuti guru-guruku," jawa Guo Jing. "Aku akan mencarimu lagi lain kali."
+
+Huang Rong sangat cemas. "Tidak! Aku tidak ingin meninggalkanmu." Guo Jing tersenyum lebar. Ia juga tidak ingin 
+berpisah dengan Huang Rong, tetapi ia tahu mereka tidak punya banyak pilihan dan juga sedih.
+
+Lu Chengfeng mengambil kertas-kertas itu dan memeriksanya. Ia melihat kertas-kertas itu penuh dengan tulisan. 
+Lu Guanying mengambil obor dari aula. Ia mendekati ayahnya dan memegang obor untuk membantu ayahnya membaca. 
+Lu Chengfeng dapat melihat kertas-kertas itu penuh dengan karakter dan simbol. Itu adalah instruksi untuk 
+latihan kungfu dengan tulisan tangan Huang Yaoshi sendiri. Ia tidak melihat tulisan tangan gurunya selama 
+dua puluh tahun, namun ia masih mengenalinya. Tulisan tangan Sang Guru tinggi dan lurus, seanggun yang diingatnya. 
+Di sebelah kanan adalah judul, teknik 
+[Xuan Feng Sao Ye Tui Fa](#xuan-feng-sao-ye-tui-fa "(旋風掃葉腿) Tendangan Angin Puyuh Menyapu Dedaunan"), enam karakter. 
+Lu Chengfeng tahu bahwa teknik tendangan itu dan 
+[Luo Ying Shen Jian Zhang](#luo-ying-shen-jian-zhang "Ilmu Pedang Dewa (落英神劍掌)") adalah kungfu ciptaan gurunya yang cerdik.
 
 
 ***
@@ -1393,6 +1433,35 @@ lilin untuk kita."
         Ayah dalam bahasa mandarin. Orang kuno lebih cenderung memakai istilah ini, dan bukan "Papa".
         Istilah ini diucapkan "Tie", dan bukan dengan "D". Kita akan cenderung membayangkan istilah bahasa Inggris "Die",
         yang berarti "Mati", tetapi cara pengucapannya sama sekali lain.
+    </dd>
+    <dt id="luo-ying-shen-jian-zhang">Luo Ying Shen Jian Zhang (落英神剑掌)</dt>
+    <dd>
+        Salah satu kungfu ciptaan Huang Yaoshi, yang adalah kungfu tangan kosong, tetapi memakai telapak tangan
+        seperti menggunakan pedang. Barangkali sebaiknya diterjemahkan menjadi Ilmu Pedang Dewa Pendekar Gugur.
+        Karakter gabungan Shen Jian (神剑) bisa diartikan "Pedang Dewa" (bukan Dewa Pedang).
+        Karakter Zhang (掌) adalah "Telapak", atau jurus tangan kosong dalam konteks ini.
+        Karakter pertama Luo (落) artinya "Jatuh", atau barangkali lebih luwes kita tulis "Gugur".
+        Sedangkan Ying (英) berarti "Pahlawan" atau "Pendekar" dalam konteks ini.
+        Karakter Ying berdiri sendiri sebagai kata benda memang bisa bermakna Berani/Brave, Pahlawan/Hero, atau
+        "Orang yang luar biasa/istimewa", atau bahkan Bunga/Flower.
+        Konon, nama "Pedang Dewa" itu dipakai adalah karena "Pedang" tersebut tidak kelihatan, karena memang tidak ada,
+        dan jurus ini memang adalah jurus tangan kosong. Tangan itulah yang berfungsi sebagai pedang, dan bergerak
+        seperti pedang. Sama sekali tidak jelas mengapa harus ada istilah "Luo Ying" di sini, dan sebenarnya kedua
+        karakter itu sulit sekali diterjemahkan. Untuk sementara saya tidak mencantumkan istilah "Luo Ying" ini,
+        dan hanya memakai "Ilmu Pedang Dewa" yang terasa lebih masuk akal.
+    </dd>
+    <dt id="xuan-feng-sao-ye-tui-fa">Xuan Feng Sao Ye Tui Fa (旋風掃葉腿法)</dt>
+    <dd>
+        Ini adalah sebuah teknik tendangan ciptaan Huang Yaoshi. Rangkaian 6 karakter ini dengan cukup mudah bisa kita
+        terjemahkan menjadi "Teknik Tendangan Angin Puyuh Menyapu Dedaunan". Uraian per karakter adalah sbb:
+        <ol>
+            <li>Xuan (旋) = Pusaran/Putaran/Lingkaran</li>
+            <li>Feng (風) = Angin</li>
+            <li>Sao (掃) = Menyapu</li>
+            <li>Ye (葉) = Daun</li>
+            <li>Tui (腿) = Kaki</li>
+            <li>Fa (法) = Teknik</li>
+        </ol>
     </dd>
 </dl>
 
