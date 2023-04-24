@@ -664,7 +664,7 @@ ke arahnya. Mei Chaofeng mendengar suara telapak tangan dan hendak menghindar, t
 menghindari gerakan indah Delapan Belas Jurus Penakluk Naga dan bahunya terpukul. Ia terguncang dan terpaksa mundur 
 tiga langkah. Tapi kungfunya tidak lemah. Sambil melangkah mundur ia mengirim kukunya untuk melakukan serangan balik.
 Guo Jing terkejut dan pergelangan tangan kanannya tercekal oleh Mei Chaofeng pada tiga titik akupunktur 
-[Nei Guan](#neiguan "Pintu Dalam"), [Wai Guan](#waiguan "Pintu Luar"), dan [Hui Zong](#huizong "Pertemuan Leluhur"). 
+[Nei Guan](#neiguan "Pintu Dalam"), [Wai Guan](#waiguan "Pintu Luar"), dan [Hui Zong](#huizong "Persimpangan Jalan"). 
 Guo Jing ingat peringatan guru-gurunya bahwa Cakar Tengkorak Putih Sembilan Bulan Mei Chaofeng sangat mematikan, 
 karenanya ia selalu waspada. Tapi sekarang ia tidak bisa berkutik dicekal oleh jari-jari maut itu. "Celaka!" teriaknya.
 Seluruh tubuhnya terasa lemas. Pada saat kritis itu ia berhasil menekuk dua jarinya, dan dengan tangan membentuk 
@@ -707,13 +707,15 @@ dengan sopan dan hormat."
 
 Wanyan Kang juga kesal. "Aku harus melawan orang ini, dengan kungfunya yang seperti ini. Bagaimana aku bisa menang?"
 
-"Mei Shijie, kau telah bertarung lebih dari delapan puluh jurus. Kenapa tidak mengaku kalah?" Huang Rong berseru keras-keras. Sebenarnya mereka baru bertarung sekitar enam puluh jurus, tapi ia melebih-lebihkan dengan menambahkan dua puluh jurus lagi.
+"Mei Shijie, kau telah bertarung lebih dari delapan puluh jurus. Kenapa tidak mengaku kalah?" Huang Rong berseru 
+keras-keras. Sebenarnya mereka baru bertarung sekitar enam puluh jurus, tapi ia melebih-lebihkan dengan menambahkan dua 
+puluh jurus lagi.
 
 Mei Chaofeng makin marah. "Aku sudah latihan keras selama puluhan tahun tetapi tidak dapat mengatasi anak ini?" pikirnya. 
 Ia mengabaikan ucapan Huang Rong dan meningkatkan kecepatan serangannya. Sebenarnya kungfunya jauh lebih baik 
 daripada Guo Jing, tetapi pertama ia sudah di bawah angin karena buta, dan kedua ia tidak dapat berpikir jernih 
 karena hatinya dipenuhi amarah dalam usahanya membalas dendam untuk suaminya. Kemarahan adalah tabu besar dalam 
-pertarungan antara dua ahli seni bela diri. Ketiga Guo Jing memiliki keuntungan dari tenaga seorang anak muda, 
+pertarungan antara dua ahli seni bela diri. Ketiga, Guo Jing memiliki keuntungan dari tenaga seorang anak muda, 
 ditambah lagi ia telah menguasai sebagian besar Delapan Belas Jurus Penakluk Naga. Oleh karena itu pertarungan 
 antara keduanya sangat sengit dan berimbang.
 
@@ -775,7 +777,7 @@ titik akupuntur mereka.
 Mei Chaofeng selalu memusatkan perhatiannya pada Guo Jing. Begitu mendengar Guo Jing bergerak, ia mengikuti. Sekarang 
 di bawah awan tebal, bagian luar sudah gelap. Begitu semua orang bisa menenangkan dirinya sendiri, mereka bisa melihat pertarungan Guo Jing dan Mei Chaofeng menjadi lebih sengit dari sebelumnya. Mereka bertarung dalam cahaya redup, 
 kedua belah pihak bertukar pukulan dengan cepat, menciptakan hembusan angin dimana-mana. Dibandingkan dengan 
-pertarungan di dalam aula, pertarungan ini lebih jauh lebih seru.
+pertarungan di dalam aula, pertarungan ini jauh lebih seru.
 
 Kegelapan itu sungguh kerugian bagi Guo Jing, ia mulai jatuh di bawah angin menghadapi serangan gencar Mei Chaofeng. 
 Kaki kiri Mei Chaofeng melakukan gerakan menyapu, diikuti kaki kanannya yang menendang ke arah kakinya. Kalau kena, 
