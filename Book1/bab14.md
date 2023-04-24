@@ -621,7 +621,7 @@ Mei Chaofeng menghantam angin. Orang itu bergerak seperti hantu, dan yang menakj
 tanpa suara.
 
 Setelah tiba di Jiangnan, Mei Chaofeng selalu merasa ada orang mengikutinya, tetapi bagaimana pun caranya menyerang atau
-bicara, ia ta pernah mendengar apa pun juga. Ia merasa sepertinya ia sudah kehilangan ingatan, atau itu hantu yang sedang
+bicara, ia tak pernah mendengar suara apa pun juga. Ia merasa sepertinya ia sudah hilang ingatan, atau itu hantu yang sedang
 menakut-nakutinya. Lalu ia mendengar suara seruling yang mengusir ular, ia jadi yakin bahwa ada seorang berilmu tinggi
 sedang membuntutinya. Ia sudah berusaha untuk menyatakan rasa terima kasihnya ke udara, tetapi tidak terdengar suara
 apa pun juga. Ia menunggu di balik pepohonan, tapi tidak yakin apakah orang itu sudah pergi. Sekarang ia mendengar Huang
