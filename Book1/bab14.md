@@ -584,7 +584,7 @@ semua gurunya dengan segala cara yang bisa dilakukannya.
 
 "Bagus!" kata Mei Chaofeng. 'Aku akan menghapus semua hutang Enam Orang Aneh! Anak baik, ayo ikut aku!"
 
-Tiba-tiba Huang Rong berseru, "Mai Shijie, dia laki-laki sejati. Sebaliknya, kau akan jadi bahan tertawaan semua
+Tiba-tiba Huang Rong berseru, "Mei Shijie, dia laki-laki sejati. Sebaliknya, kau akan jadi bahan tertawaan semua
 pendekar di Jianghu!"
 
 "Bagaimana bisa begitu?" tanya Mei Chaofeng marah.
