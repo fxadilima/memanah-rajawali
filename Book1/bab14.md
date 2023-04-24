@@ -610,7 +610,7 @@ ditemui Mei Chaofeng saat itu.
 "Aku akan melawan Mei Qianbei lima belas jurus," kata Guo Jing. Ia hanya menguasai lima belas dari Delapan Belas
 Jurus Penakluk Naga, jadi ia merasa setidaknya ia bisa bertahan lima belas jurus.
 
-"Mintalah kepada Lu Shige dan tamu yang datang menemanimu untuk mrnjadi saksi," tambah Huang Rong. 
+"Mintalah kepada Lu Shige dan tamu yang datang menemanimu untuk jadi saksi," tambah Huang Rong. 
 
 "Siapa yang datang menemaniku?" tanya Mei Chaofeng heran. "Aku datang ke rumah ini sendirian... siapa yang datang bersamaku?"
 
