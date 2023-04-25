@@ -224,7 +224,7 @@ Gongzi, semuanya sudah diurus." Yang Kang tertawa dan memberi tip dengan murah h
 sebesar-besarnya dan mengantar mereka keluar dari restoran, membungkuk sambil tersenyum sepanjang waktu.
 
 Guo Jing memuji kemurahan hati Lu Xiansheng. Yang Kang bagaimanapun juga masih menyimpan dendam karena ia telah 
-ditangkap dan ditawan. "Kukira dia memakai cara ini untuk menggaet dengan orang-orang Jianghu. Tidak heran dia 
+ditangkap dan ditawan. "Kukira dia memakai cara ini untuk menggaet orang-orang Jianghu. Tidak heran dia 
 bisa memimpin kawasan Danau Tai," katanya.
 
 "Bukankah Lu Xianshen itu masih Paman Gurumu?" tanya Guo Jing heran.
