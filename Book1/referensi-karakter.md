@@ -68,6 +68,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
             <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682455881/misc/clay-figurine_dakxtt.png"
                 alt="Boneka tanah liat">
         </a>
+        <br/>
         Sebagai catatan, karakter Da (大) berarti "Besar". Sedangkan karakter Ah (阿) adalah selipan, yang biasanya
         dletakkan di depan nama panggilan. Sudah umum seorang keturunan Tionghoa dipanggil Ah Ling, Ah Yong, dsb.
         Penduduk setempat mengaitkan nama tersebut dengan "Rejeki Besar".
