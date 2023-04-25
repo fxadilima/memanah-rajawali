@@ -214,7 +214,7 @@ lebar. "Meja sudah siap, silakan ikut aku dan makan."
 Guo Jing dan Yang Kang bingung. "Kalian kenal kami berdua?" tanya Yang Kang.
 
 "Tadi ada seorang tamu datang dan menyuruh kami menyiapkan makanan untuk kalian berdua. Ia bahkan dengan rinci 
-bagaimana rupa Guo Gongzi dan Yang Gongzi," kata pelayan itu, masih sambil tersenyum. Ia kemudian memegang tali
+menerangkan bagaimana rupa Guo Gongzi dan Yang Gongzi," kata pelayan itu, masih sambil tersenyum. Ia kemudian memegang tali
 kekang kuda dan membawanya ke kandang.
 
 Yang Kang mendengus dan dengan sinis berkata, "Lu Xiansheng dari Rumah Awan itu sangat baik." Mereka memasuki restoran 
