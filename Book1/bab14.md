@@ -88,7 +88,7 @@ orang tua ini akan melakukan kontak dengan orang-orang pemberani di Selatan dan 
 tentara Jin dan menyerang Dinasti Song dari kedua sisi. Ini akan membuatnya tidak berdaya dan karenanya 
 tidak punya pilihan selain menyerah. Jika kita berhasil, kita tidak hanya akan mendapatkan kekayaan dan 
 kehormatan, tetapi juga rasa terima kasih dari rakyat. Dengan begitu keterampilan seni bela diri kita tidak 
-sia-sia dan kita tidak menodai dua karakter 'xia yi' (kesatria) dengan aib."
+sia-sia dan kita tidak menodai dua karakter [Xia Yi](#xia-yi "Xia Yi (侠义) = Ksatria") dengan aib."
 
 Mendengar hal ini, air muka Keenam Orang Aneh berubah, dan Han bersaudara sudah siap untuk membuka mulut. Untungnya
 Quan Jinfa — yang duduk di antara keduanya — buru-buru menarik jubah mereka dan memberi isyarat dengan pandangan 
