@@ -1166,12 +1166,269 @@ latihan kungfu dengan tulisan tangan Huang Yaoshi sendiri. Ia tidak melihat tuli
 dua puluh tahun, namun ia masih mengenalinya. Tulisan tangan Sang Guru tinggi dan lurus, seanggun yang diingatnya. 
 Di sebelah kanan adalah judul, 
 [Xuan Feng Sao Ye Tui Fa](#xuan-feng-sao-ye-tui-fa "Teknik Tendangan Angin Puyuh Menyapu Dedaunan. Klik untuk membaca uraian selengkapnya."), enam karakter. Lu Chengfeng tahu bahwa teknik tendangan itu dan 
-[Luo Ying Shen Jian Zhang](#luo-ying-shen-jian-zhang "Ilmu Pedang Dewa (落英神劍掌). Klik untuk membaca selengkapnya.") adalah kungfu ciptaan gurunya yang cerdik.
+[Luo Ying Shen Jian Zhang](#luo-ying-shen-jian-zhang "Ilmu Pedang Dewa (落英神劍掌). Klik untuk membaca selengkapnya.") adalah kungfu ciptaan gurunya yang cerdik. Tak satu pun dari enam murid gurunya pernah mempelajari teknik 
+tendangan ini. Ia membayangkan betapa senangnya jika ia mempelajari teknik ini. Tapi tetap saja, karena belas kasihan
+gurunya, ia masih bisa mengajarkan teknik ini kepada putranya. Ia merasa sangat berterima kasih. Ia memasukkan 
+kertas-kertas itu ke dalam sakunya dan membungkuk untuk mengungkapkan rasa terima kasihnya.
 
+"Serangkaian teknik tendangan ini sama sekali berbeda dari yang sudah kau ketahui," kata Huang Yaoshi. "Teknik 
+luar tetap ada, tetapi tenaga yang dipakai untuk melakukannya harus dibangun dari dalam. Jika kau rajin berlatih 
+dan bermeditasi setiap hari, dan jika kemajuanmu bagus, kau akan dapat berjalan tanpa tongkat dalam waktu lima atau 
+enam tahun."
+
+Hati Lu Chengfeng dipenuhi segala macam perasaan campur-aduk tanpa bisa diuraikan.
+
+"Cacatmu memang permanen," tambah Huang Yaoshi. "Kau tidak akan bisa bertarung dengan mengandalkan teknik tendangan,
+tetapi kalau kau rajin berlatih, maka kau tidak akan kesulitan berjalan seperti orang normal. Oh..." Ia sebenarnya
+menyesal karena marah ia telah menghukum berat empat muridnya yang tidak bersalah. Dalam beberapa tahun terakhir 
+ia memeras otaknya untuk menciptakan teknik baru, Tendangan Angin Puyuh Menyapu Dedaunan itu, dengan cara melatih
+tenaga dalam yang lebih baik. Rencananya adalah menemukan keempat muridnya dan memberikan teknik baru ini agar mereka 
+bisa berjalan kembali. Ia terlalu sombong, bahkan ketika hatinya penuh penyesalan, mulutnya tidak mau mengakuinya. 
+Oleh karena itu meskipun teknik tendangan ini sepenuhnya merupakan ciptaan barunya, ia masih menggunakan nama lama 
+yang tidak relevan, berpura-pura ia tidak melakukan kesalahan. Setelah beberapa saat ia melanjutkan, "Cari tiga 
+saudaramu yang lain dan ajari mereka teknik baru ini."
+
+"Ya," jawab Lu Chengfeng. Kemudian ia menambahkan, "Di Zi tidak tahu keberadaan Qu Shige dan Feng Shidi, tetapi 
+Wu Shidi telah meninggal beberapa tahun yang lalu."
+
+Huang Yaoshi merasa jantungnya seolah tertikan belati, matanya berkaca-kaca. Kemudian tatapan tajamnya beralih 
+ke Mei Chaofeng. Untungnya dia buta dan tidak bisa melihatnya, tetapi orang lain di sekitarnya bergidik ketika
+melihat tatapan Huang Yaoshi.
+
+"Chaofeng," katanya dengan nada sedingin es. "Kau sangat jahat, tetapi kau juga sangat menderita. Ketika Si Tua Qiu 
+itu bilang aku sudah mati, kau meneteskan air mata dan bahkan ingin membalas dendam untukku. Karena air mata itu 
+aku akan membiarkanmu hidup beberapa tahun lagi."
+
+Seperempat detik pun Mei Chaofeng tak pernah berharap bahwa gurunya akan memaafkannya dengan begitu mudah. Ia begitu
+gembira, dan buru-buru bersujud, _kowtow_ berkali-kali. "Sudah, sudah," kata Huang Yaoshi. Ia lalu mengulurkan tangannya
+ke punggung Mei Chaofeng dan mengetuk lembut tiga kali.
+
+Mei Chaofeng tiba-tiba merasakan sakit yang menusuk, dan secara bertahap rasa sakit itu meningkat, ia hampir pingsan. 
+Dengan suara gemetar ia memohon, "Shifu, muridmu layak mati sepuluh ribu kali. Di Zi minta belas kasihan Shifu 
+untuk membunuh di zi secepatnya, tapi tolong selamatkan di zi dari [Jarum Penembus Tulang](#fu-gu-zhen "Fu Gu Zhen")." 
+Ia sudah lama mendengar dari suaminya bahwa begitu Jarun Penembus Tulang guru mereka memasuki tubuh seseorang, 
+itu akan menempel pada tulang dan perlahan mengeluarkan racun. Enam kali sehari mengikuti peredaran darah, racun itu 
+akan menyebabkan rasa sakit yang luar biasa, tetapi tidak langsung membunuh. Bisa memakan waktu satu atau dua tahun 
+bagi orang itu untuk mati perlahan karena rasa sakit. Seorang ahli silat yang tangguh akan menyalurkan tenaga dalamnya 
+untuk melawan rasa sakit, tetapi semakin ia melakukannya semakin besar rasa sakitnya. Orang normal hanya akan 
+mengertakkan gigi saat kesakitan. Menggunakan tenaga dalam untuk menekan rasa sakit akan seperti meminum racun 
+untuk memuaskan dahaga, karena serangan berikutnya akan lebih hebat dari yang sebelumnya. Sejauh yang mereka ketahui, 
+tidak ada penawar untuk racun ini.
+
+Mei Chaofeng putus asa. Ia baru melangkah memasuki neraka hidup, mengapa ia harus hidup lebih lama lagi? Dengan panik ia 
+melecut-lecutkan cambuknya sekuat tenaga, mencoba mengambil nyawanya sendiri. Huang Yaoshi dengan cepat mengulurkan 
+tangannya dan merebut cambuk itu. "Mengapa kau begitu ingin mati? Tidak semudah itu!" katanya dingin.
+
+Mei Chaofeng tidak mudah menyerah. "Shifu pasti ingin menyiksaku, itu sebabnya dia tidak membiarkanku mati," pikirnya. 
+Tidak dapat menahan kesedihannya, ia menoleh ke arah Guo Jing dan tersenyum sedih, "Aku harus berterima kasih kepadamu 
+karena telah membunuh suamiku. Setidaknya bangsat itu mati dengan mudah tanpa tersiksa."
+
+Huang Yaoshi mengabaikan ucapannya dan berkata, "Jarum Penembus Tulang akan bekerja setelah satu tahun. Aku memberimu 
+tiga tugas yang harus dilakukan dalam satu tahun ini. Setelah kau menyelesaikan tugas, datang dan temui aku di Pulau 
+Bunga Persik. Aku punya cara untuk menyingkirkan racun itu."
+
+Harapan Mei Chaofeng bangkit kembali. "Muridmu akan melewati api dan air untuk menyelesaikan apa pun yang Shifu 
+inginkan." Tapi Huang Yaoshi dengan dingin menjawab, "Kau belum mendengar apa yang ingin kukatakan, tapi kau 
+mematuhinya secepat itu?" Mei Chaofeng tidak berani menjawab, ia hanya bersujud dalam diam.
+
+"Pertama, kau sudah kehilangan Jiu Yin Zhen Jing," lanjut Huang Yaoshi. "Kau harus menemukannya dan mengembalikannya 
+kepadaku. Jika orang lain melihatnya, kau harus membunuh orang itu. Jika ada seratus orang yang melihatnya, bunuh 
+seratus orang itu. Jika kau hanya membunuh sembilan puluh sembilan, jangan pernah berpikir untuk datang menemuiku."
+
+Semua yang mendengarkan bergidik tanpa sadar. Enam Orang Aneh dari Jiangnan berpikir, "Huang Yaoshi dikenal sebagai 
+Si Sesat Timur, karakternya sangat jahat."
+
+Mereka mendengarnya melanjutkan, "Qu Lingfeng, Lu Chengfeng, Wu Mianfeng dan Feng Mofeng, keempat saudara seperguruanmu 
+sudah menanggung penderitaan dan kesulitan gara-gara engkau. Kau harus menemukan saudaramu Lingfeng dan Mofeng, dan 
+mencari tahu apakah Mianfeng punya keluarga. Kau harus membawa mereka semua ke 
+[Gui Yun Zhuang](#cloud-manor "Rumah Awan, rumah Lu Chengfeng.") dan biarkan adikmu Chengfeng merawat mereka. 
+Ini tugas keduamu."
+
+Mei Chaofeng menganggukkan kepalanya berkali-kali. Lu Chengfeng berpikir, "Aku bisa menangani masalah yang ini."
+Tetapi karena ia tahu betul perangai gurunya, ia tidak berani mengatakan apa-apa.
+
+Huang Yaoshi mengangkat kepalanya, memandang langit berbintang di atas dan perlahan berkata, "Kamu mencuri 
+Jiu Yin Zhen Jing. Aku tidak mengajarimu dan aku juga tidak menyuruhmu melatihnya. Kau tahu apa yang harus dilakukan." 
+Ia berhenti sejenak lalu berkata, "Ini yang ketiga."
+
+Mei Chaofeng terdiam sesaat, ia tidak sepenuhnya memahami maksud gurunya. Setelah merenungkannya dalam hati ia 
+tiba-tiba mengerti. Dengan suara gemetar ia berkata, "Setelah di zi menyelesaikan dua tugas pertama, di zi tahu 
+bagaimana menyingkirkan Jiu Yin Baigu Zhua dan Cui Xin Zhang yang sudah di zi pelajari."
+
+Guo Jing tidak mengerti, ia menarik lengan baju Huang Rong dan memberi isyarat dengan matanya, meminta penjelasan. 
+Wajah Huang Rong sedih, ia mengangkat tangan kanannya dan memperagakan gerakan memotong lengan kirinya. Guo Jing 
+akhirnya mengerti, "Oh, dia akan memotong lengannya sendiri." Pikirannya terus mengembara, "Mei Chaofeng ini 
+benar-benar jahat, tapi dia bertobat. Kenapa hukumannya begitu berat? Aku harus bicara dengan Rong'er, mungkin 
+kita bisa meminta ayahnya untuk menunjukkan belas kasihan."
+
+Sementara dia masih berpikir, Huang Yaoshi memanggilnya untuk datang dan bertanya, "Namamu Guo Jing?" Guo Jing 
+melangkah maju dan memberi hormat. "Wanbei Guo Jing siap melayani Huang Qianbei."
+
+"Kau yang membunuh muridku Chen Xuanfeng? Kungfumu pasti luar biasa, ya?" kata Huang Yaoshi.
+
+Guo Jing memahami sindirannya, hatinya menjadi dingin. "Aku saat itu masih sangat muda dan bodoh. Chen Qianbei 
+menangkapku. Aku takut dan panik. Aku tidak sengaja melukainya."
+
+Huang Yaoshi mendengus dan dengan dingin berkata, "Chen Xuanfeng memang muridku yang memberontak. Tapi itu 
+untuk menghukumnya itu urusan kami. Bagaimana seorang murid dari Pulau Bunga Persik bisa dihukum oleh orang luar?" 
+Guo Jing tercengang.
+
+Huang Rong buru-buru menyelamatkannya. "Ayah, dia baru berusia enam tahun, dia tahu apa soal ini?" Huang Yaoshi 
+tidak menyukai apa yang didengarnya. Ia melanjutkan, "Si Tua Hong itu biasanya tidak menerima murid dan dia 
+sangat bangga dengan Delapan Belas Jurus Penakluk Naga. Tapi dia mengajarimu lima belas gerakan, jadi kau 
+pasti punya sesuatu yang baik. Kalau tidak kau pasti membujuknya untuk mengajarimu. Kau sudah mengalahkan muridku 
+dengan kungfunya. Lain kali kalau dia melihatku, aku yakin dia akan membual tanpa henti."
+
+"Ayah, soal membujuk itu memang benar," kata Huang Rong sambil tersenyum. "Tapi itu bukan dia, itu aku. Dia hanya 
+anak yang jujur. Kata-katamu terlalu kasar, kau membuatnya takut."
+
+Setelah kehilangan istrinya, Huang Yaoshi sangat menyayangi putrinya. Ia bahkan bersikap terlalu lunak kepadanya 
+sehingga anak itu menjadi manja. Hari itu ia memarahi anaknya, dan anak itu langsung kabur dari rumah. Ia berpikir 
+bahwa menjadi anak manja dan setelah berkeliaran di Jianghu untuk sementara waktu, Huang Rong akan menjadi melarat 
+dan dalam kondisi yang buruk. Siapa sangka dia tidak kurus dan pucat, tapi selembut dan secantik biasanya? Kemudian 
+ia melihat kasih sayangnya terhadap Guo Jing dan betapa dia selalu berusaha melindungi Guo Jing. Diam-diam ia 
+cemburu karena putrinya tidak pernah menunjukkan kasih sayang yang sama kepadanya. Kecemburuannya berubah menjadi 
+kemarahan. Ia mengabaikan putrinya dan berkata kepada Guo Jing, "Dengan mengajarimu, Pengemis tua jelas tidak 
+menghormati aku. Dia membiarkanmu mengalahkan Mei Chaofeng. Dia pikir murid-muridku hanya sekelompok orang yang bukan 
+siapa-siapa..."
+
+Huang Rong mengerti bahwa ayahnya kesal karena Mei Chaofeng dikalahkan oleh Delapan Belas Jurus Penakluk Naga. Ia 
+buru-buru berkata, "Siapa bilang murid Pulau Bunga Persik bukan siapa-siapa? Dia beruntung karena mata Mei Shijie buta, 
+apa istimewanya itu? Kalau mereka bertarung dengan adil dan jujur, dia pasti sudah kalahkan sejak lama. Biarkan 
+putrimu membuktikannya." Ia melompat keluar dan memanggil Guo Jing, "Ayo! Aku akan menggunakan kungfu yang diajarkan 
+ayahku untuk melawan kungfu Hong Qigong."
+
+Ia tahu bahwa saat ini baik Guo Jing dan dia sendiri sudah maju pesat. Mereka kurang lebih seimbang. Dia pikir selama 
+mereka bisa bertarung dengan seimbang sekitar seratus gerakan, ayahnya akan puas. Guo Jing mengerti niatnya, selain 
+itu Huang Yaoshi tidak mengatakan apa-apa, jadi ia setuju dan berkata, "Kau selalu lebih unggul dariku. Baiklah, aku 
+akan membiarkanmu mengalahkan aku beberapa kali lagi." Dan dia segera berjalan ke arah Huang Rong.
+
+"Hati-Hati!" seru Huang Rong. Tangannya menyapu secara horizontal diiringi hembusan angin, itu adalah jurus 
+[Hujan Mengirim Angin Ribut](#yuji-fengkuang "Yu Ji Feng Kuang") dari 
+Ilmu Pedang Dewa Bunga Persik[^taohua-shen-jian-zhang]. Guo Jing segera membalas menggunakan Delapan Belas Jurus 
+Penakluk Naga. Tapi ia sangat menyayangi Huang Rong sehingga tidak menggunakan tenaga sepenuhnya. Sayangnya Delapan 
+Belas Jurus Penakluk Naga sangat bergantung pada tenaga dalam yang kuat. Dalam urusan kungfu tangan kosong, ilmu 
+itu tidak bisa dibandingkan dengan gerakan indah Ilmu Pedang Dewa Pulau Persik. Setelah beberapa jurus ia terpukul 
+beberapa kali oleh kepalan tangan Huang Rong. Sebaliknya Huang Rong tahu bahwa Guo Jing kuat dan ulet, jadi 
+untuk menenangkan ayahnya, ia menggunakan kekuatan penuhnya. "Kau tidak mau mengaku kalah?" serunya dengan keras. 
+Mulutnya mengucapkan kata-kata itu, tetapi pukulannya tidak berhenti.
+
+Huang Yaoshi mencibir, "Permainan akrobat macam apa yang kalian tunjukkan?" Tidak ada yang melihatnya bergerak, 
+tetapi tiba-tiba ia berada di dekat keduanya, merentangkan kedua tangannya untuk mencekal dan melemparkan mereka. 
+Meski gerakannya serupa, ia hanya melemparkan putrinya ke samping, sementara tangan kanannya melemparkan Guo Jing 
+dengan sepenuh tenaga. Niatnya jelas ingin membanting Guo Jing dengan keras. Tetapi meskipun Guo Jing tidak mampu 
+menahan lemparan tersebut, ia mampu membalikkan badannya di udara. Ketika mendarat, ia tidak jatuh tetapi berdiri 
+kokoh di atas tanah. Wajahnya pucat dan ia tampak seperti ingin muntah.
+
+Bukannya memuji, kemarahan Huang Yaoshi malah meluap. "Aku tidak punya murid untuk melawanmu. Ayo! Biar aku yang
+menguji kungfumu!"
+
+Guo Jing buru-buru membungkuk dan berkata, "Kalau pun aku punya keberanian setinggi langit, tetap tidak akan
+berani melawan Qianbei."
+
+Huang Yaoshi mendengus, "Melawanku?" katanya dengan dingin. "Kau bukan tandinganku, Nak! Aku akan berdiri di sini
+sementara kau menyerangku dengan Delapan Belas Jurus Penakluk Naga-mu, kalau aku sampai bergerak atau mengangkat
+tangan untuk menangkismu, maka kau menang."
+
+"Wanbei tetap tidak berani," kata Guo Jing.
+
+"Aku tidak peduli kau berani atau tidak. Kau harus melawanku!" kata Huang Yaoshi.
+
+Guo Jing tak tahu harus berbuat apa. "Aku tidak punya pilihan. Sebaiknya aku memukulnya beberapa kali, tapi
+rasanya dia akan meminjam tenagaku sendiri untuk menjatuhkan aku. Jadi kenapa kalau aku harus jatuh beberapa
+kali lagi?" pikirnya.
+
+Huang Yaoshi melihat dia ragu-ragu, tapi mukanya menunjukkan bahwa ia mau mencoba. Jadi ia mendesak, "Ayo cepat!
+Kalau kau tidak menyerang, maka aku akan memukulmu!"
+
+"Karena Qianbei memerintahkan, maka Wanbei tidak berani membantah," jawab Guo Jing. Ia membungkukkan tubuhnya 
+dan memutar tangannya, melancarkan jurus Kang Long You Hui. Ia takut akan melukai Huang Yaoshi. Dan juga kuatir 
+jika ia menggunakan sepenuh tenaganya, serangan balik akan menjadi lebih maut. Oleh karena itu ia hanya menggunakan 
+enam puluh persen dari tenaganya. Telapak tangannya mengenai dada Huang Yaoshi, tetapi yang mengejutkan adalah 
+telapak tangannya meluncur seolah-olah dada itu peti yang dilumuri minyak. "Kenapa, kau bahkan tidak ingin 
+memukulku," ejek Huang Yaoshi. "Apa menurutmu aku tidak bisa menahan tenaga luar biasa dari Delapan Belas 
+Jurus Penakluk Naga? Itu sebabnya ya?"
+
+"Wanbei tidak berani," jawab Guo Jing. Lalu ia melancarkan jurus keduanya, Melompat Keluar Dari Jurang[^huo-yue-zai-yuan]. 
+Kali ini ia tidak menahan diri. Menghembuskan napas, telapak tangan kirinya menerjang ke arah tenggorokan Huang Yaoshi, 
+telapak tangan kanannya dengan cepat bergerak ke kiri depan, langsung ke perut bagian bawah Huang Yaoshi.
+
+"Sekarang kau baru bertarung," kata Huang Yaoshi. Hong Qigong menyuruh Guo Jing melatih jurus ini di pohon pinus. 
+Pohon itu harus diam, maka Guo Jing seharusnya memukulnya dengan gerakan tiba-tiba. Baru kemudian ia berhasil 
+mematahkan pohon itu. Ia telah melatih jurus ini ribuan kali. Tapi begitu telapak tangannya menyentuh pakaian 
+Huang Yaoshi, ia merasakan perut Huang Yaoshi menyusut dan telapak tangannya tersedot. Ia merasa sakit karena 
+pergelangan tangannya terkilir. Ia segera melompat mundur beberapa meter. Tangannya terkulai lemas.
+
+Enam Orang Aneh dari Jiangnan melihat bahwa tubuh Huang Yaoshi tidak bergerak, dan juga tidak menggerakkan tangan sama
+sekali untuk menangkis, tetapi ia mampu membuat pergelangan tangan Guo Jing terkilir. Mereka takjub, tetapi juga
+cemas.
+
+"Kau juga harus menerima pukulanku!" Huang Yaoshi tiba-tiba berteriak, "Aku ingin menunjukkan mana yang lebih unggul,
+Delapan Belas Jurus Penakluk Naga Pengemis Tua atau kungfu Pulau Bunga Persik-ku." Sebelum ia selesai berbicara, 
+hembusan angin telah bertiup ke arah Guo Jing. Guo Jing menahan rasa sakitnya dan melompat untuk menghindari serangan 
+itu. Tanpa diduga Huang Yaoshi tidak melanjutkan telapak tangannya tetapi malah menyapu kakinya. Guo Jing terjatuh.
+
+Huang Rong terkejut. "Ayah, jangan!" teriaknya, dan dengan cepat melompat ke depan dan membungkuk untuk melindunginya.
+
+Huang Yaoshi tidak berhenti. Ia hanya mengubah kepalannya menjadi telapak tangan terbuka. Ia mencengkeram rompi 
+putrinya dan mengangkatnya, sementara tangan kirinya langsung mengarah ke Guo Jing.
+
+Enam Orang Aneh dari Jiangnan menyadari bahwa jika Guo Jing terkena, ia pasti akan mati atau setidaknya menderita 
+cedera yang sangat berat. Mereka bergerak sekaligus. Quan Jinfa adalah yang pertama. Ia memukul lengan kiri 
+Huang Yaoshi dengan tuas timbangan bajanya. Huang Yaoshi dengan tenang menurunkan putrinya ke pinggir arena, 
+melambaikan kedua tangan dengan santai dan tuas timbangan baja itu berubah arah, menghantam pedang panjang di tangan 
+Han Xiaoying. Tuas timbangan dan pedang itu patah menjadi empat bagian.
+
+"Shifu...!" Lu Chengfeng berseru. Ia ingin meminta gurunya berhenti, tetapi karena kenal betul temperamen gurunya, 
+ia tidak berani melanjutkan.
+
+Huang Rong menangis. "Ayah, kalau kau membunuhnya," teriaknya. "Kau tidak akan pernah melihatku lagi!" Tanpa 
+basa-basi lagi ia berlari menuju Danau Tai dan melompat ke dalam air.
+
+Huang Yaoshi terkejut, lalu marah. Ia tahu putrinya sangat bagus dalam air. Ia biasa berenang dan menyelam di Laut 
+Timur[^dong-hai], bermain dengan ikan dan kura-kura. Terkadang ia pergi berenang sepanjang hari. Tapi kali ini ia 
+tidak yakin kapan bisa melihatnya lagi. Jadi ia berlari ke arah danau untuk mencoba menangkapnya, tetapi ia terlambat. 
+Huang Rong sudah menghilang di air yang gelap. Huang Yaoshi menatap kosong dari tepi danau.
+
+Setelah beberapa lama ia menoleh dan melihat Zhu Cong sedang membetulkan pergelangan tangan Guo Jing yang terkilir. 
+Kemarahannya meluap dan ia ingin melampiaskan rasa frustrasinya kepada orang-orang ini. "Kalian berenam! Cepat 
+bunuh diri untuk menghemat tenagaku!" katanya dengan dingin.
+
+Ke Zhen'E mengayunkan tongkat besinya di depan dada dan dengan bangga berkata, "Pria sejati tidak takut mati. 
+Kau pikir kami takut menderita?" Zhu Cong juga berkata, "Enam Orang Aneh dari Jiangnan sudah kembali ke kampung 
+halaman. Kalau tulang kita bisa dikuburkan di sini, di tepi Danau Tai, apa lagi yang kita inginkan?" Mereka berenam
+menghunus senjata atau bersiap dengan tangan kosong dan pasang kuda-kuda.
+
+Guo Jing berpikir keras. "Keenam guruku tidak punya dendam dengan orang ini. Mereka akan menyerahkan hidup mereka 
+dengan sia-sia. Bagaimana aku bisa membiarkan mereka dalam bahaya?" katanya dalam hati. Ia dengan cepat melompat 
+ke depan. "Chen Xuanfeng mati di tanganku! Itu tidak ada hubungannya dengan guru-guruku! Aku akan membayar nyawanya 
+dengan nyawaku!" Tapi kemudian pikiran lain melintas di benaknya, "Da Shifu, San Shifu dan Qi Shifu pemarah. Kalau 
+melihatku mati, mereka pasti akan bertarung sampai mati. Aku harus mengulur waktu. Aku harus menghadapinya 
+sendirian." Dengan berani ia memposisikan diri di antara Huang Yaoshi dan Enam Orang Aneh.
+
+"Satu-satunya penyesalanku adalah kematian ayahku belum terbalas. Aku mohon kepada Qianbei untuk memberiku waktu 
+sebulan. Setelah tiga puluh hari aku secara sukarela akan datang ke Pulau Bunga Persik untuk menyerahkan hidupku,"
+katanya tanpa rasa takut.
+
+Kemarahan Huang Yaoshi sudah reda sekarang. Ditambah lagi ia memikirkan keselamatan putrinya. Ia kehilangan selera 
+untuk bertarung. Jadi ia melambaikan tangannya dengan santai dan berjalan pergi.
+
+Semua orang terkejut, ucapan sederhana Guo Jing membuatnya pergi begitu saja? Mereka curiga bahwa ia sedang 
+mempermainkan mereka. Jadi mereka tetap membuka mata dengan waspada penuh. Tapi setelah menunggu beberapa saat, 
+Huang Yaoshi masih belum kembali.
+
+Setelah beberapa saat Lu Chengfeng mendapatkan kembali ketenangannya dan mengundang semua orang untuk kembali 
+ke aula untuk beristirahat.
+
+Mei Chaofeng tiba-tiba tertawa, mengebaskan lengan bajunya, lalu berbalik dan melompat keluar. Tak lama kemudian 
+ia menghilang dalam kegelapan.
+
+"Mei Shijie!" seru Lu Chengfeng. "Bawa muridmu!"
+
+Tapi kegelapan menelan suaranya. Mei Chaofeng sudah pergi jauh.
 
 
 ***
-
 
 <dl>
     <dt id="cloud-manor">Gui Yun Zhuang (traditional: 歸雲莊 simplified: 归云庄)</dt>
@@ -1417,6 +1674,8 @@ Di sebelah kanan adalah judul,
             <li>You (有) adalah kata sambung, di sini bisa berarti 'ada' atau 'punya'.</li>
             <li>Hui (悔) berarti 'Menyesal', seperti dalam Houhui 后悔.</li> 
         </ol>
+        Sebenarnya kalimat ini adalah kutipan yang diambil dari Yijing Hexagram, yaitu bagian yang membahas mengenai 6 Naga,
+        pada baris keenam, yang menceritakan 'Naga Sombong' (Kang Long).
         Demi mempertahankan estetika, saya menerjemahkan semuanya menjadi Naga Angkuh Punya Penyesalan.
     </dd>
     <dt id="xianxia-pai">Xian Xia Pai (仙霞派)</dt>
@@ -1463,6 +1722,8 @@ Di sebelah kanan adalah judul,
             <li>Fa (法) = Teknik</li>
         </ol>
     </dd>
+    <dt id="yuji-fengkuang">Yu Ji Feng Kuang (雨寄风狂)</dt>
+    <dd>Hujan Mengirim Angin Ribut</dd>
 </dl>
 
 
@@ -1492,7 +1753,7 @@ Di sebelah kanan adalah judul,
 
 [^qianlongwuyong]: Istilah Qian Long Wu Yong (潜龙勿用) _barangkali_ bisa kita terjemahkan menjadi 'Naga Terpendam Tidak Berguna'. Karena Qian Long adalah Naga Terpendam, sedangkan Wu Yong di situ berarti 'Jangan Digunakan'.
 
-[^tao-hua-shen-jian-zhang]: Tao Hua Shen Jian Zhang (桃花神剑掌), ilmu silat khas Pulau Persik yang diajarkan Huang Yaoshi. Ilmu ini menggunakan tangan kosong, tetapi seolah-olah tangan tersebut bertindak sebagai pedang.
+[^tao-hua-shen-jian-zhang]: Tao Hua Shen Jian Zhang (桃花神剑掌), ilmu silat khas Pulau Persik yang diajarkan Huang Yaoshi. Ilmu ini menggunakan tangan kosong, tetapi seolah-olah tangan tersebut bertindak sebagai pedang. Kemungkinan besar ini adalah jurus yang sama dengan [Luo Ying Shen Jian Zhang](#luo-ying-shen-jian-zhang "Ilmu Pedang Dewa").
 
 [^da-bu-gou-pao]: Da bu gou, pao! (打不够 , 跑 !) Kata-kata ini adalah istilah gabungan yang tidak bisa diterjemahkan begitu saja secara literal. Da (打) artinya adalah berkelahi/fight, sedangkan Bu (不) adalah kata sifat yang berfungsi sebagai kata sambung negatif, yang berarti "Tidak". Gou (够) berarti "Cukup". Sedangkan karakter terakhir adalah karakter independen, Pao, yang berarti "Lari". Rangkaian karakter "Da bu gou" itu maknanya kira-kira adalah "Perlawanan tidak cukup", yang berarti kita tidak cukup kuat untuk menang dalam sebuah pertarungan. Singkatnya bisa diartikan 'Kalau kalah, lari!'.
 
@@ -1500,6 +1761,6 @@ Di sebelah kanan adalah judul,
 
 [^dashi]: Da Shi (大師) secara literal berarti 'Guru Besar'. Panggilan ini umumnya disandang oleh guru terbaik di antara guru-guru yang ada di suatu tempat. Ini juga termasuk Biksu. Seorang Kepala Biksu atau Kepala Biara umumnya akan dipanggil Da Shi. Bahkan biksu biasa akan cenderung dipanggil Dashi oleh orang awam yang ingin menunjukkan rasa hormatnya.
 
-
+[^huo-yue-zai-yuan]: Nama jurus ini dikutip dari Yijing Hexagram, yaitu bagian yang membahas 6 Naga, pada baris keempat, yang berbunyi Huo Yue Zai Yuan. Kutipan tersebut bisa diterjemahkan menjadi 'Sang Naga sedang mempertimbangkan untuk melompat keluar dari dalam jurang'. Dalam bahasa aslinya Huo Yue Zai Yuan, karakter pertama Huo bisa 或 atau 惑. Diikuti oleh 躍在淵. Karakter Huo (惑) artinya adalah 'bingung', atau bahkan bisa jadi 'malu'. Sedangkan Huo (或) adalah kata keterangan, yang dalam hal ini bisa berarti mungkin/bisa jadi/barangkali, dan bahkan bisa menjadi kata sambung yang berarti 'atau'. Karakter kedua Yue (躍) punya makna 'melompat'. Kalau kita mencoba mengartikan karakter selanjutnya secara literal, maka akan terlihat seolah tidak bermakna. Sedangkan kalau ketiga karakter terakhir digabungkan, makna yang muncul adalah 'melompat ke kedalaman', yang berarti melompat _ke dalam_ jurang. Untuk benar-benar memahami kedalaman maknanya, orang harus mempelajari literatur Dinasti Zhou. Untuk memakainya sebagai nama jurus dalam konteks cerita silat, sebaiknya diterjemahkan menjadi 'Melompat Dari Jurang'.
 
 
