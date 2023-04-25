@@ -32,7 +32,258 @@ Guo Jing mendengar nama 'Duan Tiande', telinganya serasa mendengung. Dengan suar
 namamu Duan Tiande?"
 
 "Betul," jawab Duan Tiande. "Duan Tiande siap melayani 
-[Pendekar Muda](referensi-karakter.md#shao-xia "Shao Xia (少侠)")."
+[Shao Xia](referensi-karakter.md#shao-xia "Shao Xia (少侠) = Pendekar Muda")."
 
+"Delapan belas tahun yang lalu, apakah kau bertugas sebagai pejabat militer di Lin'an?" tanya Guo Jing lagi.
+
+"Dari mana Shao Xia tahu hal itu?" tanya Duan Tiande. Kemudian ia teringat bahwa Lu Chengfeng pernah menyebutkan 
+bahwa Lu Guanying adalah murid biksu Kumu. Ia menoleh ke Lu Guanying dan berkata, "Aku keponakan Biksu Kumu, 
+hanya saja aku tidak masuk biara. Tak disangka kita sekeluarga. Hahaha...!" Ia tertawa riang.
+
+Guo Jing memandangnya dengan aneh tapi tidak mengatakan apapun. Sementara Duan Tiande masih tersenyum gembira. 
+Setelah beberapa saat, Guo Jing mendapatkan kembali ketenangannya dan menoleh ke arah Lu Chengfeng. "Lu Xiansheng, 
+boleh kupinjam halamanmu sebentar?" tanyanya.
+
+"Oh, silakan pakai seperlunya," kata Lu Chengfeng.
+
+Guo Jing menggandeng lengan Duan Tiande dan membawanya ke halaman dengan langkah lebar. Perasaan Enam Orang Aneh 
+dari Jiangnan campur aduk. Mereka pikir Surga memang punya mata. Seandainya ia tidak menyebutkan namanya sendiri, 
+mereka tidak akan tahu ia adalah orang yang mereka cari selama tujuh tahun dan menempuh jarak puluhan ribu li ini.
+
+Lu Chengfeng dan putranya, bersama dengan Wanyan Kang mengikuti di belakang. Mereka tidak tahu apa yang akan 
+dilakukan Guo Jing.
+
+Halamannya diterangi oleh obor yang dipegang para pelayan pemukiman besar itu. Guo Jing meminjam beberapa alat tulis, 
+yang juga segera disediakan oleh para pelayan. Guo Jing lalu menoleh ke Zhu Cong.
+
+"Er Shifu," pintanya. "Bisakah aku minta tolong Er Shifu menuliskan nama ayah?" Zhu Cong memenuhi permintaannya. 
+Ia menulis dalam huruf besar, 'Papan Peringatan Keluarga Guo untuk Pendekar yang saleh Xiaotian'[^papan-peringatan] 
+dan meletakkannya di tengah meja.
+
+Ketika dibawa keluar dari aula, Duan Tiande mengira mereka akan menikmati makanan dan minuman, tetapi begitu melihat 
+nama 'Guo Xiaotian', darah seolah lenyap dari wajahnya, mukanya pucat pasi. Ia melihat sekeliling dan menyadari bahwa 
+Enam Orang Aneh dari Jiangnan telah mengambil posisi mengepungnya. Ia sangat takut, terutama sekali kepada Han Baoju,
+dengan perawakannya yang pendek dan gemuk, tanpa sadar ia kencing di celana. Hari itu ketika ia membawa ibu Guo Jing 
+ke Utara, dan dikejar oleh Tujuh Orang Aneh dari Jiangnan, ia berhenti di sebuah penginapan untuk bermalam. Ia mendengar 
+suara berisik dan mengintip melalui celah di pintu dan saat itu ia telah melihat Han Baoju. Perawakan pendek dan kekar 
+Han tidak mudah dilupakan. Sebelumnya pada hari itu mereka bertemu di aula, tetapi karena ia seorang tahanan, maka ia 
+lebih kuatir akan nasibnya sendiri, sehingga ia tidak terlalu memperhatikan orang lain. Tapi sekarang di bawah 
+cahaya obor yang terang, tidak mungkin salah mengenali Han Baoju sebagai orang lain.
+
+Guo Jing menghancurkan sebuah meja dan berteriak keras, "Sekarang katakan, kau ingin mati cepat dan mudah, atau ingin 
+aku mencincang tubuhmu menjadi seribu potong sebelum membunuhmu?"
+
+Duan Tiande tahu ia tidak akan melihat esok hari. Ia cepat-cepat cari akal, apapun yang bisa menyelamatkan hidupnya. 
+"Ayahmu, Pendekar Guo, kematiannya sangat disayangkan dan aku memang punya peranan kecil dalam kematiannya, tapi... 
+apa yang bisa kulakukan perwira rendahan di depan seorang atasan?" katanya dia tergagap.
+
+"Apa maksudmu? Siapa itu? Siapa yang menyuruhmu mencelakai ayahku? Cepat katakan!" bentak Guo Jing.
+
+"Pangeran Keenam dari Jin, Pangeran Wanyan Honglie," jawab Duan Diande.
+
+"Apa kau bilang?" sela Wanyan Kang kaget.
+
+Pada titik ini yang dapat dipikirkan Duan Tiande adalah, jika ia jatuh, orang lain harus ikut jatuh bersamanya. 
+Siapa tahu ia bisa lolos. Oleh karena itu tanpa menyembunyikan apapun ia menceritakan bagaimana Wanyan Honglie 
+tergila-gila kepada istri Yang Tiexin, Bao Xiruo. Bagaimana ia bersekongkol dengan para pejabat Song untuk membunuh 
+Yang Tiexin sementara Wanyan Honglie berpura-pura menjadi orang baik yang menyelamatkan Bao Xiruo. Ia menceritakan 
+bagaimana mereka menggeledah Desa Niu dan akhirnya membunuh Guo Xiaotian. Bagaimana Duan Tiande kemudian membawa 
+ibu Guo Jing ke Yanjing[^yanjing] dan kemudian bergabung dengan utusan Jin ke Mongolia. Ia menjelaskan betapa 
+selama masa kekacauan di Mongolia ia terpisah dari ibu Guo Jing. Bagaimana ia memutuskan untuk kembali ke Lin'an 
+dan bekerja dengan rajin sebagai prajurit, akhirnya dipromosikan ke posisinya saat ini. Ia mengakhiri ceritanya 
+dengan berlutut di depan Guo Jing.
+
+"Guo Shaoxia, 
+[Guo Da Ren](referensi-karakter.md#da-ren "Panggilan untuk seseorang yang punya posisi/jabatan tinggi.")," katanya. 
+"Tolong jangan salahkan hambamu yang hina ini. Aku melihat betapa sopan ayahmu, betapa serius ekspresinya. Aku ingin 
+berteman dengannya, hanya... hanya... hambamu yang hina ini seorang perwira yang berpangkat sangat rendah dan 
+aku harus mematuhi perintah. Tidak ada gunanya bagiku punya niat baik. Surga adalah saksiku, bagaimana aku, 
+Duan Tiande, tidak punya permusuhan terhadap siapa pun..." Ia melihat ekspresi Guo Jing tidak berubah sedikit pun 
+dan ia juga tidak mengatakan apa-apa. Ia bergegas bergeser ke meja dan berlutut di depan papan peringatan 
+Guo Xiaotian. "Guo Da Ren," lanjutnya. "Aku yakin rohmu di surga sangat jelas bahwa Pangeran Keenam Wanyan Honglie 
+yang membunuhmu, dan bukan makhluk rendahan di depanmu ini. Hari ini aku menyaksikan bahwa putramu adalah pemuda 
+yang luar biasa, arwahmu pasti sangat bangga padanya. Aku berdoa supaya dengan restumu ia akan memaafkan anjing 
+rendahan seperti aku ini..."
+
+Saat ia masih mengoceh, Wanyan Kang dengan sigap melompat, menghantam dengan kedua tangannya dan memecahkan tengkoraknya. 
+Ia ambruk dan tewas seketika.
+
+Guo Jing berlutut di depan meja, menangis tak terkendali. Baru sekarang Lu Chengfeng memahami kisah sebenarnya, 
+maka bersama dengan putranya dan Enam Orang Aneh dari Jiangnan, mereka membungkuk untuk memberi hormat di depan 
+papan peringatan untuk Guo Xiaotian. Wanyan Kang juga berlutut dan bersujud beberapa kali. Kemudian ia berdiri 
+dan berkata, "Kakak Guo, hari ini aku tahu bahwa.. bahwa Wanyan Honglie adalah musuh besar kita. Adikmu ini tidak 
+menyadarinya dan sudah melakukan banyak tindakan tercela, lebih seperti kejahatan keji." Dan kemudian ia teringat 
+penderitaan ibunya dan menangis dengan sedihnya.
+
+"Lalu apa yang akan kau lakukan?" tanya Guo Jing sambil mengangkat kepalanya.
+
+"Adikmu hari ini menemukan fakta, bahwa margaku sebenarnya adalah "Yang", nama "Wanyan" ini sebetulnya tidak ada
+kaitannya apa-apa denganku. Mulai sekarang aku akan memakai nama Yang Kang," jawab Wanyan Kang.
+
+"Bagus," seru Guo Jing. "Akhirnya kau jadi seorang pria sejati yang tidak melupakan asal-usulmu. Aku akan pergi 
+ke Yanjing[^nama-ibukota] besok untuk membunuh Wanyan Honglie. Kau mau ikut apa tidak?"
+
+Yang Kang masih teringat akan kebaikan hati Wanyan Honglie yang membesarkannya seperti putranya sendiri, karena itu
+ia ragu-ragu sejenak. Tetapi karena melihat tatapan tajam Guo Jing, ia buru-buru menjawab, "Aku akan mengikuti
+Da Ge untuk membalas dendam."
+
+Guo Jing sangat gembira. "Bagus! Kau sudah tahu bahwa kedua ayah kita adalah saudara angkat, dan ibuku bilang bahwa
+mereka sudah berikrar supaya kita juga menjadi saudara angkat. Apa pendapatmu?"
+
+"Aku juga berharap begitu," jawab Yang Kang. Jadi mereka saling menanyakan tanggal kelahiran mereka, dan ternyata
+Guo Jing lahir dua bulan sebelum Yang Kang. Mereka berlutu di hadapan papan peringatan Guo Xiaotian, lalu saling
+bersujud delapan kali dan menjadi saudara angkat.
+
+Setelah semua urusan beres, mereka semuanya beristirahat di Rumah Awan. Keesokan harinya pagi-pagi sekali, Guo Jing,
+Yang kang, dan juga Enam Orang Aneh dari Jiangnan mengucapkan selamat tinggal kepada Lu Xiansheng dan putranya.
+Lu Chengfeng memberikan sejumlah uang bagi setiap tamunya sebagai bekal untuk membiayai perjalanan mereka.
+
+Setelah meninggalkan Rumah Awan, Guo Jing berkata kepada guru-gurunya, "Muridmu dan Adik Yang akan pergi ke Utara
+untuk membunuh Wanyan Honglie. Aku minta nasihat dari para Shifu sekalian."
+
+"[Perayaan Pertengahan Musim Gugur](referensi-karakter.md#zhongqiu-jie "Zhong Qiu Jie (中秋节), perayaan tradisional masyarakat Tionghoa, yang di Indonesia lebih dikenal sebagai Tiong Ciu, dan ditandai dengan berbagi Kue Bulan atau Tiong Ciu Pia.") masih beberapa minggu lagi, sementara kami tidak punya sesuatu yang mendesak untuk dilakukan. Kupikir kami 
+sebaiknya menemanimu untuk mengurus masalah penting ini," kata Ke Zhen'E. Zhu Cong dan yang lainnya setuju.
+
+"Jasa kalian kepada muridmu ini sudah setinggi gunung. Kungfu Wanyan Honglie biasa-biasa saja. Dengan bantuan 
+Adik Yang, aku yakin membunuhnya tidak akan jadi masalah sulit. Demi muridmu Shifu sekalian sudah meninggalkan 
+Jiangnan selama lebih dari sepuluh tahun. Sekarang setelah kalian kembali ke kampung halaman, muridmu tidak berani 
+menyusahkan Shifu sekalian dengan urusan pribadi."
+
+Keenam Orang Aneh menganggap Guo Jing sangat masuk akal. Dan juga mereka melihat dengan mata kepala sendiri bahwa 
+kungfu Guo Jing sudah berkembang begitu pesat. Oleh karena itu mereka tidak mendesaknya dan satu per satu mereka 
+memberikan berkatnya kepada pemuda itu.
+
+Akhirnya Han Xiaoying berkata, "Masalah Pulau Bunga Persik, kupikir kau tidak perlu pergi." Ia tahu Guo Jing 
+benar-benar jujur, dan bahwa Huang Yaoshi pemarah dan tabiatnya aneh dan kejam. Kalau Guo Jing pergi ke Pulau 
+Bunga Persik, kemungkinan besar ia akan menemui kejadian yang tidak menguntungkan.
+
+"Kalau tidak pergi, bukankah itu berarti aku mengingkari janji?" tanya Guo Jing.
+
+"Kalau berhadapan dengan monster, kita tidak harus pakai segala etika," sela Yang Kang. "Ge, kurasa kau terlalu kaku
+memegang aturan dan tradisi kuno."
+
+Ke Zhen'E mendengus dan berkata, "Jing'er, sebagai pendekar sejati kita harus menepati janji. Hari ini adalah hari 
+kelima bulan keenam, kita akan bertemu lagi pada hari pertama bulan ketujuh di Paviliun Dewa Mabuk, di 
+[Jiaxing](referensi-karakter.md#jiaxing "Jiaxing adalah sebuah kota di propinsi Zhejiang"). Lalu kita akan pergi ke 
+Pulau Bunga Persik bersama-sama. Sekarang kau sebaiknya segera berangkat ke Yanjing dengan kuda merahmu untuk 
+membalas dendam. Kau tidak harus selalu bersama adikmu. Kalau kau sukses, itu sangat bagus. Kalau tidak, kami 
+selalu dapat mencari para pendeta Aliran Quanzhen untuk membantu kita membunuh bajingan itu. Kebenaran mereka 
+seberat gunung, mereka pasti tidak akan menolak permintaan kita."
+
+Guo Jing memahami cinta Guru Pertamanya yang ditunjukkan dengan kesiapannya untuk pergi bersama-sama menghadapi
+bahaya. Hatinya dipenuhi rasa haru, ia berlutut dan _kowtow_ dengan hormat.
+
+"Adikmu berasal dari keluarga kaya dan terhormat, kau harus berhati-hati," kata Nan Xiren mengingatkannya. Guo Jing 
+tidak mengerti apa maksudnya, ia hanya memandang gurunya tanpa bicara. Han Xiaoying tersenyum, "Kau tidak mengerti 
+kata-kata Si Shifu. Tidak apa-apa. Kau akan mengerti nanti. Berhati-hatilah setiap saat," katanya. "Ya," kata Guo Jing.
+
+Zhu Cong tersenyum, "Putri Huang Yaoshi sebenarnya sangat berbeda dengan ayahnya," katanya. "Kita seharusnya tidak 
+memprovokasi dia lagi, betul tidak, San Di?"
+
+Han Baoju memelintir kumisnya. "Bocah tengik itu mengomeli aku, meskipun dia juga sependek melon musim dingin. Dia 
+bahkan menganggap dirinya cantik." Sambil bicara begitu ia tidak bisa menahan senyum.
+
+Guo Jing tahu guru-gurunya tidak lagi menaruh dendam kepada Huang Rong. Ia senang. Tapi kemudian ia teringat 
+keberadaan gadis itu tidak jelas, ia tidak bisa menahan perasaan sedihnya.
+
+"Jing'er," kata Quan Jinfa, "Makin cepat kau pergi, makin cepat juga kau akan kembali. Kami akan menunggu dengan 
+sabar di Jiaxing." Dengan itu Enam Orang Aneh dari Jiangnan berangkat ke Selatan.
+
+Guo Jing memegang kendali kuda merahnya dan memandang para gurunya sampai ia tidak bisa lagi melihat mereka. 
+Kemudian dia menoleh ke arah Yang Kang. 
+"[Adikku yang baik](referensi-karakter.md#xian-di "Xian Di (贤弟), ungkapan sayang kepada seorang adik."), 
+kuda merahku ini sangat cepat, kita bisa pergi ke Yanjing dan balik lagi dalam sepuluh hari. Bagaimana kalau kita
+menghabiskan beberapa hari melihat-lihat?" Yang Kang setuju. Kedua pemuda itu menaiki kuda dan perlahan menuju ke utara.
+
+Yang Kang menghela nafas dengan perasaan berat. Hanya sebulan yang lalu ia menjalani kehidupan mewah. Ia datang 
+ke Jiangnan dengan rombongan besar sebagai Duta Besar Kekaisaran Jin, dengan segala kemegahan, kekuatan militer,
+dan gengsi yang menyertainya. Sekarang ia melakukan perjalanan kembali ke ibukota sendirian, tanpa ada yang 
+memanjakannya di sepanjang jalan. Sepertinya ia sedang bermimpi tentang kehidupan yang menyenangkan, lalu tiba-tiba 
+terbangun dengan kenyataan hidup yang keras. Guo Jing mungkin tidak perlu membawanya serta dalam misi untuk membunuh 
+Wanyan Honglie — satu hal yang membuatnya semakin tertekan — tapi ia masih tetap merasa tidak nyaman. Ia sedang
+mempertimbangkan untuk memperingatkan Wanyan Honglie, tetapi tidak dapat mengambil keputusan tentang hal itu.
+
+Guo Jing melihat mukanya yang muram, dan mengira bahwa ia sedang berduka akan kematian orang tuanya, lalu berusaha
+untuk menghiburnya.
+
+Menjelang tengah hari mereka tiba di Liyang dan langsung mencari restoran untuk makan. Tiba-tiba seseorang yang 
+terlihat seperti pekerja restoran, mendekat. "Apakah [gewei](referensi-karakter.md#gewei "kalian") ini 
+Guo [Gongzi](referensi-karakter.md#gong-zi "Tuan Muda") dan Yang Gongzi?" ia membungkuk saat bertanya, tersenyum 
+lebar. "Meja sudah siap, silakan ikut aku dan makan."
+
+Guo Jing dan Yang Kang bingung. "Kalian kenal kami berdua?" tanya Yang Kang.
+
+"Tadi ada seorang tamu datang dan menyuruh kami menyiapkan makanan untuk kalian berdua. Ia bahkan dengan rinci 
+bagaimana rupa Guo Gongzi dan Yang Gongzi," kata pelayan itu, masih sambil tersenyum. Ia kemudian memegang tali
+kekang kuda dan membawanya ke kandang.
+
+Yang Kang mendengus dan dengan sinis berkata, "Lu Xiansheng dari Rumah Awan itu sangat baik." Mereka memasuki restoran 
+dan duduk. Ternyata makanannya sangat enak dan araknya luar biasa. Guo Jing bahkan menemukan ayam yang sangat disukainya.
+Mereka makan sepuasnya dan hendak membayar tagihan, tetapi pelayan restoran hanya tersenyum dan berkata, "Tidak perlu 
+Gongzi, semuanya sudah diurus." Yang Kang tertawa dan memberi tip dengan murah hati. Ia mengucapkan terima kasih yang 
+sebesar-besarnya dan mengantar mereka keluar dari restoran, membungkuk sambil tersenyum sepanjang waktu.
+
+Guo Jing memuji kemurahan hati Lu Xiansheng. Yang Kang bagaimanapun juga masih menyimpan dendam karena ia telah 
+ditangkap dan ditawan. "Kukira dia memakai cara ini untuk menggaet dengan orang-orang Jianghu. Tidak heran dia 
+bisa memimpin kawasan Danau Tai," katanya.
+
+"Bukankah Lu Xianshen itu masih Paman Gurumu?" tanya Guo Jing heran.
+
+"Memang benar Mei Chaofeng mengajari aku kungfu," jawab Yang Kang. "Tapi itu tidak lantas menjadikan dia guruku. 
+Kalau aku tahu mereka berasal dari aliran sesat, aku tidak akan mau mempelajarinya dan aku tidak akan jatuh ke 
+dalam situasi sekarang ini."
+
+"Kenapa begitu?" tanya Guo Jing bingung.
+
+Yang Kang sadar ia baru saja membuat komentar yang agak sembrono. Ia tersipu lalu berkata sambil tersenyum, "Adikmu
+ini merasa bahwa Cakar Tengkorak Putih, dan juga kungfunya yang lain itu, _bukan_ kungfu ortodoks[^kungfu-ortodoks]."
+
+Guo Jing setuju. "Yang baru saja Xiandi katakan itu benar. Gurumu, Pendeta Qiu, sangat baik, dan dia berasal dari 
+perguruan Tao ortodoks. Kalau kau mengatakan yang sebenarnya dan bertobat, aku yakin dia akan bersedia melupakan 
+urusan masa lalu." Yang Kang diam-diam setuju.
+
+Sore itu mereka tiba di Jintan. Sekali lagi pelayan restoran menyambut mereka dan membawa mereka ke meja yang penuh 
+dengan makanan dan arak pilihan. Ini terjadi selama tiga hari berikutnya. Keesokan harinya keduanya menyeberangi sungai 
+dan tiba di Gaoyou dan menerima sambutan yang sama. Yang Kang mencibir dan berkata, "Aku ingin melihat seberapa jauh 
+keramahan orang-orang Rumah Awan itu." Namun Guo Jing mulai curiga, setiap kali mereka makan, ia akan menemukan satu 
+atau dua mangkuk makanan kesukaannya. Jika itu Lu Guanying, bagaimana bisa tahu apa yang disukainya?
+
+Setelah mereka selesai makan, Guo Jing mengusulkan, "Xiandi, biar aku jalan di depan, ada yang ingin kuselidiki." 
+Sambil menunggangi kuda merahnya, ia dengan cepat melaju ke depan, melewati tiga perhentian dan segera tiba di Baoying. 
+Benar saja, tidak ada yang menyambutnya di sana. Guo Jing menemukan penginapan terbesar di kota dan masuk ke kamar 
+terbaik. Malam itu ia mendengar seekor kuda dengan lonceng berdentang keras berlari kencang dan berhenti tepat 
+di depan penginapan. Seseorang masuk dan memesan makanan yang dijadwalkan besok, untuk Guo Gongzi dan Yang Gongzi.
+
+Guo Jing memang sudah menebak sebelumnya bahwa itu pasti Huang Rong, tapi saat mendengar suaranya ia sangat gembira. 
+Ia menahan diri untuk tidak keluar dan menemuinya. Ia berpikir, karena Huang Rong suka bermain-main, ia akan 
+mengejutkannya nanti malam. Ia tidur nyenyak sampai sekitar jam dua, diam-diam bangun dan berjingkat untuk 
+menakut-nakuti Huang Rong di kamarnya. Kemudian ia melihat bayangan berkelap-kelip di atap, ternyata itu Huang Rong. 
+"Ke mana dia pergi di tengah malam?" Guo Jing bertanya-tanya.
+
+Ia membuntuti dengan cepat menggunakan ilmu meringankan tubuhnya. Huang Rong berlari tanpa melihat sekeliling 
+ke pinggiran kota, menyadari bahwa seseorang mengikutinya. Ia berhenti di tepi sungai kecil dan duduk di bawah 
+pohon willow. Ia mengeluarkan sesuatu dari sakunya dan membungkuk untuk memainkannya.
+
+Cahaya bulan menyinari wajahnya yang cantik saat hembusan angin sejuk mengayunkan dahan pohon willow, pakaiannya 
+berkibar lembut. Anak sungai berbisik pelan dan serangga berkicau pelan. Pemandangan yang sangat indah. Guo Jing 
+hendak mendekat ketika tiba-tiba ia mendengar Huang Rong diam-diam berkata, "Ini Jing Gege, ini Rong'er. 
+Kalian berdua duduk dengan baik berhadap-hadapan. Ya seperti ini..."
+
+Guo Jing berjingkat di belakangnya. Ia tidak bisa melihat dengan jelas di bawah sinar bulan yang redup, tetapi 
+ia melihat di depannya ada dua boneka tanah liat, yang satu mirip laki-laki, yang lain perempuan. Boneka-boneka 
+itu dibuat di kota Wuxi yang terkenal. Mereka bulat, gemuk dan sangat lucu. Selama tinggal di Rumah Awan, 
+Guo Jing telah belajar dari Huang Rong bahwa meskipun hanya mainan, hasil kerajinan tangan Wuxi sangat berkualitas. 
+Penduduk setempat menyebut mereka [Da Ah Fu](referensi-karakter.md#da-ah-fu "Rejeki Besar"). Huang Rong memiliki 
+beberapa boneka seperti itu di Pulau Bunga Persik.
+
+
+
+[^kungfu-ortodoks]: Yang dimaksud 'Ortodoks' dalam konteks ini adalah ilmu dari aliran 'lurus', yang dianggap 'bersih', atau lebih tepatnya 'aliran putih'. Sebaliknya _bukan ortodoks_ maksudnya adalah _aliran sesat_. Sebetulnya hal ini tidak ada kaitannya secara langsung dengan ortodoksi, hanya sebuah cara untuk mengatakan bahwa yang "aneh" itu adalah _sesat_, tanpa harus terdengar tidak sopan.
+
+[^nama-ibukota]: Dalam versi novel terjemahan, nama yang dicantumkan adalah Beijing, ini sebuah kekeliruan karena di jaman itu namenya adalah Yanjing.
+
+[^papan-peringatan]: Sebuah papan yang biasa diletakkan di meja untuk mengenang orang yang sudah meninggal. Untuk mengenang ayah Guo Jing, Guo Xiaotian, Zhu Cong menulis 'Guo Yishi Xiaotian zhi Ling Wei' (郭义士嘯天之灵位).
+
+[^yanjing]: Ibukota Kekaisaran Jin, di jaman modern tempat ini adalah Beijing.
 
 
