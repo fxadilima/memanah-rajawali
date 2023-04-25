@@ -98,7 +98,7 @@ Sejauh ini Lu Xiansheng sangat mengagumi Qiu Qianren, tetapi setelah mendengarka
 dapat menahan keterkejutannya yang luar biasa. Ia memaksakan senyum dan berkata, "Meskipun wanbei tidak berharga 
 dan tubuhku tidak berharga seperti rumput, aku tidak pernah berani melupakan 
 [zhong yi](#zhong-yi "kesetiaan dan rasa persaudaraan"). Tentara Jin pergi ke selatan untuk menyerang negaraku 
-dan mereka bermaksud mencelakakan rakyat. Wanbei pasti akan bergabung dengan pahlawan Jiangnan lainnya untuk 
+dan mereka bermaksud mencelakai rakyat. Wanbei pasti akan bergabung dengan pahlawan Jiangnan lainnya untuk 
 melawan penjajah sampai mati. Qianbei, apakah maksudnya mau menguji aku?"
 
 "Saudara Lu, bagaimana kau bisa begitu picik?" tanya Qiu Qianren. "Apa gunanya membantu Song melawan Jin? 
