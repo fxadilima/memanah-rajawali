@@ -1551,7 +1551,7 @@ pulang ia mencambuk kudanya dengan kasar, meskipun hewan itu tidak ada kaitannya
 
 [^huang-yaoshi]: (黃藥師) Nama pemilik Pulau Persik. Nama "Yaoshi" ini sendiri secara literal berarti "Ahli Pengobatan", yang di jaman itu biasanya sekaligus juga ahli dalam alkimia. Dengan demikian bisa disetarakan dengan istilah "The Alchemist". Kalau kita memakai Google Translate, "Yao Shi" malah diterjemahkan menjadi "apoteker", yang berarti juga ahli obat. Karakter kedua "Yao" itu sendiri berarti "obat". Sedangkan "Shi" (師) berdiri sendiri berarti "divisi".
 
-[^julukan-1]: Qingjing Sanren (清靜散人), julukan untuk Sun Bu'er (孫不二), satu-satunya murid wanita Wang Chongyang, yang bermakna 'Orang Bijak Yang Tenang'.
+[^julukan-1]: Qingjing Sanren (清靜散人), julukan untuk Sun Bu'er (孫不二), satu-satunya murid wanita Wang Chongyang, yang bermakna 'Orang Bijak Pendiam' atau 'Orang Bijak Yang Tenang', meskipun bisa juga bermakna 'Orang Bijak Yang Murni'.
 
 [^satuan-zhang]: Satu zhang kira-kira 3.3 meter, atau 11 kaki.
 

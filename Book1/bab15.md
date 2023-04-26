@@ -403,4 +403,9 @@ Dengan malu-malu ia menatap ke arah satu mata pengemis tua itu dan dengan malu-m
 Qianbei [Jiang Dong She Wang](referensi-karakter.md#jiang-dong-she-wang "(江东蛇王) Raja Ular dari Sungai Timur") yang 
 Li Sheng?"
 
-Dong He She Wang (东河蛇王)
+Pengemis tua itu tertawa. "Nona, pandanganmumu sungguh jeli! Aku mendapat kehormatan bertemu gurumu, 
+[Qing Jing Sanren](referensi-karakter.md#qingjing-sanren "Qing Jing San Ren (清静散人) Orang Bijak Pendiam"). 
+Meskipun kami bukan teman terbaik, kami selalu saling menghormati."
+
+
+

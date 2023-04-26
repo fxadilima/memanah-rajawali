@@ -113,6 +113,25 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         adalah Raja Ular dari <em>Sebelah Timur Sungai</em>, dan bukan "Sungai Timur". Kelihatannya kecil, tetapi maknanya
         sangat berbeda.
     </dd>
+    <dt id="qingjing-sanren">Qing Jing San Ren (清静散人)</dt>
+    <dd>
+        Ini adalah gelar murid ketujuh dari Wang Chongyang, yang bernama Sun Bu'er, seorang perempuan.
+        Makna dari karakter Qing Jing (清静) agak kompleks.
+        Karakter Qing (清) bisa bermakna Murni/Bersih/Jernih/Sejuk/Tenang.
+        Karakter Jing (静) bisa bermakna Diam/Tetap/Tak Bergerak/Damai/Lembut/Tenang.
+        Dengan demikian keduanya seolah punya makna yang sama.
+        Kalau kita amati lebih dekat, karakter pertama 清 punya elemen 氵yang berarti 'air' dan qing 青 yang berarti 'hijau'.
+        Sedangkan karakter kedua 静 punya elemen 青 (hijau) itu di sebelah kiri, dan elemen zheng (爭) di kanan 
+        (bagian yang mewakili bunyi). Karakter ini adalah varian kuno dari Jing (淨), yang bermakna Bersih/Murni, dan juga
+        memiliki elemen air 氵di sebelah kirinya.
+        Dengan demikian Qing Jing bisa ditulis 清静 atau 清淨, dan maknanya akan tetap sama, seperti dalam konsep Taoisme
+        Qing Jing Wuwei 清靜無為 atau 清凈無為, di mana keempat karakter tersebut semuanya mendeskripsikan diam, tanpa aksi,
+        atau tak bergerak. Sedangkan Wuwei (無為) di situ bisa dimaknai 'Aksi tanpa usaha'.
+        Kesimpulannya Qing Jing dalam gelar ini punya makna ganda, yaitu diam/tenang dalam arti tidak bergerak, dan juga
+        dalam arti "tenang" atau lembut. Dalam kehidupan nyata, Sun Bu'er mempraktekkan filsafat tersebut bahkan sampai
+        mendirikan alirannya sendiri yang punya ciri khas ini. Sangat kontras dengan Qiu Chuji yang reaksioner, dan banyak
+        melakukan aksi, bahkan termasuk salah seorang 'raja debat'.
+    </dd>
 </dl>
 
 
