@@ -475,9 +475,7 @@ Li Sheng mereka tidak berani bersuara.
 
 Ouyang Ke menoleh dan melihat ke karung itu. "Aku tidak menyangka wanita cantik seperti kau akan dengan mudah 
 diundang untuk datang ke sini." Ia berjalan perlahan ke depan, melambaikan kipas lipatnya perlahan. Saat dilipat, 
-kipas itu mirip sebuah kuas besi[^pena-besi].
-
-[^pena-besi]: Kuas di jaman Dinasti Song Selatan berbentuk mirip dengan sebuah pena kuno. ![Kuas Dinasti Song](https://res.cloudinary.com/drzjshskk/image/upload/v1682526945/misc/song-dynasty-brush_qbio65.png).
+kipas itu mirip sebuah [kuas besi](referensi-karakter.md#kuas-dinasti-song "Klik untuk melihat gambar kuas di era Dinasti Song").
 
 
 

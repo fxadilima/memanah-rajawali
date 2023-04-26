@@ -134,4 +134,11 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     </dd>
 </dl>
 
+***
+
+## <a name="kuas-dinasti-song" id="kuas-dinasti-song">Kuas Dinasti Song</a>
+
+Kuas di era Dinasti Song Selatan berbentuk mirip dengan sebuah pena kuno. 
+
+![Kuas Dinasti Song](https://res.cloudinary.com/drzjshskk/image/upload/v1682526945/misc/song-dynasty-brush_qbio65.png "Kuas untuk menulis di era Dinasti Song Selatan.").
 
