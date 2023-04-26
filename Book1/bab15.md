@@ -88,7 +88,7 @@ Siapa tahu ia bisa lolos. Oleh karena itu tanpa menyembunyikan apapun ia menceri
 tergila-gila kepada istri Yang Tiexin, Bao Xiruo. Bagaimana ia bersekongkol dengan para pejabat Song untuk membunuh 
 Yang Tiexin sementara Wanyan Honglie berpura-pura menjadi orang baik yang menyelamatkan Bao Xiruo. Ia menceritakan 
 bagaimana mereka menggeledah Desa Niu dan akhirnya membunuh Guo Xiaotian. Bagaimana Duan Tiande kemudian membawa 
-ibu Guo Jing ke Yanjing[^yanjing] dan kemudian bergabung dengan utusan Jin ke Mongolia. Ia menjelaskan betapa 
+ibu Guo Jing ke Yanjing[^nama-ibukota] dan kemudian bergabung dengan utusan Jin ke Mongolia. Ia menjelaskan betapa 
 selama masa kekacauan di Mongolia ia terpisah dari ibu Guo Jing. Bagaimana ia memutuskan untuk kembali ke Lin'an 
 dan bekerja dengan rajin sebagai prajurit, akhirnya dipromosikan ke posisinya saat ini. Ia mengakhiri ceritanya 
 dengan berlutut di depan Guo Jing.
