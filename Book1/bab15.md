@@ -300,8 +300,6 @@ Yanjing, setelah itu ia mendahului mereka dan mengatur makanan di sepanjang jala
 
 [^papan-peringatan]: Sebuah papan yang biasa diletakkan di meja untuk mengenang orang yang sudah meninggal. Untuk mengenang ayah Guo Jing, Guo Xiaotian, Zhu Cong menulis 'Guo Yishi Xiaotian zhi Ling Wei' (郭义士嘯天之灵位).
 
-[^yanjing]: Ibukota Kekaisaran Jin, di jaman modern tempat ini adalah Beijing.
-
 
 Mereka berbicara sepanjang malam dalam kehangatan cuaca bulan keenam. Cuacanya menyenangkan dan hati Huang Rong senang,
 setelah beberapa saat ia mulai mengantuk, ucapannya jadi kabur dan tidak lama kemudian tertidur di dada Guo Jing. 
@@ -387,7 +385,7 @@ dan memasuki ruangan.
 Di kegelapan, di luar, Guo Jing dan Huang Rong saling pandang keheranan. Mereka pikir begitu kedua orang itu tiba,
 akan terjadi pertarungan sengit atau hal lain yang menarik. Di luar dugaan ternyata mereka saling mengenal.
 
-Nona Cheng segera berdiri, memberi hormat, dan berbasa-basi. "Boleh aku tahu nama saudara-saudara?" tanyanya.
+Nona Cheng segera berdiri, memberi hormat dan berbasa-basi. "Boleh aku tahu nama saudara-saudara?" tanyanya.
 
 "Margaku Li," kata yang lebih tua. "Dan ini keponakan seperguruanku, Yu Zhao."
 
@@ -406,6 +404,83 @@ Li Sheng?"
 Pengemis tua itu tertawa. "Nona, pandanganmu sungguh jeli! Aku mendapat kehormatan bertemu gurumu, 
 [Qing Jing Sanren](referensi-karakter.md#qingjing-sanren "Qing Jing San Ren (清静散人) Orang Bijak Pendiam"). 
 Meskipun kami bukan sahabat terbaik, kami selalu saling menghormati."
+
+Guo Jing mendengar nama Qing Jing Sanren disebutkan dan sangat senang, "Qing Jing Sanren, Sun Bu'Er, adalah salah satu 
+dari Tujuh Pendekar Quanzhen, berarti Nona Cheng ini dan kedua pengemis itu bukan orang asing." pikirnya. Ia 
+mendengar Nona Cheng melanjutkan, "Aku sangat berterima kasih menerima bantuan Qianbei dalam menegakkan keadilan. 
+Aku akan mendengarkan arahan Qianbei."
+
+"Nona, kau bernilai seribu tael emas," kata Li Sheng. "Tapi bagi pria bermoral ini untuk melihatmu, bahkan hanya 
+dengan satu mata, masih terlalu beruntung." Mendengar ini wajah Nona Cheng merah padam. Li Sheng melanjutkan, 
+"Sekarang kusarankan kau menginap di rumah utama, bersama para pelayanmu yang terhormat ini. Aku akan mengurus 
+orang sombong itu sendirian."
+
+"Kungfu wanbei tidak terlalu bagus, tapi wanbei juga tidak takut kepada bajingan itu," kata Nona Cheng. "Mana mungkin
+wanbei membiarkan Qianbei yang berurusan dengan dia."
+
+"Tolong jangan bilang begitu, Nona," kata Li Sheng. "Ketua kami Hong Qigong dan pendiri Perguruanmu Wang Qianbei 
+adalah teman baik. Itu berarti kita sekeluarga. Kenapa Nona masih beranggapan kita orang lain?"
+
+Sebenarnya Nona Cheng ingin menguji kungfunya sendiri, tetapi ia mendengarkan pendapat Li Sheng dan tidak berani 
+membantah. Jadi ia membungkuk dan berkata, "Kalau begitu aku akan meninggalkan semuanya di tangan Li Qianbei dan 
+Yu Dage." Setelah mengatakan itu ia dengan anggun memimpin pelayannya ke bawah.
+
+Li Sheng berjalan menuju ke tempat tidur wanita muda itu, menarik selimut bersulam, dan tanpa melepas sepatunya 
+membaringkan tubuhnya yang kotor itu di tempat tidur yang berbau harum. "Turunlah," katanya kepada Yu Zhao, 
+"Waspadalah dengan semua orang. Jangan bergerak tanpa perintahku." Yu Zhao menurut. Li Sheng kemudian menyembunyikan 
+seluruh tubuhnya di bawah selimut setelah memadamkan lilin di samping tempat tidur.
+
+"Nona Cheng mungkin tidak ingin tidur di bawah selimut itu lagi," pikir Huang Rong sambil tertawa dalam hati. 
+"Anggota Kai Pang itu seperti ketua mereka, suka sengaja membuat masalah dengan cara yang lucu. Masalah ini 
+sebenarnya jauh lebih lucu dari yang kukira."
+
+Karena ada orang lain yang berjaga, Huang Rong dan Guo Jing diam-diam bersembunyi di bawah atap. Sekitar satu jam 
+kemudian ia mendengar petugas malam membunyikan sinyal di depan gedung. Saat itu jam ketiga. Kemudian ia mendengar 
+kerikil jatuh di taman bunga.
+
+Sesaat kemudian delapan orang datang melompati tembok dan langsung menuju ke lantai dua. Mereka menyalakan lentera 
+sebentar, sekilas melihat ke tempat tidur, lalu segera memadamkannya. Dalam waktu singkat Guo Jing dan Huang Rong 
+bisa melihat penampilan mereka. Ternyata mereka adalah murid perempuan dari Ouyang Ke yang berpakaian seperti laki-laki 
+dan semuanya memakai pakaian berwarna putih. Empat dari mereka membuka tirai tempat tidur dan menutupi kepala Li Sheng 
+dengan kerudung sutra, dipegang dengan kuat, mereka mengangkatnya. Dua dari mereka membuka karung besar dan masuklah 
+selimut dengan Li Sheng di dalamnya. Mereka dengan cepat mengencangkan mulut karung dan mengangkat karung. Mereka 
+bekerja dengan cepat dan tenang, tanpa suara, dalam kegelapan. Tampaknya mereka sangat terampil melakukan pekerjaan 
+semacam ini.
+
+Mereka melompat kembali ke bawah. Guo Jing hendak bergerak ketika Huang Rong berbisik di telinganya, "Biar Kai Pang 
+yang bekerja dulu." Guo Jing menurut. Ia meregangkan lehernya dan melihat empat selir Ouyang Ke membawa karung dengan 
+Li Sheng di dalamnya, sementara empat lainnya menjaga bagian belakang. Lebih jauh ke belakang, sekitar sepuluh yard 
+di belakang mereka, adalah anggota Kai Pang, masing-masing memegang tongkat kayu.
+
+Guo Jing dan Huang Rong menunggu sejenak supaya jarak di antara mereka agak jauh, sebelum mereka diam-diam melompat 
+keluar dari taman dan mengikuti dari jauh. Beberapa saat kemudian mereka tiba di pinggiran kota. Kedelapan wanita 
+itu membawa karung tersebut ke sebuah rumah besar, sementara keempat anggota Kai Pang menyebar mengelilingi 
+bangunan tersebut.
+
+Huang Rong menarik lengan Guo Jing dan mereka berjalan menuju belakang gedung, melompati tembok belakang dan melihat 
+bahwa bangunan itu sebenarnya adalah sebuah kuil untuk menyembah leluhur. Aula utama penuh dengan papan peringatan. 
+Di papan utama tergantung spanduk besar dengan jasa orang yang meninggal dan gelar kehormatan tertulis di atasnya. 
+Aula diterangi oleh empat atau lima lilin merah besar, dan di tengah duduk seorang pria melambai-lambaikan kipas lipat.
+
+Guo Jing dan Huang Rong telah menebak sebelumnya bahwa semua ini pasti ulah Ouyang Ke, dan mereka benar. Mereka 
+bersembunyi di bawah jendela, tidak berani bergerak sama sekali, sambil bertanya-tanya dalam hati, "Apa Li Sheng 
+itu bisa melawannya?"
+
+Mereka melihat delapan wanita memasuki aula dan salah satunya berkata, "Gongzhi, Cheng Xiaojie ada di sini." 
+Ouyang Ke mencibir dengan dingin. Ia melihat ke luar dan berkata, "Teman-teman, kalian sudah begitu baik mau
+datang ke sini, mengapa tidak masuk dan memperkenalkan diri?"
+
+Bersembunyi di atas tembok, para anggota Kai Pang sadar bahwa mereka sudah ketahuan, tetapi tanpa perintah 
+Li Sheng mereka tidak berani bersuara.
+
+Ouyang Ke menoleh dan melihat ke karung itu. "Aku tidak menyangka wanita cantik seperti kau akan dengan mudah 
+diundang untuk datang ke sini." Ia berjalan perlahan ke depan, melambaikan kipas lipatnya perlahan. Saat dilipat, 
+kipas itu mirip sebuah kuas besi[^pena-besi].
+
+[^pena-besi]: Kuas di jaman Dinasti Song Selatan berbentuk mirip dengan sebuah pena kuno. ![Kuas Dinasti Song](https://res.cloudinary.com/drzjshskk/image/upload/v1682526945/misc/song-dynasty-brush_qbio65.png).
+
+
+
 
 
 
