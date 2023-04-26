@@ -5,7 +5,7 @@ yang mana pun. Seharusnya tidak ada kesulitan yang berarti karena kita memakai `
 yang dilengkapi dengan `id`.
 
 Saat ini hampir semua istilah terkumpul di dalam masing-masing `Bab`, padahal banyak
-istilah yang dipakai ulang, dan dengan trepaksa kita harus menerjemahkan ulang. Di satu
+istilah yang dipakai ulang, dan dengan terpaksa kita harus menerjemahkan ulang. Di satu
 sisi ini bagus, karena seringkali konteksnya sedikit berbeda, tetapi kalau terlalu banyak
 akan menambah pekerjaan kita.
 
@@ -74,7 +74,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         </a>
         <br/>
         Sebagai catatan, karakter Da (大) berarti "Besar". Sedangkan karakter Ah (阿) adalah selipan, yang biasanya
-        dletakkan di depan nama panggilan. Sudah umum seorang keturunan Tionghoa dipanggil Ah Ling, Ah Yong, dsb.
+        diletakkan di depan nama panggilan. Sudah umum seorang keturunan Tionghoa dipanggil Ah Ling, Ah Yong, dsb.
         Penduduk setempat mengaitkan nama tersebut dengan "Rejeki Besar".
     </dd>
     <dt id="da-xiaojie">Da Xiaojie (大小姐)</dt>
