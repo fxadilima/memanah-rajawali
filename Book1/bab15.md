@@ -346,7 +346,7 @@ atau bukan."
 "Kurasa bukan," jawab Guo Jing. "Tapi menurut Hong Qigong semua pengemis di kolong langit ada di bawah naungannya.
 Hmm... mungkin dua orang itu palsu."
 
-"Ada puluhan ribu pengemis di dunia ini. Pasti ada beberapa dari mereka telah tidak baik. Aku tidak peduli 
+"Ada puluhan ribu pengemis di dunia ini. Pasti ada beberapa dari mereka tidak baik. Aku tidak peduli 
 seberapa hebatnya Qigong, dia tidak mungkin bisa mengatur semuanya. Sepertinya kedua orang itu adalah yang buruk. 
 Hong Qigong sangat baik kepada kita, dan tidak mungkin membalas kita bisa membalas kebaikannya. Kupikir dia 
 akan senang kalau kita membereskan yang buruk ini."
