@@ -477,8 +477,73 @@ Ouyang Ke menoleh dan melihat ke karung itu. "Aku tidak menyangka wanita cantik 
 diundang untuk datang ke sini." Ia berjalan perlahan ke depan, melambaikan kipas lipatnya perlahan. Saat dilipat, 
 kipas itu mirip sebuah [kuas besi](referensi-karakter.md#kuas-dinasti-song "Klik untuk melihat gambar kuas di era Dinasti Song").
 
+Huang Rong dan Guo Jing melihat gerakan tangannya dan ekspresinya, mereka terkejut. Tampaknya Ouyang Ke sudah tahu 
+bahwa ada musuh yang bersembunyi di dalam karung itu dan akan menyerang.
 
+Huang Rong langsung mengambil tiga jarum baja, mengarahkannya ke kipas, siap menyerang jika Li Sheng dalam bahaya. 
+Tiba-tiba terdengar suara desingan dan beberapa anak panah kecil terbang ke arah dada Ouyang Ke. Senjata itu 
+dilepaskan oleh seorang pengemis yang muncul di ambang jendela. Mereka juga telah melihat bahaya yang mengancam 
+Li Sheng dan melancarkan serangan awal.
 
+Ouyang Ke menggerakkan tangan kirinya ke samping, jari telunjuk dan jari tengahnya menjepit satu panah, jari manis 
+dan kelingkingnya menjepit yang lain, dengan suara 'kreekkk' kedua anak panah itu patah menjadi empat bagian.
+
+Para pengemis melihat ini dan takjub. "Paman Li, cepat keluar!" panggil Yu Zhao. Ia bahkan belum selesai berteriak 
+ketika karung itu jebol, dari situ keluar dua belah pisau diikuti oleh Li Zheng yang berjibaku di lantai. Ia 
+menggunakan karung itu sebagai perisai dan dengan cepat berdiri.
+
+Li Sheng tahu Ouyang Ke adalah lawan yang tangguh dan ia tidak yakin akan bisa mengalahkannya, itulah alasan ia 
+menyerang secara mendadak dengan bersembunyi di dalam karung. Tapi ternyata Ouyang Ke menggagalkan rencananya.
+
+"Seorang perempuan cantik berubah menjadi pengemis," kata Ouyang Ke sambil tertawa. "Sulapan karung yang bagus."
+
+Li Sheng mengabaikan ocehannya. "Kota ini kehilangan empat orang gadis muda dalam waktu tiga hari," katanya dengan
+nada tajam. "Kurasa itu semua ulahmu, kan?"
+
+"Wilayah Baoying ini jelas bukan daerah kumuh, masa aparat penegak hukum bisa berubah menjadi pengemis?" sindir
+Ouyang Ke sambil tersenyum lebar.
+
+"Aku bukan sedang minta makanan di sini," kata Lu Sheng. "Tapi kemarin kudengar ada empat orang gadis belasan tahun
+lenyap tanpa jejak. Aku jadi penasaran, makanya aku melihat-lihat."
+
+Ouyang Ke dengan malas berkata, "Sebenarnya gadis-gadis itu tidak luar biasa, karena kau menginginkannya dan 
+mengingat kita sama-sama orang dari dunia persilatan, aku ingin menghadiahkannya kepadamu. Pengemis biasanya 
+makan kepiting mati, jadi aku yakin kau akan memperlakukan keempat gadis ini seperti hartamu. Ia melambaikan 
+tangan kanannya, dan beberapa selirnya masuk untuk menjemput keempat gadis itu. Pakaian gadis-gadis itu tidak 
+keruan, wajah mereka kurus dan pucat, dan mata mereka merah karena menangis.
+
+Lu Sheng sangat marah ketika melihat hal itu. Ia berteriak keras-keras, "Siapa namamu? Dan kau murid siapa?"
+
+Ouyang Ke masih tetap bersikap seenaknya. "Margaku Ouyang. Kau mau apa sih, Kawan?" jawabnya acuh tak acuh.
+
+"Aku mau bertarung denganmu!" kata Lu Sheng geram.
+
+"Bagus sekali kalau begitu!" sahut Ouyang ke. "Ayo, silakan!"
+
+"Bagus!" Li Sheng berteriak dan menggerakkan tangan kanannya. Sebelum dia sempat memukul, bayangan putih melintas 
+dengan hembusan angin tajam. Ia sangat terkejut dan segera melompat, tetapi lehernya tetap tergores. Untungnya 
+ia cukup cepat, jika tidak lehernya akan berlubang.
+
+Li Sheng adalah anggota delapan kantong dari Kai Pang, posisi yang sangat dihormati. Kungfunya kuat dan para 
+pengemis di daerah Liangzhe mendatanginya untuk meminta nasihat. Singkatnya ia adalah salah satu pendekar elit 
+Kai Pang. Tak seorang pun menyangka bahwa ia hampir terluka hanya dalam satu jurus. Wajahnya memerah karena 
+marah dan malu. Tanpa membalikkan tubuhnya, ia meluncurkan tangannya ke arah belakang.
+
+"Dia tahu Delapan Belas Jurus Penakluk Naga," bisik Huang Rong. Guo Jing mengangguk.
+
+Ouyang Ke dapat melihat kedahsyatan jurus ini, dan tidak berani menghadapinya secara langsung. Ia melompat ke 
+samping. Pada saat itu Li Sheng telah membalikkan tubuhnya dan melangkah maju. Ia mengangkat kedua tangan di 
+depan dadanya dan dengan teriakan keras mendorongnya ke depan.
+
+Kali ini Guo Jing yang berbisik, "Apa ini salah satu gerakan dari 
+[Gaya Bebas Riang Gembira](referensi-karakter.md#xiao-yaoyou-quanfa "Xiao Yao You Quan Fa (逍遥游拳法). Klik untuk membaca uraiannya.") ajaran Hong Qigong itu?" Huang Rong mengangguk. Tapi ia melihat gerakan Li Sheng tampak berat, bukan
+ringan dan anggun seperti cara seharusnya melakukan jurus itu.
+
+Ouyang Ke melihat langkah kaki Li Sheng mantap dan gerakan tangannya sangat terlatih dengan baik untuk melancarkan
+serangan-serangan berbahaya. Ia tidak berani bersikap santai dan meremehkan lawannya lagi. Ia menyelipkan kipas 
+lipatnya ke pinggangnya dan secepat kilat meluncurkan serangan balik ke arah bahu Li Sheng.
+
+Li Sheng parried with the ‘Begging for Rice’ move [fan lai shen shou], still from the ‘Wandering Strides’ fists technique. Ouyang Ke parried with his left hand, which forced Li Sheng to lift his right arm; Ouyang Ke swiftly moved toward Li Sheng’s back and stretched both hands with all fingers forming two claws attacking Li Sheng’s vital ‘Sleeveless Garment’ [bei xin] acupoints.
 
 
 

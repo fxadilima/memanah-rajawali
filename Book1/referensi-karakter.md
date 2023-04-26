@@ -132,6 +132,26 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         mendirikan alirannya sendiri yang punya ciri khas ini. Sangat kontras dengan Qiu Chuji yang reaksioner, dan banyak
         melakukan aksi, bahkan termasuk salah seorang 'raja debat'.
     </dd>
+    <dt id="xiao-yao-you">Xiao Yao You Quan Fa (逍遥游拳法)</dt>
+    <dd>
+        Nama ini pertama kali muncul di Bab 12 ketika Hong Qigong mengajarkannya kepada Huang Rong, tetapi hanya
+        3 karakter, yaitu Xiao Yao You (逍遥游).
+        Karakter pertama dan kedua jika digabungkan akan bermakna _carefree_, atau 'bebas'. Tetapi bisa juga diartikan 'riang'. Sedangkan karakter ketiga 'You' (游) punya makna literal 'traveling', atau bisa kita terjemahkan secara bebas menjadi berjalan-jalan. Istilah ini kurang lebih bermakna 'Berjalan-jalan Dengan Bebas dan Riang Gembira'. Karena terlalu panjang dan dari segi estetika tidak enak dibaca maupun diucapkan, maka saya membiarkannya seperti itu. (Terjemahan bahasa Inggris dari fans menerjemahkannya menjadi 'Wandering Strides', yang saya kira agak kurang sesuai). Ketika pertama kalinya membaca dan mencoba memahami maknanya, saya mengasumsikan bahwa ilmu ini hanya
+        sekedar ilmu meringankan tubuh atau semacam trik untuk melarikan diri dan membuat lawan kehabisan akal dan
+        tenaga, sehingga menyerah sendiri. Tetapi dalam perkembangan ternyata ilmu ini juga mengandung pukulan dan
+        serangan yang berbahaya. Adalah Guo Jing yang pertama menggunakan istilah Quan Fa (拳法) di belakang 3 karakter
+        pertama tersebut, dalam Bab 15. Quan (拳) berdiri sendiri bermakna kepalan atau tinju. Sedangkan Fa (法) berarti metode atau "cara". Gabungan kedua karakter itu menghasilkan "jurus", atau "jurus tangan kosong", yang melambangkan
+        sebuah ilmu pukulan, bukan <em>Qing Gong</em>.
+        Dalam konteks sebuah dialog, kita bisa menyelipkan sebuah terjemahan bebas berbau lelucon menjadi 
+        "Gaya Bebas Riang Gembira", meskipun lebih baik kita biarkan seperti bahasa aslinya.
+        <blockquote>
+            Istilah dengan 3 karakter Xiao Yao You (逍遥游) ini sebenarnya dikutip dari sebuah literatur kuno milik
+            Zhuangzi (莊子, 369 - 386 SM), yang hidup di era Warring States Period/Periode Peperangan Antar Negara. 
+            Dikutip dari Bab 1, dan bisa diterjemahkan secara puitis ke dalam bahasa Inggris menjadi 
+            'Enjoyment in Untroubled Ease'. Barangkali dalam bahasa Indonesia 'Kenikmatan dalam Kehidupan Bebas'.
+            Zhuangzi adalah seorang filsuf populer beraliran Taoisme, setelah Laozi.
+        </blockquote>
+    </dd>
 </dl>
 
 ***
