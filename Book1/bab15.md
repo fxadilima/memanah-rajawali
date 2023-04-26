@@ -348,7 +348,7 @@ Hmm... mungkin dua orang itu palsu."
 
 "Ada puluhan ribu pengemis di dunia ini. Pasti ada beberapa dari mereka tidak baik. Aku tidak peduli 
 seberapa hebatnya Qigong, dia tidak mungkin bisa mengatur semuanya. Sepertinya kedua orang itu adalah yang buruk. 
-Hong Qigong sangat baik kepada kita, dan tidak mungkin membalas kita bisa membalas kebaikannya. Kupikir dia 
+Hong Qigong sangat baik kepada kita, dan tidak mungkin kita bisa membalas kebaikannya. Kupikir dia 
 akan senang kalau kita membereskan yang buruk ini."
 
 "Kau benar," kata Guo Jing setuju. Meskipun ia agak lelah, pikiran untuk membalas kebaikan Qigong membangkitkan 
