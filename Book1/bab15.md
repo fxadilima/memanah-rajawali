@@ -397,13 +397,13 @@ murid muda, akhirnya bertemu dengan dua panutan yang dihormati. Silakan duduk." 
 adalah basa-basi umum di Jianghu, ekspresi wajahnya malu-malu. Ia banyak berhenti di antara kalimat, yang 
 menunjukkan ia tidak terbiasa dengan pembicaraan semacam ini. Ia mengatakan 'dikagumi oleh orang-orang di dunia 
 persilatan' dengan tulus, tapi terdengar sepertinya tidak yakin dengan apa yang dibicarakan. Ketika ia selesai 
-berbicara, kepalanya ternunduk dan wajahnya memerah.
+berbicara, kepalanya tertunduk dan wajahnya memerah.
 
 Dengan malu-malu ia menatap ke arah satu mata pengemis tua itu dan dengan malu-malu bertanya, "Qianbei, bukankah 
 Qianbei [Jiang Dong She Wang](referensi-karakter.md#jiang-dong-she-wang "(江东蛇王) Raja Ular dari Sungai Timur") yang 
 Li Sheng?"
 
-Pengemis tua itu tertawa. "Nona, pandanganmumu sungguh jeli! Aku mendapat kehormatan bertemu gurumu, 
+Pengemis tua itu tertawa. "Nona, pandanganmu sungguh jeli! Aku mendapat kehormatan bertemu gurumu, 
 [Qing Jing Sanren](referensi-karakter.md#qingjing-sanren "Qing Jing San Ren (清静散人) Orang Bijak Pendiam"). 
 Meskipun kami bukan teman terbaik, kami selalu saling menghormati."
 
