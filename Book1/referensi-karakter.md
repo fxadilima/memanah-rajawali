@@ -144,14 +144,13 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         yang melambangkan sebuah ilmu pukulan, bukan <em>Qing Gong</em>.
         Dalam konteks sebuah dialog, kita bisa menyelipkan sebuah terjemahan bebas berbau lelucon menjadi 
         "Gaya Bebas Riang Gembira", meskipun lebih baik kita biarkan seperti bahasa aslinya.
+        <p></p>
         <blockquote>
-            <p>
                 Istilah dengan 3 karakter Xiao Yao You (逍遥游) ini sebenarnya dikutip dari sebuah literatur kuno milik
                 Zhuangzi (莊子, 369 - 386 SM), yang hidup di era Warring States Period/Periode Peperangan Antar Negara. 
                 Dikutip dari Bab 1, dan bisa diterjemahkan secara puitis ke dalam bahasa Inggris menjadi 
                 'Enjoyment in Untroubled Ease'. Barangkali dalam bahasa Indonesia 'Kenikmatan dalam Kehidupan Bebas'.
                 Zhuangzi adalah seorang filsuf populer beraliran Taoisme, setelah Laozi.
-            </p>
         </blockquote>
     </dd>
     <dt id="fanlai-shenshou">Fan Lai Shen Shou (饭来伸手)</dt>
@@ -160,8 +159,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Keempat karakter tersebut punya makna kurang lebih, 'Makanan datang, tangan terulur meminta'. Karena konteksnya
         adalah para pengemis, umumnya diterjemahkan menjadi 'Mengemis Makanan'.
         Kemungkinan istilah ini dikutip secara bebas dari peribahasa Yilai Shenshou, Fanlai Zhangkou (衣来伸手，饭来张口),
-        yang kira-kira berarti 'Raih pakaian, buka mulut untuk makanan'. Atau secara literal, 'Ketika pakaian datang, 
-        tangan terulur. Ketika makanan datang, mulut terbuka'.
+        yang kalau kita terjemahkan secara literal kira-kira berarti, 'Ketika pakaian datang, tangan terulur. 
+        Ketika makanan datang, mulut terbuka'.
     </dd>
 </dl>
 
