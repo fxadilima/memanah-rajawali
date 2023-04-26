@@ -31,7 +31,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     </dd>
     <dt id="jiaxing">Jia Xing (嘉兴)</dt>
     <dd>
-        Jiaxing adalah sebuah wilayah di sebelah Utara propinsi Zhejiang. Di sebelah Barat Daya berbatasan dengan Hangzhou,
+        Jiaxing adalah sebuah kota di sebelah Utara propinsi Zhejiang. Di sebelah Barat Daya berbatasan dengan Hangzhou,
         dan di sebelah Barat dengan Huzhou. Di Timur Laut berbatasan dengan Shanghai, dan di Utara dengan Jiangsu.
         Jiaxing adalah kota yang ramai dan makmur.
     </dd>
@@ -52,10 +52,14 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Istilah umum untuk 'Tuan Muda'. Perhatikan bahwa panggilan ini memang kira-kira sama dengan 
         <a href="#shaoye">Shaoye</a>, tetapi dipakai dalam konteks yang berbeda. Seorang pria muda umumnya akan
-        dipanggil Gong Zi, sedangkan "Shaoye" biasa dipakai oleh para pelayan atau bawahan di lingkungan keluarganya.
+        dipanggil Gong Zi, sedangkan "Shaoye" biasa dipakai oleh para pelayan atau bawahan untuk memanggil majikan
+        muda mereka di lingkungan keluarganya.
     </dd>
     <dt id="shaoye">Shao Ye (少爺)</dt>
-    <dd>Tuan Muda, kurang lebih sama dengan Gong Zi.</dd>
+    <dd>
+        Tuan Muda, kurang lebih sama dengan Gong Zi. Tetapi istilah ini umumnya dipakai oleh para pelayan untuk
+        memanggil anak majikan mereka, sedangkan Sang Majikan sendiri akan dipanggil Laoye (老爺).
+    </dd>
     <dt id="da-ah-fu">Da Ah Fu (大阿福)</dt>
     <dd>
         Karakter Fu (福) umumnya dipakai untuk mewakili "Keberuntungan", atau bahkan "Kebahagiaan", atau "Nasib Baik".
@@ -73,5 +77,42 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         dletakkan di depan nama panggilan. Sudah umum seorang keturunan Tionghoa dipanggil Ah Ling, Ah Yong, dsb.
         Penduduk setempat mengaitkan nama tersebut dengan "Rejeki Besar".
     </dd>
+    <dt id="da-xiaojie">Da Xiaojie (大小姐)</dt>
+    <dd>
+        Kalau mencoba mengartikan ketiga karakter ini secara literal, kita akan bingung. Karena Da (大) berarti "Besar",
+        sedangkan Xiao (小) berarti "Kecil", dan Jie (姐) adalah "Kakak Perempuan". Berarti kakak perempuan yang 
+        sekaligus besar dan kecil. Memang agak aneh. Tetapi sebenarnya istilah "Xiao Jie" (小姐) itu bermakna "Nona",
+        dan adalah panggilan umum untuk seorang wanita muda yang belum menikah. Seperti juga Gu Niang (姑娘).
+        Dengan aturan pemanggilan yang sama seperti Da Ge, Er Ge, San Ge, dan seterusnya, ini artinya adalah anak perempuan
+        yang tertua di dalam keluarga tersebut. Untuk menyingkatnya, bisa diterjemahkan menjadi "Nona Besar".
+    </dd>
+    <dt id="caihua-yinzei">Cai Hua Yin Zei (采花淫贼)</dt>
+    <dd>
+        Istilah untuk seorang pemerkosa atau penjahat cabul. Arti literalnya adalah 'Penjahat Pemetik Bunga'.
+    </dd>
+    <dt id="jiang-dong-she-wang">Jiang Dong She Wang (江东蛇王)</dt>
+    <dd>
+        Karakter Jiang (江) yang dipakai untuk mewakili 'Sungai' di atas berasal dari
+        nama Sungai Yangtze (长江, Chang Jiang atau Sungai Panjang). Sebenarnya maknanya sama saja dengan 
+        karakter He (河) yang berasal dari nama Sungai Kuning (Huang He 黄河). Tidak ada perbedaan mendasar di antara keduanya. Hanya beberapa hal berikut yang perlu dicermati.
+        <ol>
+            <li>
+                Karakter Jiang (江) umumnya dipakai di Selatan, dan He (河) di Utara. Dengan beberapa pengecualian,
+                misalnya Hei Long Jiang (黑龙江, Sungai Naga Hitam, wilayah asal suku Jurchen), yang justru termasuk
+                wilayah Utara, dan Liu Yang He (浏阳河), yang terletak di Selatan.
+            </li>
+            <li>
+                Jiang (江) umumnya dipakai untuk sungai besar, sedangkan He (河) bisa dipakai untuk sungai besar 
+                dan kecil.
+            </li>
+            <li>Sungai-sungai yang tak dikenal atau asing cenderung disebut He (河)</li>
+            <li>Jiang dipakai untuk sungai yang bertepian tebing curam, sedangkan He dipakai untuk yang bertepian landai.</li>
+        </ol>
+        Banyak terjemahan mengartikan 4 karakter tersebut menjadi 'The Serpent King of The East River', atau 'The Snake King of East River'. Tetapi dari sisi <em>grammar</em>, terjemahan tersebut harus dipertanyakan. Kalau dituliskan
+        'Jiang Dong', maka seharusnya adalah 'The East of The River'. Dengan demikian, dalam bahasa Indonesia seharusnya
+        adalah Raja Ular dari <em>Sebelah Timur Sungai</em>, dan bukan "Sungai Timur". Kelihatannya kecil, tetapi maknanya
+        sangat berbeda.
+    </dd>
 </dl>
+
 

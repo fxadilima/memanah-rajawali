@@ -21,7 +21,7 @@ pikirnya. Yang tidak diketahuinya adalah, Zhu Cong memanfaatkan keributan ketika
 bahkan tidak menyadari apa yang sedang terjadi.
 
 Wanyan Kang merasa malu, ia berbalik dan berjalan pergi tanpa mengatakan apa-apa. Zhu Cong melihat perwira Jin itu 
-masih terbaring. Ia membuka segel totokannya dan berseru, "Siapa petugas ini? Bawa dia pergi."
+masih terbaring. Ia membuka totokannya dan berseru, "Siapa petugas ini? Bawa dia pergi."
 
 Petugas itu mengira ia bakal mati, tapi ternyata ia secara tak terduga dibebaskan. Ia senang dan buru-buru bersujud, 
 "Para pendekar... terima kasih banyak telah menyelamatkan hidupku yang rendah ini. Duan Tiande tidak akan melupakannya 
@@ -276,6 +276,22 @@ Guo Jing telah belajar dari Huang Rong bahwa meskipun hanya mainan, hasil keraji
 Penduduk setempat menyebut mereka [Da Ah Fu](referensi-karakter.md#da-ah-fu "Rejeki Besar"). Huang Rong memiliki 
 beberapa boneka seperti itu di Pulau Bunga Persik.
 
+Guo Jing mendekat dan melihat di depan boneka-boneka itu mangkuk tanah liat kecil berisi kelopak bunga, daun, 
+dan sebagainya. Ia mendengarnya berkata dengan lembut, "Jing Gege bisa makan mangkuk ini, Rong'er akan makan 
+yang ini. Rong'er memasaknya sendiri. Enak, kan?"
+
+"Enak, enak sekali!" kata Guo Jing sambil melangkah keluar.
+
+Huang Rong terkejut. Ia menoleh dan tersenyum manis, berlari ke pelukan Guo Jing dan memeluknya erat-erat. Mereka 
+duduk bahu-membahu di bawah pohon willow sibuk menceritakan apa yang terjadi selama beberapa hari perpisahan mereka,
+yang terasa seperti bertahun-tahun. Sebenarnya Huang Rong yang sibuk bicara, Guo Jing puas hanya dengan menatap
+wajahnya dan mendengarkan celotehannya.
+
+Huang Rong memberitahunya bahwa malam itu setelah ayahnya mengancam ingin mencabut nyawa Guo Jing, ia melompat ke 
+danau. Setelah bersembunyi selama beberapa waktu, ia tahu bahwa ayahnya pasti telah pergi, jadi ia kembali ke desa. 
+Ia melihat Guo Jing aman dan sehat dan sangat terhibur, tetapi mengingat bagaimana ia sudah bicara begitu keras 
+terhadap ayahnya, ia merasa sangat tidak enak. Keesokan paginya ia melihat Guo Jing dan Yang Kang menuju utara ke 
+Yanjing, setelah itu ia mendahului mereka dan mengatur makanan di sepanjang jalan.
 
 
 [^kungfu-ortodoks]: Yang dimaksud 'Ortodoks' dalam konteks ini adalah ilmu dari aliran 'lurus', yang dianggap 'bersih', atau lebih tepatnya 'aliran putih'. Sebaliknya _bukan ortodoks_ maksudnya adalah _aliran sesat_. Sebetulnya hal ini tidak ada kaitannya secara langsung dengan ortodoksi, hanya sebuah cara untuk mengatakan bahwa yang "aneh" itu adalah _sesat_, tanpa harus terdengar tidak sopan.
@@ -287,3 +303,104 @@ beberapa boneka seperti itu di Pulau Bunga Persik.
 [^yanjing]: Ibukota Kekaisaran Jin, di jaman modern tempat ini adalah Beijing.
 
 
+Mereka berbicara sepanjang malam dalam kehangatan cuaca bulan keenam. Cuacanya menyenangkan dan hati Huang Rong senang,
+setelah beberapa saat ia mulai mengantuk, ucapannya jadi kabur dan tidak lama kemudian tertidur di dada Guo Jing. 
+Kulitnya yang seputih batu giok terasa sejuk dan napasnya berhembus lembut. Guo Jing takut ia akan membangunkannya, 
+jadi ia duduk tak bergerak di pohon willow dan setelah beberapa saat ia juga tertidur.
+
+Guo Jing tidak tahu berapa lama ia tertidur, tetapi ketika membuka matanya ia bisa mendengar burung berkicau dengan 
+riang dan ia mencium aroma manis dari bunga liar. Matahari sudah terbit, tapi Huang Rong masih tertidur. Dengan 
+alisnya yang berkerut, kulitnya yang kemerahan, senyumnya yang anggun, ia tampak seperti sedang mengalami mimpi indah.
+
+"Biarkan dia tidur lebih lama. Aku tidak boleh bersuara," pikir Guo Jing. Ia tampak seperti sedang menghitung bulu 
+matanya yang panjang ketika tiba-tiba terdengar sebuah suara, datangnya dari sekitar dua puluh kaki di sebelah kirinya.
+
+"Aku sudah menemukan kamar [Nona Besar](referensi-karakter.md#da-xiaojie "Da Xiaojie (大小姐)") Cheng, itu di lantai 
+dua bangunan yang dikelilingi taman bunga, di belakang pegadaian Tong Ren," kata suara itu.
+
+"Bagus! Kita akan bekerja malam ini," sahut suara lain, terdengar seperti pria yang lebih tua. Kedua laki-laki itu 
+bicara dengan suara rendah, tetapi dalam kesunyian pagi hari, Guo Jing dapat mendengar setiap kata dengan jelas. 
+Ia terkejut, mereka terdengar seperti 
+[penjahat cabul](referensi-karakter.md##caihua-yinzei "Cai Hua Yin Zei (采花淫贼), Penjahat Pemetik Bunga"), 
+tentu saja ia tidak bisa membiarkan mereka melakukan segala macam kejahatan.
+
+Tiba-tiba Huang Rong membuka matanya, ia melompat dari pelukan Guo Jing dan berteriak, "Jing Gege, tangkap aku!" 
+Ia berlari menuju sebuah pohon besar. Awalnya Guo Jing bingung, tapi Huang Rong terus memanggilnya. Akhirnya 
+ia mengerti. Mereka berpura-pura menjadi pasangan muda yang bermain petak umpet di pagi hari. Ia mengejarnya 
+sambil tertawa dan bercanda keras-keras, sengaja membuat langkah kakinya berat untuk menyembunyikan kungfunya.
+
+Kedua pria itu tidak menduga ada orang lain di sekitar tempat itu sepagi itu. Mereka terkejut, tetapi setelah 
+melihat seorang pria muda dan seorang wanita muda sedang bermain-main, kecurigaan mereka lenyap. Tapi mereka 
+tidak melanjutkan pembicaraan dan segera pergi.
+
+Huang Rong dan Guo Jing bisa melihat punggung mereka. Mereka berpakaian compang-camping dan tampak seperti pengemis.
+
+"Jing Gege, menurutmu apa yang akan mereka lakukan kepada Nona Besar Cheng itu?" tanya Huang Rong setelah 
+berjalan cukup jauh.
+
+"Tampaknya bukan sesuatu yang baik," kata Guo Jing. "Menurutmu kita harus menolongnya?"
+
+"Sudah pasti," kata Huang Rong sambil tersenyum. "Tapi aku tidak tahu apakah mereka termasuk kelompok Hong Qigong
+atau bukan."
+
+"Kurasa bukan," jawab Guo Jing. "Tapi menurut Hong Qigong semua pengemis di kolong langit ada di bawah naungannya.
+Hmm... mungkin dua orang itu palsu."
+
+"Ada puluhan ribu pengemis di dunia ini. Pasti ada beberapa dari mereka telah tidak baik. Aku tidak peduli 
+seberapa hebatnya Qigong, dia tidak mungkin bisa mengatur semuanya. Sepertinya kedua orang itu adalah yang buruk. 
+Hong Qigong sangat baik kepada kita, dan tidak mungkin membalas kita bisa membalas kebaikannya. Kupikir dia 
+akan senang kalau kita membereskan yang buruk ini."
+
+"Kau benar," kata Guo Jing setuju. Meskipun ia agak lelah, pikiran untuk membalas kebaikan Qigong membangkitkan 
+semangatnya.
+
+"Kaki kedua orang itu dipenuhi bisul. Aku yakin mereka pengemis sungguhan. Orang biasa tidak akan menyamar 
+seperti itu," kata Huang Rong.
+
+"Kau betul-betul jeli," kata Guo Jing kagum.
+
+Pasangan muda itu kembali ke kota untuk sarapan. Lalu mereka berjalan santai menyusuri jalan menuju ujung barat 
+kota. Di sana mereka melihat sebuah pegadaian yang sangat besar dengan empat karakter yang dilukis di dinding putih,
+'Pegadaian Tong Ren', dengan masing-masing karakter lebih tinggi dari rata-rata pria. Di belakang toko ada taman 
+dan di tengahnya ada bangunan dua lantai. Ada tirai bambu hijau tua yang menutupi jendela besar di lantai dua. 
+Guo Jing dan Huang Rong saling memandang dan tersenyum. Bergandengan tangan mereka berjalan pergi untuk bermain 
+di tempat lain.
+
+Setelah makan malam mereka kembali ke kamar masing-masing untuk istirahat dan meditasi. Kira-kira pukul satu malam 
+mereka berlari menuju bagian barat kota, melompat ke dinding taman dan melihat bayangan gelap bangunan besar itu. 
+Diam-diam mereka naik ke atap dan mengayunkan tubuh mereka dari atap. Saat itu malam musim panas, jadi jendelanya 
+terbuka. Mereka melihat ke sekeliling ruangan besar itu dan yang mengejutkan mereka adalah tujuh gadis muda, 
+semuanya berusia sekitar delapan belas atau sembilan belas tahun. Seorang gadis cantik sedang duduk di sebelah 
+lampu, sedang membaca. Mereka mengira dia pasti Nona Cheng. Enam lainnya berpakaian seperti gadis pelayan, 
+semuanya memegang senjata terhunus di tangan mereka. Mereka terlihat tegas namun anggun, jelas mereka mengerti
+ilmu silat.
+
+Guo Jing dan Huang Rong awalnya bermaksud membantu wanita muda ini, tetapi melihat ia sudah siap, mereka pikir 
+sebaiknya mereka menunggu dan melihat keadaan. Jadi mereka diam-diam naik kembali ke atap dan menunggu.
+
+Tidak lama kemudian mereka mendengar panggilan pelan dari luar tembok. Huang Rong segera menarik Guo Jing dan 
+mereka melihat ke bawah untuk melihat dua bayangan melompati tembok dan berjalan menuju gedung. Bayangan itu 
+tampak seperti dua pengemis yang mereka lihat sebelumnya. Salah satu pengemis bersiul pelan. Seorang gadis pelayan 
+menarik tirai dan bertanya, "Saudara-saudara pendekar dari Kai Pang? Silakan naik." Kedua pengemis itu melompat 
+dan memasuki ruangan.
+
+Di kegelapan, di luar, Guo Jing dan Huang Rong saling pandang keheranan. Mereka pikir begitu kedua orang itu tiba,
+akan terjadi pertarungan sengit atau hal lain yang menarik. Di luar dugaan ternyata mereka saling mengenal.
+
+Nona Cheng segera berdiri, memberi hormat, dan berbasa-basi. "Boleh aku tahu nama saudara-saudara?" tanyanya.
+
+"Margaku Li," kata yang lebih tua. "Dan ini keponakan seperguruanku, Yu Zhao."
+
+"Oh, berarti Li Qianbei dan Yu Dage!" kata Nona Cheng. "Para pendekar Kai Pang yang gagah berani selalu menjunjung 
+tinggi keadilan dan dikagumi oleh semua pendekar dunia persilatan. Sungguh suatu kehormatan bagiku, seorang 
+murid muda, akhirnya bertemu dengan dua panutan yang dihormati. Silakan duduk." Meskipun apa yang dikatakannya 
+adalah basa-basi umum di Jianghu, ekspresi wajahnya malu-malu. Ia banyak berhenti di antara kalimat, yang 
+menunjukkan ia tidak terbiasa dengan pembicaraan semacam ini. Ia mengatakan 'dikagumi oleh orang-orang di dunia 
+persilatan' dengan tulus, tapi terdengar sepertinya tidak yakin dengan apa yang dibicarakan. Ketika ia selesai 
+berbicara, kepalanya ternunduk dan wajahnya memerah.
+
+Dengan malu-malu ia menatap ke arah satu mata pengemis tua itu dan dengan malu-malu bertanya, "Qianbei, bukankah 
+Qianbei [Jiang Dong She Wang](referensi-karakter.md#jiang-dong-she-wang "(江东蛇王) Raja Ular dari Sungai Timur") yang 
+Li Sheng?"
+
+Dong He She Wang (东河蛇王)
