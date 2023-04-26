@@ -543,7 +543,10 @@ Ouyang Ke melihat langkah kaki Li Sheng mantap dan gerakan tangannya sangat terl
 serangan-serangan berbahaya. Ia tidak berani bersikap santai dan meremehkan lawannya lagi. Ia menyelipkan kipas 
 lipatnya ke pinggangnya dan secepat kilat meluncurkan serangan balik ke arah bahu Li Sheng.
 
-Li Sheng parried with the ‘Begging for Rice’ move [fan lai shen shou], still from the ‘Wandering Strides’ fists technique. Ouyang Ke parried with his left hand, which forced Li Sheng to lift his right arm; Ouyang Ke swiftly moved toward Li Sheng’s back and stretched both hands with all fingers forming two claws attacking Li Sheng’s vital ‘Sleeveless Garment’ [bei xin] acupoints.
+Li Sheng menangkis dengan gerakan 'Mengemis Nasi' [fan lai shen shou], masih dari teknik tinju 'Wandering Strides'. Ouyang Ke menangkis dengan tangan kirinya, yang memaksa Li Sheng mengangkat lengan kanannya; Ouyang Ke dengan cepat bergerak ke arah punggung Li Sheng dan merentangkan kedua tangan dengan semua jari membentuk dua cakar menyerang 'Pakaian Tanpa Lengan' [bei xin] vital Li Sheng.
 
+Fan Lai Shen Shou 饭来伸手
+Fan 饭 = Nasi/Makanan
+Shou 手 = tangan
 
 

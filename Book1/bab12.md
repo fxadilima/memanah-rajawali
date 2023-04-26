@@ -1154,10 +1154,10 @@ Hong Qigong melotot. "Tidak _terlalu_ banyak orang!" katanya. "Margamu Ouyang, k
 "Orang tua ini satu generasi lebih tua dari kau," kata Huang Rong. "Kalau dia bilang, kau bisa mati ketakutan!"
 Tapi Ouyang Ke tidak marah, ia meliriknya sekilas.
 
-"Kau keponakan Ouyang Fng, kan?" kata Hong Qigong.
+"Kau keponakan Ouyang Feng, kan?" kata Hong Qigong.
 
 Ouyang Ke tidak menjawab, tetapi ketiga orang lainnya berteriak, "Hei Tua Bangka! Berani benar kau memanggil
-nama tuan kami!"
+nama majikan kami!"
 
 "Aku mengucapkan hal-hal yang tidak diucapkan orang lain," kata Hong Qigong sambil tersenyum santai.
 
