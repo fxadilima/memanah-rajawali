@@ -543,10 +543,22 @@ Ouyang Ke melihat langkah kaki Li Sheng mantap dan gerakan tangannya sangat terl
 serangan-serangan berbahaya. Ia tidak berani bersikap santai dan meremehkan lawannya lagi. Ia menyelipkan kipas 
 lipatnya ke pinggangnya dan secepat kilat meluncurkan serangan balik ke arah bahu Li Sheng.
 
-Li Sheng menangkis dengan gerakan 'Mengemis Nasi' [fan lai shen shou], masih dari teknik tinju 'Wandering Strides'. Ouyang Ke menangkis dengan tangan kirinya, yang memaksa Li Sheng mengangkat lengan kanannya; Ouyang Ke dengan cepat bergerak ke arah punggung Li Sheng dan merentangkan kedua tangan dengan semua jari membentuk dua cakar menyerang 'Pakaian Tanpa Lengan' [bei xin] vital Li Sheng.
+Li Sheng menangkis dengan gerakan 
+[Mengemis Makanan](referensi-karakter.md#fanlai-shenshou "Fan Lai Shen Shou (饭来伸手), secara literal berarti 'Makanan datang, tangan terulur'. Klik untuk membaca uraiannya."), 
+masih dari teknik Xiao Yaoyou ajaran Hong Qigong. Ouyang Ke menangkis dengan tangan kirinya, yang memaksa Li Sheng 
+mengangkat lengan kanannya. Ouyang Ke dengan cepat bergerak ke arah punggung Li Sheng dan merentangkan kedua tangan 
+dengan semua jari membentuk dua cakar mengancam titik akupuntur vital Li Sheng, 
+[Pakaian Tanpa Lengan](referensi-karakter.md#bei-xin "Titik akupuntur Bei Xin (背心)").
 
-Fan Lai Shen Shou 饭来伸手
-Fan 饭 = Nasi/Makanan
-Shou 手 = tangan
+Guo Jing dan Huang Rong sangat terkejut. "Serangan itu sulit diatasi!" pikir mereka.
+
+Saat itu anggota Klan Pengemis lainnya telah memasuki aula, mereka melihat Li Sheng dalam bahaya besar dan bergegas untuk membantu.
+
+Li Sheng bisa mendengar angin di belakang punggungnya dan merasakan cakar hampir menyentuh pakaiannya. Sekali lagi dia meluncurkan tangannya ke belakang menggunakan 
+jurus [Sang Naga Mengibaskan Ekor](referensi-karakter.md#shenlong-bai-wei "Shen Long Bai Wei (神龙摆尾). Klik untuk membaca uraias selengkapnya. Tips: Gunakan klik kanan, lalu Back untuk kembali ke sini.") 
+dari Delapan Belas Jurus Penakluk Naga.
+
+
+
 
 

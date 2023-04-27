@@ -146,11 +146,13 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         "Gaya Bebas Riang Gembira", meskipun lebih baik kita biarkan seperti bahasa aslinya.
         <p></p>
         <blockquote>
-                Istilah dengan 3 karakter Xiao Yao You (逍遥游) ini sebenarnya dikutip dari sebuah literatur kuno milik
-                Zhuangzi (莊子, 369 - 386 SM), yang hidup di era Warring States Period/Periode Peperangan Antar Negara. 
-                Dikutip dari Bab 1, dan bisa diterjemahkan secara puitis ke dalam bahasa Inggris menjadi 
-                'Enjoyment in Untroubled Ease'. Barangkali dalam bahasa Indonesia 'Kenikmatan dalam Kehidupan Bebas'.
-                Zhuangzi adalah seorang filsuf populer beraliran Taoisme, setelah Laozi.
+            Istilah dengan 3 karakter Xiao Yao You (逍遥游) ini sebenarnya dikutip dari sebuah literatur kuno milik
+            Zhuangzi (莊子, 369 - 386 SM), yang hidup di era Warring States Period/Periode Peperangan Antar Negara. 
+            Dikutip dari Bab 1, dan bisa diterjemahkan secara puitis ke dalam bahasa Inggris menjadi 
+            'Enjoyment in Untroubled Ease'. Barangkali dalam bahasa Indonesia 'Kenikmatan dalam Kehidupan Bebas'.
+            Zhuangzi adalah seorang filsuf populer beraliran Taoisme, setelah Laozi. Ajaran yang dikembangkannya
+            punya makna yang sangat dalam, mengingat ia hidup di era peperangan yang sulit. Namun begitu, isi dari
+            ajarannya adalah mengenai kehidupan yang seolah-olah bebas dari kesulitan jaman itu.
         </blockquote>
     </dd>
     <dt id="fanlai-shenshou">Fan Lai Shen Shou (饭来伸手)</dt>
@@ -162,7 +164,33 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         yang kalau kita terjemahkan secara literal kira-kira berarti, 'Ketika pakaian datang, tangan terulur. 
         Ketika makanan datang, mulut terbuka'.
     </dd>
+    <dt id="bei-xin">Titik Akupuntur Bei Xin (背心)</dt>
+    <dd>
+        Kedua karakter itu artinya adalah "Rompi" atau pakaian tanpa lengan.
+        Sampai saat saya menulis catatan ini, masih belum ditemukan di mana tepatnya titik ini. Tidak ada informasi
+        yang memadai, tapi seharusnya titik ini terletak di punggung atau leher belakang.
+        (Diamati dari cara Ouyang Ke menyerang Li Sheng).
+    </dd>
+    <dt id="shenlong-bai-wei">Shen Long Bai Wei (神龙摆尾)</dt>
+    <dd>
+        Nama jurus ini adalah salah satu kutipan dari Yijing (Kitab Perubahan) dari jaman Dinasti Zhou, yang maknanya 
+        bisa kita terjemahkan ke dalam bahasa Indonesia menjadi 'Sang Naga Mengibaskan Ekor', di mana 'Sang Naga' di 
+        sini dimaksudkan sebagai 'Naga Ilahi'. Sebetulnya makhluk 'Naga' itu sendiri sudah berbau mitos, karena memang
+        di dunia nyata tidak ada. Dan kesan ini semakin diperkuat oleh karakter 'Shen' (神), yang bermakna 'Ilahi', atau
+        sesuatu yang memiliki otoritas di atas dunia ini.
+        Teks asli dari Yijing (seringkali ditulis I-Ching), dikutip dari Hexagram 10, yaitu Lu (履), yang bermakna
+        Sepatu/Langkah Kaki/Berjalan. Di dalam Hexagram Lu (履), terdapat teks yang menggambarkan betapa 'Si Lemah'
+        melangkahkan kaki di atas 'Si Kuat'. Ini dilambangkan dengan Si Lemah itu menginjak ekor harimau, dan harimau
+        itu tidak menggigitnya.Baris kelima dari teks ini sangat kuat mengindikasikan bahwa posisi tersebut telah
+        <em>dianugerahkan oleh Surga</em>, oleh karenanya tidak akan gagal. Pencipta Delapan Belas Jurus Penakluk Naga
+        sebenarnya menamai jurus itu Lu Hu Wei (履虎尾), yang bermakna 'Menginjak Ekor Harimau'. Ini penjelasan yang
+        lebih kuat dibandingkan 'Menyerang Harimau Dari Belakang', karena kalau kita menginjak ekor harimau, tak diragukan
+        lagi, harimau tersebut akan marah dan menyerang dengan dahsyatnya. Akan tetapi generasi selanjutnya merasa bahwa
+        penjelasan tersebut tidak enak diucapkan, kurang indah dan terlalu lembut, maka mereka mengubahnya menjadi 
+        'Sang Naga Mengibaskan Ekor'.
+    </dd>
 </dl>
+
 
 ***
 
