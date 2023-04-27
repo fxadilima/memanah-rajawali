@@ -665,6 +665,106 @@ ke belakang. Dengan benturan keras, telapak tangan Guo Jing mengenai kaki Ouyang
 mengenai dada Guo Jing. Keduanya merasakan sakit yang menyengat sampai ke tulang sumsum. Mereka membalikkan tubuh 
 untuk kembali saling berhadapan dan saling menatap dengan marah. Lalu mereka langsung saling menyerang lagi.
 
+Para anggota Kai Pang terkejut dan berpikir, "Langkah ini jelas sekali kungfu unik Li Sheng, Sang naga Mengibaskan Ekor, 
+kenapa pemuda ini bisa menggunakannya? Selain itu gerakannya lebih bagus dari Li Sheng." Sekarang mereka sudah menarik 
+Li Sheng yang sudah sadar ke samping. Ia juga mengenali tidak hanya Sang Naga Mengibaskan Ekor, tetapi juga jurus 
+lainnya. Ia melihat gerakan Guo Jing sangat indah dan kuat. Ia kagum. Delapan Belas Jurus Penakluk Naga adalah 
+kungfu yang menjadi ciri khas Ketua Kai Pang. Karena aku tidak peduli akan nyawaku sendiri dan memberikan pelayanan 
+yang baik, [Bang Zhu](referensi-karakter.md#bang-zhu "Ketua") dengan murah hati mengajari jurus ini. Di mana pemuda 
+ini belajar delapan belas jurus lengkap itu?" Jelas ia tidak menyadari bahwa Guo Jing hanya bisa lima belas jurus.
+
+Ouyang Ke juga takjub. "Bagaimana mungkin kungfu bocah tengik bisa maju sepesat ini hanya dalam waktu dua bulan?"
+
+Dalam waktu singkat mereka sudah mengadu sekitar empat puluh jurus. Guo Jing berulang kali menggunakan lima belas 
+jurusnya. Cukup baginya untuk membela diri. Tetapi sejujurnya ia harus mengakui bahwa ilmu silat Ouyang Ke beberapa 
+tingkat di atasnya. Ia menyadari bahwa ia tidak akan menang.
+
+Sepuluh jurus atau lebih berikutnya Ouyang Ke mengubah taktik. Ia dengan cepat bergerak ke segala arah untuk 
+mengalihkan perhatian Guo Jing, lalu melancarkan serangan dari arah yang tidak terduga. Guo Jing berusaha keras 
+untuk menangkisnya tetapi pinggul kirinya kena tendangan. Ia melangkah mundur terpincang-pincang. Untungnya 
+semua gerakannya terfokus di telapak tangan, jadi ia masih bisa meluncurkan lima belas jurusnya dengan lancar.
+
+Untuk sementara waktu Ouyang Ke tidak berani memaksakan situasi. Ia mencoba untuk membuka celah di garis 
+pertahanan Guo Jing. Sekitar selusin jurus kemudian, ia melihat celah terbuka dan segera melancarkan serangan. 
+Guo Jing telah menyelesaikan lima belas jurus dan akan mengulang seluruh rangkaian. Setelah jurus kelima belas, 
+[Melihat Naga di Lapangan](referensi-karakter.md#jianlong-zai-tian "Jian Long Zai Tian"), ia bisa kembali 
+ke jurus pertama, [Naga Angkuh Punya Penyesalan](referensi-karakter.md#kanglong-you-hui "Kang Long You Hui"), 
+tapi ia juga bisa mengulangi jurus terakhir. Pikirannya tidak cukup cepat, ia masih sibuk berpikir, "Aku harus 
+mengulangi dari awal, atau membalik urutannya?" Sedikit keraguan ini sudah cukup bagi Ouyang Ke. Ia segera 
+memanfaatkan celah kecil ini dan menyerang bahu Guo Jing.
+
+Guo Jing tersentak, ia tidak punya kesempatan untuk memikirkan salah satu dari lima belas jurus yang bisa digunakan 
+untuk menangkis serangan itu, jadi secara refleks ia melangkah mundur dan menampar tangan lawannya. Itu adalah gerakan 
+yang tidak mengikuti aturan kungfu mana pun, semacam jurus tanpa jurus. Ouyang Ke terkejut dan lengannya terpukul 
+telak. Ia melompat mundur dan segera memeriksa lengannya. Untungnya meskipun sakit tapi tidak patah.
+
+Guo Jing sangat senang melihat hasil yang tak terduga ini. Ia berpikir, "Aku baru sadar ada tiga bagian di tubuhku 
+yang tidak terlindung dengan baik. Bahu, pinggul kiri, dan pinggang kanan. Kalau saja aku bisa mengembangkan lebih 
+banyak jurus menggunakan kedua tangan..." Pikirannya masih mengembara keika Ouyang Ke melancarkan serangan lagi.
+
+Guo Jing sudah jelas bukan anak paling pintar di negeri ini. Bahkan jika ia dengan susah payah memeras otaknya 
+selama sepuluh hari atau dua minggu, ia belum tentu menghasilkan setengah gaya baru. Saat ini ia terlibat dalam 
+pertempuran sengit, bagaimana bisa punya kesempatan untuk berpikir. Yang bisa dilakukannya hanyalah memodifikasi 
+prinsip apa pun yang sudah dipelajarinya dari Jurus Penakluk Naga, hanya untuk melindungi tiga bagian tubuh ini, 
+bahu, pinggul kiri, dan pinggang kanannya.
+
+Ouyang Ke gelisah. "Variasi gerakannya terbatas, kalau aku punya cukup waktu, rasanya aku bisa unggul. Dari mana 
+asalnya tiga jurus tambahan itu?" pikirnya. Ia tidak tahu bahwa tiga gerakan tambahan Guo Jing sebenarnya tidak 
+berguna, tapi ia agak waspada karena terpukul sebelumnya. Ia memperlambat langkahnya dan memusatkan perhatiannya
+pada pertahanan, dengan hati-hati mempelajari gerakan baru Guo Jing. Setelah beberapa saat ia bisa melihat 
+kelemahannya. "Benar! Ia belum menguasai jurus-jurus ini, itu alasan dia tidak menggunakannya dari awal," pikirnya. 
+Sambil tetap menggerakkan tubuhnya, ia mendorong tangan kirinya untuk mengalihkan perhatian Guo Jing dan pada saat 
+yang sama mengayunkan kaki kanannya lurus ke pinggul kiri Guo Jing.
+
+Guo Jing belum menguasai tiga gerakan baru yang dikembangkannya sendiri dengan baik. Tiba-tiba melihat lawannya 
+menyerang titik lemahnya, ia langsung gugup. Saat itu ia tengah meluncurkan pukulan telapak tangan, yang ditariknya 
+kembali secara mendadak, dan mengalihkan telapak tangannya untuk menangkis tendangan lawan.
+
+Huang Rong diam-diam kecewa. "Ragu-ragu dalam pertarungan seperti ini benar-benar tabu terbesar dalam seni bela diri. 
+Dalam satu gerakan ini Jing Gege menyia-nyiakan tujuh atau delapan peluang. Tidak hanya itu, meskipun dia tidak 
+bisa melukai musuh, seharusnya dia bisa bertahan. Dengan membalikkan telapak tangannya seperti itu, dia justru 
+membuat celah pertahanannya semakin besar," pikirnya. Ia tahu pasti bahwa Ouyang Ke telah mengerahkan seluruh 
+tenaganya dalam tendangan itu, dan Guo Jing mungkin tidak dapat menangkisnya. Segera tujuh atau delapan jarum 
+baja terbang dengan cepat dari tangannya.
+
+Ouyang Ke dengan cepat menarik kipas lipat dari pinggangnya dan dengan satu gerakan yang luwes membukanya dan 
+mengayunkannya dengan lembut untuk memblokir jarum. Ia yakin semua jarum sudah terblokir, maka ia tidak memperlambat 
+tendangannya ke arah Guo Jing. Ia yakin Guo Jing akan terpukul dengan keras dan jatuh ke lantai. Tapi kemudian ia 
+merasakan sedikit mati rasa seolah-olah jalan darah di atas pergelangan kakinya tertotok. Tendangannya tidak berhenti, 
+tetapi telah kehilangan semua kekuatannya. Ouyang Ke melompat mundur dengan sangat terkejut. "Siapa pengacau yang 
+berani menikam Tuan Mudamu dari belakang?" omelnya sengit. "Keluarlah kalau kau punya nyali..."
+
+Tetapi sebelum ia selesai bicara, ia mendengar suara dari atas dan sebuah benda terbang ke arahnya. Ia mengangkat 
+tangannya untuk memblokir benda itu, tapi benda itu datang terlalu cepat. Sebelum ia menyadarinya, benda telah 
+memasuki mulutnya. Benda itu agak asin dan keras. Ia kaget dan ketakutan. Dengan cepat ia meludahkan benda itu. 
+Ternyata itu tulang ayam.
+
+Dengan grogi ia mendongak ke atasnya, tetapi seketika itu lebih banyak benda berjatuhan menimpanya. Ia dengan cepat 
+melompat ke samping sambil meludahkan debu dari mulutnya. Ketika membuka mulutnya, beberapa tulang ayam menghantam 
+giginya. Semua itu memang tidak berbahaya, tapi sangat menyakitkan! Ouyang Ke sangat marah. Tiba-tiba ia melihat 
+sesuatu terbang turun dari bayangan di titian atap di atas. Ia segera mengirimkan telapak tangan untuk menyerang 
+benda itu. Ia berhasil menjatuhkannya ke lantai, dan menemukan kenyataan bahwa benda itu adalah kaki ayam yang
+sudah setengah dimakan. Kemudian ia mendengar bayangan di atas atap meledak dalam tawa. "Bagaimana kungfu pengemis mencuri 
+ayam itu?"
+
+Huang Rong dan Guo Jing melompat kegirangan ketika mendengar suara itu. "Qigong!" seru mereka serempak.
+
+Semua orang mendongak dan melihat Hong Qigong sedang duduk di titian atap, kakinya terpentang lebar, dengan setengah 
+potong ayam di tangannya, ia makan dengan penuh selera. Para anggota Kai Pang membungkuk dan membuka mulut bersama, 
+"[Bangzhu](referensi-karakter.md#bang-zhu "Ketua")! Semoga Bangzhu sehat selalu!"
+
+Ouyang Ke melihat itu memang Hong Qigong dan hatinya ciut. "Kalau yang dilemparkannya tadi bukan tulang ayam, tapi 
+senjata rahasia, aku pasti sudah mati sekarang. Pria sejati tidak takut kalah, yang paling penting sekarang adalah 
+melarikan diri." pikirnya. Ia membungkuk dan berkata, "Paman Hong, terimalah sembah-sujudku." Mulutnya mengatakan 
+[sujud](referensi-karakter.md#kowtow "Kowtow/Ketou (磕头), bersujud"), tetapi ia tidak berlutut.
+
+Hong Qigong masih mengunyah ayam. "Kau belum juga kembali ke Wilayah Barat? Kau melakukan melakukan kejahatan di sini, 
+apa kau ingin membuang nyawa kecilmu itu di Dataran Tengah[^zhong-yuan]?" ia bergumam tidak jelas.
+
+[^zhong-yuan]: Yang dimaksud dengan 'Dataran Tengah' adalah wilayah di sekitar Sungai Yangtze, yang memang terletak di tengah-tengah wilayah Tiongkok. Dari generasi ke generasi wilayah ini dipakai sebagai acuan untuk menggambarkan tempat asal dari masyarakat Tionghoa secara keseluruhan.
+
+
+
 
 
 

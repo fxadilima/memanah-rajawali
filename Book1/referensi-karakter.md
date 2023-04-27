@@ -201,6 +201,28 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         pedangnya tidak kelihatan. Nama ini sendiri bermakna Ilmu Pedang Dewa dari Pulau Bunga Persik, disingkat
         'Ilmu Pedang Dewa'.
     </dd>
+    <dt id="bang-zhu">Bang Zhu (帮主)</dt>
+    <dd>
+        Note: Dalam gaya bahasa Kho Ping Hoo/Gan KL istilah ini adalah 'Pangcu'.
+        Panggilan untuk ketua kelompok, dalam konteks ini secara khusus melekat kepada Ketua Kai Pang.
+    </dd>
+    <dt id="jianlong-zai-tian">Jian Long Zai Tian (见龙在田)</dt>
+    <dd>
+        Ini juga adalah nama jurus yang dikutip dari Kitab Perubahan (Yijing), dari bagian Qian (䷀乾), baris kedua,
+        yang aslinya berbunyi, 见龙在田，利见大人。
+        Empat karakter di sebelah kiri adalah sebuah fenomena, sedangkan empat yang di sebelah kanan adalah penjelasan
+        dari fenomena tersebut. 'Sang Naga menampakkan diri di lapangan terbuka, sungguh beruntung bisa berjumpa dengan
+        orang besar.' Karakter Tian (田) di atas bermakna lahan terbuka, bisa berupa alun-alun, areal persawahan atau ladang,
+        padang rumput, padang pasir, halaman, atau taman. Pendek kata adalah <em>di bumi</em>, dan bukan Tian (天) yang 
+        berarti 'langit'. Dengan demikian, secara keseluruhan kalimat ini mengacu kepada seorang pemimpin besar, tetapi
+        yang berjiwa rendah hati dan bijaksana, dan bukan yang cenderung membanggakan diri dan menonjolkan kekuasaannya.
+        Tak ada keterangan yang cukup lengkap mengenai bagaimana filosofi tersebut bisa diterapkan dalam ilmu silat.
+    </dd>
+    <dt id="kowtow">Kowtow/Ketou (磕头)</dt>
+    <dd>
+        Sikap sujud dengan berlutut sambil membenturkan kening di atas lantai/tanah di hadapan pribadi yang dihormati.
+        Arti literal dari Ke (磕) membenturkan, sedangkan Tou (头) adalah kepala.
+    </dd>
 </dl>
 
 
@@ -211,4 +233,40 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
 Kuas di era Dinasti Song Selatan berbentuk mirip dengan sebuah pena kuno. 
 
 ![Kuas Dinasti Song](https://res.cloudinary.com/drzjshskk/image/upload/v1682526945/misc/song-dynasty-brush_qbio65.png "Kuas untuk menulis di era Dinasti Song Selatan.").
+
+
+## Mengenai Jian Long Zai Tian 
+
+Jian Long Zai Tian 见龙在天 = Melihat Naga Di Langit
+
+Before concluding this discussion of the bottom-to-top organization within single hexagrams, it is appropriate to consider the case of Qian 乾䷀ “Vigorous” (#1) hexagram, the first—and best known—hexagram in the Zhou Changes. The line statements of this hexagram are organized around the image of a dragon or dragons (long 龍), the descriptions of the dragon changing from line to line based on its position in the hexagram. Since these images are the best known line statements in the entire text, and have motivated countless metaphors throughout Chinese literature and culture, they merit detailed discussion here.10 We can begin with a simple translation of the hexagram text.
+
+
+初九：潛龍。勿用。
+
+First Nine: Submerging dragon. Don’t use.
+
+九二：見龍在田。利見大人。
+
+Nine in the Second: Seeing a dragon in the fields. Beneficial to see a great person.
+
+九三：君子終日乾乾。夕惕若。厲。无咎。
+
+Nine in the Third: A lord’s son to the end of the day so vigorous, In the evening apprehensive-like. Dangerous.11 Without trouble.
+
+九四：或躍在淵。无咎。
+
+Nine in the Fourth: Now jumping in the depths. Without trouble.
+
+九五：飛龍在天。利見大人。
+
+Nine in the Fifth: Flying dragon in the heavens. Beneficial to see a great person.
+
+上九：亢龍。有悔。
+
+Top Nine: Throttled dragon.12 Having regret.
+
+用九：見群龍无首。吉。
+
+Use the Nine:13 Seeing a flock of dragons without heads. Auspicious.
 
