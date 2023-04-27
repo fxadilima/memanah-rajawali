@@ -847,7 +847,7 @@ Hong Qigong menengadah sambil tertawa. "Jing'er, apa kau ini muridku?" tanyanya 
 
 "Wanbei tidak punya keberuntungan untuk menjadi murid Qianbei," jawab Guo Jing buru-buru.
 
-"Kau sudah dengan belum?" tanya Hong Qigong kepada Ouyang ke.
+"Kau sudah dengar belum?" tanya Hong Qigong kepada Ouyang ke.
 
 Ouyang Ke tidak puas. "Kau tidak bisa membodohi aku. Dari mana asalnya jurus indah bocah ini?" tanyanya.
 
