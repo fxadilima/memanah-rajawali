@@ -186,12 +186,12 @@ dikenal sebagai 'Dewa Ginseng', yang datang dari Gunung Dewa Putih."
 Liang Ziweng, seorang pria tua dengan wajah nyaris tanpa kerut dan berambut tipis, memberi salam
 dengan merangkapkan kedua tangannya. "Suatu kehormatan bertemu dengan Wang Dao Zhang, Dewa Berkaki Besi!
 sekarang aku baru bisa bilang bahwa perjalananku melewati perbatasan tidak sia-sia. Ini adalah
-Zhi Shang De (Kebajikan Tertinggi) Ling Zhi, juga dikenal sebagai Si Tangan Raksasa, dari Tibet.
+Lingzhi Shangren, juga dikenal sebagai Si Tangan Raksasa, dari Tibet.
 Aku sendiri berasal dari Timur Laut, dia dari Barat Daya, jadi diperlukan perjalanan sejauh
 puluhan ribu li supaya orang bisa bilang bahwa kami berdua sudah ditakdirkan bertemu."
 
 Jelas sekali Liang Ziweng punya mulut yang sangat manis. Wang Chuyi memberi salam kepada
-Zhi Shang De Ling Zhi, dan Lama dari Tibet itu membalas dengan merangkapkan kedua tangannya.
+Lingzhi Shangren, dan Lama dari Tibet itu membalas dengan merangkapkan kedua tangannya.
 Tiba-tiba terdengar sebuah suara kasar, "Karena mereka mendapat dukungan dari Quanzhen,
 makanya Tujuh Orang Aneh dari Jiangnan berani kurang ajar!"
 

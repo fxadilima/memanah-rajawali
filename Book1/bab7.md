@@ -1127,7 +1127,7 @@ itu penganut agama Tao atau Buddha. Yang ketiga bertubuh sangat kecil, tetapi ma
 berlumuran darah memiliki tatapan tajam, dan ia memiliki kumis kecil yang angkuh.
 
 Kehadiran wajah-wajah yang tidak umum ini mengejutkan Mu Yi. Ia kemudian mendengar salah satu pelayan 
-berkata, "Zhi Shang De (至上德), tolong singkirkan orang bodoh ini dari kami! Jika ini terus berlanjut 
+berkata, "Shangren, tolong singkirkan orang bodoh ini dari kami! Jika ini terus berlanjut 
 dan sesuatu yang serius terjadi pada Pangeran muda, kami para pelayan bisa mati!"
 
 Zhi Shang De, atau Sang Kebajikan Tertinggi, adalah nama panggilan untuk Si Lama Tibet itu. Mendengar
@@ -1235,7 +1235,7 @@ Melihat tontonan tersebut, Guo Jing sangat terkejut dan sekaligus gembira. Ia be
 punya kungfu hebat. Waktu itu, kelihatannya dialah yang menyingkirkan Hou Tonghai, dan juga menggantung
 Empat Iblis Sungai Kuning di atas pohon!" Pihak lawan ternyata juga tidak kurang terkejutnya.
 
-Si Kebajikan Tertinggi Lingzhi bertanya, "Dewa Ginseng, si pengemis cilik itu luar biasa gesit, kira-kira
+Lingzhi Shangren bertanya, "Dewa Ginseng, si pengemis cilik itu luar biasa gesit, kira-kira
 dari perguruan mana dia? Kelihatannya Hou Xiong sudah kalah..."
 
 Juragan Gunung Yong Baishan yang berambut putih itu bernama Liang Ziweng, sejak muda sudah mengkonsumsi
@@ -1329,7 +1329,7 @@ jelas mereka disingkirkan dengan salah satu cara...
 Liang Ziweng dan kawan-kawan berusaha memeras otak untuk menebak identitas Huang Rong. Mereka melihat
 Hou Tonghai berlari dengan cepat, tetapi ia tidak pernah berhasil menyamai bocah berpakaian compang-camping
 itu. "Apa mungkin anak ini anggota Kai Pang?" tanya Peng Lianhu, agak mendadak. Pada saat itu Kai Pang
-adalah kelompok terkuat yang ada di rimba persilatan. Lian Ziweng mengedutkan mukanya, tetapi tidak
+adalah kelompok terkuat yang ada di rimba persilatan. Liang Ziweng mengedutkan mukanya, tetapi tidak
 menjawab.
 
 Kedua pemuda itu bertarung semakin cepat dan tenaga yang mereka gunakan juga semakin besar. Kadang-kadang

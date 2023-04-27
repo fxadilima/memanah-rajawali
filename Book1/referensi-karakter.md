@@ -221,7 +221,45 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dt id="kowtow">Kowtow/Ketou (磕头)</dt>
     <dd>
         Sikap sujud dengan berlutut sambil membenturkan kening di atas lantai/tanah di hadapan pribadi yang dihormati.
-        Arti literal dari Ke (磕) membenturkan, sedangkan Tou (头) adalah kepala.
+        Arti literal dari Ke (磕) adalah membenturkan, sedangkan Tou (头) adalah kepala.
+    </dd>
+    <dt id="bai-tuo-shan-shao-zhu">Bai Tuo Shan Shao Zhu (白駝山少主)</dt>
+    <dd>
+        Bai Tuo Shan (白駝山) artinya adalah Gunung Onta Putih, terletak di Wilayah Barat Tiongkok. Dalam kisah ini,
+        Bai Tuo Shan adalah wilayah kekuasaan Ouyang Feng (歐陽鋒) yang dijuluki Si Racun Barat (西毒).
+        Dua karakter terakhir Shao Zhu (少主) bisa diartikan sama dengan <a href="#shaoye">Shao Ye</a>, yaitu
+        'Tuan Muda'. Tetapi istilah 'Shaozhu' (少主) hampir tidak pernah digunakan untuk memanggil seseorang, meskipun
+        artinya adalah 'Majikan Muda', dan karakter Zhu (主) kalau digunakan bersama-sama dengan Ren (人, manusia), akan
+        menjadi 'Majikan' atau 'Pemilik Rumah'. Istilah Zhu Ren (主人) jelas berarti 'Bos'. Lima karakter di atas 
+        mengacu kepada Ouyang Ke, yang adalah Majikan Muda Pegunungan Onta Putih. Meskipun kedua istilah Shaoye dan Shaozhu
+        ini sama-sama bermakna seseorang yang menjadi putra pemilik rumah, tetapi makna terdalamnya berbeda, oleh karena itu
+        istilah Shaozhu nyaris tidak pernah digunakan orang. Dari sisi kepemilikan tempat, Shaoye memiliki tempat yang
+        cenderung umum, rumah tinggal atau tanah <em>biasa</em>, sedangkan Zhu (主) di atas menimbulkan kesan entah
+        tempat tersebut milik bangsawan atau bahkan milik 'Ilahi'. Karena itu istilah Shaozhu menimbulkan kesan arogan.
+    </dd>
+    <dt id="bocah-tengik">Chou Xiao Zi (臭小子)</dt>
+    <dd>
+        Arti literalnya adalah 'Anak yang berbau busuk', dalam konteks ini diterjemahkan menjadi 'Bocah tengik'.
+    </dd>
+    <dt id="sha-xiaozi">Sha Xiao Zi (傻小子)</dt>
+    <dd>Anak bodoh</dd>
+    <dt id="ruan-pi-she">Ruan Bi She (软皮蛇)</dt>
+    <dd>
+        Bisa diterjemahkan menjadi 'Ular berkulit lentur', <em>bukan</em> 'Kulit Ular yang lentur'.
+        <ul>
+            <li>Ruan (软) = Lentur atau lembut/halus</li>
+            <li>Pi (皮) = Kulit</li>
+            <li>She (蛇) = Ular</li>
+        </ul>
+        Istilah ini hanya hasil tebakan Hong Qigong ketika melihat Ouyang Ke memperahakan <a href="#ling-she-quan">Ling She Quan</a>.
+    </dd>
+    <dt id="ling-she-quan">Ling She Quan (灵蛇拳)</dt>
+    <dd>
+        <ul>
+            <li>Ling (灵) = Spirit/Semangat/Roh/Jiwa/Cepat/Pintar</li>
+            <li>She (蛇) = Ular</li>
+            <li>Quan (拳) = Tinju/Jurus/Pukulan</li>
+        </ul>
     </dd>
 </dl>
 

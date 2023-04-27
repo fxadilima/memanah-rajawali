@@ -102,6 +102,10 @@ Sha Zi (傻子) = Anak Bodoh.
 Zhen Ren (真人) = Gelar tertinggi bagi seorang Pendeta Tao yang mencapai puncak pemahamannya. Contoh nyata adalah
 Wang Chongyang yg dipanggil Wang Zhenren, dan Zhang Sanfeng yg dipanggil Zhang Zhenren.
 
+Xiao Zi 小子 = Bocah
+Sha 傻 = Bodoh
+Chou 臭 = Busuk/Bau/Rusak
+
 
 ## Istilah Lain
 

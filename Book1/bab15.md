@@ -700,7 +700,7 @@ telak. Ia melompat mundur dan segera memeriksa lengannya. Untungnya meskipun sak
 
 Guo Jing sangat senang melihat hasil yang tak terduga ini. Ia berpikir, "Aku baru sadar ada tiga bagian di tubuhku 
 yang tidak terlindung dengan baik. Bahu, pinggul kiri, dan pinggang kanan. Kalau saja aku bisa mengembangkan lebih 
-banyak jurus menggunakan kedua tangan..." Pikirannya masih mengembara keika Ouyang Ke melancarkan serangan lagi.
+banyak jurus menggunakan kedua tangan..." Pikirannya masih mengembara ketika Ouyang Ke melancarkan serangan lagi.
 
 Guo Jing sudah jelas bukan anak paling pintar di negeri ini. Bahkan jika ia dengan susah payah memeras otaknya 
 selama sepuluh hari atau dua minggu, ia belum tentu menghasilkan setengah gaya baru. Saat ini ia terlibat dalam 
@@ -761,7 +761,184 @@ melarikan diri." pikirnya. Ia membungkuk dan berkata, "Paman Hong, terimalah sem
 Hong Qigong masih mengunyah ayam. "Kau belum juga kembali ke Wilayah Barat? Kau melakukan melakukan kejahatan di sini, 
 apa kau ingin membuang nyawa kecilmu itu di Dataran Tengah[^zhong-yuan]?" ia bergumam tidak jelas.
 
-[^zhong-yuan]: Yang dimaksud dengan 'Dataran Tengah' adalah wilayah di sekitar Sungai Yangtze, yang memang terletak di tengah-tengah wilayah Tiongkok. Dari generasi ke generasi wilayah ini dipakai sebagai acuan untuk menggambarkan tempat asal dari masyarakat Tionghoa secara keseluruhan.
+[^zhong-yuan]: Yang dimaksud dengan 'Dataran Tengah' atau Zhong Yuan (中原) adalah wilayah di sekitar Sungai Yangtze, yang memang terletak di tengah-tengah wilayah Tiongkok. Dari generasi ke generasi wilayah ini dipakai sebagai acuan untuk menggambarkan tempat asal dari masyarakat Tionghoa secara keseluruhan. Istilah ini masih dipakai hingga saat ini, tetapi yang dimaksud dengan _Mainland China_ bagi masyarakat modern tentunya jauh lebih luas dari sekedar areal di sekitar Sungai Yangtze.
+
+"Di Dataran Tengah Paman Hong tak terkalahkan," jawab Ouyang Ke. "Selama Paman Hong menunjukkan belas kasihan dan tidak 
+datang ke sini untuk menggertak yang muda dan yang lemah, keponakan mudamu ini tidak perlu takut. Pamanku sudah bilang 
+kalau aku ketemu Paman Hong, aku harus menghormati Paman. Dia memperingatkanku tentang perbedaan tingkat kungfu kita,
+dan bahwa wanbei bahkan tidak bakalan bisa menyentuh Qianbei. Kalau wanbei bersikeras untuk mencoba, wanbei akan 
+jadi bahan tertawaan semua pendekar di dunia."
+
+Hong Qigong tertawa terbahak-bahak dan berkata, "Kau mencoba menjilat supaya aku tidak melawanmu. Tapi sebenarnya 
+banyak orang di Dataran Tengah yang ingin membunuhmu. Aku tidak perlu menggerakkan jari, kalau aku benar-benar ingin 
+kau mati. Sebelumnya kau bilang sudah melihat keahlianku mencuri ayam, membelai anjing, mengemis makanan dan menangkap 
+ular, dan kau meremehkan keterampilan itu, kan?"
+
+Ouyang Ke buru-buru menjawab, "Keponakan mudamu ini tidak menyadari bahwa pendekar tua ini adalah murid Paman Hong. 
+Itu sangat tidak hormat. Aku mohon maaf kepada Paman dan pendekar tua ini."
+
+Hong Qigong melompat turun dari titian atap. "Kau memanggilnya 'pendekar tua' tapi dia kau kalahkan. Bukankah kau yang jadi pendekarnya? Hahaha... kau tidak malu?"
+
+Ouyang Ke marah, tetapi tahu kungfunya terlalu jauh di bawah Hong Qigong, maka ia tidak berani mengatakan sesuatu 
+yang kasar. Ia menekan amarahnya dan tidak bersuara.
+
+"Kungfumu jelas hasil ajaran Racun Barat tua itu, dan kau pikir bisa bertingkah seenak perutmu di Dataran Tengah. 
+Hah! Kau kira aku sudah mati?" kata Hong Qigong.
+
+"Paman setingkat dengan pamanku. Wanbei harus mendengarkan pengarahan Paman," kata Ouyang Ke.
+
+"Begitukah?" kata Hong Qigong. "Maksudmu aku menyudutkanmu, orang tua ini menggertak anak muda, begitu ya?" Ouyang Ke
+tidak menjawab, yang berarti sama saja dengan menyetujui ucapan Hong Qigong.
+
+"Biarpun Pengemis Tua ini adalah pemimpin dari semua pengemis, tua dan muda, bukan semua pengemis adalah muridku," 
+lanjut Hong Qigong. "Orang bermarga Li ini belajar sebagian kecil kungfuku, dan masih dangkal. Bagaimana dia bisa 
+dianggap sebagai penerusku? Jurus Xiao Yaoyou yang dipelajarinya belum sempurna. Kau meremehkan keahlianku 
+mencuri ayam dan memukul anjing, huh... jika pengemis tua ini benar-benar mengangkat seorang murid, dia tidak 
+mungkin kalah denganmu."
+
+"Tentu saja," kata Ouyang Ke setuju. "Murid Paman Hong akan jauh lebih hebat dari keponakanmu ini. Tapi kungfu Paman 
+terlalu tinggi, siapa pun tidak akan mudah belajar dari Paman."
+
+"Mulutmu memang manis," kata Hong Qigong. "Tapi aku yakin dalam hati kau sedang mengomeli aku."
+
+"Keponakanmu ini tidak berani," kata Ouyang ke.
+
+"Qigong, jangan percaya omong kosongnya," kata Huang Rong bercanda. "Dia jelas memakimu dalam hati, dan dia 
+memakimu habis-habisan. Dia bilang meskipun kungfumu tidak buruk, itu hanya menguntungkanmu. Kau tidak punya 
+kemampuan untuk mengajar. Bahkan kalau kau mengajar teknik mencuri ayam dan memukuli anjing sampai akhir hidupmu, 
+tidak ada yang bisa mempelajarinya dengan sempurna."
+
+Hong Qigong hanya menatapnya lekat-lekat. Lalu ia mendengus dan bergumam, "Nona cilik ini selalu tahu bagaimana 
+car memprovokasi aku." Ia menoleh dan berkata, "Jadi? Bocah ini berani memakiku?" Tiba-tiba ia mengulurkan satu 
+tangan. dan secepat kilat ia merebut kipas lipat dari tangan Ouyang Ke. Ia membuka kipas dan melihat beberapa 
+bunga peoni yang dicat dan dua karakter 
+[Xu Xi](referensi-karakter.md#xuxi "Xu Xi (徐熙) adalah seorang seniman, pelukis dan penyair di jaman Dinasti Song Utara 960-1127 M."). 
+Ia tidak tahu bahwa Xu Xi adalah seorang penyair dan pelukis dari Dinasti Song Utara. Meskipun peoni itu dilukis 
+dengan indah, ia tetap berkata, "Tidak bagus!" Ada beberapa baris karakter yang tertulis di kipas dan di bagian akhir 
+ada tanda tangan, [Tuan Muda Gunung Unta Putih](referensi-karakter.md#baituo-shen-shao-zhu "Bai Tuo Shan Shao Zhu (白駝山)"). 
+Itu tanda tangan Ouyang Ke.
+
+"Apa pendapatmu tentang tulisan ini?" tanya Hong Qigong kepada Huang Rong.
+
+Huang Rong mengangkat alisnya dan berkata, "Sangat kasar. Tapi apa yang bisa kita harapkan? Seorang anak orang kaya 
+yang manja seperti dia tidak akan tahu cara menulis. Aku yakin dia menyewa pegawai pegadaian untuk menulis semua itu."
+
+Ouyang Ke selalu membanggakan dirinya sebagai ahli kungfu dan sastra, yang sebenarnya tidak terlalu jauh dari 
+kebenaran. Mendengar kata-kata Huang Rong, ia sangat marah. Ia melotot, tapi ia melihat dalam cahaya lilin 
+sudut matanya menunjukkan senyum yang sangat tipis. Ia tampak begitu manis dan polos sehingga kemarahannya menguap
+begitu saja.
+
+Hong Qigong membuka kipas di tangannya, mengangkatnya, lalu menyeka mulutnya kipas itu. Ia baru saja makan ayam, 
+jadi mulutnya berminyak. Begitu ia melakukan hal itu, lukisan dan kaligrafi itu hancur total. Kemudian ia dengan 
+santai meremas kipas itu, membuatnya menjadi bola kertas dan melemparkannya ke lantai.
+
+Bagi orang lain kejadian itu tampaknya biasa saja, tapi tidak bagi Ouyang Ke. Kerangka kipasnya terbuat dari baja. 
+Kipas itu adalah senjatanya. Aksi itu adalah sebuah demonstrasi tenaga dalam yang luar biasa. Ia ketakutan.
+
+"Kalau aku sendiri yang melawanmu, kau akan mati penasaran. Jadi aku akan mengangkat seorang murid dan menyuruhnya 
+bertarung denganmu," kata Hong Qigong.
+
+Ouyang Ke menunjuk Guo Jing. "Sobat ini sudah melawanku sampai lusinan jurus. Kalau Paman Hong tidak muncul, aku pasti
+sudah unggul tadi. Betul kan, Saudara Guo?"
+
+Guo Jing mengangguk. "Aku bisa jadi kalah," katanya mengakui. Ouyang Ke tersenyum puas.
+
+Hong Qigong menengadah sambil tertawa. "Jing'er, apa kau ini muridku?" tanyanya kepada Guo Jing.
+
+"Wanbei tidak punya keberuntungan untuk menjadi murid Qianbei," jawab Guo Jing buru-buru.
+
+"Kau sudah dengan belum?" tanya Hong Qigong kepada Ouyang ke.
+
+Ouyang Ke tidak puas. "Kau tidak bisa membodohi aku. Dari mana asalnya jurus indah bocah ini?" tanyanya.
+
+Hong Qigong berbalik ke arah Guo Jing. "Kalau aku tidak menjadikanmu muridku, anak perempuan bengal itu tidak akan
+membiarkanku mati dengan damai. Dia akan menggangguku terus dengan ratusan rencana licik selamanya. Kurasa pengemis 
+tua ini harus mengaku kalah. Baiklah, sekarang kau [kowtow](referensi-karakter.md#kowtow "Sujud"). Aku akan 
+mengangkatmu sebagai muridku," katanya.
+
+Guo Jing kegirangan. Ia cepat-cepat berlutut dan dengan bersujud beberapa kali sambil berseru, "Shifu!" Hari itu 
+di Rumah Awan ia menceritakan kepada keenam gurunya bagaimana Hong Qigong mengajarinya sebagian besar dari 
+Delapan Belas Jurus Penakluk Naga. Enam Orang Aneh dari Jiangnan sangat senang dan semua mengatakan sayang sekali 
+orang luar biasa yang berilmu tinggi dari dunia persilatan ini tidak mau mengkat Guo Jing sebagai muridnya. Mereka 
+mengatakan kepadanya bahwa jika Hong Qigong bersedia mengangkatnya menjadi murid, Guo Jing harus segera menerimanya 
+tanpa ragu.
+
+Huang Rong bahkan lebih bahagia. Ia tersenyum lebar dan berkata, "Qigong, aku sudah membantumu menemukan seorang murid 
+yang sangat baik. Jasaku tidak kecil. Mulai hari ini kau akan punya seseorang yang bisa kau sebut penerusmu. Bagaimana 
+caramu berterima kasih kepadaku?"
+
+Hong Qigong membuat ekspresi meledek. "Kau boleh mencium pantatku!" katanya. Kemudian ia berpaling ke Guo Jing dan 
+berkata, "[Sha Xiaozi](referensi-karakter.md#sha-xiaozi "Anak bodoh"), biar aku mengajarimu tiga jurus." Ia 
+segera mengajari Guo Jing tiga jurus terakhir dari Delapan Belas Jurus Penakluk Naga, tepat di depan semua orang. 
+Tentu saja dibandingkan dengan tiga jurus Guo Jing yang dikarangnya sendiri mati-matian, jurus-jurus ini bedanya
+seperti langit dan bumi.
+
+Ouyang Ke berkata pada dirinya sendiri, "Kungfu pengemis tua ini luar biasa, tapi dia tidak terlalu pintar. Dia 
+berkonsentrasi untuk mengajar muridnya, sama sekali lupa kalau aku sedang berdiri di sini." pikirnya. Dengan penuh 
+perhatian ia mengamati setiap gerakan Guo Jing. Tapi ia tidak melihat sesuatu yang luar biasa. Terkadang Hong Qigong 
+membisikkan sesuatu ke telinga Guo Jing. Ia menduga itu pasti teori di balik ketiga jurus ini. Kadang-kadang Guo Jing 
+menganggukkan kepalanya, tetapi sering kali ia hanya berdiri diam dengan tatapan kosong atau menggelengkan kepalanya. 
+Hong Qigong akan mengulangi apa yang baru saja dikatakannya sampai Guo Jing dengan ragu-ragu menganggukkan kepalanya. 
+Jelas dia tidak sepenuhnya memahami teori itu. 
+"[Bocah tengik](referensi-karakter.md#bocah-tengik "Chou Xiaozi (臭小子)") ini benar-benar dungu," pikirnya. 
+"Dalam waktu sesingkat ini jelas tidak mungkin dia bisa menguasai tiga jurus. Bagus juga, aku jadi punya kesempatan untuk 
+ikut belajar."
+
+Sementara itu Hong Qigong menyuruh Guo Jing melatihnya enam atau tujuh kali. "Bagus, murid pintar," katanya. "Kau 
+sudah menguasai sekitar lima puluh persen dari tiga jurus ini. Sekarang saatnya kau melawan bangsat cabul ini."
+
+"Ya," jawab Guo Jing. Ia maju dua langkah dan melancarkan serangannya ke arah Ouyang Ke. Ouyang Ke memiringkan tubuhnya
+dan balas menyerang dengan kepalan. Keduanya mulai bergebrak lagi.
+
+Rahasia 'Delapan Belas Telapak Tangan Penakluk Naga' terletak pada ketepatan waktu untuk mengerahkan tenaga. Gerakannya 
+sendiri cukup sederhana. Itulah alasannya meskipun kungfu Liang Ziweng, Mei Chaofeng dan Ouyang Ke lebih tinggi dari 
+Guo Jing, ia mampu melawan mereka tanpa kesulitan. Beberapa saat yang lalu Ouyang Ke melihat Hong Qigong memberikan 
+tiga jurus kepada Guo Jing dan ia tahu Guo Jing belum sepenuhnya memahami jurus-jurus itu, sementara ia sendiri telah 
+menghafal jurus tersebut. Namun sekarang ketika melawan Guo Jing, ia merasa sulit untuk mengatasi ketiga jurus itu.
+
+Sebaliknya, Guo Jing sekarang menguasai selengkapnya Delapan Belas Jurus Penakluk Naga. Ia mampu menggunakannya dari
+awal sampai akhir, dan kembali ke awal lagi. Kedahsyatan lima belas jurus yang sebelumnya sudah dilatihnya dengan tekun
+itu jadi meningkat drastis tanpa disadarinya.
+
+Ouyang Ke telah menggunakan empat jenis kungfu yang berbeda, tapi ia hanya bisa mengimbangi Guo Jing tanpa bisa menang. 
+Puluhan jurus kemudian ia mulai cemas. "Kalau aku tidak menggunakan kungfu unik keluargaku, mungkin aku akan kalah," pikirnya. "Saya dilatih oleh pamanku sejak kecil. Kenapa aku tidak bisa mengalahkan murid pengemis tua ini, yang menerima 
+pelajaran hanya beberapa saat yang lalu? Takutnya pengemis tua itu akan memandang rendah pamanku."
+
+Puluhan jurus kemudian Guo Jing mengangkat tangannya untuk menangkis kepalan Ouyang Ke yang tiba-tiba berbalik dan 
+mengenai tengkorak Guo Jing dari belakang. Guo Jing tertegun. Ia merunduk untuk menghindari pukulan sambil secara 
+serempak melontarkan kepalan tangan ke atas. Ouyang Ke melangkah ke samping dan mengirim kepalan lagi. Guo Jing tidak 
+berani menangkis kepalan itu, ia mengelak ke kanan. Ia tidak menyangka lengan Ouyang Ke tiba-tiba bergerak seperti 
+cambuk! Guo Jing dengan jelas melihatnya mengincar sisi kirinya tapi tiba-tiba berbelok ke kanan dan mengenai bahu 
+Guo Jing.
+
+Guo Jing terpukul tiga kali dalam waktu singkat. Tiga pukulan ini berat, ia cemas karena tidak tahu bagaimana cara
+menghadapi situasi itu. "Jing'er, berhenti!" seru Hong Qigong. "Kali ini kita mengaku kalah."
+
+Guo Jing melompat mundur sekitar sepuluh kaki. Ia merasakan sakit di bagian tubuh yang terpukul. Kepada Ouyang Ke 
+ia berkata, "Kungfumu benar-benar hebat. Memutar lenganmu seperti itu benar-benar aneh." Ouyang Ke bangga pada 
+dirinya sendiri. Ia melemparkan pandangan arogan ke arah Huang Rong.
+
+Hong Qigong berkata, "Racun Tua memelihara ular untuk mencari hidup. Rangkaian jurus 
+[Ruan Pi She](referensi-karakter.md#ruan-pi-she "Ular berkulit lentur") ini pasti dikembangkan dari gerakan ular berbisa. 
+Itu brilian. Pengemis tua ini belum menemukan cara untuk mengatasinya. Anggap saja dirimu beruntung. Sekarang, 
+enyahlah!"
+
+Hati Ouyang Ke jadi dingin, mukanya agak muram. "Paman memperingatkanku ribuan kali untuk tidak menggunakan 
+[Jurus Jiwa Ular](referensi-karakter.md#ling-she-quan "Ling She Quan (灵蛇拳)") ini kecuali dalam situasi yang 
+sangat berbahaya. Hari ini aku telah membiarkan pengemis tua itu melihatnya. Jika paman tahu, aku akan mendapat 
+masalah besar." Kebanggaan dirinya lenyap. Ia membungkuk ke arah  Hong Qigong dan berjalan keluar kuil.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
