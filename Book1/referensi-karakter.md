@@ -193,6 +193,14 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Lagi-lagi kutipan dari Yijing.
     </dd>
+    <dt id="taohua-shen-jian-zhang">Tao Hua Shen Jian Zhang (桃花神剑掌)</dt>
+    <dd>
+        Ini adalah salah satu ilmu silat ciptaan Huang Yaoshi. Ia menyempurnakannya lagi, dan mengubah namanya sedikit
+        menjadi Luo Ying Shen Jian Zhang (落英神剑掌). Pada dasarnya ilmu ini adalah ilmu tangan kosong, tetapi kedua
+        telapak tangan dan jari-jari itu berfungsi sebagai pedang, karena itu dinamakan 'Pedang Dewa' (神剑), karena
+        pedangnya tidak kelihatan. Nama ini sendiri bermakna Ilmu Pedang Dewa dari Pulau Bunga Persik, disingkat
+        'Ilmu Pedang Dewa'.
+    </dd>
 </dl>
 
 
