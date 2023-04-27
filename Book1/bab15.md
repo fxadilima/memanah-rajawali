@@ -815,7 +815,7 @@ bunga peoni yang dicat dan dua karakter
 [Xu Xi](referensi-karakter.md#xuxi "Xu Xi (徐熙) adalah seorang seniman, pelukis dan penyair di jaman Dinasti Song Utara 960-1127 M."). 
 Ia tidak tahu bahwa Xu Xi adalah seorang penyair dan pelukis dari Dinasti Song Utara. Meskipun peoni itu dilukis 
 dengan indah, ia tetap berkata, "Tidak bagus!" Ada beberapa baris karakter yang tertulis di kipas dan di bagian akhir 
-ada tanda tangan, [Tuan Muda Gunung Unta Putih](referensi-karakter.md#baituo-shen-shao-zhu "Bai Tuo Shan Shao Zhu (白駝山)"). 
+ada tanda tangan, [Tuan Muda Gunung Unta Putih](referensi-karakter.md#baituo-shan-shao-zhu "Bai Tuo Shan Shao Zhu (白駝山)"). 
 Itu tanda tangan Ouyang Ke.
 
 "Apa pendapatmu tentang tulisan ini?" tanya Hong Qigong kepada Huang Rong.
