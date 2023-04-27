@@ -890,7 +890,7 @@ sudah menguasai sekitar lima puluh persen dari tiga jurus ini. Sekarang saatnya 
 "Ya," jawab Guo Jing. Ia maju dua langkah dan melancarkan serangannya ke arah Ouyang Ke. Ouyang Ke memiringkan tubuhnya
 dan balas menyerang dengan kepalan. Keduanya mulai bergebrak lagi.
 
-Rahasia 'Delapan Belas Telapak Tangan Penakluk Naga' terletak pada ketepatan waktu untuk mengerahkan tenaga. Gerakannya 
+Rahasia Delapan Belas Jurus Penakluk Naga terletak pada ketepatan waktu untuk mengerahkan tenaga. Gerakannya 
 sendiri cukup sederhana. Itulah alasannya meskipun kungfu Liang Ziweng, Mei Chaofeng dan Ouyang Ke lebih tinggi dari 
 Guo Jing, ia mampu melawan mereka tanpa kesulitan. Beberapa saat yang lalu Ouyang Ke melihat Hong Qigong memberikan 
 tiga jurus kepada Guo Jing dan ia tahu Guo Jing belum sepenuhnya memahami jurus-jurus itu, sementara ia sendiri telah 
