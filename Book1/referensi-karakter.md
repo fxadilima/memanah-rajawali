@@ -189,6 +189,10 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         penjelasan tersebut tidak enak diucapkan, kurang indah dan terlalu lembut, maka mereka mengubahnya menjadi 
         'Sang Naga Mengibaskan Ekor'.
     </dd>
+    <dt id="kanglong-you-hui">Kang Long You Hui (康龙有悔)</dt>
+    <dd>
+        Lagi-lagi kutipan dari Yijing.
+    </dd>
 </dl>
 
 

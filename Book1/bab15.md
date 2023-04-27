@@ -567,7 +567,8 @@ dari maut.
 
 "Sepertinya Hong Qigong hanya mengajarkan satu jurus ini kepadanya," bisik Huang Rong. GuoJing mengangguk. Ia teringat 
 saat Hong Qigong pertama-tama mengajarkan 
-[Naga Angkuh Punya Penyesalan](referensi-karakter.md#kanglong-you-hui) dan dia melawan Liang Ziweng hanya dengan 
+[Naga Angkuh Punya Penyesalan](referensi-karakter.md#kanglong-you-hui "Kang Long You Hui (康龙有悔). Klik untuk membaca selengkapnya.") 
+dan dia melawan Liang Ziweng hanya dengan 
 mengandalkan satu jurus itu berulang kali. Kemudian Hong Qigong mengajarinya total lima belas jurus, sedangkan 
 tokoh penting di Kai Pang ini hanya bisa satu jurus. Hatinya dibanjiri oleh rasa terima kasih kepada Hong Qigong.
 
