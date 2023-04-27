@@ -629,7 +629,7 @@ Saat Ouyang Ke mendengar suara Huang Rong, hatinya tergetar. "Nona Huang, kau in
 gampang saja, selama kau mengikuti aku kemanapun aku pergi. Tidak hanya Nona Cheng, tapi aku juga akan melepaskan 
 _semua_ murid perempuanlu. Dan juga aku akan berjanji untuk tidak mengambil murid perempuan lain. Itu bagus, kan?"
 
-Huang Rong melompat ke dalam aula, tersenyum sambil berkata, "Itu sangat bagus! Kita akan melakukan jalan-jalan ke 
+Huang Rong melompat ke dalam aula, tersenyum sambil berkata, "Itu sangat bagus! Kita akan jalan-jalan ke 
 Wilayah Barat. Jing Gege, kau ikut?"
 
 Ouyang Ke menggelengkan kepalanya, "Tidak, aku ingin _kau_ ikut denganku. Aku tidak ingin bocah tengik ini ikut," 
