@@ -554,10 +554,112 @@ Guo Jing dan Huang Rong sangat terkejut. "Serangan itu sulit diatasi!" pikir mer
 
 Saat itu anggota Klan Pengemis lainnya telah memasuki aula, mereka melihat Li Sheng dalam bahaya besar dan bergegas untuk membantu.
 
-Li Sheng bisa mendengar angin di belakang punggungnya dan merasakan cakar hampir menyentuh pakaiannya. Sekali lagi dia meluncurkan tangannya ke belakang menggunakan 
+Li Sheng bisa mendengar angin di belakang punggungnya dan merasakan cakar hampir menyentuh pakaiannya. Sekali lagi ia meluncurkan tangannya ke belakang menggunakan 
 jurus [Sang Naga Mengibaskan Ekor](referensi-karakter.md#shenlong-bai-wei "Shen Long Bai Wei (神龙摆尾). Klik untuk membaca uraias selengkapnya. Tips: Gunakan klik kanan, lalu Back untuk kembali ke sini.") 
 dari Delapan Belas Jurus Penakluk Naga.
 
+Ouyang Ke tidak berani menghadapi serangan ini secara langsung, jadi ia melenturkan tubuhnya dan melompat mundur.
+
+"Nyaris celaka!" kata Li Sheng dalam hati. Ia memutar tubuh untuk menghadapi lawannya lagi. Kungfunya tak dapat
+menandingi dari gerakan indah Ouyang Ke. Mereka bertarung tiga puluh sampai empat puluh jurus dan nyawanya sudah 
+terancam lima atau enam kali. Untungnya ia selalu bisa menggunakan jurus Sang Naga Mengibaskan Ekor untuk lolos 
+dari maut.
+
+"Sepertinya Hong Qigong hanya mengajarkan satu jurus ini kepadanya," bisik Huang Rong. GuoJing mengangguk. Ia teringat 
+saat Hong Qigong pertama-tama mengajarkan 
+[Naga Angkuh Punya Penyesalan](referensi-karakter.md#kanglong-you-hui) dan dia melawan Liang Ziweng hanya dengan 
+mengandalkan satu jurus itu berulang kali. Kemudian Hong Qigong mengajarinya total lima belas jurus, sedangkan 
+tokoh penting di Kai Pang ini hanya bisa satu jurus. Hatinya dibanjiri oleh rasa terima kasih kepada Hong Qigong.
+
+Sementara itu Ouyang Ke meningkatkan intensitas serangannya dan selangkah demi selangkah ia memaksa Li Sheng ke mundur.
+Sebelumnya Ouyang Ke mengirimkan serangan dahsyatnya tanpa sasaran tertentu, tapi sekarang gerakannya dimaksudkan 
+untuk mencegah Li Sheng berbalik dan meluncurkan telapak tangannya ke belakang. Li Sheng memahami maksudnya dengan 
+sangat baik, jadi ia berusaha keras untuk mundur ke tengah ruangan.
+
+Tiba-tiba Ouyang Ke tertawa terbahak-bahak, ia mengayunkan tinju lurus ke atas dari bawah mengenai dagu Li Sheng dengan
+sangat telak. Li Sheng mengerang kesakitan dan menjerit ngeri. Ia mencoba merentangkan tangannya untuk melakukan 
+serangan balik tetapi ia terlambat sepersekian detik. Tinju Ouyang Ke telah mencapai sasarannya. Li Sheng terpukul 
+lima atau enam kali di kepala dan dada. Ia merasa pusing dan tubuhnya lemas, ia terhuyung-huyung dan jatuh ke lantai.
+
+Para anggota Kai Pang bergegas membantu tetapi Ouyang Ke berbalik, menangkap dua penyerang paling depan dan melemparkan
+mereka ke dinding. Mereka langsung pingsan. Pengemis lainnya tidak berani melanjutkan.
+
+"Apa kalian kira sekelompok pengemis bau bisa segampang itu menipuku?" ejek Ouyang Ke. Ia bertepuk tangan dan dua 
+murid perempuannya keluar menyeret seorang wanita muda. Tangannya diikat ke belakang, wajahnya sedih dan air mata mengalir 
+di pipinya. Itu tidak lain adalah Nona Cheng.
+
+Semua orang, termasuk Huang Rong dan Guo Jing, terperanjat dan jadi bingung.
+
+Ouyang Ke mengibaskan tangannya, dan murid-muridnya membawa Nona Cheng masuk kembali. Degan muka arogan ia berkata,
+"Waktu pengemis tua itu masuk ke karung, aku menyelundup ke lantai bawah untuk menangkap Nona Cheng, dan kembali lagi
+ke sini untuk menunggu kalian semua."
+
+Para pengemis itu saling pandang dengan kecewa, mereka sungguh-sungguh kalah bertanding kali ini.
+
+Ouyang Ke melambaikan kipasnya dengan santai sambil mengejek, "Nama besar Kai Pang tersebar ke segala penjuru. Hari ini 
+aku melihat sendiri, semua itu hanya lelucon, orang bisa ketawa sampai gigi mereka rontok! Keahlian istimewa kalian
+seperti mencuri ayam, memukuli anjing, mengemis makanan, menangkap ular, sudah kulihat semuanya. Nah, apa kalian masih
+berani ikut campur urusan Tuan Muda-mu ini? Aku mau mengampuni nyawa pengemis tua ini, tapi aku harus mengambil kedua
+_lampunya_ sebagai tanda mata." Sambil berkata begitu, ia mengulurkan tangannya ke arah mata Li Sheng.
+
+"Tahan!" Terdengar suara seruan, dan tiba-tiba seorang pemuda muncul, lalu langsung menerjang ke arah Ouyang Ke.
+
+Ouyang Ke merasakan kecepatan dan keganasan serangan itu, ia bergerak ke samping untuk menghindar, tetapi tidak bisa 
+keluar dari kurungan angin pukulan itu. Tubuhnya bergetar dan ia terpaksa mundur dua langkah. Ia tidak habis pikir, 
+"Sejak aku berangkat dari Wilayah Barat, aku sudah sering bertarung dengan banyak ahli silat. Siapa orang yang punya 
+kungfu setinggi ini?" Ia mengalihkan pandangannya kepada si pendatang baru itu, dan sekali lagi ia terkejut. Ia 
+telah melawan Guo Jing sebelumnya di Istana Zhao dan kungfunya biasa saja. Bagaimana mungkin telapak tangannya 
+bisa mengandung tenaga sebesar itu.
+
+"Kau sudah melakukan segala macam kejahatan, tetapi bukannya bertobat kau malah ingin mencelakai orang baik ini. 
+Kau benar-benar tidak memandang sebelah mata kepada para pendekar Jianghu?" kata Guo Jing dengan marah.
+
+Ouyang Ke mengira serangan terakhir Guo Jing itu hanya sebuah kebetulan. Ia masih memandang rendah Guo Jing.
+"Jadi maksudmu _kau_ adalah salah satu dari para _pendekar_ itu ya?" ejeknya.
+
+"Aku tidak berani bilang aku ini pendekar," jawab Guo Jing. "Dengan segala hormat, aku minta kau membebaskan Nona
+Cheng dan kembali ke daerah Barat."
+
+"Terus bagaimana kalau aku menolak permintaanmu yang kekanak-kanakan itu?" ejek Ouyang Ke.
+
+Sebelum Guo Jing sempat menjawab, Huang Rong berseru dari luar jendela, "Jing Gege, langsung tonjok saja bangsat itu!"
+
+Saat Ouyang Ke mendengar suara Huang Rong, hatinya tergetar. "Nona Huang, kau ingin aku melepaskan Nona Cheng, itu 
+gampang saja, selama kau mengikuti aku kemanapun aku pergi. Tidak hanya Nona Cheng, tapi aku juga akan melepaskan 
+_semua_ murid perempuanlu. Dan juga aku akan berjanji untuk tidak mengambil murid perempuan lain. Itu bagus, kan?"
+
+Huang Rong melompat ke dalam aula, tersenyum sambil berkata, "Itu sangat bagus! Kita akan melakukan jalan-jalan ke 
+Wilayah Barat. Jing Gege, kau ikut?"
+
+Ouyang Ke menggelengkan kepalanya, "Tidak, aku ingin _kau_ ikut denganku. Aku tidak ingin bocah tengik ini ikut," 
+katanya, masih tersenyum.
+
+Huang Rong marah, telapak tangannya menampar ke belakang. "Kau berani menghina dia? Justru _kau_ yang tengik!" 
+teriaknya dengan keras.
+
+Ouyang Ke terpesona dengan keanggunan Huang Rong dan senyum manisnya saat berbicara dengannya. Ia tampak begitu lugu,
+tapi penuh kebebasan dan semangat hidup. Ia sungguh terpesona, dan tak mengira bahwa tiba-tiba gadis kecil itu akan 
+bersikap bermusuhan. Ia tidak waspada dan Huang Rong menggunakan gerakan indah dari 
+[Ilmu Pedang Dewa Bunga Persik](referensi-karakter.md#taohua-shen-jian-zhang "Taohua Shen Jian Zhang (桃花神剑掌)"), 
+yang diajarkan Huang Yaoshi. Pipi kirinya tertampar telak. Untungnya Huang Rong tidak menampar sepenuh tenaga, 
+tetapi wajahnya tetap terbakar oleh rasa sakit.
+
+"Bah!" Ouyang Ke meludah. ​​Tangan kirinya tiba-tiba terulur ke arah payudara Huang Rong. Huang Rong tidak menghindarinya 
+tetapi melemparkan kedua tangannya ke arah kepala Ouyang Ke. Ouyang Ke bernafsu dan melihat bahwa Huang Rong tidak 
+bergerak, ia sangat senang. Mengabaikan pukulan di kepalanya, tangannya membelai payudaranya. Ia sedikitpun tidak 
+menyangka bahwa begitu jari-jarinya menyentuh pakaiannya, ia merasakan sakit yang menusuk. Tiba-tiba ia sadar, "Dia
+mengenakan rompi kulit landak yang lembut." Untungnya ia sembrono dan tidak memakai banyak tenaga. Dengan segera ia 
+mengangkat tangan untuk menangkis pukulannya.
+
+"Tidak gampang mau memukulku," kata Huang Rong sambil tersenyum. "Aku bisa memukulmu, tapi kau tidak bisa memukulku."
+
+Ouyang Ke jengkel. Ia tidak bisa marah kepada Huang Rong, jadi ia mengalihkan kemarahannya kepada Guo Jing. 
+"Biar kubunuh bocah ini dulu. Kuharap perasaannya kepada bocah ini akan lenyap," pikirnya. Sementara matanya 
+tertuju pada Huang Rong, kakinya terbang ke belakang menuju dada Guo Jing. Gerakan kaki ini cepat dan kejam. 
+Itu adalah kungfu unik keluarga Racun Barat Ouyang Feng. Sulit untuk dibendung. Begitu kaki mengenai sasarannya, 
+tulang rusuk akan patah menusuk paru-paru.
+
+Guo Jing tidak punya cukup waktu untuk melompat mundur, jadi dia memutar tubuhnya dan meluncurkan telapak tangannya ke belakang. Dengan benturan keras, telapak tangan Guo Jing mengenai kaki Ouyang Ke tepat saat kaki Ouyang Ke hampir bersamaan mengenai dada Guo Jing. Kedua pria itu merasakan sakit yang menyengat sampai ke tulang. Mereka membalikkan tubuh mereka saling berhadapan dan saling menatap dengan marah; lalu mereka langsung saling serang lagi.
 
 
 
