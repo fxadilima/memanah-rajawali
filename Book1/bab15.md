@@ -854,12 +854,12 @@ Ouyang Ke tidak puas. "Kau tidak bisa membodohi aku. Dari mana asalnya jurus ind
 Hong Qigong berbalik ke arah Guo Jing. "Kalau aku tidak menjadikanmu muridku, anak perempuan bengal itu tidak akan
 membiarkanku mati dengan damai. Dia akan menggangguku terus dengan ratusan rencana licik selamanya. Kurasa pengemis 
 tua ini harus mengaku kalah. Baiklah, sekarang kau [kowtow](referensi-karakter.md#kowtow "Sujud"). Aku akan 
-mengangkatmu sebagai muridku," katanya.
+mengangkatmu menjadi muridku," katanya.
 
 Guo Jing kegirangan. Ia cepat-cepat berlutut dan bersujud beberapa kali sambil berseru, "Shifu!" Hari itu 
 di Rumah Awan ia menceritakan kepada keenam gurunya bagaimana Hong Qigong mengajarinya sebagian besar dari 
 Delapan Belas Jurus Penakluk Naga. Enam Orang Aneh dari Jiangnan sangat senang dan semua mengatakan sayang sekali 
-orang luar biasa yang berilmu tinggi dari dunia persilatan ini tidak mau mengkat Guo Jing sebagai muridnya. Mereka 
+orang luar biasa yang berilmu tinggi dari dunia persilatan ini tidak mau mengangkat Guo Jing menjadi muridnya. Mereka 
 mengatakan kepadanya bahwa jika Hong Qigong bersedia mengangkatnya menjadi murid, Guo Jing harus segera menerimanya 
 tanpa ragu.
 
