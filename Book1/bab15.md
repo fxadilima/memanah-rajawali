@@ -660,7 +660,10 @@ tertuju pada Huang Rong, kakinya terbang ke belakang menuju dada Guo Jing. Gerak
 Itu adalah kungfu unik keluarga Racun Barat Ouyang Feng. Sulit untuk dibendung. Begitu kaki mengenai sasarannya, 
 tulang rusuk akan patah menusuk paru-paru.
 
-Guo Jing tidak punya cukup waktu untuk melompat mundur, jadi dia memutar tubuhnya dan meluncurkan telapak tangannya ke belakang. Dengan benturan keras, telapak tangan Guo Jing mengenai kaki Ouyang Ke tepat saat kaki Ouyang Ke hampir bersamaan mengenai dada Guo Jing. Kedua pria itu merasakan sakit yang menyengat sampai ke tulang. Mereka membalikkan tubuh mereka saling berhadapan dan saling menatap dengan marah; lalu mereka langsung saling serang lagi.
+Guo Jing tidak punya cukup waktu untuk melompat mundur, jadi ia memutar tubuhnya dan mengirimkan telapak tangannya 
+ke belakang. Dengan benturan keras, telapak tangan Guo Jing mengenai kaki Ouyang Ke tepat saat kaki Ouyang Ke hampir 
+mengenai dada Guo Jing. Keduanya merasakan sakit yang menyengat sampai ke tulang sumsum. Mereka membalikkan tubuh 
+untuk kembali saling berhadapan dan saling menatap dengan marah. Lalu mereka langsung saling menyerang lagi.
 
 
 
