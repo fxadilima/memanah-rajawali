@@ -828,7 +828,7 @@ kebenaran. Mendengar kata-kata Huang Rong, ia sangat marah. Ia melotot, tapi ia 
 sudut matanya menunjukkan senyum yang sangat tipis. Ia tampak begitu manis dan polos sehingga kemarahannya menguap
 begitu saja.
 
-Hong Qigong membuka kipas di tangannya, mengangkatnya, lalu menyeka mulutnya kipas itu. Ia baru saja makan ayam, 
+Hong Qigong membuka kipas di tangannya, mengangkatnya, lalu menyeka mulutnya dengan kipas itu. Ia baru saja makan ayam, 
 jadi mulutnya berminyak. Begitu ia melakukan hal itu, lukisan dan kaligrafi itu hancur total. Kemudian ia dengan 
 santai meremas kipas itu, membuatnya menjadi bola kertas dan melemparkannya ke lantai.
 
