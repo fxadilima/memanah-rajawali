@@ -223,7 +223,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Sikap sujud dengan berlutut sambil membenturkan kening di atas lantai/tanah di hadapan pribadi yang dihormati.
         Arti literal dari Ke (磕) adalah membenturkan, sedangkan Tou (头) adalah kepala.
     </dd>
-    <dt id="bai-tuo-shan-shao-zhu">Bai Tuo Shan Shao Zhu (白駝山少主)</dt>
+    <dt id="baituo-shan-shao-zhu">Bai Tuo Shan Shao Zhu (白駝山少主)</dt>
     <dd>
         Bai Tuo Shan (白駝山) artinya adalah Gunung Onta Putih, terletak di Wilayah Barat Tiongkok. Dalam kisah ini,
         Bai Tuo Shan adalah wilayah kekuasaan Ouyang Feng (歐陽鋒) yang dijuluki Si Racun Barat (西毒).
