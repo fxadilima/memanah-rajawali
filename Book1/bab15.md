@@ -572,12 +572,12 @@ dan dia melawan Liang Ziweng hanya dengan
 mengandalkan satu jurus itu berulang kali. Kemudian Hong Qigong mengajarinya total lima belas jurus, sedangkan 
 tokoh penting di Kai Pang ini hanya bisa satu jurus. Hatinya dibanjiri oleh rasa terima kasih kepada Hong Qigong.
 
-Sementara itu Ouyang Ke meningkatkan intensitas serangannya dan selangkah demi selangkah ia memaksa Li Sheng ke mundur.
+Sementara itu Ouyang Ke meningkatkan intensitas serangannya dan selangkah demi selangkah ia memaksa Li Sheng mundur.
 Sebelumnya Ouyang Ke mengirimkan serangan dahsyatnya tanpa sasaran tertentu, tapi sekarang gerakannya dimaksudkan 
 untuk mencegah Li Sheng berbalik dan meluncurkan telapak tangannya ke belakang. Li Sheng memahami maksudnya dengan 
 sangat baik, jadi ia berusaha keras untuk mundur ke tengah ruangan.
 
-Tiba-tiba Ouyang Ke tertawa terbahak-bahak, ia mengayunkan tinju lurus ke atas dari bawah mengenai dagu Li Sheng dengan
+Tiba-tiba Ouyang Ke tertawa terbahak-bahak, ia mengayunkan tinju lurus dari bawah ke atas dan mengenai dagu Li Sheng dengan
 sangat telak. Li Sheng mengerang kesakitan dan menjerit ngeri. Ia mencoba merentangkan tangannya untuk melakukan 
 serangan balik tetapi ia terlambat sepersekian detik. Tinju Ouyang Ke telah mencapai sasarannya. Li Sheng terpukul 
 lima atau enam kali di kepala dan dada. Ia merasa pusing dan tubuhnya lemas, ia terhuyung-huyung dan jatuh ke lantai.
