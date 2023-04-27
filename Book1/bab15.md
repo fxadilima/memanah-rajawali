@@ -856,7 +856,7 @@ membiarkanku mati dengan damai. Dia akan menggangguku terus dengan ratusan renca
 tua ini harus mengaku kalah. Baiklah, sekarang kau [kowtow](referensi-karakter.md#kowtow "Sujud"). Aku akan 
 mengangkatmu sebagai muridku," katanya.
 
-Guo Jing kegirangan. Ia cepat-cepat berlutut dan dengan bersujud beberapa kali sambil berseru, "Shifu!" Hari itu 
+Guo Jing kegirangan. Ia cepat-cepat berlutut dan bersujud beberapa kali sambil berseru, "Shifu!" Hari itu 
 di Rumah Awan ia menceritakan kepada keenam gurunya bagaimana Hong Qigong mengajarinya sebagian besar dari 
 Delapan Belas Jurus Penakluk Naga. Enam Orang Aneh dari Jiangnan sangat senang dan semua mengatakan sayang sekali 
 orang luar biasa yang berilmu tinggi dari dunia persilatan ini tidak mau mengkat Guo Jing sebagai muridnya. Mereka 
