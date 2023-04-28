@@ -190,8 +190,8 @@ Guo Jing mengabaikan permintaan Huang Rong. "Anda, mengapa kau membawa elang ke 
 dapat mengirimkan pasukan bersama dan menyerang Jin dari kedua arah," jelas Tolui. "Adikku mengira aku akan bertemu denganmu 
 di sini, jadi ia mengirim elang ini untukmu. Tebakannya benar, aku memang bertemu denganmu di sini."
 
-Ketika Guo Jing mendengar Tolui menyebut nama Hua Zheng, ia terdiam. Ia tahu bahwa ia jatuh cinta kepada Huang Rong, 
-ketika ia terkadang memikirkan Hua Zheng, ia merasa itu tidak benar. Tapi ia tidak tahu bagaimana menyelesaikan masalah 
+Ketika Guo Jing mendengar Tolui menyebut nama Hua Zheng, ia terdiam. Ia tahu bahwa ia jatuh cinta kepada Huang Rong. 
+Ketika ia terkadang memikirkan Hua Zheng, ia merasa itu tidak benar. Tapi ia tidak tahu bagaimana menyelesaikan masalah 
 tersebut, dan berusaha untuk tidak terlalu memikirkannya. Tapi sekarang setelah mendengar apa yang dikatakan Tolui, 
 ia kebingungan. Satu-satunya yang terpikir adalah, "Dalam sebulan ini aku akan pergi ke Pulau Bunga Persik, dan ayah 
 Rong'er mungkin akan membunuhku. Tidak ada gunanya memikirkan hal itu sekarang." Oleh karena itu ia menoleh ke arah 
