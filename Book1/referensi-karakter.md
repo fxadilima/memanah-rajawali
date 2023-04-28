@@ -251,7 +251,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
             <li>Pi (皮) = Kulit</li>
             <li>She (蛇) = Ular</li>
         </ul>
-        Istilah ini hanya hasil tebakan Hong Qigong ketika melihat Ouyang Ke memperahakan <a href="#ling-she-quan">Ling She Quan</a>.
+        Istilah ini hanya hasil tebakan Hong Qigong ketika melihat Ouyang Ke memperagakan <a href="#ling-she-quan">Ling She Quan</a>.
     </dd>
     <dt id="ling-she-quan">Ling She Quan (灵蛇拳)</dt>
     <dd>
