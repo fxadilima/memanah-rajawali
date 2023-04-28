@@ -1,5 +1,5 @@
 # Bab 15
-## Dewa Naga Menggoyangkan Ekor
+## Sang Naga Mengibaskan Ekor
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |
