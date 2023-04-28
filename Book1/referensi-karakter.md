@@ -278,6 +278,30 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Untuk menerjemahkannya kita bisa memilih dua cara, 'Bunga-bunga Tercurah Dari Langit', atau 
         'Jarum Emas Tercurah Dari Langit'.
     </dd>
+    <dt id="duan-hun-dao">Duan Hun Dao (断魂刀)</dt>
+    <dd>
+        Julukan murid pertama Sha Tongtian, Shen Qinggang (沈青剛).
+        Karakter Duan (断) bisa bermakna Berhenti/Rusak/Putus.
+        Sedangkan Hun (魂) berarti Jiwa/Nyawa.
+        Gabungan kedua karakter tersebut menghasilkan makna 'Merusakkan jiwa' atau 'Memutuskan nyawa'.
+        Karena Dao (刀) adalah Pisau/Golok, maka ketiganya bisa terjemahkan menjadi 'Golok Perusak Jiwa',
+        atau 'Golok Pencabut Nyawa'.
+        Kemungkinan kedua itu tentu saja kita perindah untuk alasan estetika.
+    </dd>
+    <dt id="zhui-ming-qiang">Zhui Ming Qiang (追命枪)</dt>
+    <dd>
+        Julukan murid kedua Sha Tongtian, Wu Qinglie (吴青烈).
+        Karakter Zhui (追) artinya adalah 'Mengejar'.
+        Sedangkan Ming (命) artinya 'Nyawa'.
+        Qiang (枪) adalah Tombak. Dengan demikian maknanya jelas 'Tombak Pengejar Nyawa'.
+    </dd>
+    <dt id="sang-men-fu">Sang Men Fu (喪門斧)</dt>
+    <dd>
+        Julukan dari murid keempat Sha Tongtian, Qian Qingjian (錢青健).
+        Bisa diterjemahkan secara bebas menjadi 'Kapak Maut'.
+        Secara literal, karakter Sang (喪) berarti Pemakaman, sedangkan karakter Men (門) adalah 'Pintu'.
+        Dengan demikian kita bisa memahaminya sebagai 'Kapak yang mengantar ke pintu pemakaman, atau pintu maut'.
+    </dd>
 </dl>
 
 
