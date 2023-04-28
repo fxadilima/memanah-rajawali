@@ -261,6 +261,23 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
             <li>Quan (拳) = Tinju/Jurus/Pukulan</li>
         </ul>
     </dd>
+    <dt id="man-tian-hua-yu-zhi-jin-zhen">Man Tian Hua Yu Zhi Jin Zhen (漫天花雨之金针)</dt>
+    <dd>
+        7 karakter ini punya arti literal masing-masing sebagai berikut:
+        <ul>
+            <li>Man (漫) = Luber atau banjir</li>
+            <li>Tian (天) = Langit</li>
+            <li>Hua (花) = Bunga</li>
+            <li>Yu (雨) = Hujan</li>
+            <li>Zhi (之) = kata ganti ketiga, "nya"</li>
+            <li>Jin (金) = Emas</li>
+            <li>Zhen (针) = Jarum</li>
+        </ul>
+        Rangkaian karakter tersebut kurang lebih bermakna 
+        'Hujan lebat berupa bunga-bunganya jarum emas tercurah dari langit'. 
+        Untuk menerjemahkannya kita bisa memilih dua cara, 'Bunga-bunga Tercurah Dari Langit', atau 
+        'Jarum Emas Tercurah Dari Langit'.
+    </dd>
 </dl>
 
 

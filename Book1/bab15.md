@@ -928,6 +928,238 @@ Hati Ouyang Ke jadi dingin, mukanya agak muram. "Paman memperingatkanku ribuan k
 sangat berbahaya. Hari ini aku telah membiarkan pengemis tua itu melihatnya. Jika paman tahu, aku akan mendapat 
 masalah besar." Kebanggaan dirinya lenyap. Ia membungkuk ke arah  Hong Qigong dan berjalan keluar kuil.
 
+"Tunggu sebentar! Ada yang ingin saya katakan," seru Huang Rong. Ouyang Ke menghentikan langkahnya, jantungnya 
+berdetak lebih kencang. Tapi Huang Rong tidak mengabaikannya. Ia berbalik kepada Hong Qigong dan membungkuk dengan 
+hormat. "Qigong," katanya. "Kau harus menerima dua murid hari ini. Hal-hal baik selalu berpasangan. Kau menerima 
+murid laki-laki, sekarang kau harus menerima murid perempuan. Kalau tidak, aku tidak akan melepaskanmu begitu saja."
+
+Hong Qigong menggelengkan kepalanya. "Aku sudah membuat pengecualian dengan menerima satu murid," ia tersenyum. 
+"Pengemis tua tidak mau membicarakannya lagi. Selain itu kungfu ayahmu juga hebat, bagaimana dia bisa membiarkanmu 
+mengangkat pengemis tua menjadi gurumu?"
+
+Huang Rong pura-pura mendadak paham. "Oh, jadi kau takut kepada ayahku!" serunya. Hong Qigong terprovokasi, tapi 
+ia sebenarnya sangat menikmati situasi ini. "Aku? Takut kepada ayahmu?" katanya dengan muka kaku. "Baik, 
+aku akan menjadikanmu muridku. Aku ingin lihat apa Si Sesat Tua Huang akan memakanku hidup-hidup."
+
+Huang Rong tersenyum. "Kau sudah mengatakannya sendiri, kau tidak bisa ingkar janji," katanya. "Kau tahu, ayahku 
+sering bilang setelah Wang Chongyang meninggal, di antara para ahli silat di dunia ini, hanya kau dan dia yang 
+patut diperhitungkan. Kaisar Selatan dan yang lainnya bahkan tidak ada dalam bukunya. Aku yakin ayah akan senang 
+kalau tahu aku menganggapmu guruku. Shifu, bagaimana cara seorang pengemis menangkap ular? Tolong ajari aku 
+teknik ini dulu."
+
+Hong Qigong tidak yakin ia tahu niat bocah perempuan itu, tapi ia tahu gadis muda itu sungguh pintar. Ia pasti 
+punya rencana cerdik di balik kantongnya. Jadi ia menjelaskan dengan sederhana, "Pegang ular tujuh inci dari 
+kepalanya. Gunakan dua jarimu seperti penjepit. Selama kau menjepit ular tujuh inci dari kepalanya, tidak peduli 
+seberapa berbisa ular itu, tidak mungkin dia akan bisa bergerak."
+
+"Bagaimana kalau ularnya sangat besar?" tanya Huang Rong.
+
+"Pancing dia untuk menggigit tangan kirimu, lalu pukul dia dengan tangan kananmu, tujuh inci dari kepalanya,"
+jawab Hong Qigong lagi.
+
+"Apa semua itu harus dilakukan dengan cepat?" tanya Huang Rong.
+
+"Tentu saja," kata Hong Qigong. "Kau harus mengoleskan salep di tangan kirimu, jadi kalau sampai tergigit, kau
+tidak akan cedera serius."
+
+Huang Rong mengangguk. Ia mengedipkan mata kepada Hong Qigong dan berkata lagi, "Shifu, kalau begitu tolong oleskan
+salep di tanganku."
+
+Menangkap ular adalah keterampilan istimewa para anggota Kai Pang. Hong Qigong tidak pernah menggunakan salep atau 
+penawar racun apapun. Ia hanya akan memukul ular itu dengan tongkatnya. Tapi melihat kedipan mata penuh arti dari 
+Huang Rong, ia mengambil kantong arak merah dari punggungnya, yang sebenarnya berisi arak, dan mengoleskan arak 
+itu ke kedua telapak tangan Huang Rong.
+
+Huang Rong mengendus telapak tangannya, membuat ekspresi konyol, dan berkata kepada Ouyang Ke, "Hei, sekarang aku
+sudah jadi murid Ketua Kai Pang terkenal di dunia, murid Hong Lao Qianbei. Aku mau minta pelajaran tentang 
+'Ular berkulit lentur' dari kau. Tetapi aku harus memperingatkanmu, tanganku penuh dengan penawar racunmu, jadi 
+kau harus berhati-hati."
+
+"Bertarung denganmu adalah sesuatu yang kutunggu-tunggu," jawab Ouyang Ke. "Aku tak peduli benda siluman apa yang
+dioleskan ke tanganmu, pokoknya aku tidak menyentuhnya." Ia tersenyum cerah dan berkata, "Aku siap mati di tanganmu."
+
+Huang Rong berkata, "Kungfumu yang lain-lain itu sangat ngawur dan biasa-biasa saja, aku cuma ingin melawan
+Jurus Ular Bau itu. Kalau kau pakai kungfu lain, kau kalah."
+
+"Apapun yang Nona katakan, aku akan menurut," kata Ouyang Ke.
+
+Huang Rong tertawa. "Aku hampir tidak percaya bajingan sepertimu punya mulut yang sangat manis," katanya. 
+"Awas!" Segera setelah selesai bicara, kepalannya meluncur dengan teknik Xiao Yaoyou Hong Qigong.
+
+Ouyang Ke melepaskan pukulan ke sisinya. Huang Rong mengikuti dengan kaki kirinya menendang secara horizontal, 
+sedangkan tangan kanannya membentuk sebuah kait. Itu salah satu gerakan dari Ilmu Pedang Dewa, warisan keluarganya 
+sendiri. Sayangnya Huang Rong masih terlalu muda dan waktu yang dia habiskan untuk latihan ilmu ini terbatas. Tapi
+kali ini tujuannya adalah menang, jadi ia menggunakan kungfu apa pun yang diketahuinya, terlepas dari siapa yang 
+mengajarkannya.
+
+Ouyang Ke melihat kehebatan gerakannya, ia tidak berani ceroboh. Lengan kanannya terulur dan tiba-tiba melengkung 
+ke belakang untuk memukul bahunya. Langkah dari jurus ular ini cepat. Tangannya hampir menyentuh tubuh Huang Rong 
+ketika ia tiba-tiba teringat bahwa gadis itu mengenakan rompi kulit landak yang lembut. Seandainya ia melanjutkan, 
+tinjunya akan berdarah.
+
+Huang Rong dengan cepat mengelak dan mengirim kedua telapak tangannya ke arah celah di wajahnya. Ouyang Ke mengebaskan
+lengan bajunya dan menangkis telapak tangan itu.
+
+Tubuh Huang Rong dilindungi oleh rompi kulit landak yang lembut, tangannya diolesi salep, yang sebenarnya hanya arak.
+Satu-satunya bagian yang tidak terlindungi adalah wajahnya. Ouyang Ke berada dalam posisi serba sulit, ia diserang 
+tanpa ada kesempatan untuk membalas. Meskipun jurus ular itu luar biasa, ia terpaksa terbang ke timur dan menghindar 
+ke barat mencoba mengelak dari serangan Huang Rong, sambil menjaga dirinya agar tidak menyentuh telapak tangannya. 
+"Jika aku memukul wajahnya untuk menang, itu akan menyinggung perasaannya, dan jika aku menarik rambutnya, aku memperlakukannya dengan kasar, selain itu aku tidak bisa memikirkan hal lain," pikirnya. Tapi ia tiba-tiba punya ide. 
+Ia melangkah ke samping dan dengan cepat merobek ujung lengan bajunya, merobeknya menjadi dua bagian dan membungkusnya 
+di tangannya. Dengan tangan terlindung ia mencoba meraih telapak tangan Huang Rong.
+
+"Kau kalah!" seru Huang Rong sambil melompat keluar dari arena. "Itu bukan Jurus Ular Bau!"
+
+"Oh, aku lupa!" kata Ouyang Ke.
+
+"Jurus Ular Baumu itu juga tidak seistimewa itu, tidak bisa mengalahkan murid Hong Qigong," lanjut Huang Rong. 
+"Di Istana Zhao kau mengalahkanku, tapi itu karena kau dibantu Liang Ziweng, Sha Tongtian, Peng Lianhu, 
+Pendeta Ling Zhi, dan juga Hou Tonghai yang kepalanya kutilan itu. Saya kewalahan karena kalah jumlah, juga aku 
+tidak ingin dapat masalah, jadi aku mengaku kalah. Sekarang kita sama-sama pernah kalah, mari kita bertarung untuk 
+menentukan menang atau kalah."
+
+Li Sheng dan yang lainnya terkejut, mereka berpikir, "Meskipun kungfu gadis kecil ini bagus, dia jelas bukan tandingan 
+orang itu. Dia menang dengan akal-akalan. Kenapa musti menambah-nambah kesulitan lagi dan merusak kemenangan? Apa lagi 
+yang ingin dia buktikan?"
+
+Di lain pihak, Hong Qigong tahu jelas bahwa gadis ini penuh dengan akal bulus. Ia pasti memikirkan sesuatu untuk 
+mengelabui musuh. Jadi ia hanya tersenyum tetapi tidak mengatakan apa-apa. Ia terus menggerogoti sisa ayam dan makan 
+dengan berisik, seolah-olah ayam itu adalah makanan paling enak di dunia.
+
+"Kenapa begitu serius?" kata Ouyang Ke sambil tertawa. "Kau menang, atau aku menang, itu tidak ada bedanya. Tapi kalau
+kau memang ingin bermain-main aku akan menemanimu."
+
+"Di Istana Zhao kita dikelilingi komplotanmu. Seandainya aku menang, mereka pasti akan menyerangku, jadi aku tidak 
+mau melawanmu dengan serius," kata Huang Rong. "Tapi sekarang kau punya teman," ia menunjuk ke murid, yang sekaligus 
+selir-selir berbaju putih Ouyang Ke, "dan aku juga punya teman. Meskipun kau punya lebih banyak teman, aku tidak takut. 
+Ayo kita bertarung seperti sebelumnya. Kau boleh menggambar lingkaran di tanah, kita akan mengikuti aturan yang sama, 
+siapa pun yang keluar dari lingkaran lebih dulu dianggap kalah. Aku sudah bersujud dan menjadi murid Hong Lao Qianbei. 
+Aku juga memiliki Shixiong yang baik, termasuk pemuda ini. Kau tidak perlu mengikat tanganmu ke belakang seperti 
+sebelumnya."
+
+Ouyang Ke agak geli. Apa yang dikatakannya sebagian lucu, tetapi kalau dipikir lagi, sebagian juga masuk akal. 
+Jadi ia menjejakkan kaki kirinya di lantai, dan menggunakannya sebagai sumbu, sementara kaki kanannya direntangkan 
+sejauh tiga kaki. Ia berputar dan membuat lingkaran dengan diameter sekitar enam kaki.
+
+Para anggota Kai Pang tidak menyukai Ouyang Ke, tapi ketika melihat gerakan itu mereka diam-diam mengaguminya.
+
+Huang Rong memasuki lingkaran pertandingan dan bertanya, "Kita akan bertarung dengan cara halus[^sastra] atau keras[^silat]?"
+
+[^sastra]: Wen (文) berarti ilmu sastra, atau pengetahuan tertulis. Cara 'halus' yang dimaksud Huang Rong adalah ini.
+
+[^silat]: Wu (武) berarti ilmu perang, bela diri, kungfu, alias berkelahi. Ini cara keras yang dimaksud Huang Rong.
+
+Ouyang Ke bingung. "Kau benar-benar nyentrik," katanya dalam hati. "Apa maksudmu bertarung dengan 'halus' dan 'kasar'?"
+
+"Kalau bertarung dengan cara halus, aku menyerangmu tiga kali, kau tidak menyerang balik. Lalu kau menyerangku tiga kali, 
+aku tidak akan menyerang balik," jelas Huang Rong. "Kalau cara keras, kita bisa bertarung sesuka hati. Kau bisa 
+memakai Jurus Ular Bau atau Jurus Tikus Hidup, aku tidak peduli. Siapa pun yang keluar dari lingkaran terlebih dahulu
+dianggap kalah."
+
+Ouyang Ke berpikir sejenak. "Kurasa sebaiknya pakai cara halus," katanya. "Dengan begitu kita terhindar dari cedera,
+dan tidak merusak persahabatan kita."
+
+"Kalau pilih cara keras, kau _pasti_ akan kalah," kata Huang Rong. "Kalau cara halus, kau masih punya kesempatan.
+Bagus! Seperti keinginanmu, kita pakai cara halus, kau mulai dulu atau aku?"
+
+Mana mungkin Ouyang Ke memukulnya dulu. "Tentu saja wanita lebih dulu," kata Ouyang Ke.
+
+Huang Rong tersenyum. "Kau licik! Kau tahu kau akan rugi kalau kau memukulku lebih dulu. Baik, aku akan bermurah hati,
+biar aku memukulmu dulu."
+
+Ouyang Ke baru saja akan berkata, "Kalau begitu aku akan memukulmu lebih dulu." Tapi sebelum ia bisa membuka mulutnya, 
+Huang Rong sudah berteriak, "Awas!" Ia mengirim telapak tangannya untuk menyerang. Ada sesuatu berkelip di tangannya, 
+ternyata ia melemparkan beberapa senjata rahasia.
+
+Ouyang Ke melihat sejumlah senjata rahasia, biasanya ia akan menggunakan kipas lipatnya untuk menangkis serangan 
+seperti ini, tetapi kipasnya dihancurkan oleh Hong Qigong. Ia juga bisa menggunakan lengan bajunya yang panjang untuk 
+menahan senjata-senjata itu, tapi ia sudah merobek lengan bajunya ini. Jarum baja itu memenuhi areal seluas sekitar 
+enam atau tujuh kaki. Kalau ia melompat ke samping, ia akan keluar dari lingkaran. Ia tidak punya waktu untuk 
+mempertimbangkan alternatif lain, jadi ia melompat sekitar sepuluh kaki secara vertikal. Jarum-jarum baja itu 
+beterbangan di bawahnya.
+
+Huang Rong menunggu sampai ia berada di puncak dan jatuh kembali sebelum berteriak, "Ini dia serangan kedua!" 
+Tangannya meluncurkan sekitar seratus jarum baja. Itu adalah teknik melempar jarum 
+[Bunga Tercurah Dari Langit](#man-tian-hua-yu-zhi-jin-zhen "Man Tian Hua Yu Zhi Jin Zhen (漫天花雨之金针)") 
+ajaran Hong Qigong, yang sebetulnya dimaksudkan untuk membunuh ular-ular Ouyang Ke. 
+Ia bahkan tidak mencoba membidik dengan tepat, dan hanya menembakkan jarum ke arah Ouyang Ke.
+
+Meskipun kungfu Ouyang Ke jauh lebih tinggi, tubuhnya sedang berada di udara dan tidak mungkin ia bisa menghindarinya. 
+"Tamatlah aku kali ini!" pikirnya. "Gadis ini sangat kejam." Tepat pada saat itu ia merasakan seseorang menarik 
+kerah bajunya dan tubuhnya bergerak kembali ke atas, dengan suara mendesis jarum-jarum itu berjatuhan ke tanah.
+
+Ouyang Ke tahu seseorang pasti telah menyelamatkannya. Ia terlempar kembali ke tanah, tidak terlalu keras, tetapi 
+tenaga lemparan itu aneh – pertanda seorang ahli silat tingkat tinggi. Ia jatuh di bahu kirinya. Secara alamiah ia 
+mencoba bangkit berdiri, tetapi ia tidak dapat melakukannya. Ia berguling-guling di tanah sedikit sebelum akhirnya 
+berhasil berdiri. Ia tahu orang itu pasti Hong Qigong, karena tidak ada orang di sekitarnya yang punya keahlian 
+seperti itu. Ia ketakutan, tapi sekaligus kesal dan segera berjalan keluar kuil tanpa berkata apa-apa. Murid-murid
+perempuannya mengikuti di belakangnya.
+
+"Shifu, kenapa kau menyelamatkan bajingan itu?" tanya Huang Rong.
+
+Hong Qigong tersenyum. "Pamannya teman lamaku. Anak itu melakukan banyak kejahatan. Dia pantas dikutuk. Tapi
+pamannya akan kehilangan muka kalau dia terluka di tanganku." Ia menepuk bahu Huang Rong dan berkata, "Anak pintar, 
+kau hari ini sudah menyelamatkan mukaku. Bagaimana aku harus memberimu hadiah?"
+
+Huang Rong menjulurkan lidahnya. "Aku tidak mau tongkat bambumu," katanya.
+
+"Kalaupun mau, aku juga tidak bisa memberikannya," kata Hong Qigong. "Aku punya pikiran untuk mengajarimu satu atau 
+dua jenis kungfu, tapi aku terlalu malas beberapa hari ini. Aku tidak tertarik untuk melakukan apapun."
+
+"Aku akan menyiapkan makanan enak supaya kau bersemangat," kata Huang Rong menawarkan.
+
+Hong Qigong terbelalak, tapi kemudian ia mendesah. "Aku tidak punya waktu untuk makan-makan sekarang. Sayang sekali,
+sayang...!" Ia berpaling kepada Li Sheng dan kawan-kawannya sambil berkata, "Kai Pang punya masalah yang harus 
+dibicarakan secara tertutup!"
+
+Li Sheng dan yang lainnya mendatangi Guo Jing dan Huang Rong, mengungkapkan rasa terima kasih mereka karena telah 
+menyelamatkan hidup mereka. Huang Rong telah memotong tali yang mengikat tangan dan kaki Nona Cheng. Nona Cheng sangat 
+pemalu. Ia memegang tangan Huang Rong dan diam-diam mengucapkan terima kasih. Huang Rong menunjuk ke arah Guo Jing dan 
+berkata, "Paman Gurumu yang Tertua, Pendeta Ma, mengajarinya kungfu. Paman Gurumu Qiu dan Wang juga sangat menyukainya, 
+jadi bisa dibilang kita sekeluarga."
+
+Nona Cheng menoleh ke arah Guo Jing dan tiba-tiba tersipu. Ia menundukkan kepalanya dan setelah beberapa saat 
+diam-diam mencuri pandang ke arah Guo Jing lagi.
+
+Li Sheng dan yang lainnya juga memberi selamat kepada Hong Qigong, Guo Jing dan Huang Rong. Mereka tahu Qigong biasanya 
+tidak menerima murid, bahkan di antara anggota Kai Pang ia jarang mengajarkan lebih dari satu atau dua jurus. Mereka 
+bertanya-tanya bagaimana cara Guo Jing dan Huang Rong membujuknya, sehingga ia mau menerima mereka. Di dalam hati 
+mereka iri kepada keduanya.
+
+"Kami akan menyiapkan perjamuan besok malam untuk memberi selamat kepada Ketua karena telah menerima dua murid yang 
+sangat baik," kata Li Sheng.
+
+Hong Qigong tersenyum, "Takutnya mereka tidak akan menyukai makanan kotor seperti yang biasa kita makan sebagai pengemis."
+
+"Kami pasti akan datang," kata Guo Jing buru-buru. "Kakak Li adalah pendekar senior, wanbei sangat ingin mengenalmu." 
+Li Sheng telah diselamatkan oleh Guo Jing, karena itu ia terus menatap pemuda ini, dan mendengarkan ucapannya yang 
+rendah hati ia jadi lebih senang. Ia memutuskan saat itu juga untuk berteman dengan Guo Jing.
+
+Hong Qigong berkata, "Aku senang kalian berdua merasa seperti teman lama saat pertemuan pertama kalian. Tapi aku 
+peringatkan, kau jangan membujuk murid pertamaku untuk jadi pengemis seperti kalian! Kau, muridku yang lebih muda, 
+ayo cepat bawa pulang Nona Cheng. Kami para pengemis akan mencuri beberapa ayam dan meminta makanan." Setelah 
+mengucapkan kata-kata itu, ia meninggalkan kuil diikuti oleh semua pengemis. Tepat sebelum pergi, Li Sheng memberi 
+tahu Guo Jing bahwa perjamuan besok akan diadakan di kuil itu juga.
+
+Guo Jing menemani Huang Rong mengantarkan Nona Cheng pulang.
+
+Nona Cheng diam-diam memberi tahu Huang Rong bahwa nama lengkapnya adalah Cheng Yaojia. Meskipun ia telah belajar 
+silat dari [Qing Jing Sanren](referensi-karakter.md#qingjing-sanren "Orang Bijak Pendiam") Sun Bu'Er, ia lahir 
+dari keluarga kaya dan dimanjakan sejak masa kecilnya. Jadi secara alami ia sangat pemalu dan tidak mengenal terlalu 
+banyak orang. Ia sangat berbeda dengan Huang Rong yang riang dan berani. Ia tidak berani mengatakan setengah kata 
+pun kepada Guo Jing. Sesekali ia mencuri pandang dan langsung menundukkan kepalanya, pipinya merah padam.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
