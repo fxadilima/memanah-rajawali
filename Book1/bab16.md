@@ -184,7 +184,7 @@ menyenangkan di telinga, tetapi ia sebenarnya tidak tahu apa yang dikatakannya.
 
 Guo Jing mengabaikan permintaan Huang Rong. "Anda, mengapa kau membawa elang ke sini?" tanyanya.
 
-[^anda]: Istilah dalam bahasa Mongolia untuk mewakili panggilan kepada saudara angkat. Karena istilah ini bermakna sangat lain dalam bahasa Indonesia, sebagiknya perhatikan konteks dialog. Saya berusaha untuk membuatnya berbeda supaya jangan membingungkan. Salah satu kebetulan yang menguntungkan adalah, dalam saduran ini saya tidak pernah menggunakan istilah 'Anda' dalam bahasa Indonesia untuk mewakili 'kau', dan kalau bermaksud menekankan sopan-santun saya cenderung memakai istilah bahasa aslinya, seperti _Qianbei_, atau orang ketiga tunggal.
+[^anda]: Istilah dalam bahasa Mongolia untuk mewakili panggilan kepada saudara angkat. Karena istilah ini bermakna sangat lain dalam bahasa Indonesia, sebaiknya perhatikan konteks dialog. Saya berusaha untuk membuatnya berbeda supaya jangan membingungkan. Salah satu kebetulan yang menguntungkan adalah, dalam saduran ini saya tidak pernah menggunakan istilah 'Anda' dalam bahasa Indonesia untuk mewakili 'kau', dan kalau bermaksud menekankan sopan-santun saya cenderung memakai istilah bahasa aslinya, seperti _Qianbei_, atau orang ketiga tunggal.
 
 "Ayah mengirimku untuk menemui Kaisar Song, kami ingin membuat kesepakatan antara pihak Utara dan Selatan, sehingga kami 
 dapat mengirimkan pasukan bersama dan menyerang Jin dari kedua arah," jelas Tolui. "Adikku mengira aku akan bertemu denganmu 
