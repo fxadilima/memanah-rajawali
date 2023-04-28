@@ -133,7 +133,7 @@ Guo Jing melihat tenaga yang datang sangat dahsyat dan ia tahu penyerangnya buka
 mengirimkan telapak tangannya menggunakan jurus Sang Naga Mengibaskan Ekor. Telapak tangannya mengenai bahu pria itu, 
 menghancurkan tulang belikatnya menjadi berkeping-keping dan membuat orang itu melayang mundur beberapa kaki. Orang 
 itu menjerit kesakitan. Tiba-tiba Guo Jing teringat, "Ini salah satu dari 
-[Empat Iblis dari Sungai Kuning](referensi-karakter.md#huanghe-si-gui "Huang He Si Gui"), 
+[Empat Iblis dari Sungai Kuning](referensi-karakter.md#huanghe-si-gui "Huang He Si Gui (黄河四鬼), julukan bagi empat murid Sha Tongtian."), 
 [Kapak Maut](referensi-karakter.md#sang-men-fu "Sang Men Fu (喪門斧)") Qian Qingjian."
 
 Guo Jing tahu bahwa kungfunya telah meningkat pesat beberapa bulan terakhir ini dan tentu saja ia berada di 

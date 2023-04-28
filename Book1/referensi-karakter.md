@@ -302,6 +302,12 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Secara literal, karakter Sang (喪) berarti Pemakaman, sedangkan karakter Men (門) adalah 'Pintu'.
         Dengan demikian kita bisa memahaminya sebagai 'Kapak yang mengantar ke pintu pemakaman, atau pintu maut'.
     </dd>
+    <dt id="huanghe-si-gui">Huang He Si Gui (黄河四鬼)</dt>
+    <dd>
+        Julukan bagi Keempat murid Sha Tongtian.
+        Arti literalnya adalah 'Empat Hantu dari Sungai Kuning', barangkali lebih pas kita terjemahkan menjadi
+        Empat Iblis dari Sungai Kuning.
+    </dd>
 </dl>
 
 
