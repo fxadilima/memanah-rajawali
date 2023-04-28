@@ -1080,7 +1080,7 @@ beterbangan di bawahnya.
 
 Huang Rong menunggu sampai ia berada di puncak dan jatuh kembali sebelum berteriak, "Ini dia serangan kedua!" 
 Tangannya meluncurkan sekitar seratus jarum baja. Itu adalah teknik melempar jarum 
-[Bunga Tercurah Dari Langit](#man-tian-hua-yu-zhi-jin-zhen "Man Tian Hua Yu Zhi Jin Zhen (漫天花雨之金针)") 
+[Bunga Tercurah Dari Langit](referensi-karakter.md#man-tian-hua-yu-zhi-jin-zhen "Man Tian Hua Yu Zhi Jin Zhen (漫天花雨之金针)") 
 ajaran Hong Qigong, yang sebetulnya dimaksudkan untuk membunuh ular-ular Ouyang Ke. 
 Ia bahkan tidak mencoba membidik dengan tepat, dan hanya menembakkan jarum ke arah Ouyang Ke.
 
