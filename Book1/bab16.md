@@ -219,7 +219,7 @@ aliansi. Pangeran Keenam sendiri secara pribadi memimpin pasukan untuk menangkap
 "Betul!" jawab Tolui. "Dia memakai helm emas. Aku melihatnya dengan jelas, dan bahkan menembakkan tiga anak panah ke 
 arahnya. Sayangnya diblokir perisai pengawalnya."
 
-Guo Jing sangat gembira, "Rong'er, [Kang Di](referensi-karakter.md#didi "Adik Kang (Didi 弟弟 adalah adik laki-laki")"! Wanyan Honglie ada di sini. Ayo cepat kita cari dia!" Huang Rong dengan cepat setuju, tetapi Yang Kang tidak terlihat. 
+Guo Jing sangat gembira, "Rong'er, [Kang Di](referensi-karakter.md#didi "Adik Kang (Didi 弟弟 adalah adik laki-laki)")"! Wanyan Honglie ada di sini. Ayo cepat kita cari dia!" Huang Rong dengan cepat setuju, tetapi Yang Kang tidak terlihat. 
 Guo Jing tidak sabar, ia berteriak, "Rong'er, kau pergi ke timur, aku akan mencari ke barat." Kedua orang itu menggunakan 
 ilmu meringankan tubuh mereka dan berlari sangat cepat ke arah yang berlawanan.
 
@@ -321,6 +321,215 @@ Yang Kang dengan lembut menarik tangannya. Ia mengganti topik pembicaraan, "Ilmu
 ingin balas dendam untuk ayahnya. Dia bertekad untuk menemukan dan membunuhmu. Dia juga berteman baik dengan banyak 
 sekali pendekar kungfu. Kau tidak mungkin melawannya. Kupikir akan lebih menguntungkan kalau kau tidak kembali ke 
 Yanjing selama enam bulan atau lebih."
+
+Wanyan Honglie teringat apa yang terjadi di Desa Niu dekat Lin'an sembilan belas tahun yang lalu. Ia sedih. Selain itu 
+ia juga merasa bersalah, jadi ia terdiam cukup lama. "Baiklah," akhirnya dia berkata. "Aku akan menghindari Yanjing 
+untuk sementara waktu. Kau sudah pergi ke Lin'an? Apa yang dikatakan Perdana Menteri Shi?"
+
+"Aku belum ke sana," jawab Yang Kang dengan dingin.
+
+Wanyan Honglie mendengar keanehan dalam nada suaranya dan menduga bahwa Yang Kang mungkin sudah tahu tentang kisah 
+hidupnya sendiri. Tapi mengapa Yang Kang menyelamatkannya? Mungkinkah ia rencana rencana lain?
+
+Kedua pria itu telah hidup bersama selama delapan belas tahun sebagai ayah dan anak. Mereka saling mencintai. Tapi 
+sekarang ketika mereka bersama di ruangan kecil itu, Yang Kang tiba-tiba merasa ada kebencian yang mendalam di antara 
+mereka. Ada pergumulan hebat di dalam hatinya. "Hanya dengan satu pukulan telapak tanganku, aku akan membalaskan 
+dendam ayah dan ibuku, tapi bagaimana aku bisa melakukan hal itu? Yang Tiexin adalah ayah kandungku, tetapi apa yang 
+diberikannya kepadaku? Mama biasanya memperlakukan Fu Wang dengan baik dan jika aku membunuhnya sekarang, apakah Mama 
+akan menyukainya? Selain itu, kalau aku benar-benar menolak menjadi seorang pangeran, apakah aku akan berakhir 
+mengembara di alam liar, melarat seperti Guo Jing?"
+
+Ia masih tenggelam dalam pikiran yang menggelisahkan ini ketika Wanyan Honglie berkata, "Kang'er, kita punya hubungan 
+ayah dan anak. Tidak peduli apa pun yang terjadi, kau adalah anakku dan aku mencintaimu. Dalam sepuluh tahun ini Jin 
+Agung kita akan menaklukkan Song. Pada saat itu aku akan memiliki kekuatan dan otoritas yang sangat besar, dengan 
+kekayaan dan kehormatan yang tidak terbatas. Negara yang indah ini, dunia fana ini, pada akhirnya akan jatuh ke 
+tanganmu."
+
+Yang Kang memahami dampak dari ucapan itu. Wanyan Honglie bercita-cita menjadi Kaisar. Memikirkan tentang 'kekayaan 
+dan kehormatan tak terbatas', jantungnya berdebar kencang dan diam-diam ia berpikir, "Dengan kekuatan Kekaisaran Jin, 
+tidak akan sulit untuk menghancurkan Song. Mongolia akan menimbulkan masalah lain, tetapi itu hanya sementara. Mereka 
+tak lebih hanyalah sekelompok orang barbar dengan keterampilan berkuda dan memanah yang sangat baik. Tidak ada yang 
+istimewa. Keterampilan manajemen Fu Wang luar biasa. Pangeran Kekaisaran Jin mana lagi yang bisa dibandingkan dengan
+dia? Ketika semua yang dikatakannya itu terlaksana, aku pasti akan menjadi putra mahkota." Berpikir demikian, darahnya 
+mendidih. Ia mengulurkan tangannya untuk meraih tangan Wanyan Honglie. "Ayah, anakmu pasti akan membantumu dalam usaha 
+besar ini."
+
+Wanyan Honglie menyadari tangan Yang Kang menjadi hangat. Ia senang. "Aku Li Yuan, kau Li Shimin."[^cerita-tang-1]
+
+[^cerita-tang-1]: Li Yuan adalah ayah dari Li Shimin, dan adalah pendiri Dinasti Tang. Kerja sama antara keduanya dengan sukses menggulingkan Dinasti Sui, dan mengukuhkan Dinasti Tang. Di kemudian hari ketika terjadi persaingan dalam pewarisan tahta antara Li Shimin dan dua orang kakaknya, Li Shimin mengambil tindakan drastis. Ia menjebak kedua kakaknya dan membunuh mereka. Ia bahkan secara pribadi melepaskan anak panah yang menewaskan kakaknya Li Jiancheng yang adalah saingan utamanya. Karena takut Li Shimin akan melakukan tindakan yang lebih brutal lagi di kemudian hari, setelah itu ayahnya mengangkatnya menjadi Putra Mahkota. Tak lama kemudian Sang Kaisar memutuskan untuk pensiun, maka Li Shimin melenggang ke tahta.
+
+Yang Kang hendak menjawab ketika mereka tiba-tiba mendengar suara di belakang mereka. Keduanya terpaku. Dengan cepat
+mereka menoleh. Hari sudah pagi dan sinar matahari yang cerah masuk melalui jendela. Mereka melihat tujuh atau delapan 
+peti mati berserakan di seluruh ruangan. Ternyata sayap barat ini adalah tempat sementara bagi orang mati sebelum 
+dimakamkan. Mereka mendengarkan dengan seksama. Suara itu terdengar seperti berasal dari salah satu peti mati.
+
+"Suara apa itu?" tanya Wanyan Honglie.
+
+"Mungkin tikus," jawab Yang Kang. Saat itu mereka mendengar Guo Jing dan Huang Rong berbicara di luar tentang helm 
+emas. kemudian bercanda sambil mencari-cari mereka.
+
+"Celaka!" pikir Yang Kang. "Helm emas Ayah tertinggal di luar! Ini bisa jadi malapetaka." Dengan suara rendah 
+ia berkata, "Aku akan membawa mereka pergi." Diam-diam ia membuka pintu dan melompat keluar menuju ke atap.
+
+Huang Rong sedang berada di atap ketika tiba-tiba ia melihat sesosok bayangan melintas di puncak atap. "Bagus! 
+Dia ada di sini!" Ia berlari ke arah bayangan itu, tapi bayangan itu dengan cepat melompat ke bawah dan menghilang 
+di salah satu sudut.
+
+Guo Jing mendengar suaranya dan bergegas datang. "Dia tidak mungkin lari jauh," kata Huang Rong. "Mungkin bersembunyi 
+di hutan."
+
+Keduanya hendak lari ke dalam hutan ketika tiba-tiba terdengar suara dari semak-semak dan keluarlah Yang Kang. 
+Guo Jing sangat terkejut. "Kang Di, kau dari mana saja?" tanyanya. "Kau melihat Wanyan Honglie?"
+
+"Wanyan Honglie ada di sini?" tanya Yang Kang, pura-pura terkejut.
+
+"Dia justru komandan pasukan itu," sahut Guo Jing. "Lihat, helmnya ada di sini."
+
+"Jadi begitu," kata Yang Kang.
+
+Huang Rong memperhatikan bahwa ekspresi mukanya tidak biasa. Ia juga ingat Yang Kang bicara dengan Ouyang Ke sebelumnya,
+jadi ia curiga. "Kami mencarimu kemana-mana beberapa saat yang lalu. Kau ada di mana?" tanyanya.
+
+"Kemarin aku terlalu banyak makan makanan aneh," kata Yang Kang. "Rasanya aku keracunan makanan, jadi aku tadi buang air
+di sana." Ia menunjuk ke arah hutan kecil.
+
+Huang Rong tidak percaya, tapi ia juga merasa tidak nyaman untuk menantangnya. "Kang Di," kata Guo Jing, "Ayo kita 
+cari dia bersama-sama."
+
+Yang Kang kuatir, ia tidak yakin apakah Wanyan Honglie sudah melarikan diri atau masih di sini, tapi wajahnya tidak 
+menunjukkan perasaan apa-apa. "Dia datang ke sini cari mati! Bagus," katanya, "Kalian cari ke timur, aku akan pergi 
+ke arah barat."
+
+"Boleh juga begitu," kata Guo Jing. Ia segera berjalan ke timur dan mendorong pintu ke arah Jie Xiao Tang[^jiexiaotang].
+
+"Kakak Yang," kata Huang Rong. "Kurasa orang itu bersembunyi di sebelah barat. Ayo kita lihat."
+
+Yang Kang mengerang dalam hati, tapi wajahnya berpura-pura senang. "Ayo kita pergi, cepat!" katanya. "Jangan sampai 
+dia lari." Segera keduanya mencari dari ruangan ke ruangan.
+
+Keluarga Liu dari Baoying awalnya merupakan keluarga penting sepanjang era Dinasti Song, tentu saja kuil leluhur 
+mereka sangat besar. Karena perang dengan Jin, kuil ini sebagian terbakar dan beberapa anggota keluarga Liu terbunuh. 
+Oleh karena itu sebagian kuil itu dibiarkan menjadi reruntuhan tanpa ada upaya untuk membangunnya kembali.
+
+Dengan tatapan dingin, Huang Rong mengamati Yang Kang membuka pintu yang penuh debu dan sarang laba-laba satu per satu. 
+Ia mencari di setiap ruangan. Akhirnya mereka sampai di sayap barat. Huang Rong melihat debu tebal di lantai dan di 
+atas debu itu tercetak beberapa jejak kaki yang — kelihatannya — baru saja dibuat. Ada beberapa bekas tangan di pintu 
+yang tertutup juga. "Disini!" ia berteriak dengan penuh semangat.
+
+Guo Jing dan Yang Kang mendengarnya berteriak. Guo Jing senang, sementara Yang Kang cemas. Keduanya bergegas ke arahnya.
+
+Huang Rong menendang pintu hingga terbuka, tetapi yang mengejutkannya adalah, yang dilihatnya hanya beberapa peti mati 
+tanpa ada tanda-tanda bekas kehadiran Wanyan Honglie.
+
+Yang Kang sangat lega, ia tahu Wanyan Honglie pasti sudah kabur, tetapi ia memasuki ruangan dan berteriak dengan keras, "Wanyan Honglie, pengkhianat! Di mana kau bersembunyi? Ayo keluar!"
+
+"Kakak Yang," kata Huang Rong sinis. "Dia pasti sudah lama mendengar suara kita. Kau tidak usah berbaik hati memberi 
+tahu dia kalau kita ada di sini."
+
+Yang Kang malu, mukanya memerah. "Nona Huang, jangan bercanda." Dari malu ia berubah jadi marah.
+
+"Jangan hiraukan dia, Kang Di. Rong'er memang suka bercanda," Guo Jing tersenyum. Ia menundukkan kepalanya dan 
+berkata, "Lihat di sini, semua jejak kaki ini kelihatannya masih baru. Memang dia ada di sini."
+
+"Cepat, kita harus mengejarnya!" desak Huang Rong. Saat menoleh, ia mendengar suara dari belakangnya. Ketiganya 
+ketakutan. Mereka melihat peti mati bergerak sedikit.
+
+Huang Rong memang selalu takut pada peti mati, dan sejak memasuki ruangan ini ia merasa mual. Sekarang sebuah peti mati 
+tiba-tiba bergerak dengan sendirinya, ia berteriak dan memegang lengan Guo Jing erat-erat. Tetapi meskipun hatinya ciut, 
+otaknya masih bekerja. "Pengkhianat itu... pengkhianat itu bersembunyi di dalam peti mati," katanya dengan suara
+gemetar.
+
+Yang Kang tiba-tiba menunjuk ke luar, "Hei! Itu dia!" Tanpa menunggu jawaban ia bersiap untuk berlari keluar. Tapi 
+Huang Rong lebih cepat, ia mengulurkan tangannya ke belakang dan mencekal pembuluh darah utama Yang Kang. "Kau pernah 
+melihat hantu?" ia mencibir.
+
+Yang Kang merasa sebagian tubuhnya mati rasa, ia tidak bisa bergerak. "Kau... kau mau apa?" ia tampak cemas.
+
+Guo Jing sangat gembira. "Betul! Ia pasti di dalam peti mati..." katanya sambil mendekati deretan peti mati itu
+dengan langkah lebar, dan mengangkat tangannya, bersiap-siap seandainya ia mendadak berhadapan dengan Wanyan Honglie
+keluar dari salah satunya.
+
+"Ge, hati-hati!" seru Yang Kang. "Jangan-jangan ada mayat hidup di situ!"
+
+Huang Rong memelintir tangan Yang Kang dengan kesal sampai ia jatuh ke lantai. "Kau masih ingin menakut-nakuti aku ya?"
+omelnya. Ia sangat yakin Wanyan Honglie pasti ada di dalam peti mati, tapi ia masih tetap takut. Bagaimana kalau betul-betul
+ada mayat hidup di dalamnya?
+
+"Jing Gege, jangan buru-buru!" katanya dengan suara gemetar.
+
+"Kenapa?" tanya Guo Jing sambil menoleh.
+
+"Pokoknya tahan tutupnya," kata Huang Rong. "Jangan sampai... jangan sampai _benda itu_ keluar..."
+
+Guo Jing tersenyum. "Mana ada mayat hidup?" Tapi ia melihat Huang Rong benar-benar takut, maka ia melompat ke dekat peti
+mati dan menghiburnya. "Dia tidak bakal bisa merangkak keluar."
+
+Huang Rong masih cemas, ia agak ragu, dan kemudian berkata, "Jing Gege, biarkan kupukul peti mati itu menggunakan 
+Pi Kong Zhang[^pikongzhang], kau tetap membuka mata. Entah hantu atau Wanyan Honglie, aku akan membelah peti 
+mati itu. Lalu kita akan melihat itu orang yang menangis atau hantu yang meratap!"
+
+Begitu selesai bicara, ia mengerahkan tenaga ke telapak tangannya, mengambil jarak dua langkah dan mengarahkan telapak 
+tangannya ke peti mati. Telapak Tangan Kosong miliknya tidak sekuat Lu Chengfeng, karena itu dia harus memukul peti 
+mati itu secara langsung. Sebenarnya bisa dilakukan dari jarak jauh.
+
+"Ini tidak benar," kata Yang Kang. "Kau memukul tutupnya, mayat itu bisa langsung menjulurkan kepalanya dan menggigit
+tanganmu. Itu tidak akan bagus!"
+
+Ia berhasil membuat Huang Rong makin ketakutan. Ia menggigil dan menghentikan gerakannya. Tiba-tiba terdengar teriakan 
+dari dalam peti mati. Itu suara wanita. Huang Rong melompat. Ia sangat ketakutan. "Hantu perempuan!" jeritnya. 
+Sambil mengayunkan tangannya ia berlari keluar dan berteriak, "Cepat! Keluar dari sini!"
+
+Guo Jing berani. "Kang Di, ayo kita angkat tutupnya, dan kita lihat ada apa," katanya.
+
+Yang Kang basah kuyup oleh keringat dingin, tapi bagaimana ia bisa menolak permintaan Guo Jing? Tentunya ia tidak bisa 
+menjadi musuh dari pasangan Guo — Huang ini. Tapi kemudian ia mendengar suara wanita itu lagi, jadi ia bergegas ke 
+depan untuk mengangkat tutup peti mati. Mereka menggunakan pisau untuk mendongkrak tutupnya dan bersama-sama mereka 
+membuka tutupnya, yang sebenarnya belum dipaku ke peti mati.
+
+Guo Jing mengerahkan tenaga ke tangannya, siap menyerang kepala mayat hidup, kalau ada. Tetapi ketika ia melongok ke 
+bawah, ia melongo. Tidak ada hantu, itu seorang gadis muda yang cantik, dengan sepasang mata lebar menatap mereka. 
+Itu tidak lain adalah Mu Nianci.
+
+Yang Kang terkejut tapi sekaligus gembiira, dan dengan cepat ia mengulurkan tangannya untuk membantu Mu Nianci bangkit
+dan keluar dari situ.
+
+"Rong'er, cepat sini!" seru Guo Jing. "Lihat siapa yang ada di sini."
+
+Huang Rong memejamkan mata sambil memalingkan mukanya ke luar. "Aku tidak mau lihat!" katanya.
+
+"Tapi ini Mu [Mei Mei](referensi-karakter.md#mei-mei "Adik perempuan (妹妹)")," desak Guo Jing.
+
+Dengan mata kirinya masih tertutup, Huang Rong mengintip dengan mata kanannya. Ia melihat Yang Kang memeluk seorang wanita yang mirip Mu Nianci. Ia merasa lega dan dengan malu-malu memasuki ruangan lagi. Siapa wanita itu kalau bukan Mu Nianci?
+
+Huang Rong melihat wajah Mu Nianci tampak kuyu dan dua titik air mata mengalir di pipinya. Ia tidak bisa bergerak. 
+Huang Rong membuka totokannya dan bertanya, "[Jiejie](referensi-karakter.md#jie-jie "Kakak perempuan (姐姐)"), kenapa kau 
+ada di sini?"
+
+Mu Nianci sudah cukup lama tertotok, seluruh tubuhnya terasa kaku dan napasnya tidak teratur. Huang Rong membantu 
+dengan mengusap punggungnya. Setelah beberapa saat, kira-kira waktu yang dibutuhkan untuk minum secangkir teh, 
+Mu Nianci memberitahunya, "Saya ditangkap dan ditawan."
+
+Huang Rong memperhatikan bahwa totokan itu terletak di tengah telapak kaki, 
+titik akupuntur [Yong Quan](acupoints.md#yong-quan "Mata air yang memancar"). 
+Ini jarang digunakan oleh para ahli silat di Dataran Tengah. Jadi dengan kepastian delapan puluh hingga sembilan puluh 
+persen ia menebak, "Apakah bajingan itu Ouyang Ke?" Mu Nianci tidak menjawab, tapi ia mengangguk.
+
+
+
+
+
+
+[^pikongzhang]: Pi Kong Zhang (劈空掌) bisa diartikan 'Telapak Tangan Kosong Pembelah'. Ini jelas sebuah kungfu tangan kosong, barangkali hanya kungfu biasa, tidak ada yang istimewa.
+
+
+
+
+
+[^jiexiaotang]: Dalam versi bahasa Inggris terjemahan fans hanya ditulis 'Jie Xiao Tang' tanpa karakter aslinya. Makna karakter Xiao (孝) adalah 'berbakti', sedangkan Tang (堂) adalah ruang/gedung/aula. Istilah ini mengacu ke sebuah ruangan dalam kuil. Tidak ditemukan karakter yang cukup meyakinkan untuk 'Jie', kecuali yang bermakna 'perayaan' (节). Karena itu saya membiarkan istilah tersebut seperti aslinya.
+
+
+
+
 
 
 

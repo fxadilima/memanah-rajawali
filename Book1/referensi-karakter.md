@@ -326,6 +326,10 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Panggilan seorang anak raja kepada ayahnya. Karakter Fu (父) sendiri sudah berarti 'Ayah'. Sedangkan
         Wang (王, Raja) ditambahkan di belakang panggilan itu sebagai tanda bahwa ayahnya adalah seorang raja.
     </dd>
+    <dt id="jie-jie">Jie Jie (姐姐)</dt>
+    <dd>Kakak perempuan</dd>
+    <dt id="mei-mei">Mei Mei (妹妹)</dt>
+    <dd>Adik perempuan</dd>
 </dl>
 
 
