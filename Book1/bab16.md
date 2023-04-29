@@ -507,12 +507,124 @@ ada di sini?"
 
 Mu Nianci sudah cukup lama tertotok, seluruh tubuhnya terasa kaku dan napasnya tidak teratur. Huang Rong membantu 
 dengan mengusap punggungnya. Setelah beberapa saat, kira-kira waktu yang dibutuhkan untuk minum secangkir teh, 
-Mu Nianci memberitahunya, "Saya ditangkap dan ditawan."
+Mu Nianci memberitahunya, "Aku tertangkap dan ditawan."
 
 Huang Rong memperhatikan bahwa totokan itu terletak di tengah telapak kaki, 
 titik akupuntur [Yong Quan](acupoints.md#yong-quan "Mata air yang memancar"). 
 Ini jarang digunakan oleh para ahli silat di Dataran Tengah. Jadi dengan kepastian delapan puluh hingga sembilan puluh 
 persen ia menebak, "Apakah bajingan itu Ouyang Ke?" Mu Nianci tidak menjawab, tapi ia mengangguk.
+
+Hari itu ketika ia mencoba menghubungi Mei Chaofeng demi Yang Kang, ia ditangkap oleh Ouyang Ke di dekat tumpukan 
+tengkorak dan ditotok. Setelah Huang Yaoshi memainkan seruling gioknya untuk membubarkan ular dan membantu Mei Chaofeng,
+Selir Ouyang Ke dan ketiga gembala ularnya tidak sadarkan diri karena suara seruling, dan Ouyang Ke melarikan diri. 
+Saat fajar para selir dan penggembala ular terbangun dan menemukan Mu Nianci terbaring miring, tidak bisa bergerak. 
+Mereka membawanya kepada majikan mereka. Ouyang Ke mencoba memperkosanya, tetapi ia bertekad untuk berjuang sampai mati.
+Meskipun Ouyang Ke sombong dan cabul, tapi ia selalu membanggakan dirinya sebagai pria yang elegan dan berbudaya. Kungfunya 
+tinggi dan wajahnya tampan, jadi ia bisa dengan mudah meluluhkan hati wanita. Kalau ia menggunakan kekerasan dan memaksa, 
+ia pasti akan berhasil memperkosanya. Tapi ia akan merusak nama Gunung Onta Putih. Karena kebanggaannya itu, Mu Nianci 
+beruntung dan mampu mempertahankan kesuciannya.
+
+Setelah itu mereka tiba di Baoying dan Ouyang Ke menyembunyikannya di dalam salah satu peti mati kuil leluhur Liu. 
+Ia kemudian mengirim selirnya untuk 'mengundang' beberapa wanita muda cantik dari keluarga kaya, termasuk Nona Cheng. 
+Saat itulah Kai Pang turun tangan yang menimbulkan pertempuran. Ouyang Ke pergi dengan tergesa-gesa. Ia punya beberapa 
+orang wanita beberapa hari terakhir ini, jadi ia tidak ingat lagi Mu Nianci masih berada di dalam salah satu peti mati. 
+Jika Guo Jing dan yang lainnya tidak mencari Wanyan Honglie, ia akan mati kelaparan di dalam peti mati.
+
+Bagi Yang Kang ini kejutan yang menyenangkan bisa bertemu dengan orang yang dicintainya di sini. Dengan wajah penuh
+perasaan ia berkata, "Mei Mei istirahat saja dulu di sini, aku akan merebus air minum untukmu."
+
+"Kau mana bisa merebus air?" Huang Rong tersenyum, "Biar aku membantumu. Jing Gege, ikut aku." Ia berpikir untuk 
+meninggalkan keduanya sendirian untuk melepaskan kerinduan mereka, tetapi Mu Nianci duduk tegak. "Tunggu sebentar!" 
+ia berkata tanpa senyum, "Yang Gongzi, aku mengucapkan selamat kepadamu atas kekayaan dan kehormatanmu yang tak 
+terbatas di masa depan."
+
+Yang Kang merasakan rona merah menjalar ke seluruh wajahnya, tetapi hatinya menjadi dingin. "Dia pasti mendengar 
+percakapanku dengan Fu Wang di sini." Ia berdiri diam tak tahu harus berbuat apa.
+
+Mu Nianci melihat dia tertekan dan hatinya luluh. Ia tidak tega mengungkapkan rahasia bahwa dialah yang melepaskan 
+Wanyan Honglie, karena takut Guo Jing dan Huang Rong akan membunuhnya karena marah.
+
+"Kau memanggilnya 'Ayah', itu lebih baik, kan? Jauh lebih intim daripada memanggilnya 'Fu Wang' ya?" katanya dengan 
+dingin. Yang Kang merasa sangat malu. Ia menundukkan kepalanya dan tidak mengatakan apa-apa.
+
+Huang Rong tidak tahu apa yang sedang terjadi. Dia pikir wanita ini kesal dan menyalahkan Yang Kang karena tidak 
+datang lebih awal untuk menyelamatkannya. Ia menarik lengan baju Guo Jing dan berbisik, "Ayo keluar, aku yakin 
+mereka berdua akan segera berbaikan." Guo Jing tersenyum dan ikut dengannya.
+
+"Ayo kita dengarkan apa yang mereka katakan," kata Huang Rong begitu mereka sampai di halaman.
+
+Guo Jing tersenyum. "Jangan sengaja bikin masalah, aku tidak mau."
+
+"Baguslah!" Huang Rong merajuk. "Hanya saja, jangan kecewa kalau aku mendengar sesuatu yang menarik dan aku 
+tidak memberitahumu tentang hal itu." Ia melompat ke atap, berjalan diam-diam kembali ke sayap barat dan 
+mendengar Mu Nianci berbicara dengan kasar.
+
+"Kau memanggil musuh ayahmu. Aku bisa masih memahami itu mengingat hubungan masa lalumu. Kau akan bisa mengatasinya. 
+Tapi ternyata kau juga bermimpi, kau ingin menghancurkan negara leluhurmu sendiri, ini... ini..." Mencapai titik ini 
+ia sangat marah sampai tidak bisa melanjutkan.
+
+Yang Kang tersenyum gugup. "Mei Mei, aku..." katanya lembut, tapi Mu Nianci memotongnya. "Siapa Mei Mei? Jangan 
+sentuh aku!" dia berteriak. 'Plakk' Tangannya meninggalkan bekas merah di wajah Yang Kang.
+
+Huang Rong terkejut. "Mereka sungguh-sungguh ribut, aku harus menghentikan mereka," pikirnya. Masuk melalui jendela 
+ia tertawa dan berkata, "Aiyo! Bahkan jika kalian saling tidak setuju, tolong jangan pakai kekerasan." Tapi ia 
+berhenti di tengah jalan saat melihat pipi Mu Nianci padam sementara Yang Kang sangat pucat. Ia hendak membuka 
+mulutnya lagi, tapi Yang Kang tiba-tiba berteriak, "Bagus! Kau bertemu yang baru dan meninggalkan yang lama. Hatimu 
+sudah ditempati orang lain, jadi kau memperlakukanku seperti ini."
+
+"Kau... kau ngomong apa sih?" Mu Nianci tergagap. Yang Kang mencibir, "Kau dan orang bernama Ouyang itu. Kungfunya 
+sepuluh kali lebih baik dari aku, tentu saja kau akan segera menghapus aku dari hatimu."
+
+Mu Nianci begitu marah, sampai tangan dan kakinya terasa sedingin es. Ia nyaris pingsan.
+
+Huang Rong menyela, "Yang Dage, kau tidak boleh bicara sembarangan. Kalau Mu Jiejie memang menyukainya, kenapa 
+bajingan itu harus menotoknya dan membiarkannya kelaparan di dalam peti mati?"
+
+Karena malu Yang Kang menjadi marah. "Kebenaran itu baik, tapi kemunafikan juga baik. Dia ditahan oleh bajingan 
+itu selama beberapa waktu dan dia telah kehilangan kepolosannya. Bagaimana dia dan aku bisa bersama lagi?"
+
+Mu Nianci sungguh-sungguh marah. "Kau... kau... maksudmu aku kehilangan kepolosan _apa_?"
+
+"Kau ada di tangan orang itu selama berhari-hari. Dia pasti memelukmu, kau pasti memeluknya. Bagaimana kau bisa 
+menjaga kemurnianmu yang sebening kristal itu?" Yang Kang mengejek, gayanya membuat Mu Nianci lebih naik darah lagi.
+
+Mu Nianci benar-benar tidak bisa menahan diri lagi. Ia lelah dan marah. Serangan terakhir ini terlalu kejam untuk 
+ditanggungnya. Ia muntah darah dan jatuh ke belakang.
+
+Yang Kang menyadari kata-katanya terlalu kejam. Melihatnya seperti itu ia merasa menyesal dan ingin memeluk dan 
+menghiburnya. Lalu ia ingat bahwa Mu Nianci tahu rahasianya. Huang Rong telah mengungkapkan kecurigaannya sebelum
+ini. Jika Mu Nianci membuka mulutnya, nyawanya akan berada dalam bahaya. Selain itu ia menguatirkan ayahnya. Jadi 
+tanpa berkata apa-apa ia berbalik, bergegas keluar dan melompati tembok.
+
+Huang Rong harus memijat dada Mu Nianci cukup lama sebelum akhirnya sadar. Ia luar biasa tenang dan bahkan tidak 
+menangis. "Mei Mei," katanya dengan tenang, "Aku pinjam belati yang kuberikan padamu sebelumnya."
+
+"Jing Gege!" Huang Rong berseru dengan keras, "Kau bisa ke sini?" Guo Jing dengan cepat datang. "Tolong berikan 
+belati milik Yang Dage kepada Mu Jiejie," kata Huang Rong.
+
+"Tentu saja," Guo Jing menurut. Ia mengeluarkan belati dari sakunya. Itu belati yang diambil oleh Zhu Cong dari 
+Mei Chaofeng. Belati itu masih terbungkus selembar kulit tipis. Kulit itu penuh dengan karakter yang ditato dengan 
+jarum. Guo Jing tidak menyadari bahwa karakter itu sebenarnya adalah bagian kedua dari 
+[Jiu Yin Zhen Jing](referensi-karakter.md#jiu-yin-zhen-jing "Kitab Sembilan Bulan"). Ia dengan santai membuka 
+gulungan kulit itu dan memberikan belati itu kepada Mu Nianci.
+
+Huang Rong juga mengeluarkan belati dari sakunya. Ia dengan lembut berkata, "Belati Jing Gege ada di tanganku. 
+Belati Yang Dage sekarang ada di tanganmu. Jiejie, ini adalah takdir yang akan menyatukan kalian berdua. Kau punya 
+ketidaksepakatan, tapi untuk saat ini tolong jangan sedih. Ayahku dan aku juga punya beberapa perbedaan pendapat. 
+Jing Gege dan aku akan pergi ke Yanjing untuk mencari Wanyan Honglie. Jiejie, tolong jangan biarkan hatimu gelisah. 
+Mengapa kau tidak ikut dengan kami? Kita bisa berjalan santai bersama. Aku yakin Yang Dage akan kembali mencarimu."
+
+Guo Jing bingung, "Yang Xiandi?" Huang Rong menjulurkan lidahnya. "Dia membuat Jiejie marah. Jiejie menamparnya 
+dengan keras. Mu Jiejie, kalau Kakak Yang tidak menyukaimu, kenapa dia tidak membalas waktu kau menamparnya? 
+Kungfunya lebih kuat darimu. Pertengkaran antara kalian..." Ia ingin bilang 'pertengkaran antara kalian berdua 
+sepertinya sudah kebiasaan' (ia mengacu pada Lomba Mencari Jodoh), tapi melihat Mu Nianci sedang sedih, ia jadi
+tidak tega membuat lelucon.
+
+"Aku tidak akan pergi ke Yanjing," kata Mu Nianci, "Kalian juga tidak usah pergi. Selama setengah tahun berikutnya 
+si bangsat Wanyan Honglie itu tidak akan berada di Yanjing. Dia takut kepada kalian. Guo Dage, Mei Mei, 
+kalian orang baik, hidup kalian juga harus baik..." Ia tersedak, menutupi wajahnya dan bergegas menuju pintu. 
+Dengan lompatan lebar ia pergi.
+
 
 
 

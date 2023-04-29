@@ -335,45 +335,32 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
 
 ***
 
-## <a name="kuas-dinasti-song" id="kuas-dinasti-song">Kuas Dinasti Song</a>
+### <a name="kuas-dinasti-song" id="kuas-dinasti-song">Kuas Dinasti Song</a>
 
 Kuas di era Dinasti Song Selatan berbentuk mirip dengan sebuah pena kuno. 
 
 ![Kuas Dinasti Song](https://res.cloudinary.com/drzjshskk/image/upload/v1682526945/misc/song-dynasty-brush_qbio65.png "Kuas untuk menulis di era Dinasti Song Selatan.").
 
 
-## Mengenai Jian Long Zai Tian 
+### <a name="jiu-yin-zhen-jing" id="jiu-yin-zhen-jing">Jiu Yin Zhen Jing (九阴真经)</a>
 
-Jian Long Zai Tian 见龙在天 = Melihat Naga Di Langit
+Secara literal keempat karakter yang membentuk nama ini bisa diuraikan sebagai berikut:
 
-Before concluding this discussion of the bottom-to-top organization within single hexagrams, it is appropriate to consider the case of Qian 乾䷀ “Vigorous” (#1) hexagram, the first—and best known—hexagram in the Zhou Changes. The line statements of this hexagram are organized around the image of a dragon or dragons (long 龍), the descriptions of the dragon changing from line to line based on its position in the hexagram. Since these images are the best known line statements in the entire text, and have motivated countless metaphors throughout Chinese literature and culture, they merit detailed discussion here.10 We can begin with a simple translation of the hexagram text.
+- Jiu (九) = Sembilan
+- Yin (阴) = Bulan atau 'dingin'
+- Zhen (真) = Asli/Nyata/Benar-benar
+- Jing (经) = Meneruskan/Melewatkan/Menyampaikan/Kitab Suci/Kitab
+
+Gabungan 2 karakter Zhen Jing itu sendiri bisa diartikan secara sederhana menjadi 'Kitab Sejati', atau
+bahkan 'Kitab Suci'.
+
+Untuk memahami makna karakter kedua Yin (阴), kita harus memakai cara berpikir Taoisme, yang sedikit banyak
+memang melatarbelakangi ajaran di dalam kitab tersebut. Dalam Taoisme selalu ada 2 kutub yang berlawanan,
+Panas/Dingin, Pria/Wanita, Matahari/Bulan, dan ini dilambangkan dengan Yin/Yang. Karakter kedua ini adalah
+simbol Feminin, Dingin, atau Bulan, yang berlawanan dengan Yang, Matahari, atau Maskulin.
+
+Dalam terjemahan ini saya hanya memakai terjemahan yang sudah pernah ada sebelumnya, entah dari mana, tetapi
+saya rasa itu cukup tepat dan representatif, yaitu 'Kitab Sembilan Bulan'.
 
 
-初九：潛龍。勿用。
-
-First Nine: Submerging dragon. Don’t use.
-
-九二：見龍在田。利見大人。
-
-Nine in the Second: Seeing a dragon in the fields. Beneficial to see a great person.
-
-九三：君子終日乾乾。夕惕若。厲。无咎。
-
-Nine in the Third: A lord’s son to the end of the day so vigorous, In the evening apprehensive-like. Dangerous.11 Without trouble.
-
-九四：或躍在淵。无咎。
-
-Nine in the Fourth: Now jumping in the depths. Without trouble.
-
-九五：飛龍在天。利見大人。
-
-Nine in the Fifth: Flying dragon in the heavens. Beneficial to see a great person.
-
-上九：亢龍。有悔。
-
-Top Nine: Throttled dragon.12 Having regret.
-
-用九：見群龍无首。吉。
-
-Use the Nine:13 Seeing a flock of dragons without heads. Auspicious.
 
