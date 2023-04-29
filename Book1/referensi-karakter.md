@@ -330,6 +330,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Kakak perempuan</dd>
     <dt id="mei-mei">Mei Mei (妹妹)</dt>
     <dd>Adik perempuan</dd>
+    <dt id="xiao-chusheng">Xiao Chusheng (小畜生)</dt>
+    <dd>Bangsat kecil.</dd>
 </dl>
 
 
@@ -362,5 +364,60 @@ simbol Feminin, Dingin, atau Bulan, yang berlawanan dengan Yang, Matahari, atau 
 Dalam terjemahan ini saya hanya memakai terjemahan yang sudah pernah ada sebelumnya, entah dari mana, tetapi
 saya rasa itu cukup tepat dan representatif, yaitu 'Kitab Sembilan Bulan'.
 
+### <a name="makam-aheng" id="makam-aheng">Makam Feng Heng (冯衡)</a>
+
+Feng Heng adalah istri dari Pemilik Pulau Bunga Persik (桃花岛, Tao Hua Dao), Huang Yaoshi (黄药师), dan 
+ibunda Huang Rong.
+
+Dalam cerita ini ia tidak pernah ditampilkan, hanya namanya yang muncul, dan juga makamnya. Ia meninggal
+ketika melahirkan Huang Rong. Peristiwa tersebut membuat Huang Yaoshi teramat sangat terpukul, dan ia kemudian
+membangun pemakaman yang sangat istimewa bagi istrinya.
+
+Yang bisa dibaca dari versi terjemahan bahasa Inggris, di makamnya tertulis 11 karakter: 
+'tao hua dao nu zhu feng shi mai xiang zhi zhong'.
+
+Saya dengan agak susah payah menemukan 10 dari 11 karakter di atas, yang seharusnya tepat, yaitu:
+桃花岛女主冯氏[mai]香之冢. Karena untuk mendapatkan terjemahan yang lebih akurat kita tetap harus melengkapi 11
+karakter tersebut, saya mencoba mencari makna 'shi mai' (transliterasi, _bukan_ wade-giles atau pinyin). Dan
+hasilnya adalah Mai Shi (脉石), yang diberi makna 'veinstone' (stone containing a vein of precious metal).
+Karakter Mai (脉) berdiri sendiri diterjemahkan menjadi 'Pulse/Vein/Mountain Range'. Sedangkan karakter Shi (石)
+berdiri sendiri berarti 'Batu'. _Tetapi karakter Shi yang dipakai dalam nisan bukan 石, melainkan 氏._
+Sedangkan karakter Shi (氏) berdiri sendiri bermakna 'nama seorang perempuan sebelum menikah'.
+
+Spekulasi saya adalah sebenarnya 'mai' di atas adalah sebuah kekeliruan, mengingat ini adalah versi terjemahan
+bahasa Inggris yang diupayakan bersama-sama oleh penggemar. Yang membuatnya masuk akal adalah, kalau 'mai' tersebut
+kita ganti menjadi 'Heng' (衡), yaitu nama almarhumah sendiri. Dengan demikian secara keseluruhan 11 karakter
+di atas menjadi Tao Hua Dao Nu Zhu Feng Shi Heng Xiang Zhi Zhong (桃花岛女主冯氏衡香之冢), yang bisa diterjemahkan
+menjadi 'Makam harum wanita pemilik Pulau Bunga Persik dari keluarga Feng, yang bernama Heng'.
+
+Untuk menguji spekulasi tersebut, gunakan [Google Translate](https://translate.google.com), masukkan ke-11 karakter
+di atas ke kolom sebelah kiri, lalu pilih untuk menerjemahkannya ke dalam bahasa Inggris. Hasilnya adalah 
+"Peach Blossom Island heroine Feng's Hengxiang Tomb". Dan kalau kita pilih bahasa Indonesia, hasilnya akan menjadi
+"Makam Hengxiang pahlawan wanita Pulau Bunga Persik Feng".
+
+Ketidaktepatan di atas adalah wajar, karena penggunaan karakter Xiang (香), yang berarti 'Harum/Wangi' adalah tidak
+umum, dan bukan hanya itu. Kalimat tersebut menjadi tidak umum kalau karakter tersebut diselipkan di situ. Hanya
+seorang eksentrik seperti Huang Yaoshi yang akan menggunakannya, mengingat besarnya kasih sayangnya kepada istrinya.
+Dan juga karena di bagian dalam makam itu _memang_ dipenuhi aneka macam wangi-wangian dari ekstrak aneka jenis bunga.
+Selebihnya menjadi masuk akal dari sisi _grammar_.
+
+
+### <a name="dantian" id="dantian">Dan Tian (丹田)</a>
+
+Dari sisi sejarah, deskripsi terperinci yang pertama tentang Dan Tian bagian bawah ada di dalam kitab utama dari 
+Laozi[^laozi], atau yang dikenal sebagai Laozi Zhongjing (老子中經) dari abad ke-3 M, yang mengacu pada 
+'daerah ramuan kehidupan', tempat 'esensi' dan 'roh' tersimpan. Itu terkait dengan regenerasi dan 
+energi seksual, menstruasi dan air mani.
+
+Wilayah ini terbagi menjadi tiga daerah utama, yaitu:
+
+1. Xia Dantian (下丹田), atau Dantian bagian bawah, yang letaknya ada di pertemuan antara titik akupuntur Ren-6 dari sisi horizontal, dan dari sisi vertikal sedikit di atas _perineum_, yaitu daerah antara anus dan skrotum bagi pria, atau vulva bagi wanita.
+2. Zhong Dantian (中丹田), atau Dantian bagian tengah, yaitu daerah tengah jantung.
+3. Shang Dantian (上丹田), atau Dantian bagian atas, yang terletak di antara kedua alis.
+
+Kalau sebuah cerita silat menyinggung soal Dan Tian, umumnya yang dimaksud adalah Xia Dantian.
+
+
+[^laozi]: Laozi (老子) adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi menurut Tao Te Ching sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah Barat.
 
 

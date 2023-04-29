@@ -12,4 +12,10 @@ supaya bisa diakses dari bab manapun.
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682711597/misc/yongquan_dwlwqu.png"
             alt="Titik akupuntur Yongquan"/>
     </dd>
+    <dt id="da-zhui">Titik Akupuntur Da Zhui (大椎)</dt>
+    <dd>
+        Nama ini bermakna "Tulang belakang besar".<br/>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682803449/misc/dazhui_sk0cx5.png"
+            alt="Titik akupuntur Da Zhui"/>
+    </dd>
 </dl>

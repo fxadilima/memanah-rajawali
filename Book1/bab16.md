@@ -625,6 +625,259 @@ si bangsat Wanyan Honglie itu tidak akan berada di Yanjing. Dia takut kepada kal
 kalian orang baik, hidup kalian juga harus baik..." Ia tersedak, menutupi wajahnya dan bergegas menuju pintu. 
 Dengan lompatan lebar ia pergi.
 
+Huang Rong melihat melihat darah yang dimuntahkan Mu Nianci tadi berceceran di lantai. Ia ragu-ragu sejenak, 
+dan pada akhirnya merasa tidak nyaman, jadi ia juga melompati tembok dan mengejarnya, dan melihat Mu Nianci 
+di bawah pohon willow besar di kejauhan. Sinar matahari terpantul pada bilah belati yang dipegangnya. Mu Nianci 
+mengangkat belati tinggi di atas kepalanya. Huang Rong cemas, ia pikir Mu Nianci akan bunuh diri. Ia berteriak keras, 
+"Kakak! Tolong jangan...!" Tapi jarak di antara mereka terlalu jauh, ia tidak akan bisa menghentikannya. Beruntung 
+Mu Nianci hanya mengangkat tangan kirinya sambil memegangi rambutnya. Dengan tebasan belati di tangan kanannya, 
+ia memotong segumpal besar rambut, melemparkannya ke tanah dan melarikan diri.
+
+"Jiejie! Jiejie...!" seru Huang Rong. Tapi Mu Nianci pura-pura tidak mendengar, dan terus berlari pergi.
+
+Huang Rong menatap kosong ke kejauhan, ia melamun. Ia melihat gumpalan rambut lembut menari di angin pagi. 
+Beberapa saat kemudian sebagian rambut itu tersebar ke sawah, sebagian masuk ke kali, sebagian terbang ke 
+pepohonan yang berbaris di jalan dan sebagian lagi mengikuti debu yang berhembus entah kemana. Huang Rong 
+selalu lembut, riang, dan nakal sejak masa kecilnya. Ia tertawa saat bahagia, menangis atau merajuk saat 
+tidak senang. Kata 'kecemasan' tidak pernah ada dalam kamusnya. Tapi sekarang setelah melihat apa yang baru 
+saja terjadi, ia tidak bisa menahan kesedihan agar tidak merayap ke dalam hatinya. Sekarang, ia tahu tentang 
+dunia kecemasan.
+
+Ia perlahan berjalan kembali ke kuil dan memberi tahu Guo Jing apa yang terjadi pada Mu Nianci. Guo Jing tidak 
+tahu mengapa kedua orang itu berselisih. Ia hanya berkata, "Aku tidak mengerti mengapa Mu Jiejie mempermasalahkan
+urusan seperti itu. Kupikir sifatnya terlalu kaku."
+
+"Bagaimana mungkin seorang wanita yang dipeluk oleh orang asing kehilangan kepolosannya? Bahkan orang yang 
+dicintainya tidak lagi menghormatinya atau peduli padanya." pikir Huang Rong. Ia tidak memiliki petunjuk 
+tentang alasan di balik semua itu, jadi ia menepisnya dari pikiran sebagai 'seperti itulah adanya' dan 
+membiarkannya berlalu begitu saja. Ia perlahan berjalan ke halaman belakang dan duduk di pilar. Otaknya 
+dipenuhi dengan berbagai pikiran. Ia menutup matanya dan tertidur.
+
+Malam itu juga Li Sheng dan anggota Kai Pang lainnya mengadakan perjamuan untuk menghormati pemimpin mereka, 
+Hong Qigong, dan juga untuk memberi selamat kepada Guo Jing dan Huang Rong. Mereka menunggu sampai sekitar 
+tengah malam tetapi Hong Qigong masih belum juga muncul. Li Sheng mengetahui kebiasaan ketuanya yang tidak 
+umum dan ia tidak terlalu memikirkannya. Ia terus menyajikan arak untuk Guo Jing dan Huang Rong, dan mereka 
+minum sepuasnya. Orang-orang dari Kai Pang sangat menghormati keduanya, jadi percakapan mereka menyenangkan. 
+Nona Cheng secara pribadi menyiapkan makanan, menyediakan empat panci besar berisi arak berkualitas baik, 
+dan mengirimkan semuanya melalui para pelayannya.
+
+Setelah perjamuan selesai, Guo Jing dan Huang Rong mendiskusikan apa yang harus dilakukan selanjutnya. 
+Wanyan Honglie tidak akan berada di Yanjing, jadi akan sulit menemukannya dalam waktu singkat. Perjanjian 
+Pulau Bunga Persik semakin dekat. Guo Jing harus segera kembali ke Jiaxing dan berkonsultasi dengan 
+keenam gurunya tentang tindakan apa yang akan mereka ambil.
+
+Huang Rong mengangguk setuju. "Menurutku sebaiknya enam gurumu tidak pergi ke Pulau Bunga Persik," tambahnya. 
+"Kamu pernah bertarung dengan ayah dan menerima pukulannya, bagi dia memukul beberapa kepala lagi bukan 
+masalah besar, kan? Kalau kau tidak setuju, biar aku yang memukul kepalamu beberapa kali lagi. Kalau keenam 
+gurumu bertemu ayahku lagi, apa bagusnya?"
+
+"Kau benar," kata Guo Jing. "Tapi kau tidak perlu memukul kepalaku."
+
+Keesokan paginya keduanya berkuda ke arah selatan. Saat itu awal bulan keenam dan cuaca sangat panas. Penduduk 
+asli Jiangnan punya pepatah, 'hari keenam bulan keenam, telur bebek dimasak oleh matahari'. Bepergian di bawah 
+terik matahari mereka sangat sengsara. Jadi mereka akan bergegas pagi-pagi sekali dan kemudian diteruskan di 
+malam hari, mereka beristirahat di siang hari.
+
+Beberapa hari kemudian mereka tiba di Jiaxing. Karena lebih awal dari waktu yang ditentukan, Enam Orang Aneh 
+belum tiba. Guo Jing menulis surat dan menitipkannya kepada pemilik penginapan Paviliun Dewa Mabuk, memintanya 
+untuk mengantarkan surat itu secara langsung ke Enam Orang Aneh di Jiangnan saat mereka tiba di awal bulan 
+ketujuh.
+
+Dalam surat itu ia menjelaskan bahwa ia telah bertemu dengan Huang Rong dan akan pergi ke Pulau Bunga Persik 
+untuk memenuhi janjinya, dan dengan ditemani putri kesayangan Huang Yaoshi seharusnya tidak akan ada masalah besar. 
+Ia meminta enam gurunya untuk tidak cemas dan mereka tidak perlu menemaninya, dan seterusnya.
+
+Meskipun ia mengatakannya seperti itu, sebenarnya ia takut karena Huang Yaoshi sangat aneh. Ia pikir akan lebih 
+mungkin menemui masalah daripada keberuntungan. Ia takut Huang Rong akan merasa cemas, jadi ia tidak mengatakan 
+apapun kepadanya. Mengetahui bahwa keenam gurunya tidak harus berada dalam bahaya adalah satu-satunya 
+penghiburan baginya.
+
+Pasangan itu menuju ke timur. Setelah Zhoushan, mereka menyewa perahu dan melanjutkan perjalanan melalui laut. 
+Huang Rong tahu bahwa para pelaut lokal takut pada Pulau Bunga Persik, seperti beberapa orang yang takut pada 
+ular beludak atau kalajengking. Tidak ada yang berani berlayar dalam jarak empat puluh li dari pulau. Jika ia 
+menyebutkan nama Pulau Bunga Persik, tidak peduli berapa banyak uang yang ia tawarkan, tidak ada yang mau mengambilnya. 
+Jadi ia bilang mereka akan memancing udang di pulau terdekat. Baru setelah mereka cukup jauh dari pantai, ia 
+menyuruh tukang perahu untuk mengubah arah ke utara. Tukang perahu ketakutan, tetapi Huang Rong mengayunkan 
+belati di depan dadanya. Kilau dingin dan terang terpancar dari bilahnya sehingga ia tidak punya pilihan 
+selain menuruti permintaan mereka.
+
+Saat perahu mendekati pulau, Guo Jing mencium aroma bunga di tengah bau laut yang asin. Ia mengalihkan pandangannya 
+ke arah pulau. Pulau itu hijau dan subur, penuh dengan pohon dan semak berwarna-warni. Ada yang berwarna hijau, 
+ada yang merah, ada yang kuning, dan ada yang ungu. Pulau itu tampak seperti taman bunga besar.
+
+Huang Rong tersenyum. "Indah sekali, kan?" katanya.
+
+Guo Jing menghela nafas, "Aku belum pernah melihat begitu banyak bunga indah sepanjang hidupku," jawabnya.
+
+Huang Rong sangat senang. Ia tersenyum dan menjelaskan, "Coba datang di bulan ketiga, bunga persik mekar sepenuhnya. 
+Itu sangat indah. Shifu tidak mau mengakui bahwa kungfu ayahku adalah nomor satu di dunia, tetapi dia tidak bisa 
+menyangkal fakta bahwa keterampilan berkebun ayahku tak tertandingi. Sayang sekali ia hanya tertarik pada makanan 
+dan minuman, dia bahkan tidak tahu apa itu bunga atau tanaman yang baik. Dia orang kasar."
+
+"Kau ngomong soal Shifu di belakangnya," omel Guo Jing. "Itu kebiasaan buruk." Huang Rong menjulurkan lidah dan 
+melucu.
+
+Mereka menunggu sampai perahu lebih dekat sebelum mereka melompat ke darat. Kuda merah Guo Jing juga melompat ke pantai. 
+Tukang perahu telah mendengar banyak cerita horor tentang pulau itu. Dikatakan bahwa Penguasa Pulau Bunga Persik akan 
+membunuh tanpa mengedipkan mata, bahwa ia suka mengorek jantung, paru-paru, hati, dan usus orang. Begitu penumpangnya 
+turun, ia memutar kemudi, ingin segera meninggalkan pulau itu.
+
+Huang Rong mengeluarkan batangan perak sepuluh [liang](referensi-unit.md#satuan-liang "1 liang kurang-lebih 37 gram") 
+dan melemparkannya ke perahu. Dengan suara berdenting batangan perak itu mendarat di haluan. Tukang perahu tidak 
+mengharapkan imbalan sebesar itu. Ia tampak senang, tetapi masih tidak berani tinggal di dekat pulau itu lebih lama lagi.
+
+Berada di rumah lagi Huang Rong sangat gembira. "Ayah! Ayah! Rong'er pulang!" ia berteriak keras. Ia kemudian berlari
+ke depan untuk memanggil Guo Jing.
+
+Guo Jing melihatnya berbelok ke timur lalu ke barat, di antara bunga-bunga dan segera menghilang dari pandangannya. 
+Ia buru-buru mengejarnya, tapi setelah beberapa [zhang](referensi-unit.md#satuan-zhang "1 zhang sekitar 3 meter") 
+ia sudah kehilangan jejaknya. Ia melihat ada jalan menuju timur, selatan, barat dan utara, tapi tidak tahu mana 
+yang harus dipilihnya.
+
+Ketika ia secara sembarangan memilih arah dan berjalan sebentar, ia sepertinya kembali ke tempat semula. Ia teringat 
+jaalan-jalan setapak di Rumah Awan. Huang Rong mengatakan bahwa meskipun tata letak rumah itu diatur dengan luar biasa, 
+masih kalah dibandingkan dengan Pulau Bunga Persik, yang tata letaknya didasarkan pada elemen yin-yang dan buka-tutup. 
+Jika ia memaksakan diri untuk berjalan di tempat yang indah dan hampir ajaib ini, ia hanya akan menghabiskan tenaga 
+dengan sia-sia. Jadi ia memutuskan untuk duduk saja di bawah pohon persik dan menunggu Huang Rong menjemputnya. 
+Siapa sangka setelah menunggu setengah hari Huang Rong masih belum juga datang. Ia melihat ke sekeliling, ke segala 
+arah, tetapi bahkan tidak melihat satu pun bayangan manusia, bahkan tidak ada satu suara pun yang terdengar. 
+Ia sungguh-sungguh tersesat!
+
+Dengan cemas ia berdiri dan memanjat ke atas pohon terdekat. Sekali lagi ia melihat ke segala arah. Di selatannya ada 
+laut, di barat ada bukit batu tandus, di utara dan timur ada hutan bunga dari segala jenis dan warna. Ia bahkan tidak 
+bisa melihat ujungnya. Kepalanya menjadi pusing. Ia tidak melihat apapun yang menyerupai tembok atau cerobong asap. 
+Ia bahkan tidak mendengar gonggongan anjing. Ini sangat sunyi dan sepi sehingga membuatnya takut.
+
+Dengan ia buru-buru meluncur turun dari pohon dan berlari dengan panik menuju ke hutan yang gelap. Ia tiba-tiba 
+berhenti di tengah jalan dan dengan cemas berpikir, "Celaka! Aku berlari tanpa tujuan! Kalau Ronger datang mencariku, 
+ia tidak akan menemukanku!" Setelah memikirkan hal ini ia berbalik dan berlari kembali, tapi ia tersesat lagi! 
+Ia bahkan tidak dapat menemukan titik awal sebelum terjebak ke situ.
+
+Kuda merah kecilnya semula mengikutinya dari dekat, tetapi ketika ia berlari di antara semak-semak dan memanjat pohon, 
+kuda itu juga hilang. Langit semakin gelap dan Guo Jing tidak tahu harus berbuat apa. Jadi ia hanya duduk di tanah 
+dan menunggu Huang Rong. Untunglah tempat itu tertutup rerumputan hijau yang lebat, jadi ia bisa duduk dengan nyaman.
+
+Ia juga mulai lapar dan haus. Pikirannya mengembara ke makanan lezat yang biasa disiapkan Huang Rong untuk Hong Qigong 
+dan ia jadi semakin lapar. Tiba-tiba sebuah pikiran muncul di benaknya. "Bagaimana jika ayah Rong'er mengurungnya? Ia 
+tidak akan bisa menyelamatkanku. Masa aku diam saja dan mati kelaparan di hutan ini?"
+
+Ia ingat permusuhan dengan ayah Huang Rong yang masih harus diselesaikannya. Ia juga ingat ia bahkan belum membalas 
+kebaikan guru-gurunya. Kemudian pikirannya mengembara ke ibunya di Mongolia yang jauh. Kalau dia mati di sini, siapa 
+yang akan merawatnya? Dengan pikiran yang berat ini ia menjadi lelah dan tertidur.
+
+Di tengah malam ia bermimpi, ia sedang dalam perjalanan dengan Huang Rong. Mereka mengunjungi sebuah danau dekat 
+Yanjing. Mereka sampai di tempat yang indah dan Huang Rong menyanyikan lagu dengan suara lembut. Tiba-tiba terdengar 
+suara lain ikut bernyanyi, itu adalah seruling bambu. Ia terbangun, kaget. Suara seruling masih terdengar di udara. 
+Guo Jing bangkit dan melihat sekeliling. Bulan bersinar terang di langit, dan aroma harum bunga-bunga menebal di 
+malam yang gelap. Suara seruling terdengar dari kejauhan, ternyata ia bukan sedang bermimpi!
+
+Guo Jing sangat senang. Ia berjalan menuju suara seruling mengikuti jalan di depannya. Jalan itu berkelok-kelok, 
+dan terkadang tidak ada jalan di depannya, tetapi suara seruling masih terdengar dari depan. Ia ingat jalan setapak 
+di Rumah Awan, jadi ia mengabaikan jalan yang berkelok-kelok dan langsung menuju ke arah suara. Jika ada pohon atau 
+semak di depannya, ia hanya memanjat atau melompati mereka.
+
+Suara seruling semakin jelas. Guo Jing berjalan lebih cepat. Mengitari tikungan ia tiba di area semak berbunga putih. 
+Lapisan demi lapisan bunga berkilau di bawah sinar bulan yang cerah. Begitu banyak, mereka tampak seperti danau putih 
+kecil. Di tengah bunga-bunga putih itu ia melihat sesuatu yang besar dan tinggi, tampak kokoh. Di sini suara seruling 
+tiba-tiba berubah. Terkadang tinggi, terkadang rendah, terkadang suara itu datang dari depan, terkadang berpindah 
+ke belakang. Ia mengira suara itu datang dari timur, tetapi ketika ia bergegas ke timur, suara itu pindah ke barat, 
+ketika ia mengejar ke utara, suara itu dengan cepat berpindah ke selatan. Kedengarannya seperti lebih dari sepuluh 
+orang memainkan seruling di sekelilingnya. Suara seruling ini benar-benar membuatnya gila.
+
+Setelah berlarian seperti itu beberapa saat, kepala Guo Jing terasa berputar, jadi ia memutuskan untuk berhenti 
+berlari dan langsung berjalan menuju benda besar di tengah danau bunga putih itu. Ternyata itu adalah kuburan. 
+Ada sebuah batu nisan di depan makam dengan tulisan, 
+[Makam harum Nyonya Pemilik Pulau Bunga Persik Feng Heng](referensi-karakter.md#makam-aheng "Tao Hua Dao Nu Zhu Feng Shi Heng Xiang Zhi Zhong (桃花岛女主冯氏衡香之冢)"), dalam sebelas karakter besar.
+
+Ini pasti makam ibu Rong'er, pikir Guo Jing. "Rong'er kehilangan dia sejak masih kecil, itu sangat menyedihkan." 
+Ia berlutut di depan makam dan bersujud empat kali untuk memberikan penghormatan.
+
+Suara seruling tiba-tiba berhenti ketika Guo Jing sedang berlutut. Segala sesuatu di sekitarnya terasa sunyi, 
+tetapi begitu ia berdiri, suara seruling itu berlanjut. "Aku tidak peduli ini pertanda keberuntungan atau sial, 
+aku akan mengikuti suaranya," pikir Guo Jing.
+
+Sekali lagi ia berjalan di antara tumbuh-tumbuhan mengikuti seruling. Dan lagi-lagi karakteristik suara seruling itu
+berubah. Mula-mula terdengar seperti tawa, namun tiba-tiba berubah menjadi amarah. Hal itu mempengaruhi perasaannya 
+tanpa akhir. Denyut nadi Guo Jing semakin cepat, "Kenapa nada ini begitu enak di telingaku?" pikirnya, terpesona.
+
+Irama lagu itu meningkat, mendesaknya untuk bangun dan menari. Guo Jing merasakan dorongan itu, wajahnya memerah dan 
+ia merasakan darahnya mengalir semakin cepat melalui ratusan pembuluh darahnya. Ia segera duduk di tanah dan bermeditasi 
+seperti yang diajarkan Ma Yu kepadanya, menyalurkan tenaga dalamnya ke seluruh tubuh.
+
+Mula-mula hatinya terguncang, beberapa kali ia merasakan dorongan untuk berdiri dan menari mengikuti irama. Setelah 
+menarik dan menghembuskan napas beberapa kali, hatinya menjadi tenang, pikirannya menjadi jernih. Tidak peduli 
+irama seruling itu berubah seperti apapun, ia mendengarnya seperti suara ombak laut, atau seperti angin sepoi-sepoi 
+di puncak pohon. Ia merasakan [dan tian-nya](acupoints.md#dan-tian "(丹田) bagian bawah pusar") penuh dengan energi, 
+seluruh tubuhnya terasa nyaman. Ia tidak lagi merasa lapar atau haus. Ia tahu bahwa ketika ia mencapai keadaan ini, 
+elemen eksternal tidak akan dapat mempengaruhinya lagi. Ia perlahan membuka matanya dan melihat dalam kegelapan 
+sekitar dua zhang jauhnya, sepasang mata cerah menatap lurus ke arahnya.
+
+Ia terkejut. "Binatang apa itu?" pikirnya sambil melompat mundur beberapa langkah. Tapi tiba-tiba mata itu menghilang. 
+"Pulau Bunga Persik ini benar-benar aneh," pikirnya. "Bahkan macan tutul atau rubah yang gesit tidak akan bisa bergerak 
+secepat itu." Ia ragu sejenak dan kemudian mendengar suara napas yang agak memburu. Itu pernapasan manusia. Kemudian 
+ia menyadari, "Itu manusia! Mata berbinar itu miliknya. Aku tidak melihatnya lagi karena dia menutup matanya, 
+tapi dia sebenarnya masih di sini." Berpikir begitu ia lalu menertawakan kebodohannya sendiri, tetapi tidak jelas 
+baginya apakah orang itu sebetulnya teman atau musuh, jadi ia tidak berani bersuara dan hanya membuka matanya 
+lebar-lebar untuk mengamati dengan tenang.
+
+Pada saat itu irama seruling mendayu-dayu, membawa perasaan yang penuh gairah dan merayu menyerupai seorang wanita 
+yang mendesah dan mengerang, lalu bergumam pelan, di saat lain suara itu mejadi liar dan bergairah.
+
+Guo Jing masih muda dan meskipun ia telah berlatih kungfu sejak kecil, ia tidak tahu banyak tentang hubungan seksual. 
+Ia merasa irama seruling itu mempengaruhi emosinya dan melodinya mempesona jiwa, tapi ia tidak terlalu memikirkannya. 
+Tetapi tidak demikian halnya dengan pria yang satunya. Ia terengah-engah dan mengerang pelan. Kedengarannya ia sedang 
+berjuang dengan seluruh kekuatannya hanya untuk menahan bujukan yang datang dari seruling.
+
+Hati Guo Jing tergerak oleh belas kasihan terhadap pria ini, dan perlahan ia mendekatinya. Pepohonan di tempat ini 
+lebat dan bulan bersinar terang, namun sinar bulan tidak dapat menembus rimbunnya dahan dan dedaunan. Guo Jing 
+berjalan mendekat dan baru kemudian samar-samar ia bisa melihat penampilan pria itu. Ia sedang duduk bersila. 
+Rambutnya panjang hampir menyentuh tanah dan alis, kumis dan jenggotnya juga panjang menutupi mulut dan hidungnya. 
+Tangan kirinya di dadanya, tangan kanannya di punggungnya.
+
+Guo Jing tahu bahwa itu adalah salah satu posisi untuk melatih tenaga dalam yang diajarkan oleh 
+[Dan Yang Zi](referensi-karakter.md#dan-yang-zi "Julukan Pendeta Ma Yu"), Ma Yu, di atas bukit tandus di 
+padang rumput Mongolia. Itu adalah teknik untuk menutup hati dan pikiran seseorang. Kalau orang menguasainya 
+dengan sempurna, bahkan jika guntur bergemuruh dan kilatan cahaya, atau air menyembur dan menciptakan tanah longsor, 
+semua itu tidak akan mengganggunya sama sekali. Pria ini sepertinya memiliki ilmu tenaga dalam tingkat tinggi ini, 
+tapi kenapa ia tidak bisa mengendalikan diri dan takut akan suara seruling?
+
+Irama seruling semakin cepat dan tubuh pria itu bergoyang dan berkedut. Beberapa kali ia melompat beberapa meter 
+dari tanah dan setelah berjuang sekuat tenaga ia akhirnya bisa duduk lagi. Guo Jing melihat siklus ini terjadi 
+beberapa kali. Ia akan tenang sesaat, lalu gelisah, sebelum menjadi tenang lagi, tetapi siklusnya makin lama makin 
+pendek. Guo Jing tahu bahwa pria itu kalah dalam pertarungan, jadi ia mulai menguatirkan keselamatannya.
+
+Seruling itu memainkan dua melodi yang lebih rumit lagi dengan lembut. Tiba-tiba pria itu berteriak, "Sudahlah! 
+Sudahlah" dan hendak melompat. Guo Jing menyadari waktunya sangat kritis, tanpa pikir panjang ia bergegas maju 
+dan mengulurkan tangannya menekan bahu pria itu. Tangan kanannya menotok jalan darah 
+[Da Zhui Xue](acupoints.md#da-zhui "tulang belakang besar") di lehernya. Ia ingat ketika berlatih di tebing 
+Mongolia itu, setiap kali pikirannya bermasalah dan tidak dapat mencapai ketenangan, Ma Yu akan dengan lembut 
+mengetuk titik akupuntur Da Zhui miliknya dan itu membantu menenangkannya. Tenaga dalamnya tidak sekuat Ma Yu 
+sehingga ia tidak bisa membantu pria ini mengatasi suara seruling, tetapi karena pukulannya tepat, lelaki tua 
+berambut gondrong itu bisa menenangkan diri. Ia menutup matanya dan sepertinya ia mulai terkendali.
+
+Dalam hati Guo Jing senang. Tiba-tiba ada yang memakinya. 
+"[Xiao Chusheng](referensi-karakter.md#xiao-chusheng "Bangsat kecil")! Kau mengacaukan urusanku!" Seruling itu 
+tiba-tiba berhenti. Guo Jing menoleh dan tidak melihat siapa pun, tapi suara itu terdengar seperti Huang Yaoshi. 
+Ia jadi cemas dan menyesali perbuatannya. "Aku tidak tahu orang tua berambut panjang ini baik atau jahat, dan 
+aku membantunya tanpa pikir panjang. Aku jelas membuat ayah Rong'er lebih marah. Kalau orang tua ini ternyata 
+penganut ajaran sesat atau penjahat, maka aku baru saja melakukan kesalahan besar!"
+
+Ia mendengar napas orang itu berangsur-angsur mulai teratur. Guo Jing menahan keinginannya untuk bertanya. Ia 
+hanya duduk diam di hadapannya, memejamkan mata dan memanfaatkan waktu untuk bermeditasi. Dengan segera ia bisa 
+menenangkan diri dan mencapai keadaan hampa. Ia lupa waktu dan membuka matanya ketika bintang pagi mulai meredup 
+di bawah cahaya fajar.
+
+Matahari pagi bersinar melalui pepohonan dan bunga-bunga, menyinari wajah orang tua itu. Guo Jing bisa melihatnya 
+dengan jelas sekarang, rambut dan janggutnya tidak seluruhnya putih dan hanya Tuhan yang tahu sudah berapa tahun 
+pisau cukur tidak menyentuh kepalanya. Ia tampak seperti manusia primitif yang tinggal di gua-gua.
+
+Tiba-tiba orang tua itu membuka matanya. Sinar matanya cerah dan berbinar-binar. Ia tersenyum ringan dan bertanya,
+"Di antara Tujuh Pendekar Quanzhen itu, siapa yang jadi gurumu?"
+
+Guo Jing melihat wajahnya yang ramah, ia menjadi tenang. Ia membungkuk dan berkata, 
+"[Dizi](referensi-karakter.md#dizi "Murid ini") Guo Jing, memberi salam
+kepada qianbei! Dizi murid Tujuh Pendekar dari Jiangnan!"
+
 
 
 
@@ -632,10 +885,6 @@ Dengan lompatan lebar ia pergi.
 
 
 [^pikongzhang]: Pi Kong Zhang (劈空掌) bisa diartikan 'Telapak Tangan Kosong Pembelah'. Ini jelas sebuah kungfu tangan kosong, barangkali hanya kungfu biasa, tidak ada yang istimewa.
-
-
-
-
 
 [^jiexiaotang]: Dalam versi bahasa Inggris terjemahan fans hanya ditulis 'Jie Xiao Tang' tanpa karakter aslinya. Makna karakter Xiao (孝) adalah 'berbakti', sedangkan Tang (堂) adalah ruang/gedung/aula. Istilah ini mengacu ke sebuah ruangan dalam kuil. Tidak ditemukan karakter yang cukup meyakinkan untuk 'Jie', kecuali yang bermakna 'perayaan' (节). Karena itu saya membiarkan istilah tersebut seperti aslinya.
 
