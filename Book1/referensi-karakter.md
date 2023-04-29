@@ -332,6 +332,12 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Adik perempuan</dd>
     <dt id="xiao-chusheng">Xiao Chusheng (小畜生)</dt>
     <dd>Bangsat kecil.</dd>
+    <dt id="dizi">Di Zi (弟子)</dt>
+    <dd>
+        Secara literal berarti 'Murid', ini bisa dipakai untuk memanggil diri sendiri sebagai orang ketiga
+        tunggal di hadapan seorang guru. Dalam versi-versi hasil karya Gan KL/Kho Ping Hoo yang memakai
+        istilah dalam dialek Hokkian, istilah ini adalag 'Teecu'.
+    </dd>
 </dl>
 
 

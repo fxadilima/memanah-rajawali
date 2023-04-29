@@ -875,8 +875,8 @@ Tiba-tiba orang tua itu membuka matanya. Sinar matanya cerah dan berbinar-binar.
 "Di antara Tujuh Pendekar Quanzhen itu, siapa yang jadi gurumu?"
 
 Guo Jing melihat wajahnya yang ramah, ia menjadi tenang. Ia membungkuk dan berkata, 
-"[Dizi](referensi-karakter.md#dizi "Murid ini") Guo Jing, memberi salam
-kepada qianbei! Dizi murid Tujuh Pendekar dari Jiangnan!"
+"[Dizi](referensi-karakter.md#dizi "Dizi (弟子) = Murid. Dalam dialek Hokkian biasa ditulis Teecu.") Guo Jing, 
+memberi salam kepada qianbei! Dizi murid Tujuh Pendekar dari Jiangnan!"
 
 
 
