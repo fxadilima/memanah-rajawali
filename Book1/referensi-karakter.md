@@ -365,6 +365,43 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Arti literal dari karakter Huang (黄) adalah 'Kuning'. Karakter ini banyak dipakai sebagai nama keluarga/marga 
         seseorang.
     </dd>
+    <dt id="wulin">Wu Lin (武林)</dt>
+    <dd>
+        Karakter Wu (武) berarti ilmu perang, atau dalam konteks ini adalah ilmu silat, alias kungfu. Sedangkan karakter
+        Lin (林) berarti 'Hutan' atau sekumpulan pohon. Lin disusun dari karakter kembar (木) yang bermakna 'Pohon',
+        atau 'Kayu'.
+        Dengan demikian Lin bisa kita terjemahkan sesuai konteks cerita silat menjadi 'Rimba'. Gabungan keduanya
+        akan menghasilkan 'Rimba Persilatan', alias 'Dunia Persilatan'.
+        Istilah ini seringkali dipakai bergantian dengan <a href="#jianghu">Jiang Hu (江湖)</a>, yang sesungguhnya
+        bermakna 'Sungai dan Danau'.
+    </dd>
+    <dt id="jianghu">Jiang Hu (江湖)</dt>
+    <dd>
+        Karakter Jiang (江) dalam bahasa mandarin berarti 'Sungai', yang mula-mula mengacu kepada Sungai Yangtze.
+        Sedangkan karakter Hu (湖) berarti 'Danau', dalam hal ini kemungkinan besar mengacu kepada Danau Tai.
+        Gabungan keduanya seringkali dipakai dalam cerita silat untuk menggambarkan 'dunia persilatan' atau
+        'dunia pendekar'. Seringkali seorang pendekar disebut Jianghu Xia (江湖俠). Karakter ketiga Xia (俠) tersebut
+        diambil dari istilah Youxia (遊俠), yang secara literal bermakna 'Pahlawan Petualang'. Ini menggambarkan
+        karakter dalam cerita rakyat yang membela kebenaran dan menegakkan keadilan dalam versi semacam Dark Justice.
+        Barangkali cukup menarik untuk disimak bahwa kedua karakter Jiang (江) dan Hu (湖) tersebut sama-sama memiliki
+        elemen 氵yang bermakna 'air'.
+    </dd>
+    <dt id="niubi">Niu Bi (牛鼻)</dt>
+    <dd>
+        Istilah ini adalah sebuah ejekan atau bahkan makian atau sindiran tajam, dan tidak ada kaitannya dengan 
+        'hidung sapi' atau 'hidung kerbau'. Karakter Bi (鼻, hidung) yang dipakai di situ adalah untuk menggantikan
+        sejumlah kemungkinan karakter lain yang punya makna sama sekali berbeda, dan semuanya bermakna sangat tidak
+        sopan, dan bahkan sangat jorok, tetapi <em>bunyinya</em> mirip.
+        Salah satu contoh adalah Bi (逼), yang punya sejumlah makna, salah satunya adalah 'Memaksa' atau 'Mendesak'.
+        Di dalam cerita ini, orang seringkali mengejek atau menyindir pendeta Tao dengan sebutan ini. Salah satunya
+        adalah Huang Rong, yang sangat tidak menyukai Qiu Chuji. Tetapi sejumlah referensi mengatakan bahwa jika
+        seorang perempuan yang kurang mengerti sampai menggunakan istilah seperti ini, lain kali kalau ia punya
+        pengertian lebih baik, ia takkan pernah menggunakannya lagi.
+        Jadi istilah ini memang bukan sesuatu yang sopan, tetapi sasarannya bukan hanya pendeta Tao. Kalau kita mencoba
+        mencari-cari di internet apa makna istilah ini, kita tidak akan mendapatkan jawaban yang cukup memuaskan.
+        Sedikitpun tidak mengherankan kalau karakter semacam Zhou Botong dan Zhang Ahsheng yang memang suka bicara
+        sembarangan menggunakan istilah ini.
+    </dd>
 </dl>
 
 
@@ -491,4 +528,26 @@ berawal dari seorang 'Nabi' dari Persia yang bernama Mani. Manikeisme masuk ke T
 ### <a name="taishang-laojun" id="taishang-laojun">Tai Shang Lao Jun (太上老君)</a>
 
 Uraikan mengenai tokoh itu di sini...
+
+
+### <a name="fa-wang" id="fa-wang">Fa Wang (法王)</a>
+
+Karakter Fa (法) punya makna Hukum/Cara/Metode/Dalil/Peraturan, sedangkan Wang (王) sudah jelas adalah 'Raja'.
+Mengikuti _grammar_ bahasa Mandarin, gabungan kedua karakter tersebut dalam susunan itu, akan bermakna 'Raja Hukum',
+tetapi bukan dalam makna 'Hukum di atas segala hukum', melainkan 'Pengawal Hukum' atau 'Penjaga Hukum'.
+
+[Sekte Ming](#ming-jiao "Ming Jiao") punya beberapa Wang (王), yang semuanya menyandang gelar Fa Wang, dengan
+fungsionalitas yang berbeda, tetapi esensinya adalah sama, dalam hal ini adalah untuk mengawal dan memelihara
+hukum keagamaan mereka.
+
+Semua 'Raja' tersebut mereka sebut Hu Jiao Fa Wang (護教法王), yang maknanya kurang lebih adalah 
+'Raja Pengawal Hukum Partai'.
+
+
+### <a name="ming-jiao" id="ming-jiao">Ming Jiao (明教)</a>
+
+Sekte Ming, atau Ming Jiao adalah sebuah gerakan yang beraliran Manikeisme, sebuah _agama_ atau ajaran yang 
+dikembangkan oleh seorang Persia bernama Mani.
+
+(Teruskan uraiannya di sini)...
 

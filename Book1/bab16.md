@@ -1128,7 +1128,7 @@ Guo Jing menganggukkan kepalanya. "Betul," katanya. "Lalu kenapa Dage tidak menc
 "Kaisar Hui Zong di tahun Zheng He ingin mengumpulkan semua kitab dan buku dari aliran Tao dari seluruh dunia. Dia ingin
 mengedarkan buku-buku itu, yang semuanya terdiri dari 5481 bab. Mereka menyebutnya 
 [Panduan Agama Tao tentang Kehidupan Abadi](referensi-karakter.md#wan-shou-dao-zang "Wan Shou Dao Zang (万寿道藏)").
-Kaisar menugaskan seseorang untuk melaksanakan misi itu, dia disebut Huang Shang..."
+Kaisar menugaskan seseorang untuk melaksanakan misi itu, dia disebut Huang Shang[^huang-shang]..."
 
 "Dia juga dari keluarga Huang?" tanya Guo Jing.
 
@@ -1165,11 +1165,112 @@ suka berdebat, jadi ia menyimpan pikirannya dalam hati.
 tiba-tiba muncul gerakan keagamaan di kerajaan, mereka menyebut diri mereka 
 [Sekte Ming](referensi-karakter.md#ming-jiao "Ming Jiao (明教). Ajaran ini adalah cikal-bakal dari Perguruan yang menjadi pilar organisasi yang diketuai oleh Zhang Wuji dalam buku ketiga trilogi ini."). 
 Dikatakan bahwa gerakan ini berasal dari Asia Tengah, sebuah tempat bernama Persia. Para pengikut Sekte Ming ini, 
-pertama – tidak menyembah [Maha Guru Lao](referensi-karakter.md#taishang-laojun "Tai Shang Lao Jun"), kedua – tidak 
-menyembah roh leluhur, ketiga – tidak menyembah Buddha. Mereka hanya menyembah setan asing tua. Mereka tidak makan 
-daging atau minum arak. Mereka vegetarian. Kaisar Hui Zong hanya percaya pada Taoisme; jadi segera setelah dia mengetahui tentang kultus setan ini, dia mengeluarkan dekrit kekaisaran yang menugaskan Huang Shang untuk memberantasnya. Tanpa diduga, ada banyak master seni bela diri di antara anggota sekte tersebut. Mereka tidak takut mati dan melawan Huang Shang dan pasukannya, membuat mereka tidak berguna. Setelah beberapa pertempuran, Huang Shang dan pasukannya menderita kerugian besar. Huang Shang sangat marah. Dia keluar dan menantang master seni bela diri Devil Cult untuk pertarungan satu lawan satu. Dia secara pribadi membunuh beberapa 'imam kekaisaran' [fa wang] dan beberapa utusan. Bagaimana dia bisa tahu bahwa orang yang dia bunuh adalah murid dari karakter Wulin yang terkenal; beberapa adalah paman bela diri, bibi, saudara laki-laki, saudara perempuan atau keluarga dekat mereka. Tentu saja orang-orang itu sangat marah dan mereka berkumpul untuk menghadapinya. Mereka memarahinya karena tidak menangani urusan sesuai dengan kebiasaan Wulin, yang dijawab oleh Huang Shang, 'Saya adalah pejabat pemerintah dan bukan bagian dari dunia Wulin. Apa yang saya ketahui tentang adat Wulin Anda?’ Mereka yang keluarga atau kerabatnya terbunuh berdebat, ‘Jika Anda bukan bagian dari dunia Wulin, lalu bagaimana Anda mengetahui seni bela diri? Apakah Anda mengatakan bahwa guru Anda hanya mengajari Anda seni bela diri tetapi tidak memberi tahu Anda apa pun tentang adat Wulin?’ Huang Shang menjawab, ‘Saya tidak memiliki seorang guru.’ Tentu saja mereka tidak mempercayainya; sehingga mereka terlibat dalam perdebatan sengit. Menurutmu, apa yang terjadi?"
+pertama – tidak menyembah [Maha Guru Lao](referensi-karakter.md#taishang-laojun "Tai Shang Lao Jun, klik untuk membaca uraian ini."), 
+kedua – tidak menyembah roh leluhur, ketiga – tidak menyembah Buddha. Mereka hanya menyembah setan asing tua. Mereka 
+tidak makan daging atau minum arak. Mereka vegetarian. Kaisar Hui Zong hanya percaya pada ajaran Tao, jadi segera 
+setelah dia tahu tentang kultus setan[^mo-jiao] ini, dia mengeluarkan dekrit kekaisaran yang menugaskan Huang Shang 
+untuk memberantasnya. Tanpa diduga, ada banyak ahli kungfu di antara anggota sekte tersebut. Mereka tidak takut mati 
+dan melawan Huang Shang dan pasukannya, membuat mereka tak berdaya. Setelah beberapa pertempuran, Huang Shang dan 
+pasukannya menderita kekalahan besar. Huang Shang sangat marah. Dia keluar dan menantang para ahli kungfu Mo Jiao 
+untuk bertarung satu lawan satu. Dia secara pribadi membunuh beberapa [raja](referensi-karakter.md#fa-wang "Fa Wang") 
+dan beberapa utusan. Bagaimana dia bisa tahu bahwa orang yang dia bunuh adalah murid dari tokoh 
+[Wulin](referensi-karakter.md#wulin "Dunia Persilatan") yang terkenal? Beberapa orang dari mereka adalah paman guru, 
+bibi, saudara, atau keluarga dekat mereka. Tentu saja orang-orang itu sangat marah dan mereka berkumpul untuk 
+menghadapinya. Mereka memarahinya karena tidak menangani urusan sesuai dengan aturan main di dunia persilatan, yang 
+dijawab oleh Huang Shang, 'Aku adalah pejabat pemerintah dan bukan bagian dari dunia persilatan. Aku tahu apa soal 
+adat istiadat dunia persilatan kalian?’ Mereka yang keluarga atau kerabatnya terbunuh berdebat, ‘Kalau kau bukan 
+bagian dari dunia persilatan, lalu dari mana kau belajar kungfu? Apa maksudmu gurumu hanya mengajarimu kungfu 
+tetapi tidak mengajarimu apa pun tentang peraturan di dunia persilatan?’ Huang Shang menjawab, ‘Aku tidak punya
+guru.’ Tentu saja mereka tidak percaya, jadi mereka terlibat dalam perdebatan sengit. Menurutmu apa yang terjadi?"
+
+"Mereka mulai bertarung," kata Guo Jing.
+
+"Sudah jelas, kan?" kata Zhou Botong. "Kungfu Huang Shang sangat aneh, dan tidak ada orang yang pernah melihatnya
+sebelum itu. Karena itu dia dengan mudah bisa membunuh banyak orang dari mereka. Tapi musuhnya sangat banyak dan dia 
+juga terluka dalam pertarungan, sehingga dengan putus asa dia melarikan diri. Musuh-musuh itu kemudian membantai 
+orang tua, istri dan semua anak-anaknya."
+
+Mendengarkan bagian ini, Guo Jing menghela nafas. Ia berpikir bahwa orang yang berlatih kungfu pasti akan membunuh 
+orang lain. Huang Shang ini tidak berbeda. seandainya ia tidak berlatih kungfu, ia tidak akan mengalami tragedi 
+seperti itu.
+
+"Si Huang Shang itu lari ke tempat sepi dan bersembunyi di sana," lanjut Zhou Botong. "Di sana dia mencoba mengingat 
+kembali kungfu musuhnya satu per satu. Dia dengan susah payah merenungkan bagaimana cara mengalahkan mereka satu 
+per satu. Dia memutuskan bahwa begitu dia berhasil mengembangkan kungfu tandingan, dia akan kembali dan membalas 
+dendam. Lama berlalu sebelum akhirnya dia bisa menguasai kungfu baru. Dia sangat senang dan berharap segera bisa 
+membalaskan dendam keluarganya. Setelah itu dia meninggalkan gunung untuk mencari musuhnya. Di luar dugaan, 
+orang yang dicarinya telah menghilang. Menurutmu apa yang terjadi pada mereka?"
+
+"Mungkin musuhnya sudah tahu niatnya dan mereka tahu kungfunya sangat hebat, jadi mereka ketakutan dan bersembunyi," 
+tebak Guo Jing.
+
+Zhou Botong menggelengkan kepalanya, "Bukan, bukan. Waktu kakak seperguruanku menceritakan soal ini, dia juga memintaku 
+menebak apa yang terjadi dan aku juga mengatakan hal yang sama. Aku bahkan membuat tujuh atau delapan tebakan lain, tapi 
+tidak ada yang benar."
+
+"Yah, kalau Dage menebak tujuh atau delapan kali tapi tidak satu pun benar maka aku tidak perlu menebak sama sekali. 
+Bahkan kalau aku menebak tujuh puluh atau delapan puluh kali, aku pasti akan salah," kata Guo Jing.
+
+Zhou Botong tertawa terbahak-bahak, "Tidak bakalan, kau tidak punya kesempatan sama sekali! Baiklah, karena kau 
+mengaku kalah, aku tidak akan menyuruhmu menebak lagi. Sebenarnya musuhnya yang berlusin-lusin itu sudah mati."
+
+Guo Jing berteriak tidak percaya. "Itu aneh! Mungkin teman-temannya atau mungkin murid-muridnya membalas dendam dan 
+membunuh semua musuhnya?" katanya bertanya-tanya.
+
+Sekali lagi Zhou Botong menggelengkan kepalanya, "Wah, bukan, bukan! Kau meleset seratus sampai delapan ribu li dari
+sasaran. Dia tidak punya murid. Dia seorang pejabat pemerintah, dan teman-temannya adalah sarjana, bukan pendekar 
+silat, bagaimana mereka bisa membalas dendamnya?"
+
+Guo Jing menggaruk kepalanya. "Mungkin mereka terserang suatu penyakit dan mati semua kena wabah?"
+
+"Juga salah! Musuh-musuhnya terpencar, beberapa tinggal di Shandong, beberapa berasal dari Huguang, beberapa dari Hebei 
+dan Liangzhe. Masa mereka bisa mati kena wabah yang sama?" tanya Zhou Botong, tapi kemudian ia berseru. "Ah! Ya ya! 
+Itu benar! Beberapa wabah _bisa_ membunuhmu di mana pun kau berada, bahkan jika kau lari ke ujung bumi. Kau bisa 
+menebak wabah macam apa itu?"
+
+Guo Jing menyebutkan tifus, cacar, disentri dan enam atau tujuh jenis penyakit lainnya, tapi Zhou Botong menggelengkan 
+kepalanya. Akhirnya Guo Jing berseru, "Penyakit kaki dan mulut!" Kemudian ia pura-pura terkejut, menutup mulutnya, 
+berdiri dan menepuk kepalanya dengan tangan kiri dan tertawa terbahak-bahak. "Aku bercanda! Penyakit kaki dan mulut 
+adalah wabah ternak sapi di padang rumput Mongolia, itu tidak akan menyerang manusia."
+
+Zhou Botong juga tertawa terbahak-bahak. "Semakin kau menebak, kau jadi makin aneh. Huang Shang mencari kemana-mana 
+sebelum akhirnya menemukan salah satu musuhnya. Itu seorang wanita. Ketika mereka awalnya bertarung, dia hanya seorang 
+gadis berusia enam belas atau tujuh belas tahun, tetapi ketika Huang Shang menemukannya, dia sudah jadi seorang nenek 
+berusia enam puluh tahun..."
+
+Guo Jing melongo "Ini benar-benar aneh! Ah, benar, dia pasti menyamar jadi wanita tua supaya Huang Shang tidak 
+mengenalinya."
+
+"Dia tidak menyamar," jawab Zhou Botong. "Bayangkan saja, Huang Shang punya lusinan musuh, dan masing-masing dari 
+mereka adalah ahli silat, masing-masing berasal dari perguruan kungfu atau keluarga terhormat. Bisa kau bayangkan 
+betapa mendalam dan rumitnya masing-masing kungfu mereka? Dia ingin mengalahkan keahlian unik setiap orang, berapa 
+banyak waktu yang dihabiskannya dengan susah payah untuk mencapai hasil seperti itu? Dia bersembunyi di daerah 
+pegunungan terpencil dan rajin berlatih. Siang dan malam hanya kungfu yang memenuhi pikirannya, dia tidak peduli 
+dengan hal lain, tanpa dia sadari semuanya itu makan waktu lebih dari empat puluh tahun."
+
+Guo Jing terperanjat. "Empat puluh tahun lebih!"
+
+"Ya, benar," tegas Zhou Botong. "Waktu kau benar-benar asyik mempelajari ilmu silat, empat puluh tahun akan berlalu 
+dengan cepat. Aku sudah berada di sini selama lima belas tahun, tapi tidak terasa selama itu. Ketika Huang Shang 
+melihat gadis muda itu telah berubah menjadi seorang nenek tua, hatinya dipenuhi emosi. Wanita tua itu sakit, 
+terbaring di tempat tidur dan sekarat. Tanpa dia mengangkat tangan pun, dia akan mati dalam beberapa hari. 
+Sakit hati dan kebencian puluhan tahun lenyap begitu saja tanpa bekas. Saudaraku, semua orang harus mati. Wabah 
+yang kutanyakan sebelumnya adalah kematian. Ketika waktumu tiba, kau tidak bisa lari."
+
+Guo Jing diam-diam setuju. Zhou Botong melanjutkan, "Saudaraku dan tujuh muridnya, hari demi hari, mengabdikan diri 
+untuk mencapai kesempurnaan hidup. Tetapi coba kasih tahu aku, apa memang mungkin untuk mengolah tubuh ajaib yang 
+tidak akan tersentuh kematian? Itulah alasan aku tidak ingin mengikuti cara hidup 
+[hidung kerbau](referensi-karakter.md#niubi "Niu Bi (牛鼻), klik untuk membaca penjelasannya.")."
 
 
+
+
+
+
+
+
+
+[^huang-shang]: Sebenarnya istilah Huang Shang (皇上) berarti 'Kaisar'. Tetapi kemungkinan besar tokoh Huang Shang yang diceritakan oleh Zhou Botong bernama 黄上, atau bahkan Shang tersebut memakai karakter yang sama sekali lain.
 
 [^bahasa-halus-1]: Maksud Guo Jing adalah dia tidak dianggap sebagai murid resmi Ma Yu.
 
@@ -1184,3 +1285,8 @@ daging atau minum arak. Mereka vegetarian. Kaisar Hui Zong hanya percaya pada Ta
 [^huang-mao]: Huang Mao (黄猫) berarti 'Kucing Kuning'.
 
 [^huang-gou]: Huang Gou (黄狗) berarti 'Anjing Kuning'.
+
+[^mo-jiao]: Mo Jiao (魔教) artinya adalah 'Ajaran Setan'. Sekte Ming dijuluki 'Pengikut Ajaran Setan' karena praktek mereka tidak sesuai dengan apa yang dianut oleh sebagian besar orang pada saat itu, dan akhirnya Kekaisaran menentang ajaran mereka.
+
+
+
