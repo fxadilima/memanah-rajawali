@@ -1125,9 +1125,9 @@ kencing dan berak. Kalau orang-orang itu menceritakan setiap detail kehidupan me
 
 Guo Jing menganggukkan kepalanya. "Betul," katanya. "Lalu kenapa Dage tidak menceritakan soal Jiu Yin Zhen Jing itu?"
 
-"Kaisar Hui Zong di tahun Zhen He ingin mengumpulkan semua kitab dan buku dari aliran Tao dari seluruh dunia. Dia ingin
+"Kaisar Hui Zong di tahun Zheng He ingin mengumpulkan semua kitab dan buku dari aliran Tao dari seluruh dunia. Dia ingin
 mengedarkan buku-buku itu, yang semuanya terdiri dari 5481 bab. Mereka menyebutnya 
-[Panduan Agama Tao tentang Kehidupan Abadi](referensi-karakter.md#wan-shou-dao-zang "Wan Shou Dao Zang ()").
+[Panduan Agama Tao tentang Kehidupan Abadi](referensi-karakter.md#wan-shou-dao-zang "Wan Shou Dao Zang (万寿道藏)").
 Kaisar menugaskan seseorang untuk melaksanakan misi itu, dia disebut Huang Shang..."
 
 "Dia juga dari keluarga Huang?" tanya Guo Jing.
