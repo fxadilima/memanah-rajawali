@@ -1013,7 +1013,7 @@ menjadi saudara denganku. Apa kungfumu juga jauh lebih tinggi dari aku? Kukira t
 
 "Kalau kau bilang untuk mengangkat saudara orang harus punya tingkat kungfu yang sama, maka aku harus bersumpah saudara 
 dengan Si Tua Huang, atau Racun Tua," kata Zhou Botong. "Itu konyol! Aku hanya suka bertarung dengan mereka! Apa kau 
-mau saya bersumpah saudara dengan orang tuli dan bisu ini?" Ia menunjuk ke pelayan tua itu dan melompat-lompat 
+mau aku bersumpah saudara dengan orang tuli dan bisu ini?" Ia menunjuk ke pelayan tua itu dan melompat-lompat 
 marah.
 
 Guo Jing melihat wajahnya yang merah dan ia cepat-cepat berkata, "Dizi dan Qianbei terpisah dua generasi. Kalau dizi 
