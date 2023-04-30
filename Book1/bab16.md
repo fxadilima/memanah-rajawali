@@ -878,20 +878,309 @@ Guo Jing melihat wajahnya yang ramah, ia menjadi tenang. Ia membungkuk dan berka
 "[Dizi](referensi-karakter.md#dizi "Dizi (弟子) = Murid. Dalam dialek Hokkian biasa ditulis Teecu.") Guo Jing, 
 memberi salam kepada qianbei! Dizi murid Tujuh Pendekar dari Jiangnan!"
 
+Orang tua itu tampak terkejut. "Tujuh Pendekar dari Jiangnan? Itu Ke Zhen'E dan lain-lainnya. Mana mungkin mereka 
+mengajarimu tenaga dalam Quanzhen?"
+
+"Sebenarnya, Ma Dao Zhang yang menghabiskan dua tahun mengajar murid ini, tetapi ia tidak mengijinkanku masuk ke 
+dalam pintu gerbang Perguruan Quanzhen," jawab Guo Jing.[^bahasa-halus-1]
+
+Orang tua itu tertawa terbahak-bahak dan kemudian membuat ekspresi lucu. Ia terlihat sangat lucu, seperti anak 
+kecil yang sedang bercanda. "Jadi begitu," katanya, "Bagaimana kau datang ke Pulau Bunga Persik?"
+
+"Huang [Laoye](referensi-karakter.md#lauye "Laoye (老爺) = Tuan Rumah") yang menyuruhku datang," jawab Guo Jing.
+
+Air muka orang tua itu mendadak berubah. "Untuk apa?" tanyanya.
+
+"Dizi menyinggung Huang Laoye," jawab Guo Jing. "Dizi datang ke sini untuk menerima nasib."
+
+"Kau bicara sejujurnya?" tanya orang tua itu.
+
+"Dizi tidak berani berbohong," jawab Guo Jing.
+
+Orang tua itu menganggukkan kepalanya. "Bagus sekali! Duduk!" katanya memerintah.
+
+Guo Jing duduk di atas batu besar dan ia dapat melihat dengan jelas bahwa orang tua itu sedang duduk di dalam 
+gua, di dinding batu.
+
+"Selain guru-gurumu, siapa lagi yang mengajarimu kungfu?" tanya orang tua itu lagi.
+
+"Dewa Pengemis Sembilan Jari, Hong Qianbei yang baik..." kata Guo Jing.
+
+Air muka orang tua itu berubah lagi. Agak aneh, tampaknya seperti ia ingin tersenyum tapi ditahan. "Hong Qigong
+juga mengajarimu kungfu?" selanya.
+
+Muka orang tua itu tampak seperti kegirangan dan sekaligus iri. "Kau juga bisa Delapan Belas Jurus Penakluk Naga?
+Ilmu itu sangat menakjubkan! Bagaimana kalau kau mengajari aku? Aku akan mengangkatmu jadi guruku." Tapi kemudian
+ia menggeleng-gelengkan kepalanya. "Tidak bisa! Tidak mungkin! Sebagai murid Si Tua Hong tenaga dalammu tidak bisa
+sekuat itu. Apa Pengemis Hong itu mengajarimu tenaga dalam?"
+
+Orang tua itu mendongak dan berpikir keras, "Kelihatannya dia sangat muda. Kalaupun dia latihan tenaga dalam di dalam 
+perut ibunya pun, tetap saja hanya tenaga delapan belas atau sembilan belas tahun. Bagaimana dia bisa menahan suara 
+seruling, dan aku tidak?" Ia tenggelam dalam pikirannya sejenak, lalu memandang Guo Jing dari atas ke bawah dan 
+mengulang lagi dari bawah ke atas. Ia mengulurkan telapak tangan kanannya dan berkata, "Dorong telapak tanganku. 
+Aku ingin menguji kungfumu."
+
+Guo Jing menurut, ia mengulurkan telapak tangan kanannya dan mendorong. Pria tua itu berkata, 
+"[Qi](referensi-karakter.md#qi "tenaga dalam") di [dan tian](referensi-karakter.md#dan-dian "daerah perut bagian bawah") 
+dan dorong keras-keras!" Guo Jing mengerahkan tenaganya. Pria tua itu menarik telapak tangannya sedikit lalu mendorong 
+keras sambil berteriak, "Awas!"
+
+Guo Jing merasakan gelombang tenaga yang kuat mendorongnya. Ia tidak bisa menahannya, jadi ia menggunakan tangan kirinya 
+untuk memperkuat telapak tangan kanannya. Anehnya orang tua itu membalik telapak tangannya dan mendorong pergelangan 
+tangan Guo Jing dengan empat jari. Kekuatan jari-jari ini cukup untuk membuat Guo Jing terbang mundur tujuh atau 
+delapan langkah hingga punggungnya menabrak pohon. Baru saat itulah Guo Jing berhasil berdiri dengan mantap.
+
+"Kungfunya tidak jelek, tapi juga tidak ada yang luar biasa," gumam orang tua itu. "Tapi bagaimana dia bisa menahan 
+[Irama Gelombang Laut Biru](referensi-karakter.md#bi-hai-chao-sheng-qu "Bi Hai Chao Sheng Qu") dari Si Sesat Tua Huang?"
+
+Guo Jing merasa dadanya sesak, ia heran, "Kungfu orang ini kira-kira setingkat dengan Shifu dan Huang Yaoshi. 
+Bagaimana mungkin ada pendekar sekaliber dia di Pulau Bunga Persik? Mungkinkah dia Racun Barat atau Kaisar Selatan?" 
+Segera setelah ia ingat Racun Barat, hatinya menjadi dingin, "Apa mungkin aku tertipu akal bulusnya?" Ia buru-buru 
+mengangkat telapak tangannya di bawah sinar matahari dan memeriksanya. Ia tidak melihat peradangan atau tanda hitam,
+ia merasa lega, setidaknya ia tidak diracuni.
+
+"Kau bisa menebak siapa aku?" tanya orang itu sambil tertawa.
+
+"Dizi mendengar orang mengatakan bahwa di dunia persilatan ada lima pendekar besar. Pendiri Perguruan Quanzhen,
+Wang Qianbei telah meninggal dunia, dizi pernah bertemu dengan Dewa Pengemis Sembilan Jari, Hong Shifu, dan juga 
+pemilik Pulau Bunga Persik. Apa mungkin Lao Qianbei ini Ouyang Qianbei atau Kaisar Duan?"
+
+"Kau pikir kungfuku setara dengan Pengemis Utara dan Si Sesat Timur ya?" tanya orang tua itu sambil tersenyum.
+
+"Kungfu dizi biasa saja, dan pengalaman dizi juga tidak banyak, dizi tidak berani bicara sembarangan. Tapi waktu
+qianbei mendorong dizi tadi, dizi bisa bilang dengan yakin bahwa selain Hong Shifu dan Huang Laoye, dizi belum
+pernah bertemu orang lain yang punya tenaga sebesar itu," kata Guo Jing.
+
+Orang tua itu senang sekali mendengar pujian Guo Jing, mukanya terlihat seperti anak-anak yang kegirangan. "Aku 
+bukan Racun Barat Ouyang Feng, dan juga bukan Kaisar Duan," katanya sambil tersenyum lebar. "Ayo tebak lagi."
+
+Guo Jing ragu-ragu. "Dizi pernah bertemu dengan seseorang yang namanya terkenal seperti Hong Shifu, namanya Qiu Qianren. 
+Tapi kungfu orang itu biasa saja. Dizi benar-benar tidak pintar, dizi tidak bisa menebak nama qianbei," katanya.
+
+Orang tua itu tertawa terbahak-bahak. "Margaku Zhou," katanya. "Kau bisa menebak sekarang?"
+
+"Ah, kau Zhou Botong?" sembur Guo Jing. Saat kata-kata itu keluar dari mulutnya, Guo Jing terpaku. Menyebutkan 
+nama tokoh senior begitu saja bisa dianggap tidak sopan. Ia dengan cepat membungkuk dan meminta maaf, "Dizi sudah
+bersikap tidak hormat, Zhou Qianbei tolong maafkan dizi."
+
+Orang tua itu tertawa. "Kau benar! Aku Zhou Botong. Namaku memang Zhou Botong, dan kau memanggilku Zhou Botong. 
+Kapan kau bersikap tidak hormat? Pendiri Aliran Quanzhen, Wang Chongyang, adalah kakak seperguruanku. Ma Yu, 
+Qiu Chuji, dan yang lainnya adalah keponakan seperguruanku. Kau bukan murid Quanzhen, kau tidak perlu memanggilku
+Qianbei ini, Qianbei itu, panggil saja aku Zhou Botong."
+
+"Dizi mana berani begitu?" kata Guo Jing.
+
+Zhou Botong sudah lama tinggal di Pulau Bunga Persik, ia bosan dan sekarang Guo Jing tiba-tiba datang. Bicara 
+dengannya, ia menemukan kelegaan, ia sangat senang. Tiba-tiba sebuah pikiran aneh muncul di benaknya. "Sobat kecil, 
+bagaimana kalau kau dan aku menjadi saudara angkat?" tanyanya.
+
+Tidak peduli seaneh apa ucapannya tadi, yang ini adalah yang paling aneh dari semuanya. Guo Jing melongo, ia 
+menatap Zhou Botong tak percaya, ia pikir Zhou Botong sedang bercanda. Setelah beberapa saat akhirnya ia membuka 
+mulutnya, "Dizi jauh di bawah Pendeta Ma dan Pendeta Qiu. Dizi seharusnya memanggil qianbei sebagai Tai Shifu."
+
+Zhou Botong melambaikan tangannya. "Kungfuku berasal dari kakak seperguruanku. Ma Yu, Qiu Chuji, dan yang lainnya 
+tidak menganggapku senior mereka. Mereka juga tidak menghormatiku sebagai senior. Kau bukan anakku, aku bukan ayahmu. 
+Kita tidak punya perbedaan generasi tua-muda." Saat berbicara ia mendengar langkah kaki mendekat, seorang pelayan 
+tua muncul membawa keranjang makanan. Zhou Botong berseri-seri, "Makanan kita datang!"
+
+Pelayan membuka keranjang dan mengeluarkan empat piring makanan, dua kendi arak dan keranjang anyaman penuh nasi. 
+Ia meletakkan makanan di depan Zhou Botong di atas sebuah batu besar, menuangkan dua cawan arak dan berdiri diam 
+di satu sisi.
+
+"Di mana Nona Huang? Kenapa dia tidak datang mencariku?" tanya Guo Jing. Pelayan itu menggelengkan kepalanya, 
+menunjuk ke telinga dan mulutnya, menandakan bahwa dia tuli dan bisu.
+
+"Huang Yaoshi menusuk gendang telinganya. Kau bisa menyuruhnya membuka mulut lebar-lebar dan melihatnya,"
+kata Zhou Botong sambil terkekeh.
+
+Guo Jing memberi isyarat, meminta pelayan itu untuk membuka mulutnya. Guo Jing kaget dan ketakutan. Lidah pelayan 
+itu telah dipotong menjadi dua.
+
+"Para pelayan Pulau Bunga Persik semuanya seperti itu," kata Zhou Botong. "Kau sudah datang ke sini, dan kalau kau 
+tidak mati, kau juga akan berakhir seperti mereka."
+
+Guo Jing mendengar apa yang dikatakannya dan terdiam lama. "Bagaimana mungkin ayah Rong'er begitu kejam?" pikirnya.
+
+"Si Sesat Tua Huang itu menyiksaku setiap malam," lanjut Zhou Botong. "Aku tidak ingin mengaku kalah. Tadi malam aku 
+hampir jatuh ke tangannya, kalau bukan karenamu, adikku, usahaku selama lebih dari sepuluh tahun untuk melawannya 
+mungkin akan hancur dalam satu malam. Ayo adik kecil, kita punya arak dan makanan. Hari ini kita akan bersumpah untuk 
+menjadi saudara angkat, di masa depan kita akan berbagi rejeki dan menanggung kesulitan bersama. Tahun itu ketika 
+Wang Chongyang dan aku menjadi saudara angkat, ia juga menentang dengan segala cara... Mengapa? Kau benar-benar tidak 
+tahu? Kungfu kakak seperguruanku, Wang Chongyang, jauh lebih tinggi dari aku. Itu sebabnya dia tidak mau bersumpah 
+menjadi saudara denganku. Apa kungfumu juga jauh lebih tinggi dari aku? Kukira tidak."
+
+"Kungfu dizi jauh di bawahmu," jawab Guo Jing. "Aku tidak pantas mengangkat saudara denganmu."
+
+"Kalau kau bilang untuk mengangkat saudara orang harus punya tingkat kungfu yang sama, maka aku harus bersumpah saudara 
+dengan Si Tua Huang, atau Racun Tua," kata Zhou Botong. "Itu konyol! Aku hanya suka bertarung dengan mereka! Apa kau 
+mau saya bersumpah saudara dengan orang tuli dan bisu ini?" Ia menunjuk ke pelayan tua itu dan melompat-lompat 
+marah.
+
+Guo Jing melihat wajahnya yang merah dan ia cepat-cepat berkata, "Dizi dan Qianbei terpisah dua generasi. Kalau dizi 
+mengikuti arahan Qianbei, orang akan menertawakan kita dan mengejek dizi. Kalau dizi bertemu Pendeta Ma dan Pendeta Qiu, 
+dizi akan sangat malu."
+
+"Kau banyak pertimbangan ini-itu. Kau tidak mau bersaudara denganku karena aku terlalu tua," gerutunya. Zhou Botong 
+menutupi wajahnya dan menangis sambil tanpa sadar menarik jenggotnya.
+
+Guo Jing dengan gugup melambaikan tangannya, "Dizi akan melakukan apa pun yang Qianbei perintahkan."
+
+Zhou Botong menangis lebih keras lagi. "Kau bilang begitu karena paksaanku, kau terpaksa setuju, itu tidak masuk 
+hitungan. Nantinya kalau ada orang bertanya, kau akan bilang itu sepenuhnya salahku. Aku tahu kau tidak mau 
+memanggilku kakakmu."
+
+Guo Jing diam-diam merasa geli. Masa orang setua itu tidak bertingkah sesuai usianya. Ia melihatnya mengambil piring 
+dan melemparkannya ke luar, ia ngambek dan tidak mau makan lagi. Pelayan tua itu segera mengambilnya, ia tidak tahu 
+apa yang sedang terjadi dan jadi ketakutan.
+
+Guo Jing tidak punya pilihan, sambil menahan tawa ia berkata, "Karena Kakak sudah begitu baik, masa Adik tidak mau 
+menerima? Ayo kita menggunakan tanah sebagai pengganti dupa dan menjadi saudara angkat."
+
+Zhou Botong tersenyum di balik air matanya. "Aku sudah bersumpah di depan Si Sesat Huang, selama aku tidak bisa 
+mengalahkannya, aku tidak akan pernah meninggalkan lubang ini kecuali untuk buang air besar atau kencing. Aku akan 
+bersujud di dalam, kau bersujud di luar," katanya.
+
+"Kalau kau tidak bisa mengalahkan Huang Qianbei, kau akan tinggal di lubang ini seumur hidupmu?" pikir Guo Jing. Tapi 
+ia tidak mengatakan apa-apa dan hanya berlutut di tanah.
+
+Zhou Botong berlutut di sampingnya, dengan tegas ia berkata, "Hari ini Bocah Tua Nakal[^bocah-tua-nakal], Zhou Botong, 
+dan Guo Jing bersumpah saudara[^jin-lan]. Kami akan saling berbagi suka dan duka. Kalau aku melanggar sumpah ini, 
+semoga kungfuku musnah, supaya aku bahkan tidak bisa melawan anak anjing atau anak kucing."
+
+Guo Jing mendengar ia menyebut dirinya 'Bocah Tua Nakal', dan sumpahnya agak aneh, ia tidak bisa menahan senyum. 
+Zhou Botong menatapnya. "Buat apa kau senyam-senyum? Ayo cepat ucapkan sumpahmu." Guo Jing dengan cepat mengucapkan 
+sumpahnya, lalu keduanya menyiramkan arak ke tanah. Guo Jing kemudian memberi hormat kepada kakak angkatnya yang baru.
+
+Zhou Botong tertawa terbahak-bahak dan berteriak keras, "Cukup! Cukup!" Ia menuangkan arak lagi dan minum. 
+"Si Sesat Tua Huang itu sangat pelit, hanya memberiku arak hambar. Suatu hari seorang nona kecil datang dan membawakan 
+arak yang enak. Sayang sekali dia tidak pernah datang lagi."
+
+Guo Jing ingat Huang Rong pernah menceritakan bagaimana ia mencuri arak dan membawanya ke Zhou Botong, karena itu ia 
+dimarahi oleh ayahnya. Ini membuatnya meninggalkan pulau itu dengan marah. Sepertinya Zhou Botong tidak menyadarinya. 
+Guo Jing lapar sepanjang hari, ia tidak ingin minum arak apapun, tetapi ia makan lima mangkuk besar nasi. Sekarang 
+setidaknya ia kenyang. Begitu keduanya selesai makan, pelayan tua itu membersihkan dan mengambil kembali sisa makanannya.
+
+"Adikku," tanya Zhou Botong. "Bagaimana caramu menyinggung Si Tua Huang itu, coba ceritakan kepada kakakmu ini."
+
+Guo Jing kemudian menceritakan bagaimana ia secara tidak sengaja membunuh Chen Xuanfeng waktu masih kecil. Bagaimana 
+di Rumah Awan ia bertarung dan mengalahkan Mei Chaofeng, bagaimana Huang Yaoshi mempersulit Enam Orang Aneh dari Jiangnan, 
+bagaimana karena itu ia berjanji untuk datang ke Pulau Bunga Persik dalam waktu satu bulan untuk mati, ia memberi tahu 
+Zhou Botong segalanya.
+
+Zhou Botong suka mendengarkan cerita, ia menundukkan kepalanya, menyipitkan mata, dan mendengarkan dengan antusias. 
+Ketika Guo Jing menceritakan sesuatu secara singkat, ia akan menanyakan setiap detilnya. Setiap kali Guo Jing berhenti 
+sejenak, ia mendesaknya, "Lalu apa yang terjadi?"
+
+"Lalu aku tiba di sini," kata Guo Jing mengakhiri ceritanya.
+
+Zhou Botong ragu sejenak. "Hmm... jadi ternyata gadis cilik yang cantik itu adalah putri dari Si Sesat Huang. Dia baik 
+kepadamu. Mengapa dia menghilang segera setelah tiba di pulau ini? Pasti ada alasannya, mungkin Si Sesat Tua Huang 
+mengurungnya."
+
+Kekuatiran Guo Jing tergambar jelas di mukanya. "_Dizi_ juga berpikir begitu..."
+
+Muka Zhou Botong berubah. "Kau bilang apa?" bentaknya.
+
+Guo Jing baru sadar ia membuat kesalahan, dan buru-buru berkata, "Adikmu barusan ngomong sembarangan, tolong jangan 
+pedulikan aku, Kakak!"
+
+Zhou Botong tersenyum. "Caramu memanggilku tidak boleh salah. Kalau kau harus memanggilku dengan nama apa pun, lebih 
+baik kau memanggilku [Laopo](referensi-karakter.md#laopo "Istriku (老婆)"), 
+atau [Mama](referensi-karakter.md#mama "Mama atau Ibu (妈妈)"), 
+atau [Nu'er](referensi-karakter.md#nu-er "Anak perempuan (女儿)."). Enggak, jangan sampai salah!," ujarnya. 
+Guo Jing setuju.
+
+Zhou Botong menyandarkan kepalanya dan bertanya, "Coba tebak bagaimana aku bisa sampai di sini?"
+
+"Adikmu baru saja ingin bertanya," kata Guo Jing.
+
+"Ceritanya panjang, aku akan menceritakan selengkapnya," kata Zhou Botong. "Kau pernah dengar lima pendekar besar, 
+Sesat Timur, Racun Barat, Kaisar Selatan, Pengemis Utara, dan Dewa Pusat, mengadakan pertarungan di Hua Shan?"
+
+Guo Jing menganggukkan kepalanya. "Aku dengar dari cerita orang."
+
+"Saat itu di tengah musim dingin di Hua Shan," lanjut Zhou Botong. "Puncaknya tertutup salju tebal. Lima orang pendekar 
+bertarung selama tujuh hari tujuh malam berturut-turut. Pada akhirnya Sesat Timur, Racun Barat, Kaisar Selatan, dan 
+Pengemis Utara mengakui bahwa kakak seperguruanku, Wang Chongyang adalah nomor satu di dunia. Kau tahu tahu mengapa 
+kelima orang itu bertarung di Hua Shan?"
+
+"Soal itu adikmu belum pernah dengar," jawab Guo Jing.
+
+"Itu karena sebuah kitab..." kata Zhou Botong.
+
+"[Jiu Yin Zhen Jing](referensi-karakter.md#jiu-yin-zhen-jing "Kitab Sembilan Bulan")!" seru Guo Jing.
+
+"Betul!" kata Zhou Botong. "Adikku, kau masih muda, tapi pengetahuanmu tentang urusan dunia persilatan tidak dangkal!
+Kau tahu asal-usul Kitab Sembilan Bulan itu?"
+
+"Soal itu aku sungguh tidak tahu," kata Guo Jing.
+
+Zhou Botong dengan main-main menarik telinga dan rambutnya yang panjang dan wajahnya menunjukkan bahwa ia sangat puas 
+dengan dirinya sendiri. "Beberapa saat yang lalu kau menceritakan cerita yang sangat menarik, sekarang..."
+
+"Yang kuceritakan bukan sekedar cerita, itu benar-benar terjadi," sela Guo Jing.
+
+"Apa bedanya? Asalkan enak didengar," kata Zhou Botong. "Banyak orang menghabiskan hidup mereka untuk makan, tidur, 
+kencing dan berak. Kalau orang-orang itu menceritakan setiap detail kehidupan mereka, Lao Wantong bisa mati sesak napas!"
+
+Guo Jing menganggukkan kepalanya. "Betul," katanya. "Lalu kenapa Dage tidak menceritakan soal Jiu Yin Zhen Jing itu?"
+
+"Kaisar Hui Zong di tahun Zhen He ingin mengumpulkan semua kitab dan buku dari aliran Tao dari seluruh dunia. Dia ingin
+mengedarkan buku-buku itu, yang semuanya terdiri dari 5481 bab. Mereka menyebutnya 
+[Panduan Agama Tao tentang Kehidupan Abadi](referensi-karakter.md#wan-shou-dao-zang "Wan Shou Dao Zang ()").
+Kaisar menugaskan seseorang untuk melaksanakan misi itu, dia disebut Huang Shang..."
+
+"Dia juga dari keluarga Huang?" tanya Guo Jing.
+
+"Bah! Apa sih istimewanya keluarga Huang?" Zhou Botong meludah. "Orang ini tidak ada kaitannya dengan Si Sesat Tua
+Huang Yaoshi, jangan salah kaprah! Banyak orang bermarga Huang di dunia ini, 
+Anjing [Kuning](referensi-karakter.md#huang "Huang (黄) = Kuning")[^huang-gou] 
+atau Kucing Kuning[^huang-mao] juga bermarga Huang."
+
+Dalam hati Guo Jing merasa seekor anjing kuning atau kucing kuning juga belum tentu punya nama yang mengandung
+karakter 'Huang', tapi ia tidak ingin berdebat, maka ia membiarkan Zhou Botong meneruskan uraiannya.
+
+"Si Sesat Tua Huang itu juga tidak sepintar Huang Shang ini," lanjut Zhou Botong. Guo Jing ingin mengatakan, "Ternyata
+dia _juga_ orang yang sangat cerdas." Tapi kalimat itu terhenti di ujung lidahnya.
+
+"Huang Shang yang _ini_ sangat takut akan membuat kesalahan dalam penulisan kanon, karena jika Kaisar mengetahuinya 
+nanti, kepalanya pasti akan copot! Makanya ia membaca berulang-ulang setiap jilid untuk memastikan karyanya bebas dari 
+kesalahan. Di luar dugaan setelah beberapa tahun mempelajari kitab suci, dia jadi sangat akrab dengan doktrin Tao, 
+dia telah menemukan kunci utama ilmu silat di dalamnya. Dia tidak punya guru, jadi dia melatih sendiri ilmu tenaga dalam 
+dan tenaga luar, dan menjadi pendekar besar kungfu. Saudaraku, Huang Shang ini jauh lebih pintar darimu. Aku tidak punya 
+kecerdasan seperti dia dan kurasa kau juga tidak."
+
+"Tentu saja," kata Guo Jing. "Kalau aku harus mempelajari lebih dari lima ribu bab tulisan kitab suci, akan membutuhkan 
+waktu seumur hidup hanya untuk membacanya dari awal sampai akhir. Bagaimana aku bisa memahami kungfu yang ada di 
+dalamnya?"
+
+Zhou Botong menghela nafas. "Orang-orang cerdas seperti ini masih ada di dunia saat ini," katanya, "Tapi kalau kau 
+ketemu orang-orang seperti ini, kemungkinan besar kau akan mengalami nasib sial!"
+
+Guo Jing tidak setuju dengan pandangannya dan diam-diam berpikir, "Rong'er sangat cerdas, tapi sejak aku bertemu 
+dengannya aku selalu menemukan keberuntungan. Bagaimana dia bisa mengatakan 'sial'?" Tapi dia bukan tipe orang yang 
+suka berdebat, jadi ia menyimpan pikirannya dalam hati.
+
+"Huang Shang sudah menguasai kungfu, tapi dia masih memegang jabatan di pemerintahan," lanjut Zhou Botong. "Ada saatnya 
+tiba-tiba muncul gerakan keagamaan di kerajaan, mereka menyebut diri mereka 
+[Sekte Ming](referensi-karakter.md#ming-jiao "Ming Jiao (明教). Ajaran ini adalah cikal-bakal dari Perguruan yang menjadi pilar organisasi yang diketuai oleh Zhang Wuji dalam buku ketiga trilogi ini."). 
+Dikatakan bahwa gerakan ini berasal dari Asia Tengah, sebuah tempat bernama Persia. Para pengikut Sekte Ming ini, 
+pertama – tidak menyembah [Maha Guru Lao](referensi-karakter.md#taishang-laojun "Tai Shang Lao Jun"), kedua – tidak 
+menyembah roh leluhur, ketiga – tidak menyembah Buddha. Mereka hanya menyembah setan asing tua. Mereka tidak makan 
+daging atau minum arak. Mereka vegetarian. Kaisar Hui Zong hanya percaya pada Taoisme; jadi segera setelah dia mengetahui tentang kultus setan ini, dia mengeluarkan dekrit kekaisaran yang menugaskan Huang Shang untuk memberantasnya. Tanpa diduga, ada banyak master seni bela diri di antara anggota sekte tersebut. Mereka tidak takut mati dan melawan Huang Shang dan pasukannya, membuat mereka tidak berguna. Setelah beberapa pertempuran, Huang Shang dan pasukannya menderita kerugian besar. Huang Shang sangat marah. Dia keluar dan menantang master seni bela diri Devil Cult untuk pertarungan satu lawan satu. Dia secara pribadi membunuh beberapa 'imam kekaisaran' [fa wang] dan beberapa utusan. Bagaimana dia bisa tahu bahwa orang yang dia bunuh adalah murid dari karakter Wulin yang terkenal; beberapa adalah paman bela diri, bibi, saudara laki-laki, saudara perempuan atau keluarga dekat mereka. Tentu saja orang-orang itu sangat marah dan mereka berkumpul untuk menghadapinya. Mereka memarahinya karena tidak menangani urusan sesuai dengan kebiasaan Wulin, yang dijawab oleh Huang Shang, 'Saya adalah pejabat pemerintah dan bukan bagian dari dunia Wulin. Apa yang saya ketahui tentang adat Wulin Anda?’ Mereka yang keluarga atau kerabatnya terbunuh berdebat, ‘Jika Anda bukan bagian dari dunia Wulin, lalu bagaimana Anda mengetahui seni bela diri? Apakah Anda mengatakan bahwa guru Anda hanya mengajari Anda seni bela diri tetapi tidak memberi tahu Anda apa pun tentang adat Wulin?’ Huang Shang menjawab, ‘Saya tidak memiliki seorang guru.’ Tentu saja mereka tidak mempercayainya; sehingga mereka terlibat dalam perdebatan sengit. Menurutmu, apa yang terjadi?"
 
 
 
+[^bahasa-halus-1]: Maksud Guo Jing adalah dia tidak dianggap sebagai murid resmi Ma Yu.
 
+[^jin-lan]: Jin Lan (金兰), secara literal berarti 'Anggrek Emas'. Maknanya adalah persaudaraan atau pertemanan yang sangat dekat. Istilah ini banyak digunakan untuk mengangkat saudara. Dampak dari sumpah seperti ini adalah kedua belah pihak harus rela saling berkorban dalam membela saudaranya, bahkan sampai ke tingkat pengorbanan nyawa.
 
+[^bocah-tua-nakal]: Lao Wantong (老顽童), yang secara literal berarti 'Bocah Tua Nakal', atau lebih tepatnya 'Orang tua yang suka bermain-main', adalah julukan Zhou Botong (周伯通).
 
 [^pikongzhang]: Pi Kong Zhang (劈空掌) bisa diartikan 'Telapak Tangan Kosong Pembelah'. Ini jelas sebuah kungfu tangan kosong, barangkali hanya kungfu biasa, tidak ada yang istimewa.
 
 [^jiexiaotang]: Dalam versi bahasa Inggris terjemahan fans hanya ditulis 'Jie Xiao Tang' tanpa karakter aslinya. Makna karakter Xiao (孝) adalah 'berbakti', sedangkan Tang (堂) adalah ruang/gedung/aula. Istilah ini mengacu ke sebuah ruangan dalam kuil. Tidak ditemukan karakter yang cukup meyakinkan untuk 'Jie', kecuali yang bermakna 'perayaan' (节). Karena itu saya membiarkan istilah tersebut seperti aslinya.
 
+[^huang-mao]: Huang Mao (黄猫) berarti 'Kucing Kuning'.
 
-
-
-
-
-
-
+[^huang-gou]: Huang Gou (黄狗) berarti 'Anjing Kuning'.

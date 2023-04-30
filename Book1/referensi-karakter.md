@@ -55,6 +55,11 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         dipanggil Gong Zi, sedangkan "Shaoye" biasa dipakai oleh para pelayan atau bawahan untuk memanggil majikan
         muda mereka di lingkungan keluarganya.
     </dd>
+    <dt id="laoye">Lao Ye (老爺)</dt>
+    <dd>
+        Secara literal berarti 'Tuan Rumah', maknanya adalah pemilik rumah atau tanah yang ditinggalinya. Ini adalah
+        panggilan yang biasa digunakan oleh para pelayan untuk memanggil majikan mereka.
+    </dd>
     <dt id="shaoye">Shao Ye (少爺)</dt>
     <dd>
         Tuan Muda, kurang lebih sama dengan Gong Zi. Tetapi istilah ini umumnya dipakai oleh para pelayan untuk
@@ -338,6 +343,28 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         tunggal di hadapan seorang guru. Dalam versi-versi hasil karya Gan KL/Kho Ping Hoo yang memakai
         istilah dalam dialek Hokkian, istilah ini adalag 'Teecu'.
     </dd>
+    <dt id="neili">Nei Li (内力)</dt>
+    <dd>Maknanya sama dengan Nei Gong, yaitu tenaga dalam.</dd>
+    <dt id="qi">Qi (气 atau 氣)</dt>
+    <dd>
+        Meskipun tulisan transliterasinya sama 'Qi', tetapi ini berbeda dengan Qi (七) yang berarti 'Tujuh' (7).
+        Karakter ini sering diterjemahkan menjadi 'energi vital', 'kekuatan vital', atau hanya 'energi' (tenaga).
+        Arti literalnya adalah 'Udara' atau 'Napas'. Qi adalah prinsip utama di dalam ilmu pengobatan dan juga
+        ilmu bela diri Tiongkok. Ilmu untuk menghimpun, melatih, dan menggunakan Qi disebut Qi Gong (气功).
+        Kalau kita mencoba menerjemahkan kedua karakter 气功 tersebut melalui Google Translate, maka salah satu 
+        hasilnya adalah 'Breathing Exercise' atau 'Latihan Pernapasan'.
+    </dd>
+    <dt id="laopo">Lao Po (老婆)</dt>
+    <dd>Panggilan kepada seorang istri. "Istriku"</dd>
+    <dt id="mama">Mama (妈妈)</dt>
+    <dd>Panggilan umum kepada ibu.</dd>
+    <dt id="nu-er">Nu'er (女儿)</dt>
+    <dd>Panggilan orang tua kepada anak perempuan mereka.</dd>
+    <dt id="huang">Huang (黄)</dt>
+    <dd>
+        Arti literal dari karakter Huang (黄) adalah 'Kuning'. Karakter ini banyak dipakai sebagai nama keluarga/marga 
+        seseorang.
+    </dd>
 </dl>
 
 
@@ -411,8 +438,8 @@ Selebihnya menjadi masuk akal dari sisi _grammar_.
 ### <a name="dantian" id="dantian">Dan Tian (丹田)</a>
 
 Dari sisi sejarah, deskripsi terperinci yang pertama tentang Dan Tian bagian bawah ada di dalam kitab utama dari 
-Laozi[^laozi], atau yang dikenal sebagai Laozi Zhongjing (老子中經) dari abad ke-3 M, yang mengacu pada 
-'daerah ramuan kehidupan', tempat 'esensi' dan 'roh' tersimpan. Itu terkait dengan regenerasi dan 
+[Laozi](#laozi "Filsuf ajaran Tao."), atau yang dikenal sebagai Laozi Zhongjing (老子中經) dari abad ke-3 M, 
+yang mengacu pada 'daerah ramuan kehidupan', tempat 'esensi' dan 'roh' tersimpan. Itu terkait dengan regenerasi dan 
 energi seksual, menstruasi dan air mani.
 
 Wilayah ini terbagi menjadi tiga daerah utama, yaitu:
@@ -423,7 +450,45 @@ Wilayah ini terbagi menjadi tiga daerah utama, yaitu:
 
 Kalau sebuah cerita silat menyinggung soal Dan Tian, umumnya yang dimaksud adalah Xia Dantian.
 
+### <a name="laozi" id="laozi">Lao Zi (老子)</a>
 
-[^laozi]: Laozi (老子) adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi menurut Tao Te Ching sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah Barat.
+Laozi adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi menurut Tao Te Ching sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah Barat.
 
+
+### <a name="bi-hai-chao-sheng-qu" id="bi-hai-chao-sheng-qu">Bi Hai Chao Sheng Qu (碧海潮生曲)</a>
+
+Huang Yaoshi terkenal dengan tiupan seruling maut yang melantunkan lagu ini. Iramanya berubah-ubah
+dan mampu menghanyutkan jiwa orang sampai bertingkah aneh dan tak terkendali. Setelah sampai di
+tahap itu, ia bisa melakukan apa pun yang ingin dilakukannya kepada orang itu, termasuk membuatnya
+bunuh diri.
+
+Arti literal per karakter dari istilah di atas adalah sebagai berikut:
+
+1. Bi (碧) berarti warna biru-hijau atau turquoise, sebagai kata benda bisa berarti Batu Giok. Mengikuti ciri 
+khas Huang Yaoshi, kelihatannya warna Batu Giok yang memang hijau-birulah yang dimaksud.
+2. Hai (海) adalah laut atau lautan.
+3. Chao (潮) bisa bermakna pasang, gelombang, naik-turunnya, atau bahkan 'Laut'. Pendeknya sesuatu yang
+bergelombang, naik-turun, atau pasang-surut berubah-ubah. 
+4. Sheng (生) = Kasar/Mentah/Kaku.
+5. Qu (曲) = Lagu, irama, atau melodi.
+
+Untuk keperluan cerita ini, barangkali kita bisa menerjemahkannya menjadi 'Irama Gelombang Laut Biru'.
+
+### <a name="wan-shou-dao-zhang" id="wan-shou-dao-zhang">Wan Shou Dao Zhang (万寿道藏)</a>
+
+Kanon utama Ajaran Tao (道藏, Dao Zang) atau Taoisme mengenai Kehidupan Abadi (万寿, Wan Shou).
+Makna dari Wan Shou (万寿) sebenarnya adalah 'Umur Panjang'.
+
+(Uraikan lebih dalam mengenai kanon dan istilah Panjang Umur ini)...
+
+### <a name="ming-jiao" id="ming-jiao">Ming Jiao (明教)</a>
+
+Ajaran ini adalah apa yang populer dengan nama latin 'Manikeisme', yang juga dikenal dengan nama Moni Jiao (摩尼教),
+berawal dari seorang 'Nabi' dari Persia yang bernama Mani. Manikeisme masuk ke Tiongkok pada abad ke-7 Masehi.
+
+(Uraikan lebih dalam mengenai Manikeisme di sini)...
+
+### <a name="taishang-laojun" id="taishang-laojun">Tai Shang Lao Jun (太上老君)</a>
+
+Uraikan mengenai tokoh itu di sini...
 
