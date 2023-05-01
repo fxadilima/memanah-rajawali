@@ -526,8 +526,14 @@ bahkan menyanjung Kaisar dengan sebutan Wan Sui Ye (万岁爷).
 Yang kalau kita terjemahkan melalui Google Translate akan menjadi sbb:
 
 
-    Wanshou Dao Zang
-    "Wan Shou Dao Zang", Huizong's imperial edict during the Chongning period of the Northern Song Dynasty searched the world's Taoist posthumous writings, and ordered the Taoist priests to edit them. During the reign of Chongning and Daguan, the number increased to 5387 volumes. Zhenghezhong published the collection of classics, and two imperial edicts searched and visited the Taoist posthumous writings. What they got was a lot. They set up a bureau of economics. Clothes servants cut boards. After the event, the scriptures were entered in Tokyo (now Kaifeng, Henan), with a total of 540 letters and 5481 volumes, named "Zhenghe Wanshou Taoist Collection". Daoist engraving boards began in the Five Dynasties, while all Tibetan publishing boards began here.
+> Wanshou Dao Zang
+> "Wan Shou Dao Zang", Huizong's imperial edict during the Chongning period of the Northern Song Dynasty searched the world's 
+> Taoist posthumous writings, and ordered the Taoist priests to edit them. During the reign of Chongning and Daguan, the 
+> number increased to 5387 volumes. Zhenghezhong published the collection of classics, and two imperial edicts searched and 
+> visited the Taoist posthumous writings. What they got was a lot. They set up a bureau of economics. Clothes servants cut 
+> boards. After the event, the scriptures were entered in Tokyo (now Kaifeng, Henan), with a total of 540 letters and 5481 
+> volumes, named "Zhenghe Wanshou Taoist Collection". Daoist engraving boards began in the Five Dynasties, while all Tibetan 
+> publishing boards began here.
 
 
 (Uraikan lebih dalam mengenai kanon dan istilah Panjang Umur ini)...
