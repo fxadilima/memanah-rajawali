@@ -422,6 +422,18 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Jurus Kodok milik Ouyang Feng.
     </dd>
+    <dt id="lao-wantong">Lao Wantong (老顽童)</dt>
+    <dd>
+        Makna dari tiga karakter di atas adalah 'Orang tua yang suka bermain-main'.
+        Tetapi dalam konteks ini lebih baik kita memakai terjemahan yang sudah melekat di hati masyarakat Indonesia,
+        yaitu 'Bocah Tua Nakal'. Ini adalah julukan Zhou Botong (周伯通).
+    </dd>
+    <dt id="sao-sao">Sao Sao (嫂嫂)</dt>
+    <dd>Adik atau kakak ipar (perempuan).</dd>
+    <dt id="furen">Fu Ren (夫人)</dt>
+    <dd>Setara dengan 'Nyonya', misalnya, Huang Furen berarti Ny. Huang. Yang Furen berarti Ny. Yang</dd>
+    <dt id="ruan-we-jia">Ruan Wei Jia (软猬甲)</dt>
+    <dd>Rompi Kulit Landak yang lembut, hasil karya Huang Yaoshi.</dd>
 </dl>
 
 
