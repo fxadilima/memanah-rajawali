@@ -232,8 +232,7 @@ berhasil mendapatkan Jiu Yin Zhen Jing. Mereka berhasil melatih beberapa jurus i
 kekacauan di mana-mana. Mula-mula aku tidak mempercayainya, tapi gosip itu ternyata semakin kuat. Setahun kemudian
 Qiu Chuji mengunjungi aku di rumah. Kunjungannya berkaitan dengan isu tentang Jiu Yin Zhen Jing. Menurutnya kitab itu
 sungguh-sungguh telah jatuh ke tangan murid-murid Pulau Bunga Persik. Aku sangat marah. Kubilang, 'Huang Laoxie tidak
-layak menjadi sahabatku!' Qiu Chuji terkejut dan bertanya, 'Shishu, kenapa kau bilang Huang Yaoshi tidak layak menjadi
-sahabatmu?'. Aku memberitahu dia, 'Dia pergi sendiri untuk merebut kitab itu kembali dari tangan Ouyang Feng tanpa
+layak menjadi sahabatku!' Qiu Chuji terkejut dan bertanya, 'Shishu[^shishu], kenapa kau bilang Huang Yaoshi tidak layak menjadi sahabatmu?'. Aku memberitahu dia, 'Dia pergi sendiri untuk merebut kitab itu kembali dari tangan Ouyang Feng tanpa
 persetujuanku, dan juga buku itu tidak dikembalikannya kepadaku!'."
 
 [^shishu]: Shishu (师叔) adalah 'Paman Guru', yaitu _adik_ seperguruan dari Sang Guru.
@@ -262,7 +261,7 @@ Guo Jing tidak mengerti. "Bagaimana cara dia mencatatnya?"
 Zhou Botong balik bertanya, "Saudaraku, kalau kau membaca buku, kau perlu membaca bagian tertentu berapa kali sebelum
 _sungguh-sungguh_ bisa menghafal bagian itu?"
 
-"Kalau bagian itu mudah diingat, mungkin tiga pulug sampai empat puluh kali. Kalau susah diingat bisa tujuh puluh
+"Kalau bagian itu mudah diingat, mungkin tiga puluh sampai empat puluh kali. Kalau susah diingat bisa tujuh puluh
 sampai delapan puluh kali, atau bahkan seratus. Bahkan setelah membacanya seratus kali, aku masih belum bisa menjamin
 aku mengingatnya dengan tepat," kata Guo Jing terus terang.
 
