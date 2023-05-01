@@ -1128,7 +1128,7 @@ Guo Jing menganggukkan kepalanya. "Betul," katanya. "Lalu kenapa Dage tidak menc
 "Kaisar Hui Zong di tahun Zheng He ingin mengumpulkan semua kitab dan buku dari aliran Tao dari seluruh dunia. Dia ingin
 mengedarkan buku-buku itu, yang semuanya terdiri dari 5481 bab. Mereka menyebutnya 
 [Panduan Agama Tao tentang Kehidupan Abadi](referensi-karakter.md#wan-shou-dao-zang "Wan Shou Dao Zang (万寿道藏)").
-Kaisar menugaskan seseorang untuk melaksanakan misi itu, dia disebut Huang Shang[^huang-shang]..."
+Kaisar menugaskan seseorang untuk memimpin pelaksanaan misi itu, dia disebut Huang Shang[^huang-shang]..."
 
 "Dia juga dari keluarga Huang?" tanya Guo Jing.
 
@@ -1261,6 +1261,263 @@ Guo Jing diam-diam setuju. Zhou Botong melanjutkan, "Saudaraku dan tujuh muridny
 untuk mencapai kesempurnaan hidup. Tetapi coba kasih tahu aku, apa memang mungkin untuk mengolah tubuh ajaib yang 
 tidak akan tersentuh kematian? Itulah alasan aku tidak ingin mengikuti cara hidup 
 [hidung kerbau](referensi-karakter.md#niubi "Niu Bi (牛鼻), klik untuk membaca penjelasannya.")."
+
+Guo Jing melamun. Zhou Botong melanjutkan, "Beberapa musuh Huang Shang berusia sekitar empat puluh atau lima puluh tahun, tambahkan empat puluh tahun lebih, bagaimana mungkin mereka tidak mati? Hahaha... Sebenarnya ia tidak perlu repot-repot 
+melatih ilmu silatnya dan mengembangkan teknik baru, yang harus dia lakukan hanyalah hidup lebih lama dari musuh-musuhnya. 
+Empat puluh tahun lebih dan Surga yang akan menangani musuh untuknya."
+
+Guo Jing mengangguk. "Yah, kalau begitu mustinya aku mencari Wanyan Honglie untuk membalas dendam atau tidak?" pikirnya.
+
+Zhou Botong kembali berkata, "Tetapi belajar kungfu dengan rajin bisa membawa kesenangan yang tak ada habisnya dalam 
+hidup seseorang. Jika seseorang tidak berlatih kungfu, hal menarik apa lagi yang layak dilakukan? Ada mainan dan gadget 
+yang tak ada habisnya di dunia, tetapi setelah bermain dengan mereka untuk beberapa saat kau akhirnya akan bosan. 
+Dengan kungfu, semakin sering kau mainkan, semakin menarik jadinya. Saudaraku, kau setuju?"
+
+Guo Jing hanya membuat suara 'hmm' tanpa keyakinan, tidak menunjukkan persetujuan atau ketidaksetujuannya. Ia mengakui 
+bahwa mempelajari kungfu bisa menyenangkan, tapi itu juga kerja keras. Ia telah berlatih kungfu sejak masih sangat kecil,
+dan ia tidak bisa mengatakan bahwa pelatihan itu 'menyenangkan'. Ia harus bekerja keras dan menderita, tanpa satu hari 
+pun waktu luang.
+
+Zhou Botong melihat ia tidak terlalu tertarik, "Mengapa kau tidak bertanya apa yang terjadi selanjutnya?" tanyanya.
+
+Guo Jing buru-buru berkata, "Benar! Apa yang terjadi selanjutnya?"
+
+Zhou Botong merajuk, "Kalau kau tidak kadang-kadang mendorongku, aku akan kehilangan minat untuk menceritakan kisah 
+itu lagi."
+
+"Ya, ya, Dage, apa yang terjadi selanjutnya?" desak Guo Jing.
+
+"Huang Shang berpikir, ‘Aku tahu, aku sudah tua sekarang dan tidak punya waktu terlalu lama untuk pekerjaan yang baik.’ 
+Dia sudah menjalani lusinan tahun beratnya berusaha menguasai teknik bela diri dari hampir setiap perguruan kungfu di 
+dunia. Tapi setelah bertahun-tahun, siapa yang akan menikmati pekerjaannya? Bagaimana dia bisa membiarkan pekerjaan 
+seumur hidupnya sia-sia begitu saja? Oleh karena itu, dia memutuskan untuk menyusun teknik yang dikuasainya menjadi 
+buku dua jilid. Buku apa itu?"
+
+"Apa itu?" tanya Guo jing.
+
+"Nah, jangan bilang kau tidak bisa menebak!" kata Zhou Botong.
+
+Guo Jing berpikir sejenak. "Apa itu Jiu Yin Zhen Jing?"
+
+"Kita sudah bicara setengah harian tentang asal-usul Jiu Yin Zhen Jing, kenapa masih tanya?" omel Zho Botong.
+
+Guo Jing tersenyum. "Yah, adikmu cuma takut salah tebak lagi."
+
+Zhou Botong melanjutkan, "Setelah menyusun Jiu Yin Zhen Jing, Huang Shang menulisnya sebagai buku sastra terselubung,
+kakak seperguruanku kemudian mengetahuinya. Huang Shang menyembunyikan buku itu di tempat yang sangat rahasia, 
+sehingga selama puluhan tahun tidak ada yang mengetahui keberadaannya. Entah kenapa buku ini muncul kemudian dan 
+dunia persilatan sedang bermasalah. Semua orang ingin memegangnya. Itu adalah situasi anjing-makan-anjing. Kakak 
+seperguruanku mengatakan bahwa para pendekar yang memperebutkan buku ini dan kehilangan nyawa mereka berasal dari 
+seluruh penjuru dunia persilatan. Jumlahnya lebih dari seratus orang. Setiap kali seseorang memegangnya dan berlatih 
+selama setengah tahun atau satu tahun, orang lain akan menemukan orang itu dan merebut buku itu. Siapa yang tahu 
+berapa kali siklus itu berulang atau berapa nyawa yang harus dibayar. Orang yang mendapatkannya akan berusaha 
+menghindari orang lain, tetapi orang yang mengejarnya sangat banyak dan pada akhirnya mereka akan selalu menemukan 
+orang itu. Terkadang mereka menggunakan kekerasan, terkadang tipu daya dan aku tidak tahu berapa kali buku itu 
+berpindah tangan."
+
+"Kalau itu masalahnya, maka buku ini sebenarnya adalah hal kutukan bagi umat manusia," kata Guo Jing. "Kalau 
+Chen Xuanfeng tidak memiliki buku ini, dia akan dapat hidup damai dengan Mei Chaofeng di desa terpencil dan 
+Huang Laoye tidak akan mencarinya. Kalau Mei Chaofeng tidak memiliki buku ini, dia tidak akan berada dalam kondisi 
+buruk seperti hari ini."
+
+"Saudaraku, mengapa kau punya perasaan seburuk itu tentang buku itu?" tanya Zhou Botong. "Kungfu yang terkandung 
+di dalam Jiu Yin Zhen Jing sangat mendalam dan luar biasa indah. Kalau seseorang bisa mempelajarinya sedikit saja, 
+bagaimana mungkin kehidupan orang itu tidak berubah? Meskipun sudah menimbulkan bencana, apa hubungannya dengan itu? 
+Bukankah aku mengatakan bahwa tidak semua orang mati karenanya?"
+
+"Dage," kata Guo Jing, "Itu karena kau begitu terpesona oleh kungfu."
+
+"Tidak perlu dikatakan lagi," Zhou Botong tersenyum. "Mereka yang berlatih kungfu punya kesenangan yang tak ada habisnya. 
+Orang biasa sangat bodoh, sebagian suka belajar untuk menjadi pejabat pemerintah, sebagian lagi menyukai emas atau 
+perhiasan yang indah, beberapa menyukai wanita cantik, tetapi mereka yang menemukan kesenangan dalam ilmu silat bisa
+berbuat lebih banyak dalam keadaan darurat!"
+
+"Aku sudah belajar sedikit kungfu yang dangkal, tetapi aku belum belajar untuk mendapatkan kesenangan tanpa akhir 
+dari semua itu," kata Guo Jing.
+
+Zhou Botong menghela nafas. "Anak bodoh, anak bodoh, lalu mengapa kau berlatih ilmu silat?".
+
+"Guru-guruku menyuruh aku latihan, maka aku latihan," jawab Guo jing.
+
+Zhou Botong menggelengkan kepalanya. "Wah, kau benar-benar bodoh," katanya. "Kuberitahu ya, seorang pria mungkin tidak 
+menyukai apa yang dia makan, dia mungkin tidak mencintai hidupnya sendiri, tetapi dia tidak bisa tidak berlatih kungfu!"
+
+Guo Jing menjawab sambil berpikir, "Saudaraku ini benar-benar kecanduan kungfu, dan itulah sebabnya dia bertingkah 
+sangat gila." Ia berkata, "Aku lihat Hei Feng Shuang Sha mempraktekkan kungfu dari Jiu Yin Zhen Jing, ternyata 
+benar-benar jahat. Itu sama sekali tidak bisa dipraktekkan."
+
+Zhou Botong menggelengkan kepalanya. "Hei Feng Shuang Sha itu tidak berlatih dengan benar. Jiu Yin Zhen Jing itu 
+lurus dan jujur, mana bisa jahat?"
+
+Guo Jing melihat sendiri kungfu Mei Chaofeng, karena itu ia tidak percaya apa yang barusan didengarnya.
+
+Zhou Botong bertanya, "Cerita kita sampai di mana tadi?"
+
+"Kau bilang orang-orang di seluruh dunia saling berebut Jiu Yin Zhen Jing," jawab Guo jing.
+
+"Itu benar!" kata ZhouBotong. "Setelah itu masalah terus menjadi lebih besar dan lebih rumit sehingga orang-orang 
+seperti Pemimpin Aliran Quanzhen, Majikan Pulau Bunga Persik, Si Tua Huang dan Ketua Kai Pang Hong harus turun tangan. 
+Kelima orang itu sepakat untuk bertemu di Gunung Hua dan mengadakan kontes. Siapa pun yang punya kungfu tertinggi 
+akan mendapatkan buku itu."
+
+"Dan buku itu jatuh ke tangan kakak seperguruanmu?" tanya Guo Jing.
+
+Mata Zhou Botong berbinar. "Itu benar! Kakak seperguruanku Wang Chongyang dan aku teman baik, dia belum menjadi pendeta 
+waktu kami jadi teman baik. Kemudian dia mengajari aku ilmu bela diri. Dia bilang aku latihan kungfu seperti orang gila 
+dan terlalu serius, itu tidak cocok dengan cara Tao mencari kedamaian dan kesempurnaan. Itulah alasannya meskipun 
+kungfuku berasal dari Quanzhen, kakak seperguruanku tidak membiarkan aku menjadi pendeta Tao. Tepatnya, itulah yang 
+kuharapkan. Di antara murid-murid kakak seperguruanku, Qiu Chuji adalah yang punya kungfu paling tinggi. Kakak 
+seperguruanku tidak menyukainya dan bilang Qiu Chuji menghabiskan terlalu banyak waktu untuk latihan kungfu dan 
+lalai mengembangkan keyakinan Taonya. Dia bilang siapa pun yang ingin latihan kungfu harus melakukannya dengan rajin, 
+sedangkan mereka yang memasuki jalan Tao harus melakukannya dengan hati yang sederhana. Keduanya tidak berjalan bersama 
+dengan baik. Ma Yu mewarisi keyakinan Tao dari kakak seperguruanku, tetapi kungfunya sebenarnya lebih rendah dari 
+Qiu Chuji dan Wang Chuyi."
+
+"[Wang Zhenren](referensi-karakter.md#zhen-ren "Pendeta Besar Wang") dari Quanzhen, bagaimana dia bisa menjadi seorang Pendeta Besar Tao, dan sekaligus ahli kungfu?" tanya Guo Jing.
+
+"Bakat alaminya sangat luar biasa. Dia mampu menguasai ilmu silat dengan cukup mudah, sementara aku harus berlatih 
+keras dan rajin." jawab Zhou Botong. "Tadi kita cerita sampai di mana? Kenapa kau mengalihkan perhatianku?"
+
+Guo Jing tersenyum. "Kau tadi bilang kakak seperguruanmu mendapatkan Jiu Yin Zhen Jing."
+
+"Itu benar," kata Zhou Botong. "Setelah dia mendapatkan buku itu, dia tidak belajar apa-apa. Dia memasukkan buku itu 
+ke dalam kotak batu dan menguburnya di bawah batu besar tempat dia duduk bermeditasi setiap hari. Rasanya aneh dan 
+aku tanya ada apa. Dia tersenyum tetapi tidak mengatakan apa-apa. Aku jadi cemas, tapi dia hanya menyuruhku pergi 
+dan memikirkannya. Coba tebak... mengapa dia melakukan hal itu?"
+
+"Dia takut seseorang akan datang dan mencurinya?" tanya Guo Jing.
+
+Zhou Botong berulang kali menggelengkan kepalanya, "Tidak, tidak! Siapa yang berani mencuri barang milik Guru Quanzhen,
+kecuali orang itu sudah bosan hidup?"
+
+Guo Jing termenung lama. Tiba-tiba ia melompat dan berseru, "Benar! Buku itu harus disembunyikan baik-baik, atau 
+lebih baik lagi, itu seharusnya dibakar!"
+
+Zhou Botong tercengang, ia menatap Guo Jing tajam-tajam. "Kakakku saat itu mengatakan hal yang sama, tapi setiap kali 
+dia akan melakukannya, dia ragu-ragu di saat-saat terakhir. Saudaraku, kau tidak sepintar itu, bagaimana kau bisa 
+menebaknya?" tanyanya.
+
+Guo Jing tersipu. "Kupikir kungfu Wang Zhenren sudah nomor satu di dunia, bahkan kalau dia berlatih sendiri dari 
+kitab itu, dia akan tetap menjadi nomor satu. Aku juga berpikir bahwa niatnya pada pertemuan pedang di Hua Shan bukan 
+untuk menjadi yang nomor satu, tetapi untuk mendapatkan Jiu Yin Zhen Jing ini. Dia menginginkannya, bukan untuk 
+mendapatkan keuntungan, melainkan untuk menghindari pertumpahan darah lebih lanjut di antara para pendekar Wulin."
+
+Zhou Botong mengangkat kepalanya dan melihat ke langit, ia tampak seperti orang yang kehilangan semangat. Ia 
+terdiam lama. Guo Jing jadi kuatir, ia takut telah mengatakan sesuatu yang salah dan menyinggung saudara barunya 
+ini, yang punya temperamen aneh. Akhirnya Zhou Botong menghela nafas dan bertanya, "Bagaimana kau bisa memikirkan 
+kebenaran ini?"
+
+"Aku tidak tahu," kata Guo Jing sambil menggaruk kepalanya. "Aku hanya mengira karena buku ini telah menyebabkan 
+banyak kematian, bahkan jika itu adalah buku yang berharga, masih lebih baik jika dihancurkan."
+
+"Aku tahu alasannya, tapi aku tidak pernah memahaminya," kata Zhou Botong. "Kakak seperguruanku sering bilang aku 
+pintar dan secara alamiah berbakat untuk belajar kungfu, juga saya punya tekad untuk mencapai sukses, tapi katanya, 
+pertama-tama aku terlalu terpesona dengan kungfu, dan kedua, aku tidak punya kepedulian terhadap orang lain. 
+Bahkan aku punya waktu seumur hidup untuk melatih diri dengan keras, aku tidak akan pernah mencapai kesempurnaan. 
+Pada saat itu aku mendengarkannya, tetapi tidak mempercayainya dan kupikir, ‘Apa hubungannya latihan untuk menggerakkan 
+kepalan atau tendangan atau menggunakan pedang dengan soal hati?’ Sekitar sepuluh tahun terakhir ini sku merenungkannya 
+dan aku tidak bisa mempercayainya lagi. Saudaraku, hatimu lurus, pikiranmu luas. Sayang sekali kakak seperguruanku 
+meninggal, kalau tidak aku yakin dia akan sangat menyukai kau, dan aku yakin dia akan menurunkan kungfunya yang tak 
+tertandingi itu kepadamu. Kalau saja dia tidak mati..." Mengingat almarhum kakaknya, dia tiba-tiba membungkuk di atas 
+batu dan menangis tersedu-sedu.
+
+Guo Jing tidak begitu mengerti apa yang dikatakannya, tetapi melihat saudaranya menangis sedih, ia tidak bisa menahan 
+rasa iba. Setelah beberapa saat, Zhou Botong tiba-tiba mengangkat kepalanya dan berkata, "Ah! Cerita kita belum selesai, 
+mari kita selesaikan, lalu kita bisa menangis lagi. Sampai dimana kita? Kenapa kau tidak membujukku supaya 
+tidak menangis?"
+
+Guo Jing tersenyum dan berkata, "Kau memberitahuku tentang bagaimana Wang Zhenren menyembunyikan Jiu Yin Zhen Jing 
+di bawah batu besar."
+
+Zhou Botong menepuk pahanya dan berkata, "Benar! Dia menyembunyikan buku itu di bawah batu besar. Aku bertanya apa aku 
+boleh melihatnya, tetapi dia marah. Setelah itu aku tidak berani menanyakannya lagi. Dunia persilatan kembali 
+menikmati kedamaian dan ketenangan untuk sementara waktu. Kemudian kakak seperguruanku meninggal, dan pada saat 
+kematiannya terjadi gangguan yang cukup besar di dunia persilatan."
+
+Ketika Guo Jing mendengar nada suaranya ia jadi gelisah, jelas bahwa gangguan itu pasti tidak kecil. Ia membuka 
+telinganya dan mendengarkan dengan penuh perhatian. Zhou Botong melanjutkan, "Kakak seperguruanku sadar bahwa dia 
+tidak dapat menghindari kematiannya yang akan segera terjadi, karena itu dia mengatur agar kami mengurus urusannya 
+yang belum selesai. Dia bahkan memintaku untuk mengeluarkan Jiu Yin Zhen Jing dan membawanya kepadanya. Dia menyiapkan 
+api dan hendak membakar buku itu. Tetapi setelah mengelus-elus buku itu agak lama, dia menghela nafas panjang dan 
+berkata, 'Buku ini adalah hasil kerja keras seorang senior seumur hidupnya, bagaimana bisa kita hancurkan? Air bisa 
+mengapungkan perahu, namun juga dapat menenggelamkannya, kita harus melihat apakah generasi mendatang memanfaatkannya 
+dengan baik. Tapi aku melarang murid-murid perguruan kita untuk mempraktekkan apa yang ada di buku ini, supaya orang 
+tidak dapat menuduhku ingin mengakangi buku ini untuk keuntungan pribadi.' Setelah mengucapkan kata-kata itu, dia 
+menutup matanya dan meninggal. Malam itu juga, bahkan belum jam ketiga, sesuatu terjadi di kuil."
+
+"Ah!" Guo Jing berteriak. Zhou Botong melanjutkan, "Malam itu juga aku begadang dengan tujuh murid generasi pertama 
+Quanzhen dan terus berjaga di sisi peti mati. Sekitar tengah malam musuh datang. Mereka semua pendekar hebat. Tujuh 
+Pendekar Quanzhen segera keluar dan melawan musuh dalam pertempuran. Mereka takut musuh akan menodai jenazah guru 
+mereka. Akulah satu-satunya yang tersisa menjaga peti mati. Aku mendengar seseorang di luar berteriak, 'Cepat serahkan 
+Jiu Yin Zhen Jing, kalau tidak pelipismu akan terbakar habis.’ Saya melihat ke luar dan tahu-tahu perutku terasa dingin. 
+Aku melihat seorang laki-laki berdiri di dahan pohon dan tubuhnya bergoyang mengikuti gerakan dahan. Itu demonstrasi 
+[Qinggong](referensi-karakter.md#qing-gong "Qing Gong (轻功) = Ilmu meringankan tubuh.") yang luar biasa. Saat itu aku 
+berpikir, 'Qinggong itu jauh lebih bagus dari aku, kalau dia mau, aku ingin mengangkatnya jadi guruku.’ Tapi kemudian 
+aku berubah pikiran, 'Itu salah! Itu salah! Orang ini pasti datang untuk mencuri Jiu Yin Zhen Jing, bukan hanya aku 
+tidak boleh tunduk, malah aku harus melawannya.’ Aku tidak mengenalnya, tapi suka atau tidak, aku harus melawannya. 
+Jadi aku melompat keluar dan bertarung dengannya di atas pohon. Aku melawannya selama tiga puluh atau empat puluh 
+jurus dan aku jadi takut. Musuh itu beberapa tahun lebih muda dariku, tetapi kungfunya sangat dahsyat, sehingga aku 
+kesulitan mengimbanginya. Akhirnya bahuku terpukul oleh telapak tangannya dan jatuh dari pohon."
+
+"Kungfumu begitu tinggi, dan tetap kalah? Siapa orang itu?" tanya Guo Jing.
+
+Zhou Botong menjawab pertanyaan itu dengan balas bertanya, "Kau tidak bisa menebak?"
+
+Guo Jing berpikir sejenak, kemudian berseru, "Racun Barat!"
+
+"Ah!" Zho Botong takjub. "Dari mana kau bisa tahu?"
+
+Guo Jing menjawab, "Adikmu berpikir bahwa orang-orang yang kungfunya lebih tinggi darimu pastilah orang-orang yang 
+terlibat dalam pertandingan besar di Hua Shan. Hong Shifu baik hati, terus terang dan jujur. Kaisar Duan adalah 
+seorang Kaisar, dia tidak akan merendahkan diri sampai mencuri milik orang lain. Adikmu tidak tahu karakter asli 
+Huang Laoye dengan baik, tapi dia orang yang sombong, dan bukan tipe orang yang akan mengambil keuntungan dari 
+kondisi genting orang lain dan menjadi pencuri!"
+
+Dari balik semak-semak bunga tiba-tiba terdengar suara yang jernih dan lantang berseru, "Penilaian 
+[Xiao Chusheng](referensi-karakter.md#xiao-chusheng "Xiao Chu Sheng (小畜生) = Bangsat kecil") ini ternyata bagus!"
+
+Guo Jing melompat ke arah sumber suara itu, tapi gerakan orang itu terlalu cepat. Guo Jing bahkan tidak bisa melihat 
+bayangannya, hanya pohon-pohon yang masih bergoyang dan kelopak bunga berguguran ke tanah.
+
+"Saudaraku, sudahlah!" panggil Zhou Botong. "Itu tadi Si Sesat Tua Huang. Dia sudah jauh."
+
+Guo Jing kembali ke depan gua, sementara Zhou Botong berkomentar, "Sesat Tua Huang ahli dalam teknik lima elemen yang 
+menakjubkan dan aneh, dia mengatur tumbuh-tumbuhan ini sesuai dengan jebakan ala Zhuge Liang di masa lalu."[^jebakan-zhuge-liang]
+
+[^jebakan-zhuge-liang]: Zhuge Liang adalah seorang politisi dan ahli strategi di jaman Tiga Negara, yang membela Liu Bei. Salah satu karya terbesarnya yang masih dikagumi orang sampai detik ini adalah mengatur jebakan dengan jalan berkelok-kelok membentuk jaringan yang sulit dipecahkan. Ia mengaturnya berdasarkan prinsip-prinsip Ba Zhen Du (八阵图, Delapan Diagram), diagram itu sendiri dikembangkan dari Ba Gua (八卦), yang berkaitan erat dengan Taoisme.
+
+"Prinsip Zhuge Liang!" seru Guo Jing takjub.
+
+Zhou Botong menghela nafas, "Benar. [Huang Laoxie](referemsi-karakter.md#huang-laoxie "Si Sesat Tua Huang") ahli 
+dalam musik, catur, kaligrafi dan lukisan, pengobatan, ramalan, dan ilmu perbintangan, juga pertanian dan irigasi, 
+ekonomi dan strategi militer. Tidak ada yang tersembunyi darinya, tidak ada yang tidak dia kuasai. Sayang sekali 
+dia suka menyulitkan Lao Wantong dan kalau bertarung, aku belum tentu menang. Begitu dia terbang ke timur dan barat 
+di antara tumbuh-tumbuhan ini, tidak ada yang bisa menangkapnya."
+
+Guo Jing terdiam lama. Ia sedang memikirkan betapa menakjubkannya kemampuan Huang Yaoshi dan ia sungguh terpesona. 
+Setelah beberapa saat ia teringat ceritanya dan bertanya, "Kakak, kau terkena pukulan Racun Barat dan jatuh dari pohon. 
+Apa yang terjadi selanjutnya?"
+
+Zhou Botong menepuk pahanya dengan keras. "Benar! Kali ini kau tidak lupa mengingatkanku tentang cerita itu," serunya. 
+"Aku terkena telapak tangan Ouyang Feng, rasa sakitnya memasuki jantung dan paru-paruku, dan aku tidak bisa bergerak 
+selama setengah hari. Aku melihatnya bergegas ke ruang berkabung, tetapi aku tidak bisa berbuat apa-apa. Aku terluka 
+parah. Kemudian aku mengertakkan gigi, dan dengan taruhan nyawa aku mengejarnya. Aku melihatnya berdiri di depan peti 
+mati kakak seperguruanku. Dia mengulurkan tangannya untuk mengambil buku dari meja di depan peti mati. Aku mengerang 
+dalam hati. Aku bukan tandingannya dan keponakanku belum kembali dari pertempuran melawan musuh lain di luar. Pada 
+saat kritis ini terdengar suara retakan yang keras, tutup kayu peti mati terbuka dan terbang, meninggalkan lubang 
+menganga di peti mati!"
+
+"Ouyang Feng memukul peti mati itu sampai terbuka dan menghancurkannya?" tanya Guo Jing.
+
+"Tidak, tidak!" jawab Zhou Botong. "Ternyata kakak seperguruanku sendiri yang menggunakan telapak tangannya untuk
+menghancurkan tutup peti mati itu."
+
+Setelah mendengar cerita yang aneh dan tidak masuk akal ini, mata Guo Jing terbelalak dan ia melongo. Tidak mampu
+berkomentar.
+
+
+
+
 
 
 

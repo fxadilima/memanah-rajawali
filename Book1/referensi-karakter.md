@@ -402,6 +402,22 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Sedikitpun tidak mengherankan kalau karakter semacam Zhou Botong dan Zhang Ahsheng yang memang suka bicara
         sembarangan menggunakan istilah ini.
     </dd>
+    <dt id="zhen-ren">Zhen Ren (真人)</dt>
+    <dd>
+        Kedua karakter tersebut jika digabungkan akan bermakna 'Manusia Sejati', tetapi ini sebenarnya adalah
+        sebuah istilah, atau sebutan, yang dipakai untuk memanggil seorang pendeta Tao yang dipandang telah
+        mencapai tingkat pemahaman sangat tinggi, atau sudah mendapat 'pencerahan'. Contohnya adalah Wang Chongyang,
+        pendiri Aliran Quanzhen, dan juga Zhang Sanfeng, pendiri Wudang, keduanya dipanggil Zhenren.
+    </dd>
+    <dt id="qing-gong">Qing Gong (轻功)</dt>
+    <dd>
+        Karakter Qing (轻) berarti 'Ringan' atau 'Lembut'. Sedangkan Gong (功) dalam konteks ini hampir selalu
+        bermakna 'Ilmu'. Istilah ini dalam cerita silat berarti Ilmu Meringankan Tubuh.
+    </dd>
+    <dt id="huang-laoxie">Huang Laoxie (黄老邪)</dt>
+    <dd>
+        Julukan singkat untuk Huang Yaoshi, arti literalnya adalah 'Si Sesat Tua Huang'.
+    </dd>
 </dl>
 
 
