@@ -1516,17 +1516,6 @@ Setelah mendengar cerita yang aneh dan tidak masuk akal ini, mata Guo Jing terbe
 berkomentar.
 
 
-
-
-
-
-
-
-
-
-
-
-
 [^huang-shang]: Sebenarnya istilah Huang Shang (皇上) berarti 'Kaisar'. Tetapi kemungkinan besar tokoh Huang Shang yang diceritakan oleh Zhou Botong bernama 黄上, atau bahkan Shang tersebut memakai karakter yang sama sekali lain.
 
 [^bahasa-halus-1]: Maksud Guo Jing adalah dia tidak dianggap sebagai murid resmi Ma Yu.
