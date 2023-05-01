@@ -107,5 +107,18 @@ setelah permainan selesai baru kita bisa bicara lagi.' Jadi kami sepakat. Setiap
 ke dalam sembilan lubang, jadi aku membuat delapan belas lubang sekaligus. Siapa pun yang memasukkan sembilan kelereng 
 terlebih dahulu akan memenangkan permainan."
 
+Ketika mendengarkan bagian ini, Guo Jing terkenang masa kecilnya waktu bermain kelereng dengan saudara angkatnya Tolui 
+di padang rumput, sebuah senyuman tersungging di wajahnya. Sementara itu Zhou Botong melanjutkan, "Aku selalu membawa 
+banyak kelereng di saku, jadi kami keluar untuk bermain. Aku memperhatikan gerak-gerik Huang Furen, dan aku tahu dia 
+benar-benar tidak mengerti ilmu bela diri. Aku turun dan membuat beberapa lubang di tanah. Aku mempersilakan Huang 
+Laoxie memilih kelerengnya dulu. Lalu kami mulai bermain. Keahlian istimewanya, 
+[Sentilan Jari Dewa](referensi-karakter.md#tan-zhi-shen-tong "Tan Zhi Shen Tong (弹指神通) adalah keterampilan unik Huang Yaoshi yang tidak tertandingi oleh siapa pun.") 
+terkenal di seluruh dunia. Dia tahu keahliannya dengan benda-benda kecil lebih unggul dari aku. Tapi dia tidak tahu 
+kalau permainan ini punya rahasia, ada sedikit perbedaan dalam caraku membuat lubang. Aku membuatnya sedemikian rupa 
+sehingga ketika kelereng masuk, kelereng itu akan langsung melompat keluar. Kau harus menembak kelereng dengan kekuatan 
+yang sempurna, harus tepat dengan sedikit gaya tarik di belakangnya, supaya kelereng akan tetap berada di dalam lubang."
+
+Guo Jing tidak pernah berpikir bahwa bermain kelereng di Central Plains akan sangat rumit; Anak-anak Mongolia tidak akan pernah bisa bersaing. Dia mendengar Zhou Botong dengan bangga melanjutkan, “Old Heretic Huang meluncurkan tiga kelereng dan semuanya tepat sasaran. Tapi begitu mereka memasuki lubang, mereka akan melompat keluar. Dia tidak tahu rahasiaku. Sementara itu saya menjentikkan lima kelereng dan semuanya masuk ke dalam lubang dan tetap tinggal. Keahlian proyektil rahasianya sangat bagus; dia berusaha keras untuk mengejar saya dengan menjentikkan tiga kelereng lagi, sementara saya memasukkan kelereng lain ke dalam lubang. Saya sudah memimpin, bagaimana saya bisa membiarkannya mengejar? Dia mengalami kesulitan dengan kelereng. Diam-diam aku merasa puas, mengira kekalahannya sudah dekat; bahkan Surga tidak akan bisa membantunya. Ay! Siapa yang tahu bahwa Old Heretic Huang akan menggunakan trik kotor untuk meraih kemenangan? Dapatkah Anda menebak apa yang dia lakukan?”
+
 
 

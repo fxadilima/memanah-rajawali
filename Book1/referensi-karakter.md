@@ -434,6 +434,17 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Setara dengan 'Nyonya', misalnya, Huang Furen berarti Ny. Huang. Yang Furen berarti Ny. Yang</dd>
     <dt id="ruan-we-jia">Ruan Wei Jia (软猬甲)</dt>
     <dd>Rompi Kulit Landak yang lembut, hasil karya Huang Yaoshi.</dd>
+    <dt id="nu-wantong">Nu Wantong (女顽童)</dt>
+    <dd>
+        Istilah ini adalah lelucon karangan Huang Yaoshi untuk menggoda Zhou Botong, yang dijuluki Lao Wantong,
+        alias 'Bocah Tua Nakal'. Karakter Nu (女) bermakna 'wanita', ia mengganti Lao dengan Nu maksudnya adalah
+        Nu Wantong ini adalah pasangan Lao Wantong.
+    </dd>
+    <dt id="xiao-wantong">Xiao Wantong (小顽童)</dt>
+    <dd>
+        Istilah ini juga lelucon karangan Huang Yaoshi, maksudnya adalah pasangan Lao Wantong (julukan Zhou Botong)
+        dan Nu Wantong akan melahirkan seorang anak bernama Xiao Wantong. Karakter Xiao (小) berarti 'kecil'. 
+    </dd>
 </dl>
 
 
@@ -594,4 +605,11 @@ hukum keagamaan mereka.
 
 Semua 'Raja' tersebut mereka sebut Hu Jiao Fa Wang (護教法王), yang maknanya kurang lebih adalah 
 'Raja Pengawal Hukum Partai'.
+
+
+### <a name="tan-zhi-shen-tong" id="tan-zhi-shen-tong">Tan Zhi Shen Tong (弹指神通)</a>
+
+Teknik Sentilan Jari adalah keterampilan istimewa dari Huang Yaoshi. Ia mampu menyentil dengan menggunakan
+tenaga jari yang sangat terukur dan tak ada orang lain bisa menyaingi kemampuan ini.
+
 
