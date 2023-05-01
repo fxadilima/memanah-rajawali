@@ -24,11 +24,8 @@ dengan jelas melihatku dari luar jendela ketika aku berada di samping ranjang ka
 kami menempatkan jenazah di dalam peti mati. Sekarang tiba-tiba kakak seperguruanku melompat keluar dari dalam 
 peti mati, dia begitu terkejut sampai seolah-olah darah berhenti mengalir di tubuhnya. Dia ketakutan sampai 
 tidak bisa bergerak. Yi Yang zhi dari kakak seperguruanku mengenai alisnya dan mengalahkan 
-[Jurus Kodoknya](referensi-karakter.md#ha-ma-gong "Ha Ma Gong (蛤蟆功) = Jurus Kodok"). Ouyang Feng kemudian melarikan 
-diri kembali ke barat dan aku belum pernah mendengar dia kembali lagi ke Dataran Tengah. Kakak seperguruanku tertawa 
-panjang dan keras sambil duduk bersila di atas meja. Aku tahu mengerahkan Yi Yang Zhi itu menghabiskan banyak tenaganya, 
-jadi dia perlu bermeditasi dan memulihkan kekuatannya dan aku tidak mengganggunya. Aku berlari keluar dan membantu 
-keponakan-keponakanku menyingkirkan musuh lain yang menyerang. Ketika semua keponakanku mendengar bahwa guru mereka 
+[Jurus Kodoknya](referensi-karakter.md#ha-ma-gong "Ha Ma Gong (蛤蟆功) = Jurus Kodok, ilmu andalan yang menjadi ciri khas Si Racun Barat, Ouyang Feng."). 
+Ouyang Feng kemudian melarikan diri kembali ke barat dan aku belum pernah mendengar dia kembali lagi ke Dataran Tengah. Kakak seperguruanku tertawa panjang dan keras sambil duduk bersila di atas meja. Aku tahu mengerahkan Yi Yang Zhi itu menghabiskan banyak tenaganya, jadi dia perlu bermeditasi dan memulihkan kekuatannya dan aku tidak mengganggunya. Aku berlari keluar dan membantu keponakan-keponakanku menyingkirkan musuh lain yang menyerang. Ketika semua keponakanku mendengar bahwa guru mereka 
 tidak mati, kebahagiaan mereka meluap. Kami bergegas kembali ke kuil tetapi kemudian berhenti di tengah jalan..."
 
 
