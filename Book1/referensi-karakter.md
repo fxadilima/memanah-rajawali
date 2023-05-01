@@ -534,8 +534,8 @@ Yang kalau kita terjemahkan melalui Google Translate akan menjadi sbb:
 
 ### <a name="ming-jiao" id="ming-jiao">Ming Jiao (明教)</a>
 
-Ajaran ini adalah apa yang populer dengan nama latin 'Manikeisme', yang juga dikenal dengan nama Moni Jiao (摩尼教),
-berawal dari seorang 'Nabi' dari Persia yang bernama Mani. Manikeisme masuk ke Tiongkok pada abad ke-7 Masehi.
+Sekte Ming, atau Ming Jiao adalah sebuah gerakan yang beraliran Manikeisme, sebuah _agama_ atau ajaran yang 
+dikembangkan oleh seorang Persia bernama Mani.
 
 (Uraikan lebih dalam mengenai Manikeisme di sini)...
 
@@ -556,12 +556,4 @@ hukum keagamaan mereka.
 
 Semua 'Raja' tersebut mereka sebut Hu Jiao Fa Wang (護教法王), yang maknanya kurang lebih adalah 
 'Raja Pengawal Hukum Partai'.
-
-
-### <a name="ming-jiao" id="ming-jiao">Ming Jiao (明教)</a>
-
-Sekte Ming, atau Ming Jiao adalah sebuah gerakan yang beraliran Manikeisme, sebuah _agama_ atau ajaran yang 
-dikembangkan oleh seorang Persia bernama Mani.
-
-(Teruskan uraiannya di sini)...
 
