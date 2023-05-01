@@ -29,7 +29,7 @@ Untuk keperluan ilustrasi bagi cerita ini, kita cukup memakai kira-kira 1 zhang 
 
 ### <a name="wen" id="wen">Wen (文)</a>
 
-![Uang logam kuno yang berlubang](https://commons.wikimedia.org/wiki/File:China_coin1.JPG#/media/File:China_coin1.JPG)
+![Uang logam kuno yang berlubang](https://res.cloudinary.com/drzjshskk/image/upload/v1682984940/misc/uang-kuno_rv9ujs.png)
 
 Wen adalah salah satu mata uang utama yang mewakili baik uang kertas maupun logam. Uang logam umumnya berlubang di bagian
 tengahnya. Lubang tersebut digunakan untuk mengikat sejumlah koin yang sama untuk menjadikan nilainya lebih besar.
