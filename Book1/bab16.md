@@ -1413,7 +1413,7 @@ banyak kematian, bahkan jika itu adalah buku yang berharga, masih lebih baik jik
 "Aku tahu alasannya, tapi aku tidak pernah memahaminya," kata Zhou Botong. "Kakak seperguruanku sering bilang aku 
 pintar dan secara alamiah berbakat untuk belajar kungfu, juga saya punya tekad untuk mencapai sukses, tapi katanya, 
 pertama-tama aku terlalu terpesona dengan kungfu, dan kedua, aku tidak punya kepedulian terhadap orang lain. 
-Bahkan aku punya waktu seumur hidup untuk melatih diri dengan keras, aku tidak akan pernah mencapai kesempurnaan. 
+Bahkan kalaupun aku punya waktu seumur hidup untuk melatih diri dengan keras, aku tidak akan pernah mencapai kesempurnaan. 
 Pada saat itu aku mendengarkannya, tetapi tidak mempercayainya dan kupikir, ‘Apa hubungannya latihan untuk menggerakkan 
 kepalan atau tendangan atau menggunakan pedang dengan soal hati?’ Sekitar sepuluh tahun terakhir ini sku merenungkannya 
 dan aku tidak bisa mempercayainya lagi. Saudaraku, hatimu lurus, pikiranmu luas. Sayang sekali kakak seperguruanku 
