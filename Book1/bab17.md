@@ -67,7 +67,7 @@ dia bisa mempersulit Ma Yu, Qiu Chuji, dan yang lainnya. Kungfunya terlalu tingg
 Zhou Botong melanjutkan, "Saat itu aku berkata, 'Huang Laoxie, kalau kau marah datang dan cari aku saja, 
 [Bocah Tua Nakal](referensi-karakter.md#lao-wantong "Lao Wantong (老顽童) = Bocah Tua Nakal, julukan Zhou Botong."). 
 Mengapa kau harus mencari keponakanku? Itu kan sama saja _si besar menggertak si kecil_?' Ketika istrinya mendengarku 
-menyebutkan nama panggilanku, 'Lo Wantong', dia tertawa terbahak-bahak dan bilang, 'Kakak Zhou, kau suka bermain-main, 
+menyebutkan nama panggilanku, 'Lao Wantong', dia tertawa terbahak-bahak dan bilang, 'Kakak Zhou, kau suka bermain-main, 
 mari kita lupakan semua ini dan mari kita bermain-main. Aku tidak ingin melihat bukumu yang berharga itu lagi.’ Dia 
 menoleh ke Huang Laoxie dan bilang, ‘Kurasa Jiu Yin Zhen Jing sudah dicuri orang bermarga Ouyang itu, makanya 
 Kakak Zhou tidak bisa menunjukkannya. Kalau kau terus mengganggunya, aku takut kau hanya akan membuatnya kehilangan muka.’ 
