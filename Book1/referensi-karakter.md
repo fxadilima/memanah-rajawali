@@ -489,7 +489,7 @@ Kalau sebuah cerita silat menyinggung soal Dan Tian, umumnya yang dimaksud adala
 
 ### <a name="laozi" id="laozi">Lao Zi (老子)</a>
 
-Laozi adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi menurut Tao Te Ching sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah Barat.
+Laozi adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi menulis Tao Te Ching sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah Barat.
 
 
 ### <a name="bi-hai-chao-sheng-qu" id="bi-hai-chao-sheng-qu">Bi Hai Chao Sheng Qu (碧海潮生曲)</a>
