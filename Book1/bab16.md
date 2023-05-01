@@ -1415,7 +1415,7 @@ pintar dan secara alamiah berbakat untuk belajar kungfu, juga saya punya tekad u
 pertama-tama aku terlalu terpesona dengan kungfu, dan kedua, aku tidak punya kepedulian terhadap orang lain. 
 Bahkan kalaupun aku punya waktu seumur hidup untuk melatih diri dengan keras, aku tidak akan pernah mencapai kesempurnaan. 
 Pada saat itu aku mendengarkannya, tetapi tidak mempercayainya dan kupikir, ‘Apa hubungannya latihan untuk menggerakkan 
-kepalan atau tendangan atau menggunakan pedang dengan soal hati?’ Sekitar sepuluh tahun terakhir ini sku merenungkannya 
+kepalan atau tendangan atau menggunakan pedang dengan soal hati?’ Sekitar sepuluh tahun terakhir ini aku merenungkannya 
 dan aku tidak bisa mempercayainya lagi. Saudaraku, hatimu lurus, pikiranmu luas. Sayang sekali kakak seperguruanku 
 meninggal, kalau tidak aku yakin dia akan sangat menyukai kau, dan aku yakin dia akan menurunkan kungfunya yang tak 
 tertandingi itu kepadamu. Kalau saja dia tidak mati..." Mengingat almarhum kakaknya, dia tiba-tiba membungkuk di atas 
