@@ -1417,7 +1417,7 @@ Bahkan kalaupun aku punya waktu seumur hidup untuk melatih diri dengan keras, ak
 Pada saat itu aku mendengarkannya, tetapi tidak mempercayainya dan kupikir, ‘Apa hubungannya latihan untuk menggerakkan 
 kepalan atau tendangan atau menggunakan pedang dengan soal hati?’ Sekitar sepuluh tahun terakhir ini aku merenungkannya 
 dan aku tidak bisa mempercayainya lagi. Saudaraku, hatimu lurus, pikiranmu luas. Sayang sekali kakak seperguruanku 
-meninggal, kalau tidak aku yakin dia akan sangat menyukai kau, dan aku yakin dia akan menurunkan kungfunya yang tak 
+meninggal, kalau tidak aku yakin dia akan sangat menyukaimu, dan aku yakin dia akan menurunkan kungfunya yang tak 
 tertandingi itu kepadamu. Kalau saja dia tidak mati..." Mengingat almarhum kakaknya, dia tiba-tiba membungkuk di atas 
 batu dan menangis tersedu-sedu.
 
