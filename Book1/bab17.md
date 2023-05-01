@@ -1,10 +1,10 @@
-# Pertarungan Kedua Tangan
+# Bab 17
+## Pertarungan Kedua Tangan
 
-[![Kitab Sembilan Bulan](images/bocah-tua-nakal-diakali-huang-yaoshi)](https://youtube.com/clip/UgkxUV3l5j-kLuGF14ZUmbmAXG0kzAvL-KTc)
 
-_Huang Yaoshi dan Zhou Botong berdebat mengenai Jiu Yin Zhen Jing, dan istri Huang Yaoshi mendengarkan_.
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 17](https://res.cloudinary.com/drzjshskk/image/upload/v1676693001/sdyxz/originals/loch-17_n5qznj.jpg) | _Huang Yaoshi dan Zhou Botong berdebat mengenai Jiu Yin Zhen Jing, dan istri Huang Yaoshi mendengarkan_. |
 
 ***
-
-
 
