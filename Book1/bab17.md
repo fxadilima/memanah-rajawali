@@ -118,7 +118,181 @@ kalau permainan ini punya rahasia, ada sedikit perbedaan dalam caraku membuat lu
 sehingga ketika kelereng masuk, kelereng itu akan langsung melompat keluar. Kau harus menembak kelereng dengan kekuatan 
 yang sempurna, harus tepat dengan sedikit gaya tarik di belakangnya, supaya kelereng akan tetap berada di dalam lubang."
 
-Guo Jing tidak pernah berpikir bahwa bermain kelereng di Central Plains akan sangat rumit; Anak-anak Mongolia tidak akan pernah bisa bersaing. Dia mendengar Zhou Botong dengan bangga melanjutkan, “Old Heretic Huang meluncurkan tiga kelereng dan semuanya tepat sasaran. Tapi begitu mereka memasuki lubang, mereka akan melompat keluar. Dia tidak tahu rahasiaku. Sementara itu saya menjentikkan lima kelereng dan semuanya masuk ke dalam lubang dan tetap tinggal. Keahlian proyektil rahasianya sangat bagus; dia berusaha keras untuk mengejar saya dengan menjentikkan tiga kelereng lagi, sementara saya memasukkan kelereng lain ke dalam lubang. Saya sudah memimpin, bagaimana saya bisa membiarkannya mengejar? Dia mengalami kesulitan dengan kelereng. Diam-diam aku merasa puas, mengira kekalahannya sudah dekat; bahkan Surga tidak akan bisa membantunya. Ay! Siapa yang tahu bahwa Old Heretic Huang akan menggunakan trik kotor untuk meraih kemenangan? Dapatkah Anda menebak apa yang dia lakukan?”
+Guo Jing tidak pernah menduga bermain kelereng di Zhongyuan[^zhong-yuan] ternyata sangat rumit. Anak-anak Mongolia 
+tidak akan pernah bisa bersaing. Ia mendengar Zhou Botong dengan bangga melanjutkan, "Huang Laoxie menyentil tiga 
+kelereng dan semuanya tepat sasaran. Tapi begitu memasuki lubang, biji-biji itu akan melompat keluar. Dia tidak 
+tahu rahasiaku. Sementara itu aku menyentil lima kelereng dan semuanya masuk, dan tetap tinggal. Ilmu menembakkan 
+senjata rahasianya sangat bagus, dia berusaha keras untuk mengejarku dengan menyentil tiga kelereng lagi, sementara 
+aku memasukkan kelereng lain ke dalam lubang. Aku sudah unggul, bagaimana aku bisa membiarkannya mengejar? Dia 
+mengalami kesulitan dengan kelerengnya. Diam-diam aku merasa puas. Aku mengira kekalahannya sudah dekat, bahkan 
+Surga juga tidak akan bisa membantunya. Ay! Siapa sangka ternyata Huang Laoxie akan menggunakan akal bulus untuk 
+menang? Kau bisa menebak apa yang dilakukannya?"
+
+[^zhong-yuan]: Zhong Yuan (中原) maksudnya adalah 'Dataran Tengah', yang berpatokan areal di sekitar Sungai Yangtze. Areal tersebut dari generasi ke generasi dijadikan patokan sebagai asal-usul kebudayaan dan masyarakat Tionghoa pada umumnya. Hal ini terlihat jelas dalam hasil penggalian arkeologi dari situs-situs peninggalan Dinasti Shang yang berpusat pada areal tersebut. Meskipun Dinasti Shang sendiri dari generasi ke generasi selalu berusaha untuk hidup berdampingan dengan cara kawin silang dengan penduduk dari suku di luarnya. Ratu Fu Hao adalah salah satu contoh terbaik.
+
+"Dia melukai tanganmu menggunakan kungfunya yang luar biasa itu?" tebak Guo Jing.
+
+"Wah, salah total!" kata Zhou Botong. "Tidak, tidak! Huang Laoxie jahat, tapi dia tidak bodoh, dia tidak akan 
+menggunakan cara konyol seperti itu. Dia tahu dia akan kalah, jadi dia menyalurkan tenaga dalamnya ke dalam kelereng, 
+dia menyentil tiga kelereng dan mengenai tiga kelereng terakhirku. Punyaku hancur sementara kelerengnya tetap utuh."
+
+"Ah!" seru Guo Jing. "Berarti kau tidak punya sisa biji kelereng lagi?"
+
+"Aku hanya bisa menonton, sementara dia dengan santai memasukkan kelereng-kelerengnya ke dalam lubang," kata Zhou
+Botong kesal. "Aku kalah."
+
+"Tapi itu tidak masuk hitungan!" sela Guo Jing.
+
+"Itulah yang kukatakan," jawab Zhou Botong. "Si Sesat Tua Huang bilang, 'Botong, kita sepakat bahwa siapa pun yang 
+memasukkan kesembilan kelereng ke dalam lubang, dia menang. Salahkan dirimu sendiri! Itu kesalahanmu sendiri, kau 
+tidak punya cukup kelereng untuk dimasukkan ke dalam lubang. Karena itu, kau kalah!' Aku masih berpikir dia curang, 
+tetapi aku harus mengakui, aku menduga dia akan mengambil langkah itu. Dan juga, bahkan jika aku ingin menghancurkan 
+kelerengnya, aku tidak bisa melakukan seperti apa yang dia lakukan. Aku tidak bisa memukul kelereng tanpa menghancurkan 
+kelerengku sendiri. Jadi aku diam-diam mengagumi kemampuannya. Aku bilang, 'Huang Dasao[^da-sao], aku mengijinkan 
+kau melihat buku itu, tetapi kau harus mengembalikannya sebelum matahari terbenam.' Saya bilang begitu karena aku 
+takut mereka akan bilang, 'Kami tidak mengatakan berapa lama kami akan meminjam buku itu. Kami belum selesai membacanya 
+jadi kenapa kau mengambilnya kembali?' Jika itu terjadi, buku itu akan berada di tangan mereka selama sepuluh atau 
+bahkan seratus tahun. Itu celaka!"
+
+[^da-sao]: Panggilan untuk kakak ipar perempuan, [baca juga Sao Sao](referensi-karakter.md#sao-sao).
+
+Guo Jing mengangguk setuju. "Benar! Untungnya Dage pintar dan bisa meramalkan hal ini. Kalau aku, aku akan tertipu 
+oleh akal-akalan mereka."
+
+Zhou Botong menggelengkan kepalanya, "Bicara tentang kecerdasan, siapa yang bisa dibandingkan dengan Huang Laoxie? 
+Aku tidak tahu caranya, tapi dia berhasil menemukan seorang istri yang sepintar dia. Saat itu Huang Dasao hanya 
+tersenyum tipis, dia bilang, 'Kakak Zhou, kau dikenal sebagai Lao Wantong, tapi kau pintar. Kau takut itu akan sama 
+dengan Liu Bei yang meminjam kota Jingzhou selamanya, kan? Jangan kuatir. Aku akan duduk di sini, di depan matamu, 
+dan aku tidak akan bersembunyi di tempat rahasia. Kalau kau merasa tidak nyaman, kau bisa tetap di sisiku dan 
+berjaga-jaga.' Aku mendengarkan dia mengatakan hal ini dan aku mengambil buku itu dari sakuku, lalu menyerahkannya 
+kepadanya. Huang Dasao mengambilnya dan berjalan ke pohon dan duduk di atas batu yang terbalik. Huang Laoxie melihatku 
+masih ragu dan bilang, 'Lao Wantong, di jaman sekarang ini, berapa banyak orang yang bisa mengalahkan kungfu kita 
+berdua?' Kujawab, 'Tidak ada yang bisa mengalahkanmu, tetapi untuk mengalahkanku, termasuk kau sendiri, masih ada 
+empat atau lima orang!' Huang Laoxie tersenyum, 'Kau menyanjungku. Sesat Timur, Racun Barat, Kaisar Selatan, dan 
+Pengemis Utara adalah empat orang dan masing-masing memiliki kekuatannya sendiri, kami berempat seimbang. 
+Jurus Kodok Ouyang Feng sudah dipatahkan oleh kakak seperguruanmu, jadi selama sepuluh tahun dia tidak akan mampu 
+bersaing dengan kita. Ada 
+[Tie Zhang Shui Shang Piao](referensi-karakter.md#tie-zhang-shui-shang-piao "(铁掌水上飘) = Telapak Tangan Besi Terapung Di Air"), 
+Qiu Qianren dan aku pernah mendengar kungfunya bagus, tetapi karena dia tidak datang dalam 
+[Hua Shan Lun Jian](referensi-karakter.md#hua-shan-lun-jian "Pertandingan di Hua Shan (华山论剑)"), 
+aku tidak yakin kungfunya istimewa. Lao Wantong, aku percaya selain orang-orang ini, kungfumu adalah nomor satu. 
+Kalau kita gabungkan kekuatan kita, tidak akan ada yang bisa mengalahkan kita.' Aku bilang, 'Tentu saja!' 
+Huang Laoxie kemudian bertanya, 'Lalu buat apa kau begitu cemas? Dengan kita berdua berdiri di sini, siapa di dunia 
+ini yang bisa datang dan mencuri bukumu yang berharga itu?' Dia sangat masuk akal, jadi aku merasa lebih baik. 
+Kulihat Huang Furen membolak-balik halaman demi halaman dan dia membaca dengan penuh perhatian dari awal, bibirnya 
+bergerak-gerak sedikit yang menurutku agak lucu. Jiu Yin Zhen Jing berisi kungfu rahasia tingkat tinggi, bahkan jika 
+dia fasih dalam sastra, aku kuatir dia tidak akan mengerti bahkan setengah kata pun. Dia membaca perlahan dari awal 
+sampai akhir dengan sabar dan teliti. Aku menunggu dengan tidak sabar sampai dia akhirnya membalik halaman terakhir. 
+Aku pikir dia sudah selesai, tetapi dia tiba-tiba membuka halaman pertama dan membaca lagi. Tapi kali ini dia membaca 
+dengan cepat dan selesai dalam waktu yang dibutuhkan untuk minum secangkir teh. Dia mengembalikan buku itu kepadaku 
+dan tersenyum, 'Kakak Zhou, kau ditipu Racun Barat, ini bukan Jiu Yin Zhen Jing!' Aku terkejut. Aku bertanya, 'Apa 
+maksudmu bukan? Jelas ini peninggalan kakak seperguruanku dan buat aku kelihatannya bagus!' Huang Furen menjawab, 
+'Apa gunanya buku ini? Ouyang Feng jelas-jelas menukar bukumu dengan salinan murahan tentang ilmu ramalan'."
+
+"Apa mungkin Ouyang feng menukar kitab itu sebelum Wang Zhenren keluar dari peti mati?" tanya Guo Jing.
+
+"Tadinya kupikir begitu," jawab Zhou Botong. "Tapi aku sudah lama tahu Huang Laoxie sangat lihai. Aku juga tidak 
+percaya apa yang dikatakan istrinya. Huang Furen melihatku berdiri diam, dia tahu aku meragukan kata-katanya, 
+jadi dia bertanya, 'Kakak Zhou, bagaimana kau tahu ini adalah Jiu Yin Zhen Jing yang asli?' Kubilang, 'Sejak 
+kakak seperguruanku memperoleh kitab itu, tak ada orang yang pernah melihat isinya. Kakak seperguruanku bilang 
+bahwa dia berjuang selama tujuh hari tujuh malam untuk menghindari pertumpahan darah lebih lanjut di dunia persilatan, 
+bukan untuk keuntungan pribadinya. Oleh karena itu, dia melarang murid-murid Quanzhen mempelajari kungfu apa pun 
+dari buku ini.' Huang Furen kemudian berkata, 'Wang Zhenren punya hati yang adil dan jujur, benar-benar pantas 
+mendapatkan kekaguman yang tak ada habisnya. Meski begitu, ada orang lain yang tak segan-segan menipunya. 
+Kakak Zhou, silakan lihat bukunya.' Aku ragu-ragu, mengingat kata-kata terakhir almarhum kakak seperguruanku 
+yang tidak berani kubantah. Huang Furen melanjutkan, 'Ini adalah buku ramalan yang tersedia di mana saja di Jiangnan dan harganya tidak sampai setengah [wen](referensi-unit.md#wen "Wen adalah mata uang pada saat itu."). Selain itu, 
+bahkan jika buku ini adalah Jiu Yin Zhen Jing yang sebenarnya, tidak apa-apa untuk melihat selama kau tidak 
+belajar apa pun dari situ, kan?' Jadi aku membuka buku itu dan membaca halaman pertama. Bagiku buku itu sepertinya menjelaskan metode dan teknik berlatih seni bela diri, di bagian mana urusan ramalan itu? Huang Furen bilang, 
+'Aku sudah bermain dengan buku semacam ini sejak umur lima tahun. Aku tahu isinya dari awal sampai akhir. Dari 
+kami anak-anak Jiangnan, sembilan dari sepuluh mengenalnya. Kalau kau tidak percaya, dengarkan saja ini.' 
+Setelah mengatakan itu, kata-kata mulai mengalir seperti air dari mulutnya, dia membaca buku itu dari awal 
+sampai akhir. Aku melihat buku itu untuk melihat apakah dia benar-benar menghafalnya. Memang tidak ada satu 
+kata pun yang salah. Tubuhku jadi dingin, seolah-olah aku diceburkan ke dalam lubang yang penuh dengan es. 
+Huang Furen juga bilang, 'Tidak peduli halaman mana yang kau ingin kubacakan, selama kau membaca bagian awalnya, 
+aku bisa membacakan sisanya. Aku sudah membaca buku semacam ini sejak masih kecil, jadi aku tidak akan melupakan 
+isinya.' Aku memilih beberapa bagian seperti yang dia katakan dan dia membacanya tanpa ragu. "
+
+Huang Laoxie tertawa terbahak-bahak. Aku sangat marah. Aku merobek buku itu sampai jadii potongan kecil-kecil dan 
+kemudian membakarnya. Huang Laoxie bilang, 'Lao Wantong, kau tidak perlu marah. Biar Ruan Wei Jia ini kuhadiahkan 
+kepadamu.' Aku sama sekali tidak sadar kalau aku masuk ke dalam jebakannya. Kupikir aku pasti tampak sangat kesal,
+jadi dia ingin menghiburku. Aku kesal tetapi bagaimana aku bisa mengambil harta karun Pulau Bunga Persik? Jadi 
+aku berterima kasih kepadanya tanpa mengambil hadiahnya. Aku pulang ke kampung halamanku dan menutup pintu dari 
+dunia. Aku ingin melatih kungfuku. Aku tahu saat itu aku bukan tandingan Ouyang Feng, jadi aku bertekad untuk 
+berlatih keras selama lima tahun. Kupikir aku akan pergi ke barat untuk mengambil kembali buku itu dari Racun Barat. 
+Kakak seperguruanku mempercayakan buku itu kepadaku dan Lao Wantong tidak bisa menyimpannya dengan aman. 
+Bagaimana aku bisa menghadapi kakak seperguruanku di dunia akhirat?"
+
+"Racun Barat sangat licik. Aku tahu kau harus menghadapinya, tapi bukankah lebih baik kalau kau juga mengajak
+Pendeta Ma, Pendeta Qiu, dan yang lain juga?" tanya Guo Jing.
+
+"Ay! Aku hanya bisa menyalahkan kesombonganku sendiri," keluh Zhou Botong. "Setelah mengalami dipermalukan seperti itu,
+aku tidak mau bicara dengan Ma Yu dan yang lain. Kalau tidak, pasti mereka bisa segera melihat ada sesuatu yang salah.
+Beberapa tahun kemudian, ada desas-desus di dunia persilatan bahwa murid dari Pulau Bunga Persik, Hei Feng Shuang Sha,
+berhasil mendapatkan Jiu Yin Zhen Jing. Mereka berhasil melatih beberapa jurus istimewa dari kitab itu, dan menciptakan
+kekacauan di mana-mana. Mula-mula aku tidak mempercayainya, tapi gosip itu ternyata semakin kuat. Setahun kemudian
+Qiu Chuji mengunjungi aku di rumah. Kunjungannya berkaitan dengan isu tentang Jiu Yin Zhen Jing. Menurutnya kitab itu
+sungguh-sungguh telah jatuh ke tangan murid-murid Pulau Bunga Persik. Aku sangat marah. Kubilang, 'Huang Laoxie tidak
+layak menjadi sahabatku!' Qiu Chuji terkejut dan bertanya, 'Shishu, kenapa kau bilang Huang Yaoshi tidak layak menjadi
+sahabatmu?'. Aku memberitahu dia, 'Dia pergi sendiri untuk merebut kitab itu kembali dari tangan Ouyang Feng tanpa
+persetujuanku, dan juga buku itu tidak dikembalikannya kepadaku!'."
+
+[^shishu]: Shishu (师叔) adalah 'Paman Guru', yaitu _adik_ seperguruan dari Sang Guru.
+
+"Kurasa dia berniat melakukannya, tapi tepat setelah dia mendapatkan kembali buku itu, buku itu dicuri oleh 
+murid-muridnya," kata Guo Jing. "Aku tahu dia sangat marah karena ini, jadi dia mematahkan persendian di kaki 
+murid-muridnya yang tidak bersalah dan mengeluarkan mereka dari perguruannya."
+
+Zhou Botong menggelengkan kepalanya. "Kau sama naifnya seperti aku. Kalau urusan ini terjadi padamu, kau pasti akan ditipu 
+tanpa menyadarinya," katanya. "Hari itu Qiu Chuji mendiskusikan kungfu dengan aku dan kami bicara panjang lebar sebelum 
+akhirnya dia pergi. Dua bulan kemudian dia tiba-tiba muncul kembali. Dia sudah mengunjungi Chen Xuanfeng dan Mei Chaofeng, 
+pasangan yang mencuri buku Huang Laoxie. Mereka berlatih Jiu Yin Baigu Zhua dan Cui Xin Zhang, dua kungfu sesat. Dia 
+mengambil risiko besar untuk menguping percakapan Hei Feng Shuang Sha itu, dan menemukan bahwa Huang Laoxie _bukan_ 
+mendapatkan buku itu dari Ouyang Feng. Tidak sama sekali... dia mencurinya dari _tanganku_."
+
+"Tapi kau sudah membakar kitab itu, masa Huang Furen menukar kitab itu dengan yang palsu sebelum mengembalikannya
+kepadamu?" tanya Guo Jing.
+
+"Aku justru sudah mewaspadai kemungkinan itu sejak awal," kata Zhou Botong. "Ketika Nyonya Huang melihat buku itu, 
+aku tidak berani bergerak bahkan setengah langkah pun dari sisinya. Dia tidak bisa kungfu sama sekali. Bahkan jika 
+tangan dan kakinya gesit dia tidak bisa lepas dari kita, yang sudah berlatih melontarkan dan menghadapi senjata rahasia. 
+Tidak, dia tidak menukarnya, dia hanya mencatatnya di benaknya!"
+
+Guo Jing tidak mengerti. "Bagaimana cara dia mencatatnya?"
+
+Zhou Botong balik bertanya, "Saudaraku, kalau kau membaca buku, kau perlu membaca bagian tertentu berapa kali sebelum
+_sungguh-sungguh_ bisa menghafal bagian itu?"
+
+"Kalau bagian itu mudah diingat, mungkin tiga pulug sampai empat puluh kali. Kalau susah diingat bisa tujuh puluh
+sampai delapan puluh kali, atau bahkan seratus. Bahkan setelah membacanya seratus kali, aku masih belum bisa menjamin
+aku mengingatnya dengan tepat," kata Guo Jing terus terang.
+
+"Kalau bicara soal kemampuan otak," kata Zhou Botong. "Kau sama sekali tidak bisa dibilang pintar."
+
+"Adikmu ini secara alamiah memang bodoh," kata Guo Jing mengakui. "Tak peduli belajar sastra atau ilmu silat, aku
+selalu saja lambat."
+
+Zhou Botong menghela nafas. "Kita tidak usah bicara soal sastra dan literatur," katanya. "Kalau belajar kungfu,
+apa gurumu harus mengulangi sampai lusinan kali sebelum kau mengerti apa maksud mereka?"
+
+Muka Guo Jing memerah. "Betul. Kadang-kadang aku paham, tapi tidak bisa mengingatnya. Kadang aku bisa mengingatnya,
+tapi tidak bisa mempraktekkannya."
+
+"Tapi ada orang-orang tertentu di dunia ini, yang cukup dengan melihat orang lain memasang kuda-kuda, mereka langsung
+bisa mengingat semuanya selamanya," kata Zhou Botong.
+
+"Benar sekali!" Seru Guo Jing. "Putri Huang Laoye memang seperti itu. Ketika Hong Enshi[^enshi] mengajarinya kungfu, 
+paling banyak dia akan mengajarinya dua kali, sangat jarang dia harus mengulang pelajaran tiga kali."
+
+[^enshi]: En Shi (恩師), Guru Yang Baik. Ini setara dengan Shifu, tetapi ditambah dengan ungkapan kasih yang lebih khusus, menandakan bahwa Sang guru tersebut adalah juga penolongnya.
+
+
+
+
+
+
+
+
+
 
 
 

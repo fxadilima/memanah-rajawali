@@ -55,7 +55,7 @@ Gege (哥哥) = Koko (kakak laki-laki).
 Diē (爹, dibaca: Tiē) = 'Ayah'.
 
 Shi Bo (師伯) = Paman/Bibi guru, yang lebih tinggi tingkatnya daripada sang guru.
-Shi Su (師叔) = Paman/Bibi guru, yang lebih rendah tingkatnya daripada sang guru.
+Shi Shu (師叔) = Paman/Bibi guru, yang lebih rendah tingkatnya daripada sang guru.
 
 
 Zai Xia (载下) = istilah dalam bentuk orang ketiga tunggal untuk diri sendiri,

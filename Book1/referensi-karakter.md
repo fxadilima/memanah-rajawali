@@ -613,3 +613,44 @@ Teknik Sentilan Jari adalah keterampilan istimewa dari Huang Yaoshi. Ia mampu me
 tenaga jari yang sangat terukur dan tak ada orang lain bisa menyaingi kemampuan ini.
 
 
+### <a name="tie-zhang-shui-shang-piao" id="tie-zhang-shui-shang-piao">Tie Zhang Shui Shang Piao (铁掌水上飘)</a>
+
+Gabungan dari lima karakter ini kurang lebih bermakna 'Telapak Besi Mengapung Di Atas Air'. Dengan arti literal
+per karakter bisa diterjemahkan sebagai berikut:
+
+- Tie (铁) = Besi
+- Zhang (掌) = Telapak Tangan
+- Shui (水) = Air
+- Shang (上) = Di atas
+- Piao (飘) = Terapung
+
+Julukan ini sendiri mengandung unsur keras (besi) dan juga ringan (terapung di air). Ini adalah julukan populer dari
+Qiu Qianren.
+
+### <a name="hua-shan-lun-jian" id="hua-shan-lun-jian">Hua Shan Lun Jian (华山论剑)</a>
+
+Istilah ini dipakai sebagai nama _event_, yaitu pertandingan antar lima pendekar besar di dunia persilatan,
+yang melibatkan Wang Chongyang, Huang Yaoshi, Ouyang Feng, Hong Qigong, dan Kaisar Duan dari Dali, untuk
+menentukan siapa yang terkuat dari mereka semua.
+
+Meskipun istilah ini menggunakan karakter Jian (剑) yang berarti "Pedang", tetapi pada kenyataannya belum tentu
+ada yang memainkan pedang sungguhan. Kenyataannya dari semua peserta, tak satu pun mengandalkan pedang sebagai
+senjata. Kalau pun Huang Yaoshi memiliki kungfu yang disebut 'Ilmu Pedang Dewa', itu ternyata adalah sebuah jurus
+tangan kosong, di mana telapak tangan dan jari memainkan peranan pedang.
+
+Saya bertanya-tanya, mengapa nama yang dipilih di sini memakai karakter Lun (论), dan bukan istilah lain, misalnya
+Bi Wu (比武), atau Pi Bu dalam istilah versi Kho Ping Hoo/Gan KL?
+
+Istilah Lun (论) yang dipakai di sini secara literal lebih bermakna halus, seperti diskusi, adu argumentasi, debat,
+atau yang paling relevan barangkali **Forum** dan juga **Turnamen**.
+
+Kalau diteliti dari cerita Pendeta Ma Yu kepada Enam Orang Aneh dari Jiangnan, dan juga Guo Jing, ketika mereka
+sedang bersiap untuk menghadapi Mei Chaofeng di puncak tebing Mongolia, sebenarnya _event_ tersebut juga adalah
+ajang diskusi, tukar penndapat, dan debat, mengenai ilmu silat. Dan bukan hanya adu ilmu dalam arti adu fisik.
+
+
+
+
+
+
+
