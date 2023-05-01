@@ -511,10 +511,24 @@ bergelombang, naik-turun, atau pasang-surut berubah-ubah.
 
 Untuk keperluan cerita ini, barangkali kita bisa menerjemahkannya menjadi 'Irama Gelombang Laut Biru'.
 
-### <a name="wan-shou-dao-zhang" id="wan-shou-dao-zhang">Wan Shou Dao Zhang (万寿道藏)</a>
+### <a name="wan-shou-dao-zang" id="wan-shou-dao-zang">Wan Shou Dao Zang (万寿道藏)</a>
 
 Kanon utama Ajaran Tao (道藏, Dao Zang) atau Taoisme mengenai Kehidupan Abadi (万寿, Wan Shou).
-Makna dari Wan Shou (万寿) sebenarnya adalah 'Umur Panjang'.
+Makna dari Wan Shou (万寿) sebenarnya adalah 'Umur Panjang'. Karakter Wan (万) secara literal berarti 'puluhan ribu'.
+Ini mirip dengan istilah Wan Sui (万岁) yang digunakan untuk menyanjung Kaisar. Dalam drama tertentu seorang kasim
+bahkan menyanjung Kaisar dengan sebutan Wan Sui Ye (万岁爷).
+
+[Referensi](https://www.zwbk2009.com/index.php?title=%E4%B8%87%E5%AF%BF%E9%81%93%E8%97%8F) 
+
+万寿道藏
+《万寿道藏》，北宋崇宁年间徽宗诏令搜访天下道教遗书，就书艺局令道士校订。至崇宁、大观年间，又增至5387卷。政和中刊藏典，又两诏郡国搜访道门遗书，所获甚夥，乃设经局，敕道士元妙宗、王道坚详加校订，送龙图阁直学士中大夫福州郡守黄裳役工镂板。事毕，进经板于东京（今河南开封），共540函，5481卷，名曰《政和万寿道藏》。道书雕板，始于五代，而全藏刊板，则始于此。
+
+Yang kalau kita terjemahkan melalui Google Translate akan menjadi sbb:
+
+
+    Wanshou Dao Zang
+    "Wan Shou Dao Zang", Huizong's imperial edict during the Chongning period of the Northern Song Dynasty searched the world's Taoist posthumous writings, and ordered the Taoist priests to edit them. During the reign of Chongning and Daguan, the number increased to 5387 volumes. Zhenghezhong published the collection of classics, and two imperial edicts searched and visited the Taoist posthumous writings. What they got was a lot. They set up a bureau of economics. Clothes servants cut boards. After the event, the scriptures were entered in Tokyo (now Kaifeng, Henan), with a total of 540 letters and 5481 volumes, named "Zhenghe Wanshou Taoist Collection". Daoist engraving boards began in the Five Dynasties, while all Tibetan publishing boards began here.
+
 
 (Uraikan lebih dalam mengenai kanon dan istilah Panjang Umur ini)...
 
