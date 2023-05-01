@@ -418,6 +418,10 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Julukan singkat untuk Huang Yaoshi, arti literalnya adalah 'Si Sesat Tua Huang'.
     </dd>
+    <dt id="ha-ma-gong">Ha Ma Gong (蛤蟆功)</dt>
+    <dd>
+        Jurus Kodok milik Ouyang Feng.
+    </dd>
 </dl>
 
 
