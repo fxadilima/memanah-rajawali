@@ -699,14 +699,14 @@ tetapi justru ruang _kosong_ di dalamnya yang bisa ditinggali.
 Kesimpulan dari uraian di atas berada di baris terakhir berikut, yang diambil dari 3 terjemahan bahasa Inggris dari
 teks yang sama.
 
-- **Terjemahan 1**
-  Therefore consider: advantage comes from having things
+- **Terjemahan 1**    
+  Therefore consider: advantage comes from having things    
   And usefulness from having nothing.
-- **Terjemahan 2**
-  Thus being is beneficial,
+- **Terjemahan 2**    
+  Thus being is beneficial,    
   but usefulness comes from the void.
 - **Terjemahan 3**
-  Thus do we
-  create what is
-  to use what is not.
+  Thus do we    
+  create what is    
+  to use what is not.    
 
