@@ -449,11 +449,35 @@ Dengar, dan aku akan mengajarimu teknik ini." Guo Jing menahan rasa sakit dan me
 
 [^hao-xiongdi]: Hao Xiongdi (好兄弟) = Adik Yang Baik.
 
-Zhou Botong berkata, "Dalam [Dao De Jing](referensi-karakter.md#dao-de-jing "Kitab Taoisme") yang ditulis Laozi ada 
+Zhou Botong berkata, "Dalam [Dao De Jing](referensi-karakter.md#dao-de-jing "Kitab Suci Taoisme") yang ditulis Laozi ada 
 pepatah, 'Perabotan dari tanah liat berguna karena kosong, ruangan berguna karena kosong.'[^pepatah-1] Kau mengerti 
 makna pepatah ini?"
 
-[^pepatah-1]: 三十輻，共一轂，當其無，有車之用。埏埴以為器，當其無，有器之用。鑿戶牖以為室，當其無，有室之用。故有之以為利，無之以為用。
+[^pepatah-1]: Zhou Botong mengutip ayat ke-11 dari Dao De Jing, yang di baris akhir mengandung sebuah kesimpulan, Gù yǒu zhī yǐwéi lì, wú zhī yǐwéi yòng (故有之以为利，无之以为用). 'Karena itu, _keberadaan_ adalah keuntungan, sedangkan _kekosongan_ adalah kegunaan.' Untuk lebih jelasnya, silakan membaca [kutipan Dao De Jing ini](referensi-karakter.md#dao-de-jing). Kalau ingin menerjemahkan secara lebih bebas, saya kira akan berarti _segala yang kita lihat adalah keuntungannya, sedangkan yang tidak terlihat adalah kegunaannya_.
+
+Pengetahuan sastra Guo Jing sangat terbatas, jadi tentu saja ia tidak mengerti maksud kutipan itu. Ia hanya tersenyum 
+malu-malu dan menggelengkan kepalanya.
+
+Zhou Botong mengambil mangkuk nasi yang mereka gunakan sebelumnya. "Mangkuk ini sebelah dalamnya kosong, makanya kita bisa 
+mengisinya dengan nasi. Jika ini adalah gumpalan tanah liat yang padat, bagaimana kita bisa memasukkan makanan ke dalamnya?" 
+tanya Zhou Botong.
+
+Guo Jing mengangguk dan berpikir, "Ini kebenaran yang sangat sederhana, tapi sebelumnya tak pernah kupikirkan."
+
+"Demikian juga sebuah rumah dapat ditempati oleh manusia karena memiliki empat dinding dan jendela serta pintu di dinding 
+tersebut," tambah Zhou Botong. "Apa gunanya jika bangunan itu terbuat dari bata padat tanpa jendela dan pintu?"
+
+Guo Jing lagi-lagi menganggukkan kepalanya, hatinya semakin terbuka untuk menerima kebenaran ini.
+
+Zhou Botong melanjutkan, "Ilmu bela diri tertinggi Perguruan Quanzhen kita didasarkan pada dua karakter 
+[Kong](referensi-karakter.md#kong "Kong (空) = Kosong") dan 
+[Ruo](referensi-karakter.md#ruo "Ruo (柔) = Lembut/Lunak"). 
+Disebut demikian karena 'kurang berprestasi tidak berarti lemah, kurang kenyang tidak berarti kosong.'"
+
+
+
+
+
 
 
 

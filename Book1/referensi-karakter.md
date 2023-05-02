@@ -451,6 +451,12 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Kitab Kentut Anjing. Istilah ini dilontarkan dalam kemarahan untuk mengutuk kitab tersebut.
     </dd>
+    <dt id="ruo">Ruo (柔)</dt>
+    <dd>
+        Lembut atau lunak.
+    </dd>
+    <dt id="kong">Kong (空)</dt>
+    <dd>Kosong</dd>
 </dl>
 
 
@@ -714,7 +720,26 @@ Teks aslinya adalah:
 
 ```
 
-故有之以為利，無之以為用
+故有之以为利，无之以为用
+(Gù yǒu zhī yǐwéi lì, wú zhī yǐwéi yòng)
 
 ```
+
+Karakter ke-2 You (有) maknanya adalah 'being', atau 'exist', alias 'Keberadaan', sedangkan karakter ke-6 Li (利)
+berarti profit, benefit, interest atau advantage. Alias 'keuntungan', 'laba' atau 'bunga' (seperti dalam urusan 
+simpan-pinjam). Kalimat di sebelah kiri koma bisa kita artikan 'Karena itu, _keberadaan_ adalah keuntungan'.
+
+Sedangkan karakter pertama di sebelah kanan koma (karakter ke-7), Wu (无), bermakna 'None', 'Nothing', atau 
+'Nihility', atau bahkan bisa diterjemahkan 'Void'. Alias Nihilitas atau 'Kekosongan'. Dan karakter terakhir,
+yaitu Yong (用) artinya adalah 'kegunaan' atau 'fungsi'.
+
+Dengan demikian keseluruhan ayat 11 dari Dao De Jing tersebut disimpulkan pada baris terakhir, yang bisa kita
+terjemahkan menjadi kalimat berikut, 'Karena itu, _keberadaan_ adalah keuntungan, sedangkan _kekosongan_ adalah
+kegunaan.'
+
+
+
+
+
+
 
