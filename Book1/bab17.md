@@ -455,6 +455,7 @@ makna pepatah ini?"
 
 [^pepatah-1]: Zhou Botong mengutip ayat ke-11 dari Dao De Jing, yang di baris akhir mengandung sebuah kesimpulan, Gù yǒu zhī yǐwéi lì, wú zhī yǐwéi yòng (故有之以为利，无之以为用). 'Karena itu, _keberadaan_ adalah keuntungan, sedangkan _kekosongan_ adalah kegunaan.' Untuk lebih jelasnya, silakan membaca [kutipan Dao De Jing ini](referensi-karakter.md#dao-de-jing). Kalau ingin menerjemahkan secara lebih bebas, saya kira akan berarti _segala yang kita lihat adalah keuntungannya, sedangkan yang tidak terlihat adalah kegunaannya_.
 
+
 Pengetahuan sastra Guo Jing sangat terbatas, jadi tentu saja ia tidak mengerti maksud kutipan itu. Ia hanya tersenyum 
 malu-malu dan menggelengkan kepalanya.
 
