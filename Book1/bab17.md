@@ -324,7 +324,136 @@ peringatannya. Aku ingin memberikan penghormatan kepada arwahnya tetapi Huang La
 Kau tidak perlu sok baik. Kalau bukan karena 
 [Kitab Kentut Anjing](referensi-karakter.md#gou-pi-zhen-jing "Gou Pi Zhen Jing (狗屁真经)") celaka itu, istriku tidak akan 
 meninggal.' Aku terkejut, 'Apa?' tanyaku. Dia tidak menjawab dan hanya menatapku dengan mata marah, kemudian air mata 
-mulai mengalir di pipinya. Setelah beberapa lama, dia mulai menceritakan apa yang sebenarnya terjadi."
+mulai mengalir di pipinya. Setelah beberapa lama, dia mulai menceritakan apa yang sebenarnya terjadi. Nyonya Huang segera 
+menulis ulang buku itu demi suaminya. Huang Yaoshi kemudian mengetahui bahwa buku yang ada di tangannya adalah jilid kedua 
+yang berbahaya jika digunakan tanpa mengetahui jilid pertama. Jadi dia memutuskan untuk mengesampingkan buku itu sementara 
+dia mencoba untuk mendapatkan jilid pertama. Siapa sangka buku itu akan dicuri oleh Chen Xuanfeng dan Mei Chaofeng? 
+Nyonya Huang ingin menghibur suaminya dan dia diam-diam bertekad untuk menulis ulang seluruh buku.
+Pertama-tama, dia tidak mengerti arti dari apa yang dia tulis, dia hanya menghafal kata-katanya. Kedua, sudah beberapa 
+tahun berlalu sejak dia menulisnya pertama kali, bagaimana dia bisa mengingat semuanya? Saat itu usia kehamilannya memasuki 
+bulan kedelapan. Setelah berpikir keras dengan susah payah, dia mampu menulis ulang sekitar tujuh atau delapan ribu kata, 
+tetapi tidak setiap kata akurat. Hati dan pikirannya sangat lelah dan karena itu dia melahirkan seorang bayi perempuan 
+sebelum waktunya. Bayi itu sehat, tetapi kondisinya sendiri seperti lentera yang kehabisan minyak. Meski keahlian medis 
+Huang Yaoshi tak tertandingi, pada akhirnya ia tidak mampu menyelamatkan nyawa istri tercintanya.
+Huang Laoxie selalu suka melampiaskan amarahnya dan menyalahkan orang lain, selama ini setelah istrinya meninggal, dia 
+seperti orang gila dan berbicara tidak jelas kepadaku. Aku tahu dia sedang berduka, jadi aku tidak ingin berdebat. Aku 
+hanya tersenyum dan berkata kepadanya, 'Kau seorang ahli silat, tapi kau menaruh begitu banyak perasaan terhadap hubungan 
+suami-istri. Apa kau tidak takut jadi bahan tertawaan orang lain?' Dia bilang, 'Istriku berbeda,' Aku mengatakan kepadanya, 
+'Istrimu meninggal dan sekarang adalah waktu terbaik untuk melatih kungfumu. Kalau aku, itulah yang kuharapkan dari diriku sendiri. Semakin cepat istrimu meninggal, semakin baik. Selamat! Selamat!'"
+
+"Ah!" seru Guo Jing. "Kenapa kau mengatakan hal semacam itu?"
+
+Mata Zhou Botong berkedip, "Aku mengatakan apa yang kupikirkan. Apa yang salah dengan itu?" bentaknya. "Tapi Huang 
+Laoxie itu marah dan tanpa berkata apa-apa dia memukulku dan kami berkelahi. Pada akhirnya aku harus tinggal di tempat 
+bodoh ini selama lima belas tahun."
+
+"Kau kalah?" tanya Guo Jing.
+
+Zhou Botong tersenyum, "Kalau menang, tentu aku tidak akan berada di sini. Dia memukulku sampai aku muntah darah. Aku 
+lari sampai menemukan gua ini. Dia mengejarku, ingin mematahkan kakiku. Dia juga ingin merebut jilid pertama dari 
+Jiu Yin Zhen Jing dan membakarnya di depan papan peringatan istrinya. Aku menyembunyikan buku itu di dalam lubang dan 
+duduk di pintu masuk gua menjaganya. Aku mengatakan bahwa jika dia memaksa, aku akan segera menghancurkan buku itu. 
+Dia bilang, 'Aku akan menemukan cara untuk memaksamu keluar dari sana.' Aku bilang, 'Kita lihat saja!' Begitu saja dan 
+aku sudah berada di sini selama lima belas tahun. Orang itu sombong, tapi dia belum putus asa, jadi aku yakin dia tidak akan 
+memasukkan racun ke dalam makananku. Tapi dia menggunakan segala cara yang mungkin untuk memaksaku keluar dari sini. 
+Aku meninggalkan gua hanya untuk kencing dan berak, jadi dia tidak punya kesempatan untuk menyelinap masuk. Hanya aku yang 
+harus hidup dengan bau busuk ini. Terkadang aku pura-pura berak. Hatinya gatal untuk menyentuhnya, tapi dia akhirnya 
+menikmati baunya." Ia mengakhiri narasinya dengan tertawa terbahak-bahak.
+
+Mendengarkan ceritanya Guo Jing terpesona. Ia melihat kakaknya ini pintar dan jenaka. Zhou Botong melanjutkan, "Setelah 
+lima belas tahun ia mulai menyerang hati dan pikiranku, tetapi sejauh ini aku mampu mempertahankan diri. Semalam aku 
+hampir jatuh, untungnya hantu atau malaikat membawamu ke sini dan kau membantuku. Jika tidak, buku ini pasti sudah 
+jatuh ke tangan Huang Laoxie. Ah! Irama Gelombang Laut Biru Huang Laoxie mengandung kekuatan batin yang kuat, sungguh
+sangat mendalam dan menghanyutkan.
+
+Guo Jing mendengarkan kisahnya yang mengandung rasa terima kasih dan dendam ini, hatinya jadi gelisah. "Kakak, apa yang 
+akan kau lakukan sekarang?" tanyanya.
+
+Zhou Botong tersenyum, "Aku akan melanjutkan pertarungan ini. Kita akan lihat apakah Huang Laoxie hidup lebih lama dariku. 
+Aku menceritakan kisah hidup Huang Shang beberapa waktu yang lalu, dia hidup lebih lama dari semua musuhnya."
+
+Guo Jing merasa ini bukan ide yang bagus, tapi ia tak punya cara yang lebih baik, jadi ia bertanya, "Kenapa Pendeta 
+Ma Yu dan yang lainnya tidak datang untuk menyelamatkanmu?"
+
+"Kemungkinan besar mereka bahkan tidak tahu aku ada di sini," kata Zhou Botong. "Bahkan kalau mereka datang, vegetasi di 
+pulau ini sangat aneh kecuali Huang Laoxie sendiri memberikan persetujuan, orang lain tidak akan bisa memasuki Pulau 
+Bunga Persik. Dan bahkan jika mereka datang untuk menyelamatkanku, aku tidak akan pergi. Saya belum menyelesaikan 
+pertarungan dengan Huang Laoxie."
+
+Setelah berbicara setengah harian dengan Zhou Botong, Guo Jing merasa bahwa meskipun orang ini sudah tua, tapi ia penuh 
+dengan kepolosan anak kecil dan selalu berbicara terus terang, tanpa pura-pura.
+
+Sementara itu matahari telah naik tinggi di langit. Pelayan tua itu datang untuk mengantarkan makanan mereka. Setelah 
+selesai makan, Zhou Botong melanjutkan, "Aku tinggal di Pulau Bunga Persik selama lima belas tahun, tapi waktuku tidak 
+terbuang sia-sia. Di sini hati dan pikiranku jernih tanpa ada gangguan. Di sini aku mencapai kemajuan yang membutuhkan 
+waktu dua puluh lima tahun untuk dicapai di tempat lain. Meskipun aku tahu kemajuanku pesat, sayang sekali aku tidak 
+punya teman latihan. Aku harus menggunakan tangan kiriku untuk melawan tangan kananku."
+
+Guo Jing terkejut. "Mana mungkin tangan kiri berkelahi melawan tangan kanan?" tanyanya.
+
+"Aku pura-pura menganggap tangan kananku adalah Huang Laoxie dan tangan kiriku adalah Lao Wantong. Tangan kanan menyerang, 
+tangan kiri mementahkan serangan itu dan meluncurkan serangan balik, seperti ini," kata Zhou Botong sambil menggerakkan 
+tangannya untuk saling bertarung.
+
+Awalnya Guo Jing menganggapnya sangat lucu, tapi setelah beberapa jurus ia menyadari bahwa jurus-jurus itu sangat misterius
+dan luar biasa. Ia mau tidak mau jadi sangat kagum. Orang yang berlatih kungfu, terlepas dari apakah mereka dengan tangan 
+kosong atau menggunakan pedang atau tusukan tombak, akan selalu menggunakan kedua tangan untuk menyerang atau bertahan. 
+Tapi Zhou Botong berbeda. Ia menggunakan satu tangan untuk menyerang dan tangan lainnya untuk bertahan, setiap serangan 
+sengit dan selalu ditujukan pada titik-titik vital, sedangkan tangan bertahan akan menangkis dan melakukan serangan balik 
+dengan tak kalah dahsyat. Itu benar-benar seperti dua orang yang saling bertarung. Guo Jing belum pernah melihat atau 
+mendengar hal seperti ini sebelumnya.
+
+Setelah menyaksikan Zhou Botong melawan dirinya sendiri sejenak, Guo Jing berkomentar, "Kakak, mengapa kau tidak 
+menggunakan kakimu juga?"
+
+Zhou Botong berhenti dan tersenyum, "Pengamatanmu tidak buruk! Kau bisa melihat gerakanku dengan baik. Ayo kau coba!" 
+Sambil bicara ia merentangkan telapak tangannya untuk menyerang. Guo Jing juga merentangkan tangannya untuk menangkis.
+
+"Awas! Aku akan mendorongmu ke kiri," kata Zhou Botong. Begitu ia selesai bicara, ia mengerahkan tenaganya. Guo Jing 
+sudah siap, bahkan sebelum Zhou Botong memperingatkannya, ia telah mempersiapkan diri untuk menggunakan Delapan Belas 
+Jurus Penakluk Naga. Dua tenaga besar bertabrakan dan Guo Jing terhuyung mundur tujuh atau delapan langkah. Ia merasa 
+lengannya sakit dan mati rasa.
+
+"Kali ini aku meminjam tenaga dari kakiku dan kau terdorong mundur," kata Zhou Botong, "Sekarang aku tidak akan 
+menggunakan kakiku. Coba lagi."
+
+Guo Jing mengikuti perintahnya untuk menyerang lagi, tapi tiba-tiba ia merasakan tenaga dorongan dan tarikan. Ia tidak 
+bisa tetap stabil, jadi ia jatuh ke depan dan dahinya menyentuh tanah. Ia merangkak mencoba berdiri, ia dalam keadaan 
+linglung.
+
+Zhou Botobg tersenyum. "Kau mengerti?"
+
+"Tidak," jawab Guo Jing.
+
+"Aku mengembangkan teknik ini melalui latihan dan meditasi setelah bekerja keras selama lebih dari sepuluh tahun di 
+dalam lubang ini," kata Zhou Botong. "Kakak seperguruankuku pernah bercerita tentang teknik menggunakan kekosongan 
+untuk meraih kemenangan. Pada saat itu pemahamanku tentang prinsip-prinsip Tao masih dangkal. Aku mendengarnya tetapi 
+aku tidak mengerti. Sekitar lima tahun yang lalu aku sedang menggerakkan tanganku ketika tiba-tiba aku sadar bahwa aku 
+bisa mengembangkan teknik tangan kosong dengan menggunakan prinsip itu. Aku tidak yakin tentang hal itu karena itu 
+hanya teori dan aku belum pernah mencobanya dalam pertarungan nyata. Saudaraku, coba lawan aku lagi. Tolong jangan 
+takut sakit. Aku akan menjatuhkanmu beberapa kali lagi."
+
+Ia melihat Guo Jing ragu-ragu, jadi ia mencoba membujuknya lagi, "Saudaraku, aku berada di sini selama lima belas tahun 
+dan selalu merindukan ada orang datang dan berlatih bersamaku. Beberapa bulan yang lalu putri Huang Laoxie datang dan 
+bicara denganku untuk menghilangkan kebosananku. Aku berpikir untuk berlatih dengannya, tetapi dia tidak kembali 
+keesokan harinya. Saudaraku, aku pasti tidak akan memukulmu terlalu keras."
+
+Guo Jing melihat kedua tangannya sudah gatal ingin bergerak dan wajahnya penuh semangat yang sulit untuk ditolak, 
+jadi ia setuju dan berkata, "Lalu kenapa kalau aku jatuh beberapa kali lagi?" Ia mengirimkan pukulan telapak tangannya 
+dan melawan sampai beberapa jurus, tetapi tampaknya telapak tangan Zhou Botong terkadang tidak berisi. Ia akan jatuh 
+ketika tangan kiri Zhou Botong tiba-tiba membentur bahunya dari bawah. Tubuhnya dikirim jungkir balik di udara dan ia 
+jatuh ke tanah dengan keras. Bahunya sangat sakit.
+
+Wajah Zhou Botong tampak menyesal dan berkata, "Hao Xiongdi[^hao-xiongdi], aku tidak bisa membiarkanmu jatuh begitu saja. 
+Dengar, dan aku akan mengajarimu teknik ini." Guo Jing menahan rasa sakit dan merangkak mendekatinya.
+
+[^hao-xiongdi]: Hao Xiongdi (好兄弟) = Adik Yang Baik.
+
+Zhou Botong berkata, "Dalam [Dao De Jing](referensi-karakter.md#dao-de-jing "Kitab Taoisme") yang ditulis Laozi ada 
+pepatah, 'Perabotan dari tanah liat berguna karena kosong, ruangan berguna karena kosong.'[^pepatah-1] Kau mengerti 
+makna pepatah ini?"
+
+[^pepatah-1]: 三十輻，共一轂，當其無，有車之用。埏埴以為器，當其無，有器之用。鑿戶牖以為室，當其無，有室之用。故有之以為利，無之以為用。
 
 
 

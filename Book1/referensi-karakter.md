@@ -655,8 +655,58 @@ sedang bersiap untuk menghadapi Mei Chaofeng di puncak tebing Mongolia, sebenarn
 ajang diskusi, tukar penndapat, dan debat, mengenai ilmu silat. Dan bukan hanya adu ilmu dalam arti adu fisik.
 
 
+### <a name="dao-de-jing" id="dao-de-jing">Dao De Jing (道德经)</a>
 
+Kitab yang berasal dari era sekitar 400 tahun Sebelum Masehi ini adalah panduan klasik bagi penganut Taoisme,
+yang secara tradisional dianggap ditulis oleh [Laozi](#laozi), Orang Bijak di jaman Dinasti Zhou yang selalu
+dijadikan acuan bagi para penganut Taoisme.
 
+Secara literal, karakter Dao (道) tentunya adalah _nama_ ajaran Tao itu sendiri. Nama ini memang bisa ditulis
+Dao atau Tao, dan ketiga karakter itu bisa ditulis 'Tao Te Ching', tergantung sistem _romanisasi_ mana yang kita 
+pakai. Arti literalnya adalah 'Jalan', atau 'The Way' dalam bahasa Inggris. 
 
+Berikutnya, karakter De (德) bisa diterjemahkan menjadi 'Virtue' atau 'Kebajikan', atau keutamaan, moralitas,
+atau bahkan 'kebaikan' (kindness).
 
+Sedangkan karakter Jing (经), sebagai kata benda bisa bermakna 'channel' atau saluran. Atau sebagai kata kerja
+bisa bermakna 'melewati'.
+
+Secara umum nama tersebut bisa diterjemahkan menjadi 'Kitab Klasik Tao dan Kebajikannya'.
+
+Kutipan berikut diambil dari ayat ke-11 dari Dao De Jing. Kutipan ini adalah yang dimaksud oleh Zhou Botong ketika
+mula-mula mengajari Guo Jing teknik bela diri yang diciptakannya sendiri.
+
+> 埏埴以为器，当其无，有器之用。
+> 凿户牖以为室，当其无，有室之用。
+
+Kalau kita mencoba menggunakan Google Translate untuk menerjemahkan deretan karakter di atas begitu saja, jangan heran
+kalau yang kita dapatkan adalah kalimat-kalimat yang tidak begitu bermakna, atau bahkan tidak masuk akal. Ini karena
+untuk memahaminya diperlukan pengetahuan yang mendalam mengenai kaligrafi dan bahasa mandarin.
+
+Karena tujuan kita bukan untuk mempelajari Taoisme atau Dao De Jing, sebaiknya gunakan beberapa terjemahan yang sudah ada,
+dan sejauh ini dianggap cukup akurat.
+
+```
+
+Kita mencampur air dan tanah liat untuk membentuk wadah,
+tetapi justru ruang _kosong_ di dalamnya yang berguna.
+
+Kita membuat pintu-pintu dan jendela untuk membentuk rumah,
+tetapi justru ruang _kosong_ di dalamnya yang bisa ditinggali.
+
+```
+
+Kesimpulan dari uraian di atas berada di baris terakhir berikut, yang diambil dari 3 terjemahan bahasa Inggris dari
+teks yang sama.
+
+- **Terjemahan 1**
+  Therefore consider: advantage comes from having things
+  And usefulness from having nothing.
+- **Terjemahan 2**
+  Thus being is beneficial,
+  but usefulness comes from the void.
+- **Terjemahan 3**
+  Thus do we
+  create what is
+  to use what is not.
 
