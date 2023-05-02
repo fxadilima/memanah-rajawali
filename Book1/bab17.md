@@ -284,7 +284,47 @@ paling banyak dia akan mengajarinya dua kali, sangat jarang dia harus mengulang 
 
 [^enshi]: En Shi (恩師), Guru Yang Baik. Ini setara dengan Shifu, tetapi ditambah dengan ungkapan kasih yang lebih khusus, menandakan bahwa Sang guru tersebut adalah juga penolongnya.
 
+"Anak itu sangat pintar," kata Zhou Botong perlahan. "Semoga saja dia tidak ketularan umur pendek ibunya! Hari itu 
+ketika Nyonya Huang meminjam kitab itu, dia hanya membacanya dua kali, tapi dia tidak melewatkan satu kata pun. 
+Setelah kami berpamitan, dia menuliskan segalanya untuk dilihat suaminya."
 
+Guo Jing tidak bisa menahan rasa takjubnya. Dia terdiam beberapa saat hanya untuk pada akhirnya berkata, "Huang Furen 
+tidak mengerti apa yang dibacanya, tapi dia mampu menghafal semuanya. Bagaimana bisa ada orang yang secerdas itu di 
+muka bumi ini?"
+
+"Kurasa teman kecilmu, [Huang Yatou](referensi-karakter.md#yatou "Nona Cilik Huang") itu, juga mampu melakukan 
+hal semacam ini," kata Zhou Botong. "Ngomong-ngomong, setelah mendengarkan Qiu Chuji aku merasa malu. Saya segera 
+memanggil tujuh murid generasi pertama Quanzhen untuk membahas masalah ini. Semua orang setuju kita harus berurusan 
+dengan Sepasang Iblis Angin Gelap dan mendapatkan kembali buku itu dari mereka. Qiu Chuji berkata, 'Kungfu Sepasang 
+Iblis itu mungkin tinggi, kami bertujuh adalah keponakanmu, Paman tidak perlu bertindak sendiri, kalau tidak nanti 
+para pendekar Jianghu akan mengatakan generasi tua menindas generasi yang lebih muda.' Kupikir dia benar, jadi aku 
+menugaskan satu atau dua dari mereka untuk menemukan Hei Feng Shuang Sha, sementara yang lainnya tidak terlihat, 
+untuk menjaga agar Sepasang Iblis tidak melarikan diri."
+
+Guo Jing mengangguk setuju, "Kalau Tujuh Pendekar Quanzhen semuanya beraksi, Sepasang Iblis tidak akan punya kesempatan." 
+katanya. Pikirannya mengembara ke masa ketika Pendeta Ma Yu bersama dengan enam gurunya menyamar sebagai Tujuh Pendekar 
+Quanzhen di atas bukit gersang Mongolia.
+
+"Mereka mengejar Sepasang Iblis sampai ke Henan, di situ keduanya tiba-tiba menghilang," lanjut Zhou Botong. "Tujuh 
+Pendekar Quanzhen mencoba untuk mendapatkan informasi dan ternyata murid lain dari Huang Laoxie, Lu Chengfeng, sebelumnya 
+mengumpulkan lusinan pendekar dan orang-orang gagah berani dari Dataran Tengah untuk melawan keduanya dengan tujuan 
+menangkap mereka, mengirim mereka kembali ke Tao Hua Dao dan menyerahkannya kepada Huang Laoxie. Namun demikian mereka 
+masih bisa melarikan diri dan menghilang tanpa jejak."
+
+"Tidak heran Lu Xiansheng begitu membenci kedua kakak seperguruannya itu," kata Guo Jing. "Dia dihukum secara tidak adil."
+
+"Karena aku tidak dapat menemukan Sepasang Iblis, tentu saja aku mencari Huang Laoxie. Aku membawa jilid pertama dari 
+Jiu Yin Zhen Jing karena takut aku akan kehilangan jilid ini juga. Setibanya di Pulau Bunga Persik, aku memarahi Huang
+Laoxie, tetapi dia bilang, 'Botong, Huang Yaoshi selalu bersungguh-sungguh dengan apa yang dikatakannya. Aku bilang 
+tidak akan melirik bukumu, dan kapan aku melihatnya? Jiu Yin Zhen Jing yang kulihat adalah yang diingat oleh istriku, 
+tentu saja bukan bukumu.' Kata-katanya terdengar masuk akal, tetapi aku sangat marah sehingga aku mengucapkan kata-kata 
+kasar kepadanya dan meminta untuk berbicara dengan istrinya. Dia tersenyum pahit dan membawaku ke aula utama. Segera 
+setelah kami berada di sana aku terkejut. Ternyata Nyonya Huang sudah meninggal dunia. Di aula utama ada papan 
+peringatannya. Aku ingin memberikan penghormatan kepada arwahnya tetapi Huang Laoxie mencibir dan berkata, 'Lao Wantong! 
+Kau tidak perlu sok baik. Kalau bukan karena 
+[Kitab Kentut Anjing](referensi-karakter.md#gou-pi-zhen-jing "Gou Pi Zhen Jing (狗屁真经)") celaka itu, istriku tidak akan 
+meninggal.' Aku terkejut, 'Apa?' tanyaku. Dia tidak menjawab dan hanya menatapku dengan mata marah, kemudian air mata 
+mulai mengalir di pipinya. Setelah beberapa lama, dia mulai menceritakan apa yang sebenarnya terjadi."
 
 
 

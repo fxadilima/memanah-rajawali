@@ -445,6 +445,12 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Istilah ini juga lelucon karangan Huang Yaoshi, maksudnya adalah pasangan Lao Wantong (julukan Zhou Botong)
         dan Nu Wantong akan melahirkan seorang anak bernama Xiao Wantong. Karakter Xiao (小) berarti 'kecil'. 
     </dd>
+    <dt id="yatou">Ya Tou (丫头)</dt>
+    <dd>Panggilan biasa untuk anak perempuan, bisa juga ditujukan untuk memanggil pelayan perempuan.</dd>
+    <dt id="gou-pi-zhen-jing">Gou Pi Zhen Jing (狗屁真经)</dt>
+    <dd>
+        Kitab Kentut Anjing. Istilah ini dilontarkan dalam kemarahan untuk mengutuk kitab tersebut.
+    </dd>
 </dl>
 
 
