@@ -689,10 +689,10 @@ dan sejauh ini dianggap cukup akurat.
 ```
 
 Kita mencampur air dan tanah liat untuk membentuk wadah,
-tetapi justru ruang _kosong_ di dalamnya yang berguna.
+tetapi justru ruang kosong di dalamnya yang berguna.
 
 Kita membuat pintu-pintu dan jendela untuk membentuk rumah,
-tetapi justru ruang _kosong_ di dalamnya yang bisa ditinggali.
+tetapi justru ruang kosong di dalamnya yang bisa ditinggali.
 
 ```
 
@@ -709,4 +709,12 @@ teks yang sama.
   Thus do we    
   create what is    
   to use what is not.    
+
+Teks aslinya adalah:
+
+```
+
+故有之以為利，無之以為用
+
+```
 
