@@ -711,7 +711,7 @@ teks yang sama.
 - **Terjemahan 2**    
   Thus being is beneficial,    
   but usefulness comes from the void.
-- **Terjemahan 3**
+- **Terjemahan 3**    
   Thus do we    
   create what is    
   to use what is not.    
