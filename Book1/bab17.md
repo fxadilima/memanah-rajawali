@@ -1,5 +1,5 @@
 # Bab 17
-## Pertarungan Kedua Tangan
+## Pertarungan Antar Tangan
 
 
 | Ilustrasi | Narasi |
@@ -453,7 +453,7 @@ Zhou Botong berkata, "Dalam [Dao De Jing](referensi-karakter.md#dao-de-jing "Kit
 pepatah, 'Perabotan dari tanah liat berguna karena kosong, ruangan berguna karena kosong.'[^pepatah-1] Kau mengerti 
 makna pepatah ini?"
 
-[^pepatah-1]: Zhou Botong mengutip ayat ke-11 dari Dao De Jing, yang di baris akhir mengandung sebuah kesimpulan, Gù yǒu zhī yǐwéi lì, wú zhī yǐwéi yòng (故有之以为利，无之以为用). 'Karena itu, _keberadaan_ adalah keuntungan, sedangkan _kekosongan_ adalah kegunaan.' Untuk lebih jelasnya, silakan membaca [kutipan Dao De Jing ini](referensi-karakter.md#dao-de-jing). Kalau ingin menerjemahkan secara lebih bebas, saya kira akan berarti _segala yang kita lihat adalah keuntungannya, sedangkan yang tidak terlihat adalah kegunaannya_.
+[^pepatah-1]: Zhou Botong mengutip ayat ke-11 dari Dao De Jing, yang di baris akhir mengandung sebuah kesimpulan, Gù yǒu zhī yǐwéi lì, wú zhī yǐwéi yòng (故有之以为利，无之以为用). 'Karena itu, _keberadaan_ adalah keuntungan, sedangkan _kekosongan_ adalah kegunaan.' Untuk lebih jelasnya, silakan membaca [kutipan Dao De Jing ini](referensi-karakter.md#dao-de-jing). Kalau ingin menerjemahkan secara lebih bebas, saya kira akan berarti _Jadi, kita menciptakan keberadaan, tetapi menggunakan ketiadaan_.
 
 
 Pengetahuan sastra Guo Jing sangat terbatas, jadi tentu saja ia tidak mengerti maksud kutipan itu. Ia hanya tersenyum 
@@ -475,17 +475,106 @@ Zhou Botong melanjutkan, "Ilmu bela diri tertinggi Perguruan Quanzhen kita didas
 [Ruo](referensi-karakter.md#ruo "Ruo (柔) = Lembut/Lunak"). 
 Disebut demikian karena 'kurang berprestasi tidak berarti lemah, kurang kenyang tidak berarti kosong.'"
 
+Mengikuti pemikiran yang mendalam dan penuh makna ini, Guo Jing mendengarkan dengan penuh perhatian dan merenungkannya 
+dalam-dalam.
 
+Zhou Botong menambahkan, "Dalam hal pengerahan tenaga, kungfu gurumu Hong Qigong berada di sisi luar gambaran ini. 
+Meskipun aku menguasai kungfu Quanzhen, aku bukan tandingannya. Tapi aku kuatir begitu kau mencapai tingkat tertentu dari 
+kungfu jenis 'luar', kau tidak bisa melangkah lebih tinggi. Tidak demikian halnya dengan ilmu 'dalam', jenis ilmu yang 
+dipraktekkan kakak seperguruanku. Saat kakak seperguruanku memenangkan gelar 'Nomor Satu di Dunia Persilatan' dia tidak 
+hanya beruntung. Kalau dia masih hidup hari ini, dan dengan tambahan latihan sepuluh tahun, kalau dia kembali melawan 
+Sesat Timur, Racun Barat, dan yang lainnya, aku percaya dia mungkin hanya membutuhkan setengah hari, bukan tujuh hari 
+tujuh malam, untuk menaklukkan mereka."
 
+"Kungfu Wang Zhenren benar-benar luar biasa. Sayangnya adikmu tidak sempat berkenalan," kata Guo Jing. "Delapan Belas 
+Jurus Penakluk Naga dari Hong Enshi adalah puncak dari kungfu keras, tapi beberapa saat yang lalu Dage menjatuhkan aku 
+ke tanah menggunakan jenis kungfu 'lembut', begitu ya?"
 
+Zhou Botong tertawa. "Itu benar, itu benar," katanya. "Meskipun yang lembut bisa mengalahkan yang keras, aku tidak akan 
+bisa mendorongmu dengan mudah jika Delapan Belas Jurus Penakluk Naga-mu sekuat Hong Qigong. Itu semua tergantung pada 
+kedalaman pemahamanmu. Kau ingat gerakan yang kugunakan untuk menekanmu beberapa saat yang lalu? Cobalah untuk 
+mengingatnya baik-baik." Dan kemudian ia dengan hati-hati menjelaskan cara menggerakkan tangan dan cara menggunakan 
+tenaga. Ia tahu Guo Jing lamban, jadi ia dengan penuh kesabaran menjelaskan semuanya.
 
+Guo Jing mencoba gerakan itu puluhan kali, untungnya ia punya dasar _neigong_ yang mendalam dari Perguruan Quanzhen, 
+jadi ia bisa memahaminya, meskipun perlahan.
 
+Zhou Botong sangat gembira dan berkata, "Saudaraku, jika rasa sakitmu sudah berkurang, biar aku menjatuhkanmu sekali 
+lagi."
 
+Guo Jing tertawa. "Rasa sakit bukan apa-apa," katanya, "Tapi aku takut tidak akan bisa mengingat ajaranmu." Sambil 
+berbicara ia masih berusaha keras untuk menghafal semuanya.
 
+Zhou Botong punya semangat seperti anak kecil, jadi ia terus mendesak, "Masa belum cukup? Kau sudah hafal? Ayo cepat!"
 
+Tapi omelannya sebenarnya mengganggu pikiran Guo Jing. Setelah beberapa lama akhirnya ia bisa menghafal jurus tersebut. 
+Jadi sekali lagi ia menyerbu ke arah Zhou Botong dan sekali lagi ia jatuh.
 
+Keduanya berlatih bersama siang dan malam. Guo Jing masih muda, jadi ia tidak perlu terlalu banyak tidur, tetapi bahkan 
+ketika ia tertidur, Zhou Botong tidak mengijinkannya. Ia terus mendesaknya untuk berlatih. Guo Jing jatuh tujuh atau 
+delapan ratus kali. Tubuhnya bengkak, sakit di sekujur tubuh dan dipenuhi memar ungu. Untungnya ia kuat, jadi ia hanya 
+mengertakkan gigi dan dengan gigih terus belajar, sampai akhirnya menguasai ilmu khusus Zhou Botong yang diciptakannya 
+selama lima belas tahun di dalam gua, tujuh puluh dua gerakan 
+[Tinju Kosong](referensi-karakter.md#kong-ming-quan "Kong Ming Quan (空拳) = Tinju Kosong").
 
+Keduanya begitu asyik berlatih ilmu silat, sehingga mereka tidak tahu berapa hari telah berlalu. Guo Jing memikirkan 
+Huang Rong sepanjang hari, tetapi karena ia tidak dapat mencarinya, ia harus puas menunggu dengan sabar. Beberapa kali 
+ia ingin pergi dengan pelayan bisu yang mengantar makanan mereka untuk mencarinya, tetapi setiap kali Zhou Botong 
+memanggilnya kembali.
 
+Suatu hari setelah makan siang, Zhou Botong berkata, "Kau sudah menguasai seluruh Tinju Kosong. Setelah ini aku tidak 
+akan bisa menjatuhkanmu dengan mudah, jadi kita harus bermain-main dengan cara lain."
 
+"Baiklah, kita main dengan cara apa?" tanya Guo Jing sambil tertawa.
+
+"Kita akan bermain seolah-olah empat orang sedang bertarung," jawab Zhou Botong.
+
+Guo Jing bingung. "Empat orang?" tanyanya.
+
+"Betul," kata Zhou Botong. "Empat orang! Tangan kiriku adalah satu orang, tangan kananku yang lain, dan sepasang tanganmu 
+adalah dua orang lainnya. Empat orang tersendiri dan tidak ada yang membantu siapa pun. Empat orang dalam pertempuran 
+yang rumit! Itu pasti lebih menarik."
+
+Minat Guo Jing terusik. "Ini jelas menarik, sayang sekali aku tidak bisa memisahkan tangan kiri dan kananku," katanya,
+ia tersenyum lebar ketika mengatakannya.
+
+"Aku bermaksud mengajarimu itu nanti," kata Zhou Botong. "Untuk saat ini, mari kita bertarung tiga orang saja." 
+Tangannya membentuk dua orang dan langsung menyerang Guo Jing. Ia memisahkan dirinya menjadi dua orang yang berbeda dan 
+masing-masing tangan melontarkan gerakan yang berbeda. Mereka tidak saling melengkapi dan sangat berbeda dengan satu orang 
+yang menggunakan dua tangan. Ketika tangan kirinya menyulitkan Guo Jing, tangan kanannya akan datang untuk menyelamatkan 
+Guo Jing. Demikian juga ketika kanannya menang, kirinya melawan kanannya. Saat Guo Jing berada di atas angin, tangan 
+Zhou Botong akan bertarung bersama seperti dua orang menghadapi satu lawan. Singkatnya, itu seperti tiga individu terpisah 
+yang saling bertarung. Setelah berkelahi sebentar mereka berhenti untuk istirahat.
+
+Guo Jing menganggap cara bermain ini sangat menyenangkan. Tapi mau tidak mau ia tetap teringat Huang Rong. Ia berpikir 
+jika Huang Rong ada di sini, mereka bertiga akan bisa bertarung sebagai enam orang. Ia yakin Huang Rong akan sangat 
+tertarik.
+
+Zhou Botong sangat bergairah. Segera setelah Guo Jing menarik napas, ia mengajarinya cara membagi tangannya menjadi 
+[Pertarungan Antar Tangan](referensi-karakter.md#shuang-shou-hubo "Shuang Shou Hubo (双手互搏)"). Teknik ini 
+sebenarnya lebih sulit daripada Tinju Kosong.
+
+Ada pepatah mengatakan, 'Pikiran tidak bisa dibagi', dan pepatah lain yang mengikuti garis pemikiran sejenis, 
+'Tangan kiri menggambar persegi, tangan kanan menggambar lingkaran, itu bukan kebiasaan yang baik.' Tapi teknik 
+'Pertarungan Antar Tangan' ini justru persis seperti itu. Membagi pikiran seseorang menjadi dua. Dan cara melatihnya 
+adalah dengan menggambar persegi dengan tangan kiri dan lingkaran dengan tangan kanan. Guo Jing berlatih menggambar. 
+Awalnya perseginya menyerupai lingkaran dan lingkarannya terlihat seperti persegi. Ia berlatih cukup lama dan dengan 
+susah payah sebelum akhirnya menguasainya dan kedua tangan secara bersamaan dapat menggambar persegi dan lingkaran 
+yang sempurna sesuka hati.
+
+Zhou Botong sangat bersemangat. "Kalau sebelumnya kau tidak berlatih tenaga dalam Perguruan Quanzhen kita, yang 
+memungkinkan kau menggabungkan tenaga dalam dan luar, bagaimana kau bisa menguasai teknik 'Pertarungan Antar Tangan' 
+ini secepat itu?" katanya. "Sekarang gunakan tangan kirimu untuk melancarkan teknik 
+[Tinju Pegunungan Selatan](referensi-karakter.md#nan-shan-quan "Nan Shan Quan (南山拳) adalah jurus ajaran Nan Xiren.") 
+dan tangan kananmu teknik 
+[Pedang Nona Yue](referensi-karakter.md#yue-nu-jian-fa "Yue Nu Jian Fa (越女劍法), jurus pedang ajaran Han Xiaoying.")." 
+Ini adalah kungfu yang dipelajari Guo Jing dari Nan Xiren dan Han Xiaoying. Guo Jing hafal kedua teknik ini, 
+tetapi melakukannya pada saat yang sama, satu dengan masing-masing tangan, sebenarnya sangat sulit.
+
+Zhou Botong sangat ingin memainkan 'Pertarungan Empat Orang', jadi ia terus mendesak Guo Jing untuk berlatih dan ia 
+tidak berhenti memberikan instruksi dan petunjuk. Beberapa hari kemudian Guo Jing telah menguasai teknik Pertarungan
+Antar Tangan itu. Zhou Botong girang tak terkira. "Ayo cepat, cepat!" desaknya, "Tangan kirimu dan tangan kiriku 
+bekerja sama melawan tangan kananmu dan tangan kananku. Ayo kita adakan 
+[Bi Wu](referensi-karakter.md#bi-wu "Adu Ilmu Silat, istilah ini dalam buku-buku karya Kho Ping Hoo/Gan KL adalah Pi Bu")!"
 
 

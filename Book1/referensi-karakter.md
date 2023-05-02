@@ -457,6 +457,11 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     </dd>
     <dt id="kong">Kong (空)</dt>
     <dd>Kosong</dd>
+    <dt id="nan-shan-quan">Nan Shan Quan (南山拳)</dt>
+    <dd>
+        Tinju Nan Shan, atau Tinju Pegunungan Selatan.
+        Ini adalah ilmu silat tangan kosong yang diajarkan Nan Xiren kepada Guo Jing.
+    </dd>
 </dl>
 
 
@@ -738,8 +743,47 @@ terjemahkan menjadi kalimat berikut, 'Karena itu, _keberadaan_ adalah keuntungan
 kegunaan.'
 
 
+### <a name="kong-ming-quan" id="kong-ming-quan">Qi Shi'Er Lu Kong Ming Quan (七十二路空明拳)</a>
+
+Kong Ming Quan, atau nama lengkapnya yang bisa ditulis singkat 72 Jalan Kong Ming Quan, adalah ilmu tangan kosong
+ciptaan Zhou Botong, yang dilatihnya selama dikurung oleh Huang Yaoshi di Pulau Bunga Persik selama 15 tahun.
+
+Karakter Ming (明) di atas berarti 'Terang'.
+
+Supaya kita bisa memahami dengan baik rangkaian karakter tersebut, sebaiknya diterjemahkan terlebih dahulu selengkapnya
+menjadi '72 Metode Tinju Terang Kekosongan'.
+
+Memang terdengar (dan terbaca) agak aneh, tetapi itulah makna sebenarnya. Ilmu tersebut diambil Zhou Botong dari intisari
+ajaran Tao di dalam Kitab Dao De Jing, ayat ke-11, yang menceritakan tentang 'Kekosongan', itulah sebabnya nama 'Kong'
+tetap dipakai. Jadi bukan seperti kesan yang kita dapat ketika membaca tulisan 'Tinju Kosong' atau 'Jurus Kosong'. Tidak
+begitu jelas mengapa harus ditambahkan karakter Ming di situ.
 
 
+### <a name="shuang-shou-hubo" id="shuang-shou-hubo">Shuang Shou Hu Bo (simplified: 双手互搏, traditional: 雙手互搏)</a>
+
+Keempat karakter di atas jika digabungkan akan bermakna 'Sepasang tangan yang saling berkelahi'.
+Teknik ini juga diciptakan oleh Zhou Botog ketika sedang dikurung oleh Huang Yaoshi di Pulau Bunga Persik selama
+15 tahun. Ia merasa sangat bosan tanpa teman bermain, karena itu akhirnya menemukan metode ini untuk menghibur diri.
+
+Ia kemudian melatih diri menggunakan teknik berlainan untuk masing-masing tangan. Di kemudian hari teknik ini sangat
+berguna ketika harus menghadapi beberapa orang sekaligus. Teknik ini sangat sulit dipelajari, konon hanya karakter
+seperti Guo Jing dan Xiao Longnu yang mampu mempelajarinya.
+
+
+### <a name="yue-nu-jian-fa" id="yue-nu-jian-fa">Yue Nu Jian Fa (越女劍法)</a>
+
+Ini adalah ilmu pedang yang diturunkan oleh seorang pendekar pedang wanita, yang dikenal sebagai Nona Yue,
+di era Peperangan Antar Negara (Warring States Period), yaitu ketika terjadi perseteruan antara Kerajaan Yue
+dan Kerajaan Wu.
+
+Jurus ini awalnya diajarkan kepada semua prajurit untuk dipakai di medan peperangan, dan jauh sekali berbeda 
+dengan apa yang biasanya dipakai dalam pertarungan satu lawan satu antar para pendekar persilatan. Beberapa
+generasi kemudian, jurus ini mengalami beberapa kali revisi di tangan lebih dari seorang ahli bela diri, dengan
+tujuan untuk bisa dipakai oleh seorang pendekar dunia persilatan.
+
+Guru Guo Jing yang termuda, dan satu-satunya wanita di antara Tujuh Orang Aneh dari Jiangnan, Han Xiaoying,
+adalah keturunan dari Nona Yue ini. Dengan demikian ia secara otomatis mewarisi Jurus Pedang ini secara
+lengkap.
 
 
 
