@@ -45,6 +45,8 @@ Jiu Yin Zhen Jing (九阴真经). Nama ini saya terjemahkan menjadi 'Sembilan Ju
 entah bisa dibenarkan ataukan tidak. Ilmu ini mula-mula dipopulerkan oleh Mei Chaofeng dan suaminya,
 yang kitabnya mereka curi dari Pulau Persik. Bahkan Huang Yaoshi sendiri tidak mempelajari ilmu ini.
 
+Jiu Yin Shen Zhua (九阴神爪) adalah versi asli dari Jiu Yin Baigu Zhua/Zhao.
+
 Yue Nu Jian Fa = Jurus Pedang Nona Yue/Yue Maiden Swordplay (越女劍法)
 
 

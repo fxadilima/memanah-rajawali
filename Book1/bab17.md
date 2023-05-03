@@ -575,6 +575,421 @@ Zhou Botong sangat ingin memainkan 'Pertarungan Empat Orang', jadi ia terus mend
 tidak berhenti memberikan instruksi dan petunjuk. Beberapa hari kemudian Guo Jing telah menguasai teknik Pertarungan
 Antar Tangan itu. Zhou Botong girang tak terkira. "Ayo cepat, cepat!" desaknya, "Tangan kirimu dan tangan kiriku 
 bekerja sama melawan tangan kananmu dan tangan kananku. Ayo kita adakan 
-[Bi Wu](referensi-karakter.md#bi-wu "Adu Ilmu Silat, istilah ini dalam buku-buku karya Kho Ping Hoo/Gan KL adalah Pi Bu")!"
+[Bi Wu](referensi-karakter.md#bi-wu "Bi Wu (比武) adalah Adu Ilmu Silat, istilah ini dalam buku-buku karya Kho Ping Hoo/Gan KL adalah Pi Bu")!"
+
+Guo Jing masih muda, tentu saja permainan semacam ini sangat menarik minatnya. Segera tangan kanannya melawan tangan kiri 
+Zhou Botong sementara tangan kirinya dengan sengit melawan tangan kanan Zhou Botong. Tidak ada yang pernah melihat atau 
+mendengar pertempuran semacam ini.
+
+Saat mereka saling bertarung, dan bertarung dengan diri mereka sendiri, Zhou Botong tanpa henti memberi Guo Jing petunjuk 
+tentang bagaimana menyerang dengan cepat dan dahsyat, dan bagaimana membentuk pertahanan yang ketat. Guo Jing mendengarkan 
+dan mengingat semuanya.
+
+Zhou Botong hanya ingin bermain-main sejenak, tetapi di pikiran Guo Jing muncul gagasan lain. Suatu hari saat mereka 
+bermain, ia berpikir, "Kalau kaki kita juga bisa dibagi, bukankah dua orang bisa bertarung sebagai delapan orang?" 
+Tapi ia tahu jika ia mengungkit ini, Zhou Botong akan melanjutkan tanpa batas waktu, jadi ia menahan diri supaya tidak 
+mengatakan apapun.
+
+Beberapa hari lagi berlalu. Guo Jing dan Zhou Botong bertarung sebagai empat orang yang terpisah. Zhou Botong sedang 
+bersenang-senang, ia berkelahi dan tertawa terbahak-bahak. Keahlian Guo Jing masih dangkal, jadi ketika salah satu 
+tangannya tidak mampu bertahan, yang lain tanpa sadar akan datang untuk menyelamatkannya. Tinju Zhou Botong bergerak 
+cepat dan Guo Jing tidak dapat terus bertarung sebagai individu yang terpisah, jadi ia sering menjadi satu individu 
+melawan dua orang, seperti dalam pertarungan timbal balik tiga orang. Tapi kedua tangannya melancarkan serangan yang 
+berbeda, jadi itu seperti dua Guo Jing yang bertarung satu lawan satu melawan dua lawan.
+
+Zhou Botong tertawa terbahak-bahak. 'Kau bertarung tanpa mematuhi peraturan," katanya.
+
+Guo Jing melompat mundur. Ia terdiam sejenak, dan akhirnya ia membuka mulut, "Dage, aku sedang memikirkan sesuatu."
+
+"Apa itu?" tanya Zhou Botong.
+
+"Kalau tangan kita bisa digerakkan dengan jurus yang sama sekali berbeda, kenapa keduanya tidak bisa dibuat bekerja
+sama untuk melawan satu orang yang sama? Teknik ini akan sangat berguna kalau musuhmu kuat, kau bisa membagi pikiranmu
+dan menolong dirimu sendiri. Meskipun tenaga tidak bisa berlipat ganda, tetapi dari gaya bertarung akan sangat 
+menguntungkan."
+
+Zhou Botong menciptakan teknik Shuang Shou Hubo itu karena bosan tinggal di dalam gua sendirian. Tidak pernah terpikir 
+olehnya bahwa ia benar-benar bisa menggunakan teknik itu dalam pertarungan nyata. Sekarang Guo Jing mengingatkannya 
+akan hal itu, sebuah pikiran tiba-tiba terlintas di benaknya. Ia tiba-tiba melompat keluar dari gua dan berjalan 
+mondar-mandir di pintu masuk gua, tertawa tanpa henti.
+
+Guo Jing melihat perubahan mendadak dalam tingkah-lakunya, seperti orang kerasukan roh jahat, ia jadi cemas dan 
+berseru, "Kakak, ada apa?"
+
+Zhou Botong tidak menjawab tetapi terus tertawa. Setelah beberapa saat ia berkata, "Saudaraku, aku keluar dari 
+lubang ini! Aku bukan ingin kencing, juga bukan ingin berak, tetapi aku keluar."
+
+"Betul!" seru Guo Jing.
+
+Zhou Botong tersenyum. "Saat ini kungfuku nomor satu di dunia, kenapa aku harus takut kepada Huang Yaoshi? Aku hanya 
+berharap dia cepat muncul, supaya aku bisa mengalahkannya dengan telak."
+
+"Kau yakin bisa mengalahkannya?" tanya Guo Jing.
+
+"Sebetulnya kungfuku masih setaraf di bawah dia," kata Zhou Botong mengakui. "Tapi dengan membagi pikiranku, aku bisa
+berbuat seolah-olah dua lawan satu, maka tak ada yang bisa mengalahkan aku. Huang Yaoshi, Hong Qigong, Ouyang Feng,
+kungfu mereka memang luar biasa, tapi bagaimana mereka bisa mengalahkan dua Zhou Botong?" Guo Jing sangat gembira, 
+apa yang dikatakannya sungguh masuk akal.
+
+"Saudaraku," kata Zhou Botong melanjutkan. "Kau sudah mengerti teknik Shuang Shou Hubo ini, yang kau butuhkan 
+hanyalah beberapa tahun latihan, maka kemampuanmu akan berlipat ganda. Saat mereka mengobrol, keduanya menjadi 
+semakin bersemangat.
+
+Sebelumnya Zhou Botong takut Huang Yaoshi akan datang dan mempersulit dia, tapi sekarang ia justru berharap Huang Yaoshi 
+akan muncul. Ia akan memukulinya dan meninggalkan gua yang sangat bau ini selamanya. Ia dengan tidak sabar melihat ke 
+luar, berharap bisa melihat sekilas bayangan Huang Yaoshi. Ia akan berlari mencarinya kalau ia tidak tahu bahwa jalan-jalan 
+di pulau itu diatur secara misterius.
+
+Malam itu pelayan bisu datang mengantarkan makan malam mereka. Zhou Botong mencengkeram lehernya dan berkata, "Cepat 
+suruh Huang Yaoshi ke sini, katakan padanya untuk menguji teknik baruku!" Tapi pelayan tua itu hanya menggelengkan 
+kepalanya.
+
+Zhou Botong bersumpah dan mengucapkan beberapa komentar tidak jelas sebelum tiba-tiba menyadari, "Bah! Aku lupa kau 
+tuli dan bisu!" Ia memalingkan kepalanya kepada Guo Jing dan berkata, "Malam ini kita harus makan sampai kenyang." 
+Kemudian ia mengulurkan tangan untuk mengambil keranjang makanan.
+
+Lubang hidung Guo Jing mencium aroma lezat yang berasal dari keranjang, tidak seperti makanan yang biasanya mereka 
+dapatkan. Ia buru-buru membuka keranjang dan melihat dua piring kecil sayuran dengan semangkuk besar ayam yang dimasak 
+dengan jamur musim dingin... salah satu favoritnya. Dengan jantung berdebar ia mengambil sendok porselen untuk menyendok 
+sesendok sup. Rasanya persis seperti yang disiapkan Huang Rong untuknya, jadi ia yakin itu dari Huang Rong. Jantungnya 
+berdebar lebih kencang. Dengan cepat ia melihat ke keranjang untuk melihat apakah ada sesuatu yang tidak biasa. Ia 
+menemukan sebuah kotak dengan sepuluh roti kukus di dalamnya. Salah satunya bergambar labu, diukir dengan paku. 
+Gambar itu sangat halus, jika tidak memperhatikan ia pasti akan melewatkannya. Guo Jing tahu roti ini tidak biasa. 
+Dengan tangan gemetar ia mengambil roti itu, membelahnya menjadi dua, dan menemukan sebuah pil lilin[^pil-lilin] 
+di dalamnya. Guo Jing mengamati bahwa Zhou Botong dan pelayan tua itu tidak melihat ke arahnya, jadi ia segera 
+menyelipkan pil itu ke dalam sakunya.
+
+[^pil-lilin]: Secara tradisional obat-obatan di Tiongkok yang berbentuk pil dikemas di dalam sebuah pil kecil yang terbuat dari lilin, dengan tutup yang bisa dibuka-tutup dengan mudah. Ini akan menjaga kualitasnya dari kemungkinan rusak oleh cuaca, terutama sekali hujan dan udara lembab.
+
+Zhou Botong memakan roti kukus terakhir dengan susah payah dan dengan suara keras ia menghabiskan supnya juga. Pelayan 
+tua itu membersihkan dan mengambil keranjang itu. Guo Jing buru-buru mengeluarkan pil lilin, menghancurkannya, dan 
+mengeluarkan kertas yang tersembunyi di dalamnya. Itu memang tulisan tangan Huang Rong. Bunyinya, "Jing Gege, tolong 
+jangan kuatir. Ayah dan aku berdamai. Aku akan dengan hati-hati memintanya untuk membebaskanmu." Surat itu ditutup 
+dengan dua karakter, "Rong'er". Guo Jing sangat gembira, ia menunjukkan surat itu kepada Zhou Botong.
+
+Zhou Botong tertawa. "Serahkan padaku," katanya. "Dia tidak bisa menolak untuk melepaskanmu, kita akan memaksanya, jadi 
+tidak usah memohon segala. Kalau dia menolak, aku akan mengurungnya di lubang ini selama lima belas tahun. Waduh, ini 
+tidak benar! Bagaimana kalau dalam lima belas tahun dia menemukan rahasia Shuang Shou Hubo ini?"
+
+Langit berangsur-angsur menjadi gelap. Guo Jing duduk bersila dan bersiap untuk latihan tenaga dalam. Tapi pikirannya 
+terus mengembara kembali ke Huang Rong. Sampai lama sekali ia tidak bisa berkonsentrasi. Akhirnya ia bisa menenangkan 
+diri dan dadanya rileks. Ia mulai bernapas dengan teratur. Sebuah pemikiran tiba-tiba muncul di benaknya, jika ia bisa 
+membagi pikirannya untuk mengendalikan dua tangan dan menggunakan dua kungfu yang berbeda, mengapa tidak mencoba membagi 
+pernapasannya menjadi dua? Jadi ia menutup salah satu lubang hidungnya dan berlatih pernapasan hanya dengan menggunakan 
+satu lubang hidung.
+
+Ia berlatih selama sekitar satu jam dan merasa telah membuat kemajuan ketika mendengar suara gemerisik. Ia membuka 
+matanya dan melihat dalam kegelapan seseorang dengan rambut dan jenggot panjang sedang bergerak — Zhou Botong sedang 
+berlatih kungfu. Ia membuka matanya lebar-lebar dan melihat dari dekat. Ia melihat tangan kiri Zhou Botong melakukan 
+tujuh puluh dua jurus Tinju Kosong, sementara tangan kanannya sedang melakukan beberapa teknik kepalan Quanzhen 
+lainnya. Tinju itu bergerak perlahan, tetapi menciptakan hembusan angin yang menimbulkan suara gemerisik yang 
+didengarnya sebelum ini. Guo Jing mengagumi kemampuannya yang luar biasa.
+
+Saat ia setengah menonton dan setengah tenggelam dalam pikiran, tiba-tiba didengarnya Zhou Botong menjerit kaget, "Wah!" 
+lalu buru-buru mengebaskan sesuatu dari tubuhnya. Benda panjang hitam dan berkilau terbang dari tubuhnya dan menabrak 
+pohon yang jauh, seolah-olah ia sedang melemparkan semacam senjata rahasia. Guo Jing melihat Zhou Botong gemetar dan 
+ia terkejut. Ia buru-buru mendekat dan berseru, "Kakak, apa yang terjadi?"
+
+"Aku digigit ular berbisa! Aku sekarat!" kata Zhou Botong.
+
+Guo Jing terkejut saat memegang tubuh Zhou Botong. Air mukanya berubah, ia bersandar di bahu Guo Jing dan perlahan 
+berjalan kembali ke gua. Guo Jing cepat-cepat merobek sepotong pakaiannya dan dengan erat membungkus daerah di sekitar 
+paha Zhou Botong untuk mencegah racun menjalar ke jantung.
+
+Guo Jing mengambil sepotong batu pemantik api dari sakunya dan menyalakan api. Dalam cahaya api yang terang ia bisa 
+melihat dengan lebih jelas. Jantungnya serasa melompat ke tenggorokannya. Betis Zhou Botong bengkak sangat parah.
+
+"Di pulau ini tidak ada ular hijau berbisa seperti ini. Aku ingin tahu dari mana asalnya?" kata Zhou Botong dengan lemah. 
+"Ular itu tidak akan bisa menggigitku waktu aku latihan secara normal. Tapi kali ini aku sedang berlatih dua set teknik 
+pukulan. Semua perhatianku sedang terarah ke kedua teknik itu... Wah!"
+
+Guo Jing mendengar suaranya yang gemetar dan tahu racunnya sangat parah. Kalau Zhou Botong tidak memiliki tenaga dalam 
+yang kuat, ia pasti sudah tewas sejak tadi. Dengan gugup ia membungkuk dan mengisap lukanya.
+
+"Wah! Tidak boleh begitu," seru Zhou Botong. "Racun ular ini luar biasa, bisa membunuhmu!"
+
+Tapi Guo Jing hanya memikirkan nyawa Zhou Botong, ia tidak memikirkan keselamatannya sendiri. Tangan kanannya memegang
+tubuh Zhou Botong kuat-kuat, sementara ia terus mengisap darah beracun dari lukanya. Zhou Botong berusaha meronta, tapi
+tubuhnya sangat lemah dan tidak bisa bergerak. Tak lama kemudian ia pingsan.
+
+Guo Jing terus menyedot racunnya dan meludahkannya ke tanah. Dengan racun yang terkuras keluar dari tubuhnya, ditambah 
+tenaga dalamnya yang kuat, Zhou Botong perlahan sadar kembali. Matanya masih terpejam berat. Setengah bangun ia berkata, 
+"Saudaraku, Kakakmu ini akan kembali ke Surga hari ini. Tapi sebelum meninggalkan dunia ini, aku punya kesempatan untuk 
+bersahabat denganmu, hatiku sangat bahagia."
+
+Meskipun Guo Jing belum lama mengenal Zhou Botong, karena mereka memiliki sifat lugas dan jujur yang sama, mereka langsung 
+cocok. Ia merasa sepertinya mereka sudah puluhan tahun saling kenal. Saat ini ia melihat wajahnya yang sekarat, ia tidak 
+bisa mencegah air mata mengalir di pipinya.
+
+Zhou Botong tersenyum sedih dan berkata, "Jiu Yin Zhen Jing tersembunyi di dalam kotak di bawah batu tempat aku biasanya 
+duduk. Aku tadinya ingin memberikannya kepadamu, tapi karena kau menghisap bisa ular yang mematikan ini, kau juga tidak 
+akan hidup lama. Kita berdua akan berjalan bergandengan tangan ke dunia akhirat. Tidak perlu takut tidak punya teman 
+untuk diajak bermain. Kita akan bermain sebagai empat orang di awan... Oh bukan, sebagai empat _hantu_... itu akan 
+lebih menarik. Hantu berkepala besar dan malaikat maut akan bingung melihat kita. Dunia hantu akan jadi berbeda." 
+Berbicara seperti ini membuatnya cukup senang.
+
+Guo Jing mendengar Zhou Botong mengatakan bahwa ia juga akan mati, tetapi ia tidak merasakan sesuatu yang aneh. Ia 
+menggunakan api untuk memeriksa dirinya sendiri. Apinya akan padam, jadi ia mengambil surat Huang Rong dan membakarnya. 
+Ia kemudian melihat ke sekeliling pintu masuk gua untuk menemukan ranting pohon atau rumput kering, tetapi dalam cuaca 
+musim panas tanaman di sekelilingnya hijau subur dan masih lembab.
+
+Ia semakin cemas. Ia lalu merogoh sakunya untuk menemukan sesuatu yang bisa digunakan sebagai obor. Tapi ia tidak 
+menemukan apa-apa, kecuali benda seperti kulit yang melilit belatinya yang berasal dari Mei Chaofeng. Tanpa berpikir 
+dua kali, ia menyalakan benda itu dan mengulurkannya untuk memeriksa wajah Zhou Botong. Ia melihat wajahnya berubah 
+menjadi abu-abu, tidak lagi kemerahan seperti anak kecil.
+
+Zhou Botong melihat api yang berkedip-kedip dan ia tersenyum tipis. Ia melihat wajah Guo Jing tidak berubah, tidak ada 
+tanda-tanda keracunan sama sekali. Ia bingung. Ia mengedipkan matanya dan menatap api. Ia melihat benda yang digunakan 
+Guo Jing sebagai obor mengandung tulisan di atasnya. Ia menyipitkan mata, mencoba membaca apa yang tertulis, setelah 
+membaca sekitar sepuluh karakter atau lebih ia terkejut. Ia menyadari bahwa kata-kata itu diambil dari Jiu Yin Zhen Jing. 
+Ia tidak punya waktu untuk bertanya, jadi ia hanya mengangkat tangannya dan memadamkan api, bertanya, "Saudaraku, obat 
+apa yang kau minum? Kenapa racun mematikan itu tidak mempengaruhimu?"
+
+Guo Jing menduga itu karena ia pernah minum darah ular besar pemakan ginseng milik Liang Ziweng. Jadi ia berkata, 
+"Aku pernah minum darah ular besar, mungkin itu sebabnya aku bisa mengatasi racun ular itu."
+
+Saat ini Guo Jing tidak peduli dengan benda berharga apa pun, ia sibuk menotok titik akupuntur 
+'Persimpangan Istana'[^gong-guo] Zhou Botong, tetapi itu tidak membantu. Ia merasakan betis Zhou Botong itu panas dan 
+membengkak.
+
+[^gong-guo]: Referensi titik akupuntur ini belum ditemukan.
+
+"Empat mesin tenun, bebek mandarin terbang berpasangan..." Ia mendengar Zhou Botong bergumam tidak jelas.
+
+"Kau bilang apa?" tanya Guo Jing.
+
+Guo Jing tahu ia mengigau karena racun itu dan ia sangat cemas. Ia berlari keluar dari gua dan memanjat pohon di luar, 
+berteriak keras, "Rong'er! Rong'er! Huang Laoye! Huang Laoye! Tolong, tolong!" Tapi Pulau Bunga Persik berareal seluas 
+lebih dari sepuluh li, sebuah pulau besar. Kediaman Huang Yaoshi terletak di sisi lain pulau. Teriakan Guo Jing sia-sia. 
+Satu-satunya tanggapan yang didengarnya adalah gema suaranya sendiri yang terpantul dari gunung dan lembah di depan, 
+"... Huang Laoye! Tolong, tolong..."
+
+Guo Jing melompat turun dari pohon, bingung. Pada saat kritis itu sebuah ide melintas di benaknya, "Racun ular tidak dapat 
+menyakitiku, mungkin darahku mengandung penawar racun ular." Tanpa membuang waktu lagi, ia meraba-raba di tanah, mencari 
+mangkuk hijau besar yang digunakan Zhou Botong untuk minum teh setiap hari. Ia mengambil belatinya dan tanpa ragu mengiris 
+lengan kirinya dan membiarkan darahnya menetes ke dalam mangkuk sampai tetesannya berhenti dengan sendirinya. Ia memotong 
+lagi sampai darah memenuhi mangkuk. Kemudian ia menopang Zhou Botong di atas lututnya dan dengan tangan kirinya ia memaksa 
+mulut Zhou Botong terbuka, tangan kanannya mencekokkan darah.
+
+Meski masih muda dan tubuhnya kuat, kehilangan banyak darah telah menguras energinya. Setelah mencekoki Zhou Botong, 
+ia bersandar ke dinding gua dan menutup matanya, tidak lama kemudian ia tertidur pulas.
+
+Ia tidak tahu berapa lama ia tertidur, tetapi ia merasakan seseorang merawat lukanya. Ia membuka matanya dan melihat 
+rambut dan jenggot putih Zhou Botong. Guo Jing sangat senang. "Kau... kau ... kau baik-baik saja?" serunya.
+
+"Aku baik-baik saja, Xiongdi. Kau sudah berkorban untuk menyelamatkan hidupku," kata Zhou Botong. "Aku yakin malaikat 
+maut sangat kecewa, Aku tidak semudah itu dibunuh."
+
+Guo Jing melihat bengkak kehitaman di betis Zhou Botong sudah hilang, tinggal bengkak merah yang sama sekali tidak
+mengancam keselamatannya.
+
+Pagi itu keduanya duduk bersama untuk bermeditasi, mengolah tenaga dalam dan memulihkan tubuh mereka. Setelah makan 
+siang, Zhou Botong bertanya kepada Guo Jing asal usul bungkus kulit itu. Guo Jing mengumpulkan ingatannya sejenak, 
+lalu mulai menceritakan bagaimana gurunya yang kedua di Rumah Awan telah mengambil beberapa barang dari Mei Chaofeng, 
+belati ada di antara benda-benda itu dan kulit itu membungkusnya. Kemudian ia juga memperhatikan tulisan yang tertera
+di dalamnya, tetapi ia tidak tahu apa itu, jadi ia menyimpannya di sakunya tanpa memikirkannya lagi.
+
+Zhou Botong bergumam tak jelas dan tenggelam dalam lamunannya sendiri. "Dage, kau bilang ini barang berharga, apa
+maksudmu?" tanya Guo Jing.
+
+"Aku harus memeriksa barang itu dengan teliti sebelum bisa menjawab pertanyaanmu, tapi karena asalnya dari Mei Chaofeng
+aku punya alasan kuat untuk mempercayainya," jawab Zhou Botong. Ia mengambil lembaran itu dan mulai memeriksanya dengan
+cermat dari atas ke bawah.
+
+Wang Chongyang memenangkan buku tersebut bukan untuk keuntungan pribadinya, tetapi untuk menghindari pertumpahan darah 
+di antara orang-orang dunia persilatan. oleh karena itu ia melarang keras murid-muridnya untuk mempelajari kungfu apa 
+pun dari buku itu. Zhou Botong secara alami tidak berani melanggar kata-kata terakhir kakak seperguruannya. Tapi ia 
+ingat apa yang dikatakan Nyonya Huang, 'Cukup melihat tanpa latihan, itu tidak bisa dianggap tidak patuh.' Ia telah 
+menghabiskan lima belas tahun di gua tanpa melakukan apa-apa, jadi karena bosan ia membaca jilid pertama dari 
+Jiu Yin Zhen Jing yang ada di tangannya. Namun jilid pertama hanya berisi metode untuk mengembangkan tenaga dalam, 
+serta dasar-dasar ilmu pedang, tidak ada kungfu yang nyata untuk mengalahkan lawan. Percuma jika seseorang tidak 
+mempelajari jilid kedua.
+
+Selama sekitar sepuluh tahun terakhir ini, Zhou Botong membaca jilid pertama berulang kali, ia bahkan membuat beberapa 
+tebakan tentang isi jilid kedua. Begitu ia membaca bungkus itu, ia langsung tahu tulisan itu terkait dengan apa yang 
+sudah dihafalnya.
+
+Zhou Botong mengangkat pandangannya ke perbukitan yang jauh dan tenggelam dalam pikirannya. Ia menyukai ilmu silat, 
+sebenarnya ia terobsesi dengan semua itu. Sekarang ia memiliki kitab ilmu silat terhebat dan terdalam di dunia. 
+Sejujurnya ia sangat ingin mempelajari apa yang ada di buku itu, bukan untuk membangun reputasinya sendiri, bukan 
+untuk membalas dendam, juga bukan untuk memamerkan kehebatannya atau untuk menguasai dunia, dia sederhana dan murni 
+ingin tahu, ingin melihat seberapa dalam sebenarnya ilmu yang ada di dalam buku itu.
+
+Dia teringat cerita kakak seperguruannya tentang Huang Shang yang menyusun 5481 bab dari Kanon Tao tenteng Kehidupan Abadi, 
+kemudian ia menghabiskan empat puluh tahun dengan susah payah mempelajari berbagai kungfu yang sangat bagus dari berbagai 
+perguruan. Ini bukan masalah kecil. Hei Feng Shuang Sha baru menguasai jilid kedua dan mereka hanya berhasil mempelajari 
+dua teknik di antara banyak teknik, namun mereka mampu mendatangkan malapetaka di Jianghu. Bagaimana jika mereka bisa 
+mempelajari seluruh jilid kedua? Hasilnya tidak terbayangkan. Tapi kata-kata wasiat kakak seperguruannya tidak bisa 
+dilanggar. Zhou Botong merenungkan hal-hal ini di dalam hatinya, ia menghela nafas berat, memasukkan kulit itu ke dalam 
+sakunya, menutup matanya dan tertidur.
+
+Setelah beristirahat dengan baik, ia mengambil dahan pohon untuk menggali lubang di mana ia bermaksud untuk mengubur 
+kedua jilid tersebut. Ia menggali dan mendesah secara bersamaan. Tiba-tiba sebuah ide melintas di benaknya dan ia 
+tertawa terbahak-bahak sambil bersorak, "Benar! Itu benar! Aku bisa mendapatkan kedua-duanya!" Ia begitu gembira, 
+sehingga tanpa sadar ia mengejutkan Guo Jing, "Kakak, apa yang kedua-duanya?" tanya Guo Jing. Tapi Zhou Botong hanya 
+tertawa tanpa berkata apa-apa. Sepertinya ia mendapat ide yang sangat bagus.
+
+"Guo Xiongdi bukan murid Perguruan Quanzhen. Aku akan mengajarinya dan membiarkan dia berlatih, maka aku akan melihat 
+hasilnya," pikirnya. "Dengan begitu aku bisa memuaskan rasa ingin tahuku dan sekaligus melaksanakan pesan terakhir kakak 
+seperguruanku," pikirnya. Ia akan menceritakan ide ini kepada Guo Jing, ketika ia tiba-tiba punya ide lain, "Dari cara 
+dia bicara, aku menyimpulkan dia membenci Jiu Yin Zhen Jing. Dia pikir itu kungfu yang jahat, tapi itu hanya karena melihat 
+ilmu Hei Feng Shuang Sha yang hanya membaca jilid kedua. Mereka tidak mempelajari jilid pertama. Itu akan memberitahu 
+mereka bagaimana melatih tenaga dalam mereka dan membangun dasar untuk teknik selanjutnya. Mereka hanya mengambil 
+kungfu paling dahsyat yang bisa mereka temukan, dan itu menghasilkan kungfu mereka yang mengerikan. Aku lebih baik tidak 
+mengatakan apa-apa padanya. Aku akan membiarkan dia berlatih dan memberi tahu dia setelah itu. Pada saat itu dia akan 
+menguasai kungfu dari buku itu, dan bahkan jika dia ingin menyingkirkannya dia tidak akan bisa berbuat apa-apa. Ini akan
+sangat menarik!"
+
+Secara alami dia memang nakal. Orang lain akan kesal atau marah kepadanya, ia tidak akan peduli. Orang lain mencintainya 
+atau bersikap baik kepadanya, tetapi ia tidak pernah memikirkannya. Selama ia bisa bermain-main atau membuat lelucon dan 
+bersenang-senang, ia sudah puas. Sekarang setelah ia memikirkan ide ini, ia mencoba mempertahankan ketenangannya dan 
+dengan wajah biasa ia memberitahu Guo Jing, "Xian Di, selama lima belas tahun aku di dalam gua ini, aku sudah menciptakan 
+tidak hanya Tinju Kosong dan Shuang Shou Hubo, tetapi juga beberapa jurus lainnya. Sekarang kita tidak punya urusan lain, 
+bagaimana kalau aku mengajarimu ilmu lain lagi sekedar untuk menghabiskan waktu?"
+
+"Bagus sekali," kata Guo Jing. "Tapi Rong'er bilang dia akan menemukan cara untuk membebaskan kita dari sini."
+
+"Dia sudah menemukan cara itu?" tanya Zhou Botong.
+
+"Sekarang masih belum."
+
+"Lalu apa salahnya belajar ilmu baru sambil menunggu dia?" usul Zhou Botong.
+
+Guo Jing dengan gembira menyetujuinya. "Bagus sekali! Ilmu kakak pasti sangat hebat!"
+
+Zhou Botong tertawa di dalam hati, "Jangan buru-buru senang," pikirnya, "Kau tertipu!" Jadi ia segera menyampaikan inti 
+dari Jiu Yin Zhen Jing sedikit demi sedikit dari ingatannya. Secara alamiah Guo Jing tidak segera memahaminya, tetapi 
+Zhou Botong sangat sabar. Ia mengulang pelajaran itu sebanyak yang diperlukan. Untuk pelajaran dari jilid kedua yang 
+didapat dari bungkus kulit itu, ia menghafalnya terlebih dahulu ketika Guo Jing tidak melihat, dan kemudian ia akan 
+meneruskannya apa yang sudah dihafalnya.
+
+Jiu Yin Zhen Jing berisi berbagai teknik kungfu dari berbagai aliran yang berbeda. Zhou Botong mengajarkan teori tetapi 
+tidak memberikan contoh bagaimana melakukannya. Ia membiarkan Guo Jing merenungkan dan mencari tahu sendiri. Setelah 
+itu ia menguji teknik yang baru dipelajari itu melawan seni bela diri Perguruan Quanzhen.
+
+Setelah beberapa hari, ia mulai melihat kungfu yang luar biasa dari Kitab Sembilan Bulan yang secara bertahap dikuasai 
+Guo Jing, tetapi Guo Jing sendiri masih sama sekali tidak sadar bahwa ia sedang mempelajari Jiu Yin Zhen Jing. Zhou Botong 
+sangat senang, ia sering tersenyum dalam tidurnya.
+
+Sementara itu Huang Rong terus menyediakan makanan untuk Guo Jing, meskipun ia sendiri tidak pernah muncul di tempat
+itu. Hati Guo Jing sangat gembira, semua itu menyebabkan latihannya maju pesat.
+
+Suatu hari Zhou Botong mengajarkan Cakar Dewa Sembilan Bulan[^jiuyin-shen-zhua], ia menginstruksikan Guo Jing untuk 
+menggunakan semua jarinya, dan berlatih di dinding gua. Setelah Guo Jing melatihnya beberapa kali, ia tiba-tiba 
+menyadari sesuatu. "Kakak," katanya, "Kupikir Mei Chaofeng juga mempelajari kungfu semacam ini, hanya saja dia 
+latihan melawan manusia. Dia bisa memasukkan lima jarinya ke dalam tengkorak seseorang. Itu sangat kejam."
+
+[^jiuyin-shen-zhua]: Jiu Yin Shen Zhua (九阴神爪). Ilmu ini pada dasarnya sama dengan apa yang dipelajari oleh Mei Chaofeng dan Chen Xuanfeng, tetapi dengan prinsip aslinya. Mei Chaofeng mempelajarinya dengan prinsip hasil pemikiran pribadi Chen Xuanfeng.
+
+Zhou Botong terkejut, "Itu benar," pikirnya, "Mei Chaofeng tidak tahu isi jilid pertama, jadi dia mengikuti instruksi 
+secara harfiah. Jilid kedua hanya menyatakan 'pusatkan energi di lima jari dan serang kepala musuh dengan kuat.' Dia 
+tidak tahu bahwa 'kepala musuh' berarti titik vital musuh dan tidak secara harfiah memasukkan lima jari ke dalam 
+tengkorak musuh. Tidak heran dia mengira harus berlatih menggunakan tengkorak asli. Jiu Yin Zhen Jing berisi pelajaran 
+tentang kemurnian spiritual untuk mengusir roh jahat, mana mungkin mengajari siapa pun untuk mempraktekkan kungfu yang 
+kejam dan ganas? Wanita itu menyimpang terlalu jauh dari kebenaran. Guo Xiandi sudah curiga, jadi sebaiknya aku tidak 
+mengajarinya kungfu semacam itu." Setelah itu ia tersenyum dan berkata, "Mei Chaofeng mempraktekkan kungfu sesat. Mana 
+bisa dibandingkan dengan perguruan ortodoks sejati kita? Baiklah, kita tidak akan latihan kungfu Cakar Dewa ini untuk 
+saat ini. Sebagai gantinya, aku akan mengajarimu ilmu warisan Quanzhen kita."
+
+Sambil bicara ia membuat rencana bagus lainnya, "Aku akan mengajarinya jilid pertama sampai dia benar-benar memahami 
+semuanya. Lalu aku akan melanjutkan dengan jilid kedua. Dia akan melihat hubungan logis antara yang pertama dan yang 
+kedua dan dia tidak akan curiga lagi." Jadi ia mulai menghafalkan teori dari jilid pertama dan menyuruh Guo Jing untuk 
+menghafalnya.
+
+Pelajaran dari kitab itu sangat rumit dan mendalam, bagaimana Guo Jing bisa memahami segalanya? Zhou Botong menyadari 
+Guo Jing lamban, jadi ia menyuruhnya untuk membacanya keras-keras. Setelah mengulanginya puluhan kali, Guo Jing mampu 
+menghafal hampir semuanya. Ia tidak mengerti sebagian artinya, tetapi ia tetap mengingatnya. Beberapa hari berlalu dan 
+Zhou Botong sudah mengajarkan sebagian besar isi kitabnya, jadi ia menyuruh Guo Jing mulai melatih tenaga dalamnya.
+
+Guo Jing merasa cara latihan tenaga dalam itu mirip dengan yang dipelajarinya dari Ma Yu, hanya saja yang ini lebih 
+mendalam dan lebih sulit. Ia mengira bahwa karena Zhou Botong adalah paman guru Ma Yu, jadi pasti caranya melatih 
+tenaga dalam lebih sulit daripada Ma Yu. Ia juga ingat bahwa ketika Mei Chaofeng duduk di bahunya melawan musuh di 
+istana Zhao, ia menanyakan beberapa pertanyaan tentang tenaga dalam yang bisa dijawabnya. Ia tidak curiga sama sekali. 
+Meskipun ia sering memperhatikan ekspresi lucu Zhou Botong, seolah-olah ia terhibur oleh sesuatu, ia pikir itu adalah 
+watak alami Zhou Botong yang suka bercanda. Mungkin ia sedang memikirkan hal-hal lucu lainnya.
+
+Manual itu berisi lebih dari seribu karakter yang kelihatannya omong kosong tanpa arti yang jelas. Selama beberapa 
+tahun terakhir Zhou Botong telah berulang kali merenungkan kata-kata itu di dalam gua, tetapi ia masih tidak tahu 
+apa artinya. Namun demikian, ia meneruskan semuanya kepada Guo Jing. Ketika Guo Jing bertanya apa maksudnya, Zhou 
+Botong hanya berkata, "Rahasia ini tidak dapat dibocorkan sekarang, kau akan mengerti ketika waktunya tiba."
+
+Menghafal ribuan kata itu tanpa memahami artinya seratus kali lebih sulit daripada menghafal buku biasa. Mungkin 
+tidak terlalu sulit bagi orang yang berpikiran cerdas, tetapi meskipun Guo Jing lamban, ia punya tekad yang kuat. 
+Setelah lebih dari seribu kali melafalkan kata-kata itu akhirnya ia bisa menghafal semuanya.
+
+Guo Jing bangun pagi-pagi dan segera mulai latihan kungfu. Ketika sarapan datang, ia melihat ada roti kukus yang 
+tidak biasa lagi. Tanpa menunggu selesai makan, ia membawa roti itu ke hutan dan segera menghancurkan pil lilin 
+di dalamnya untuk menemukan surat itu. Begitu ia melirik, ia langsung merasa sangat cemas. Surat itu berbunyi, 
+"Jing Gege, Racun Barat datang kepada Ayah untuk melamar aku, untuk dinikahkan dengan keponakannya, dan Ayah 
+menjawab..." Surat itu belum selesai, menandakan bahwa dia terburu-buru menulisnya. Sepertinya kata setelah 
+'menjawab' adalah 'ya'.
+
+Pikiran Guo Jing sangat kacau, ia menunggu dengan tidak sabar sampai si pelayan itu selesai membersihkan sisa-sisa
+makanan mereka, lalu menunjukkan surat itu kepada Zhou Botong.
+
+"Ayahnya memberikan restu, itu bagus," kata Zhou Botong. "Itu _bukan_ urusan kita."
+
+"Wah, aku tidak bisa menerima hal ini," kata Guo Jing. "Rong'er sudah berjanji untuk bersamaku. Dia pasti panik sekarang."
+
+"Kalau kau menikah, ada beberapa kungfu yang tidak akan bisa kau pelajari," kata Zhou Botong. "Itu sayang sekali...
+Aku... aku sangat menyesal tidak menuruti nasihat kakak seperguruanku. Xiandi, dengar nasihatku, sebaiknya kau jangan
+menikah."
+
+Guo Jing merasa semakin Zhou Botong berbicara, ia jadi semakin tidak masuk akal. Itu membuat Guo Jing lebih gelisah 
+dari sebelumnya. Zhou Botong melanjutkan, "Seandainya saja aku tidak kehilangan keperjakaanku, dan karena itu tidak 
+dapat belajar kungfu paling dahsyat dari kakak seperguruanku, mana mungkin Si Sesat Tua Huang itu memenjarakan aku 
+di lubang celaka ini? Soalnya kalau pikiranmu terfokus pada istrimu, hatimu terbagi. Aku yakin latihan kungfu hari ini 
+tidak akan membawamu kemana-mana. Kalau kau benar-benar menikahi anak perempuan Huang Laoxie itu... Waduh! Itu akan 
+terlalu buruk! Kalau saja aku... Ay! Sudahlah. Singkatnya kalau kau membiarkan dirimu terjerat hubungan dengan seorang 
+perempuan, kau tidak akan mencapai puncak kesempurnaan. Selain itu, kau akan menyinggung temanmu dan tidak mematuhi 
+saudara seperguruanmu. Sangat sulit bagimu untuk melupakannya. Aku bertanya-tanya bagaimana dia... Pokoknya jangan 
+pernah melihat wajahnya yang cantik, jangan pernah membelai tubuh indahnya dan jangan mengajarinya teknik menotok 
+jalan darah, karena dia akan merasakan tubuhmu untuk menemukan titik akupuntur itu. Itu adalah tabu besar... 
+lebih buruk lagi, jangan pernah memintanya untuk menikahimu..."
+
+Bagi Guo Jing, Zhou Botong hanya sekedar bergumam tak jelas dan tidak logis, tapi sangat mengganggunya. "Aku akan
+menikahinya atau tidak, kita urus soal itu nanti. Kakak, saat ini kita harus menolongnya!"
+
+Zhou Botong tertawa, "Racun Barat sangat jahat, keponakannya ya sama saja. Anak perempuan Huang Laoxie cantik, tetapi 
+dia pasti punya karakter aneh yang sama dengan Huang Laoxie, pikiran sesat. Biarkan keponakan Racun Barat itu mengambilnya 
+jadi istrinya, biarkan mereka berdua menderita dan biarkan kungfu mereka tidak bisa maju kemana-mana. Dengan begitu kita 
+membunuh dua burung dengan sekali tembak. Tidak, lebih tepatnya... kalahkan dua burung dengan sekali tembak. Tidak ada 
+yang baik dari mereka semua. Masa menurutmu ini bukan ide yang baik?"
+
+Guo Jing menghela nafas, berjalan ke dalam hutan, dan duduk di tanah. Pikirannya campur aduk, "Bahkan jika aku harus mati 
+di Pulau Bunga Persik, aku harus menemukannya," pikirnya. Begitu tekadnya sudah bulat, ia melompat dan mulai bergerak. 
+Pada saat itu ia mendengar dua seruan keras dari langit dan dua sosok putih menukik ke arahnya. Mereka adalah elang putih 
+yang dibawa Tolui dari padang rumput. Guo Jing sangat senang dan mengulurkan tangannya untuk membiarkan elang itu hinggap. 
+Baru pada saat itulah ia melihat tabung bambu diikatkan ke kaki elang jantan. Dengan tergesa-gesa ia membukanya dan 
+menemukan sebuah surat di dalamnya. Itu dari Huang Rong. Ia memberitahunya perkembangan terbaru – bagaimana Racun Barat 
+akan tiba dalam beberapa hari untuk mengatur pertunangan, bagaimana ayahnya menjaganya dengan ketat dan tidak membiarkannya 
+keluar dari tempat tinggalnya bahkan setengah langkah pun. Itu termasuk menyiapkan makanan untuk Guo Jing. Pada akhirnya 
+ia berkata bahwa jika ia tidak bisa melepaskan diri dari semua ini, ia akan bunuh diri untuk menunjukkan cintanya. Ia 
+juga memberi tahu Guo Jing bahwa jalan-jalan di pulau itu berbahaya dan misterius, dan penuh dengan jebakan, jadi ia 
+memperingatkan Guo Jing untuk tidak mencoba menemukannya.
+
+Guo Jing tercengang. Dia mengeluarkan belatinya dan mengukir enam karakter ini pada tabung bambu, "Hidup bersama, mati 
+bersama"[^together], lalu ia mengikat tabung itu ke kaki elang dan mengangkat lengannya, menunjuk ke utara. Elang 
+itu mengitarinya beberapa kali, lalu mereka terbang ke utara. Begitu membuat keputusan ini, hatinya menjadi tenang. 
+Ia berjalan kembali ke Zhou Botong, duduk di tanah di depannya dan mendengarkan dia menyampaikan lebih banyak teori kungfu.
+
+[^together]: "Hidup bersama, mati bersama", Yi qi huo, yi qi si (一起活，一起死).
+
+Sepuluh hari berikutnya berlalu tanpa sepatah kata pun dari Huang Rong. Guo Jing berhasil menghafal jilid pertama secara 
+keseluruhan. Zhou Botong sangat senang, ia melanjutkan membaca jilid kedua untuk dihafal Guo Jing. Sekali lagi, ia tidak 
+memberikan contoh atau instruksi apa pun tentang cara mempraktekkannya karena takut Guo Jing akan mengetahui rencananya. 
+Guo Jing dengan rajin mempelajari dan mengingat setiap kata dalam benaknya. Setelah menghafalkan beberapa ratus kali 
+kemudian, ia memikirkan jilid pertama dan kedua, termasuk semua kata-kata omong kosong seperti 
+'ang li na de' dan 'ha hu wen bo ying'. Dia tidak melewatkan satu kata pun.[^catatan-1]
+
+[^catatan-1]: Kedua kutipan tersebut tidak diterjemahkan sama sekali oleh penerjemah bahasa Inggris, dan bukan dalam bentuk karakter bahasa mandarin atau _pinyin_ tetapi di dalam bentuk _transliterasi_ tanpa _grave stroke_ apa pun juga. Jadi saya juga tidak punya cara untuk menelitinya lebih lanjut. Jadi bukan hanya bagi Guo Jing dalam cerita, bagi kita pun tulisan itu sama sekali tidak bermakna.
+
+
+
+
+
+
+
+
 
 
