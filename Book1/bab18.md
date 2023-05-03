@@ -371,41 +371,81 @@ Delapan Belas Jurus Penakluk Naga tak tertandingi di dunia persilatan, satu juru
 apalagi dua jurus sekaligus. Ouyang Ke tidak bisa menghadapinya. Huang Yaoshi dan Ouyang Feng sebenarnya berdiri di 
 dekatnya, tetapi mereka tidak mengantisipasi serangan balik Guo Jing. Keduanya kaget dan tidak bisa berbuat apa-apa.
 
-Ouyang Ke melihat tangan kiri lawannya mengancam sisi kanannya. Dia tahu 'Eighteen Dragon-Subduing Palms' sangat ganas dan dia bisa menghindar tetapi tidak bisa menangkis. Dengan cepat dia menyandarkan tubuhnya ke kiri tepat pada saat yang sama dengan 'Proud Dragon Shows Remorse' tangan kanan Guo Jing masuk.
+Ouyang Ke melihat tangan kiri lawannya mengancam sisi kanan tubuhnya. Ia tahu Delapan Belas Jurus Penakluk Naga sangat 
+dahsyat, dan ia hanya bisa menghindar tetapi tidak bisa menangkis. Dengan cepat ia mencondongkan tubuhnya ke kiri 
+tepat pada saat yang sama dengan Kang Long You Hui tangan kanan Guo Jing masuk.
 
-Dia menyadari keganasan serangan lawannya, jadi ketika tangan Guo Jing tiba dia sudah memfokuskan energi internalnya ke dadanya untuk melindungi jantung dan paru-parunya dari kekuatan yang masuk. Selanjutnya, begitu dipukul ia berusaha mengurangi lukanya dengan mencoba melompat. Kekuatan luar biasa dari tangan Guo Jing telah menambah energinya sendiri dan mengirimnya terbang menuju atap paviliun bambu. Dia berhasil mendarat dengan berdiri, meskipun sangat terhuyung-huyung; lalu perlahan meluncur ke bawah. Dia sangat malu dan dadanya sakit parah. Dia berjalan mundur perlahan.
+Ia menyadari kedahsyatan serangan lawannya, jadi ketika tangan Guo Jing tiba ia sudah memusatkan tenaga dalamnya 
+ke dada untuk melindungi jantung dan paru-parunya dari terjangan tenaga yang masuk. Selanjutnya begitu terpukul ia 
+berusaha memperkecil cedera dengan melompat. Tenaga luar biasa dari tangan Guo Jing menambah dorongan tenaganya 
+sendiri dan mengirimnya terbang menuju ke atap pondok bambu. Ia berhasil mendarat dengan berdiri, meskipun 
+terhuyung-huyung, lalu perlahan meluncur ke bawah. Ia sangat malu dan dadanya sakit parah. Ia berjalan mundur perlahan.
 
-Serangan balik Guo Jing telah mengejutkan Bidat Timur dan Racun Barat dan memberi Ouyang Ke pelajaran yang tidak mudah dia lupakan. Itu juga menerima penghargaan Huang Rong. Dia bertepuk tangan dan melompat-lompat dengan sangat bahagia. Guo Jing sendiri tidak menyadari bahwa seni bela dirinya telah berkembang pesat. Dia hanya berpikir bahwa Ouyang Ke ceroboh dan lengah. Dia takut Ouyang Ke akan melancarkan serangan balik, jadi dia mundur dua langkah dan menunggu lawannya dengan penuh perhatian.
+Serangan balik Guo Jing mengejutkan Si Sesat Timur dan Racun Barat, dan memberi Ouyang Ke pelajaran yang tidak mudah 
+dilupakan. Aksi itu juga menerima sambutan meriah dari Huang Rong. Ia bertepuk tangan dan melompat-lompat dengan sangat 
+gembira. Guo Jing sendiri tidak menyadari bahwa kungfunya telah berkembang pesat. Ia hanya berpikir bahwa Ouyang Ke lengah 
+dan ceroboh. Ia takut Ouyang Ke akan melancarkan serangan balik, jadi ia mundur dua langkah dan menunggu lawannya dengan 
+penuh perhatian.
 
-Ouyang Feng memelototi Guo Jing dengan marah saat dia memanggil dengan keras, "Pengemis Tua Hong ... selamat atas murid baikmu!"
+Ouyang Feng memelototi Guo Jing dengan marah sambil berteriak keras, "Hong Laogai[^hong-lao-gai]... selamat atas muridmu 
+yang baik!"
 
-Huang Rong telah melepas saputangan sutra dari telinganya dan setelah mendengar panggilan keras Ouyang Feng, dia tahu Hong Qigong telah tiba. Benar-benar penyelamat yang dikirim dari surga. Dia bergegas keluar dari alur bambu dan dengan keras memanggil, “Shifu! Shifu! [Menguasai]"
+[^hong-lao-gai]: Hong Laogai (洪老丐), Pengemis Tua Hong.
 
-Huang Yaoshi tercengang, "Mengapa Rong'er memanggil Pengemis Tua Hong 'Shifu'?" Tepat pada saat itu Hong Qigong muncul dengan labu anggur merah di punggungnya, tongkat bambu di tangan kanannya, tangan Huang Rong di tangan kirinya dan tersenyum lebar saat memasuki alur bambu.
 
-Huang Yaoshi dan Hong Qigong saling menyapa dan berbasa-basi. Kemudian Huang Yaoshi menoleh ke putrinya dan bertanya, "Rong'er, apa yang kamu sebut Qigong?"
+Huang Rong telah melepas saputangan sutra dari telinganya dan setelah mendengar panggilan keras Ouyang Feng, ia tahu 
+Hong Qigong telah tiba. Benar-benar penyelamat yang dikirim dari Surga. Ia bergegas keluar dari hutan bambu dan dengan 
+keras memanggil, "Shifu! Shifu!"
 
-Qigong Senior telah menjadikan saya sebagai muridnya, jawab Huang Rong.
+Huang Yaoshi tercengang, "Mengapa Rong'er memanggil Pengemis Tua Hong 'Shifu'?" Tepat pada saat itu Hong Qigong muncul 
+dengan botol arak merah[^kantong-arak] di punggungnya, tongkat bambu di tangan kanannya, tangan Huang Rong di tangan kirinya dan tersenyum lebar saat memasuki hutan bambu.
 
-Huang Yaoshi sangat senang. Dia menoleh ke Hong Qigong sambil berkata, “Jadi Saudara Qi [Qi Xiong] telah menerima putri saya; saudaramu sangat menghargai itu. Tapi putri saya nakal; Saya berharap Saudara Qi akan mengajarinya beberapa pelajaran.” Berbicara demikian, dia mengangkat tangannya untuk memberi hormat.
+[^kantong-arak]: Kantong arak atau botol arak ini terbuat dari buah labu kering, yang disebut Hulu (葫芦). Biasa dipakai untuk membawa air minum atau arak. Hong Qigong selalu membawa botol arak berwarna merah yang menjadi salah satu ciri khasnya.
 
-Hong Qigong tersenyum. “Seni bela diri saudara Yao luas dan mendalam. Gadis ini tidak akan bisa mempelajari semuanya seumur hidupnya; kenapa aku harus ikut campur? Tapi karena Anda bertanya, alasan saya mengambilnya sebagai murid saya adalah agar saya bisa makan gratis. Dia menyiapkan banyak makanan enak untuk saya, jadi Anda tidak perlu berterima kasih kepada saya, ”katanya. Huang Yaoshi dan Hong Qigong keduanya tertawa terbahak-bahak.
+Huang Yaoshi dan Hong Qigong saling menyapa dan berbasa-basi. Kemudian Huang Yaoshi menoleh ke putrinya dan bertanya, "Rong'er, tadi kau panggil Qigong apa?"
 
-Huang Rong mengarahkan jarinya ke Ouyang Ke dan berkata, “Ayah, orang jahat ini menggangguku. Jika bukan karena Qigong Senior menjaga saya atas nama Anda, Anda tidak akan melihat Rong'er secepat ini.
+"Qigong Qianbei sudah menerimaku menjadi muridnya," jawab Huang Rong.
 
-"Omong kosong!" Huang Yaoshi menegurnya, "Bagaimana dia bisa menggertakmu tanpa alasan?"
+Huang Yaoshi sangat senang. Ia menoleh kepada Hong Qigong sambil berkata, "Jadi Qi Xiong menerima putriku? Saudaramu 
+sangat menghargai itu. Tapi putriku nakal. Kuharap Saudara Qi akan mendidiknya baik-baik." Berbicara demikian, ia 
+mengangkat tangannya untuk memberi hormat.
 
-"Jika kamu tidak percaya padaku, tanyakan padanya!" Huang Rong menjawab. Memutar kepalanya ke arah Ouyang Ke, dia berkata, "Kamu harus bersumpah bahwa jika kamu menjawab pertanyaan ayahku bahkan dengan setengah kebohongan, akan datang suatu hari ketika ular berbisa di staf pamanmu akan menggigitmu."
+Hong Qigong tersenyum. "Kungfu Yao Xiong luas dan mendalam. Gadis cilik ini tidak akan bisa mempelajari semuanya 
+seumur hidupnya, kenapa aku harus ikut campur? Tapi karena kau bertanya, alasanku mengambilnya sebagai murid adalah 
+supaya aku bisa makan gratis. Ia menyiapkan banyak makanan enak untukku, jadi kau tidak perlu berterima kasih," 
+katanya. Huang Yaoshi dan Hong Qigong tertawa terbahak-bahak.
 
-Mendengarkan kata-katanya, wajah Ouyang Feng dan Ouyang Ke berubah. Ouyang Feng telah menghabiskan lebih dari sepuluh tahun memelihara ular berbisa di stafnya. Mereka adalah keturunan campuran dari berbagai ular berbisa sehingga racun mereka sangat mematikan. Ouyang Feng biasa menghukum murid-muridnya yang memberontak atau musuh-musuhnya dengan gigitan ular-ular ini. Begitu racun memasuki sistem seseorang, korban akan menderita rasa gatal yang parah di sekujur tubuh, diikuti dengan kematian yang sangat menyakitkan. Ouyang Feng memang memiliki penawarnya; tetapi setelah racun memasuki tubuh seseorang, bahkan jika penawarnya menyelamatkan nyawanya, dia akan kehilangan semua seni bela dirinya dan akan hidup selamanya sebagai orang cacat. Huang Rong tentu saja tidak mengetahui hal ini; dia hanya merasa bahwa ular yang terjalin di tongkat Ouyang Feng itu aneh, jadi dia secara tidak sengaja menyebutkannya. Siapa yang mengira bahwa dia telah menyentuh topik tabu utama dari keluarga Racun Barat?
+Huang Rong mengarahkan jarinya ke Ouyang Ke dan berkata, "Ayah, orang jahat ini menggangguku. Kalau bukan karena 
+Qigong Qianbei menjagaku atas nama ayah, ayah tidak akan bertemu Rong'er lagi secepat ini."
 
-“Saya tidak berani menjawab pertanyaan Ayah Mertua yang Terhormat dengan tidak jujur,” janji Ouyang Ke.
+"Omong kosong!" tegur Huang Yaoshi. "Buat dia bisa mengganggumu tanpa alasan?"
 
-"Kamu berbicara omong kosong lagi!" Huang Rong meludah. “Kamu membuatku ingin menampar telingamu dengan sangat keras. Izinkan saya menanyakan ini kepada Anda: Apakah Anda atau tidak melihat saya di Beijing di Istana Zhao?
+"Kalau kau tidak percaya, tanya dia!" jawab Huang Rong. Ia berpaling ke arah Ouyang Ke dan berkata, "Kau harus 
+bersumpah, kalau kau menjawab pertanyaan ayahku dengan setengah kebohongan saja, maka suatu hari ular berbisa di 
+tongkat pamanmu akan menggigitmu."
 
-Tulang rusuk Ouyang Ke patah dan dadanya terkena jarum baja, jadi rasa sakitnya hampir tak tertahankan; tapi dia terlalu sombong untuk menunjukkan kelemahannya di depan orang lain. Dia mengertakkan gigi dan bisa berbicara, tetapi rasa sakitnya semakin parah dan mengakibatkan keringat dingin muncul di dahinya. Meskipun dia ingin menjawab Huang Rong, dia tidak berani membuka mulutnya. Yang bisa dia lakukan hanyalah mengangguk mengiyakan.
+Mendengarkan kata-katanya, wajah Ouyang Feng dan Ouyang Ke berubah. Ouyang Feng menghabiskan lebih dari sepuluh tahun 
+memelihara ular berbisa di tongkatnya. Mereka adalah keturunan campuran dari berbagai ular berbisa, sehingga racun mereka 
+sangat mematikan. Ouyang Feng biasa menghukum murid-muridnya yang memberontak atau musuh-musuhnya dengan gigitan ular-ular 
+ini. Begitu racun memasuki tubuh seseorang, korban akan menderita rasa gatal yang parah di sekujur tubuh, diikuti dengan 
+kematian yang sangat mengerikan. Ouyang Feng memang punya penawarnya, tetapi setelah racun memasuki tubuh seseorang, 
+bahkan jika penawarnya menyelamatkan nyawanya, ia akan kehilangan semua kungfunya, dan akan hidup selamanya sebagai orang 
+cacat. Huang Rong tentu saja tidak mengetahui hal ini, ia hanya merasa bahwa ular yang merayap di tongkat Ouyang Feng itu 
+aneh, jadi ia secara tidak sengaja menyebutkannya. Ia sama sekali tidak mengira bahwa ia telah menyentuh topik tabu utama 
+dari keluarga Racun Barat.
 
-“Pada saat itu kamu, bersama dengan Sha Tongtian, Peng Lianhu, Liang Ziweng, dan Biksu Lingzhi, mengepung dan menindasku, bukan?” Huang Rong bertanya lagi.
+"Aku tidak berani menjawab pertanyaan Ayah Mertua dengan tidak jujur," janji Ouyang Ke.
+
+"Kau berbicara omong kosong lagi!" Huang Rong meludah. "Kau membuatku ingin menampar telingamu dengan sangat keras. 
+Coba jawab, apa kau pernah melihatku di Yanjing, di Istana Zhao?"
+
+Tulang rusuk Ouyang Ke patah dan dadanya terkena jarum baja, jadi rasa sakitnya hampir tak tertahankan, tapi ia terlalu 
+sombong untuk menunjukkan kelemahannya di depan orang lain. Ia mengertakkan gigi dan bisa berbicara, tetapi rasa sakitnya 
+semakin parah dan mengakibatkan keringat dingin muncul di dahinya. Meskipun ia ingin menjawab Huang Rong, ia tidak berani 
+membuka mulutnya. Yang bisa dilakukannya hanya mengangguk mengiyakan.
+
+"Pada saat itu kau bersama dengan Sha Tongtian, Peng Lianhu, Liang Ziweng, dan Biksu Lingzhi, mengepung dan menindasku, 
+kan?" tanya Huang Rong lagi.
 
 Ouyang Ke ingin membela diri dengan menjelaskan bahwa dia bukan kolaborator dengan orang-orang itu untuk menggertaknya; tapi yang bisa dia katakan hanyalah, "Aku ... aku tidak bekerja sama dengan mereka ..." Dadanya sangat sakit sehingga dia tidak bisa berkata apa-apa lagi.
 
