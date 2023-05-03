@@ -468,6 +468,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Kakak laki-laki. Berbeda dengan Ge (哥), panggilan ini lebih menunjukkan hormat.
     </dd>
+    <dt id="bai-tuo-shan">Bai Tuo Shan (白駝山)</dt>
+    <dd>Pegunungan Onta Putih, wilayah kekuasaan Ouyang Feng di daerah Barat.</dd>
 </dl>
 
 
@@ -815,27 +817,20 @@ Ini sebenarnya adalah sebuah kutipan dari literatur kuno, era Dinasti Zhou, yang
 夫征不復，	fu zheng bu fu,
 婦孕不育。	fu yun bu yu.
 
+```
+
 
 Kira-kira bisa diterjemahkan menjadi ungkapan berikut:
 
 ```
-
 Pelan-pelan maju ke tanah kering.
 Seorang suami pergi tidak kembali, 
 dan seorang istri yang hamil tetapi tidak mau menyusui anaknya.
 
 ```
 
-Untuk keperluan kita, barangkali hanya akan kita ambil baris pertama secara literal.
-
 - Hong (鴻) = Angsa 
 - Jian (漸) = Berangsur-angsur 
 - Yu (于)   = kata sambung, bisa dari/ke/menuju 
 - Lu (陸)   = tanah/tepian/pantai 
-
-
-
-### <a name="bai-tuo-shan" id="bai-tuo-shan">Bai Tuo Shan (白駝山)</a>
-
-Pegunungan Onta Putih, wilayah kekuasaan Ouyang Feng.
 
