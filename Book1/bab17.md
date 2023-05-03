@@ -984,6 +984,30 @@ kemudian, ia memikirkan jilid pertama dan kedua, termasuk semua kata-kata omong 
 
 [^catatan-1]: Kedua kutipan tersebut tidak diterjemahkan sama sekali oleh penerjemah bahasa Inggris, dan bukan dalam bentuk karakter bahasa mandarin atau _pinyin_ tetapi di dalam bentuk _transliterasi_ tanpa _grave stroke_ apa pun juga. Jadi saya juga tidak punya cara untuk menelitinya lebih lanjut. Jadi bukan hanya bagi Guo Jing dalam cerita, bagi kita pun tulisan itu sama sekali tidak bermakna.
 
+Mendengarkan cara Guo Jing menghafalkan isi kitab itu, Zhou Botong jadi kagum. "Anak bodoh ini betul-betul mampu menghafal
+isi kitab bodoh itu," pikirnya. "Lao Wantong betul-betul salut!"
+
+Malam itu langit cerah dan laut tenang memantulkan cahaya bulan keperakan yang menyinari pulau. Zhou Botong baru saja 
+selesai memeriksa kemajuan Guo Jing. Ia menemukan bahwa Guo Jing telah membuat kemajuan luar biasa dalam kungfunya, 
+dan itu sama sekali tidak disadarinya. Ia sangat senang dan percaya bahwa kitab itu benar-benar mengandung teknik 
+ilmu silat yang mendalam dan hebat. Ia berpikir bahwa jika ia sendiri mempelajari teknik dari kitab itu, akhirnya ia 
+akan melampaui Huang Yaoshi dan Hong Qigong.
+
+Keduanya sedang duduk di tanah, mengobrol santai ketika mereka tiba-tiba mendengar suara gemerisik datang dari kejauhan. 
+Zhou Botong melompat kaget, "Ular!" jeritnya. Ia baru saja menutup mulutnya ketika suara mendesis mencapai telinga mereka. 
+Kedengarannya seperti ada segerombolan ular datang ke arah mereka. Wajah Zhou Botong menjadi pucat dan ia berlari ke dalam 
+gua. Ia seorang pemberani dan kungfunya mungkin luar biasa, tapi tidak saat menghadapi ular. Guo Jing segera memindahkan 
+beberapa batu besar dan menutupi pintu masuk gua.
+
+"Dage," kata Guo Jing. "Aku akan keluar untuk melihat ada apa. Kau jangan keluar!"
+
+"Hati-hati dan segera kembali," jawab Zhou Botong. "Tapi menurutku kau tidak perlu melihatnya. Apa yang sih yang menarik 
+dari ular berbisa? Kok... kok bisa banyak ular di pulau ini? Alu sudah tinggal di sini selama lima belas tahun dan belum 
+pernah melihat seekor ular pun. Lihat betapa buruknya pulau ini! Huang Laoxie selalu membanggakan pengetahuan dan akalnya 
+yang luas, tetapi lihat betapa kotornya Pulau Bunga Persik ini. Kura-kura laut, ular beludak, kelabang, dan segala jenis 
+binatang melata datang ke sini."
+
+
 
 
 
