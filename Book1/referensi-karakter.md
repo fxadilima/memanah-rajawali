@@ -828,9 +828,14 @@ dan seorang istri yang hamil tetapi tidak mau menyusui anaknya.
 
 Untuk keperluan kita, barangkali hanya akan kita ambil baris pertama secara literal.
 
-- Hong (鴻) = Angsa
-- Jian (漸) = Berangsur-angsur
-- Yu (于)   = kata sambung, bisa dari/ke/menuju
-- Lu (陸)   = tanah/tepian/pantai
+- Hong (鴻) = Angsa 
+- Jian (漸) = Berangsur-angsur 
+- Yu (于)   = kata sambung, bisa dari/ke/menuju 
+- Lu (陸)   = tanah/tepian/pantai 
 
+
+
+### <a name="bai-tuo-shan" id="bai-tuo-shan">Bai Tuo Shan (白駝山)</a>
+
+Pegunungan Onta Putih, wilayah kekuasaan Ouyang Feng.
 

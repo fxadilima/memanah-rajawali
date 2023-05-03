@@ -447,19 +447,36 @@ membuka mulutnya. Yang bisa dilakukannya hanya mengangguk mengiyakan.
 "Pada saat itu kau bersama dengan Sha Tongtian, Peng Lianhu, Liang Ziweng, dan Biksu Lingzhi, mengepung dan menindasku, 
 kan?" tanya Huang Rong lagi.
 
-Ouyang Ke ingin membela diri dengan menjelaskan bahwa dia bukan kolaborator dengan orang-orang itu untuk menggertaknya; tapi yang bisa dia katakan hanyalah, "Aku ... aku tidak bekerja sama dengan mereka ..." Dadanya sangat sakit sehingga dia tidak bisa berkata apa-apa lagi.
+Ouyang Ke ingin membela diri dengan menjelaskan bahwa dia bukan bekerja sama dengan orang-orang itu untuk mengganggunya, 
+tapi yang bisa dikatakannya hanya, "Aku... aku tidak bekerja sama dengan mereka..." Dadanya sangat sakit, jadi ia tidak 
+bisa berkata apa-apa lagi.
 
-“Baiklah,” kata Huang Rong, “Saya tidak membutuhkan jawaban Anda; yang perlu Anda lakukan hanyalah mengangguk atau menggelengkan kepala sebagai jawaban atas pertanyaan saya. Izinkan saya menanyakan ini kepada Anda: Sha Tongtian, Peng Lianhu, Liang Ziweng, dan Biksu Lingzhi bermaksud menyakiti saya, bukan?” Ouyang Ke mengangguk.
+"Baiklah," kata Huang Rong. "Saya tidak butuh jawabanmu. Kau hanya perlu mengangguk atau menggelengkan kepala sebagai 
+jawaban. Aku mau menanyakan ini, Sha Tongtian, Peng Lianhu, Liang Ziweng, dan Biksu Lingzhi bermaksud mencelakai 
+aku, kan?" Ouyang Ke mengangguk.
 
-“Mereka ingin menangkap saya, tetapi gagal total. Kemudian Anda muncul dan beraksi, bukan? Huang Rong bertanya lagi. Ouyang Ke tidak punya pilihan selain menganggukkan kepalanya lagi.
+"Mereka ingin menangkapku, tapi gagal total. Lalu kau muncul dan ikut campur, kan?" tanya Huang Rong lagi. Ouyang Ke 
+tidak punya pilihan selain menganggukkan kepalanya lagi.
 
-“Saat itu saya sendirian di dalam Istana Zhao; Saya tidak punya siapa-siapa untuk membantu saya dan situasi saya genting. Ayah saya tidak tahu keberadaan saya, jadi meskipun dia ingin menyelamatkan saya, dia tidak akan bisa melakukannya. Bukankah begitu?” Huang Rong melanjutkan. Ouyang Ke tahu dia mencoba untuk mendapatkan simpati dari ayahnya dan menghasut kebencian ayahnya terhadapnya, tapi apa yang dia katakan adalah fakta, jadi dia tidak punya pilihan selain menganggukkan kepalanya lagi.
+"Saat itu aku sendirian di dalam Istana Zhao. Aku tidak punya siapa-siapa untuk membantuku dan situasinya genting. 
+Ayahku tidak tahu aku ada di mana, jadi meskipun dia ingin menyelamatkanku, dia tidak akan bisa melakukannya. 
+Begitu, kan?" lanjut Huang Rong. Ouyang Ke tahu ia mencoba untuk mendapatkan simpati dari ayahnya dan menghasut 
+kebencian ayahnya terhadapnya, tapi apa yang dikatakannya adalah fakta, jadi ia tidak punya pilihan selain 
+menganggukkan kepalanya sekali lagi.
 
-Huang Rong meraih tangan ayahnya dan berkata, “Ayah, kamu tidak mencintai Rong'er lagi. Jika Ibu masih hidup, kamu tidak akan memperlakukanku seperti ini …” Huang Yaoshi mendengar dia menyebut istri tercintanya dan dia merasakan tusukan sakit di hatinya. Dia mengulurkan tangan kirinya dan memeluknya.
+Huang Rong meraih tangan ayahnya dan berkata, "Ayah, kau tidak mencintai Rong'er lagi. Kalau ibu masih hidup, kau 
+tidak akan memperlakukanku seperti ini..." Huang Yaoshi mendengarnya menyebut-nyebut istri tercintanya, dan ia merasa 
+hatinya seperti tertusuk jarum. Ia mengulurkan tangan kirinya dan memeluk putrinya.
 
-Ouyang Feng pintar dan dia merasa ada yang tidak beres; sebelum Huang Rong dapat mengajukan pertanyaan lain, dia memotongnya. “Nona Huang,” tanyanya, “Karakter bela diri terkenal itu ingin menangkapmu; tetapi karena Anda telah menguasai keterampilan wushu [kung fu] keluarga Anda yang tak tertandingi, mereka tidak dapat mengalahkan Anda, bukan? Huang Rong menganggukkan kepalanya dan tersenyum manis. Huang Yaoshi mendengarkan Ouyang Feng memuji seni bela diri keluarganya dan menunjukkan senyum tipis.
+Ouyang Feng pintar, ia merasa ada yang tidak beres, sebelum Huang Rong mengajukan pertanyaan lain, ia memotongnya. 
+"Nona Huang," tanyanya. "Para pendekar terkenal itu ingin menangkapmu, tapi karena kau menguasai kungfu keluargamu 
+yang tak tertandingi, mereka tidak dapat mengalahkanmu, kan?" Huang Rong menganggukkan kepalanya dan tersenyum manis. 
+Huang Yaoshi mendengarkan Ouyang Feng memuji kungfu keluarganya dan tersenyum tipis.
 
-Beralih ke Huang Yaoshi, Ouyang Feng berkata, “Kakak Yao, sejak keponakanku pertama kali melihat putrimu, hatinya terpikat oleh kecantikan dan keterampilannya yang luar biasa. Dia mengirim seekor merpati untuk memanggil saya dan saya datang dari White Camel Mountain, ribuan li jauhnya, menyeberangi Central Plains dan laut ke Pulau Bunga Persik untuk meminang putri Anda. Anda telah mempertimbangkan ketergesaan saya dan, meskipun tidak layak, telah menerima saya dengan baik. Selain Saudara Yao, tidak ada seorang pun di zaman sekarang ini yang akan melakukan hal seperti itu.”
+Beralih ke Huang Yaoshi, Ouyang Feng berkata, "Yao Xiong, sejak keponakanku pertama kali melihat putrimu, hatinya 
+terpikat oleh kecantikan dan kungfunya yang luar biasa. Dia mengirim seekor merpati untuk memanggilku dan aku datang 
+dari [Bai Tuo Shan](referensi-karakter.md#bai-tuo-shan "Pegunungan Onta Putih, Bai Tuo Shan (白驼山)"), 
+ribuan li jauhnya, menyeberangi Central Plains dan laut ke Pulau Bunga Persik untuk meminang putri Anda. Anda telah mempertimbangkan ketergesaan saya dan, meskipun tidak layak, telah menerima saya dengan baik. Selain Saudara Yao, tidak ada seorang pun di zaman sekarang ini yang akan melakukan hal seperti itu.”
 
 “Saya tidak berani menerima pujian seperti itu,” Huang Yaoshi tersenyum. Dia berpikir bahwa meskipun posisinya tinggi, Ouyang Feng masih rela melakukan perjalanan jauh untuk menemuinya dan dia merasa terhormat.
 
