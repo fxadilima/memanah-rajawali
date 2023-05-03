@@ -452,5 +452,219 @@ Guo Jing tersenyum, "Saya tidak perlu mencoba, saya tahu Kakak memiliki kemampua
 
 Saat mereka masih berbicara, tiba-tiba terdengar suara tabrakan yang keras. Pintu terbuka dan seorang pelaut bergegas masuk dengan ekspresi ketakutan. Dia tidak bisa berbicara, jadi dia hanya menggerakkan tangan dengan panik. Mereka bertiga tahu ada sesuatu yang sangat tidak beres, jadi mereka berlari keluar kabin.
 
+
 ***
+
+Huang Rong ingin berbicara dengan Guo Jing tetapi ditarik oleh ayahnya. Dia sangat kesal. Begitu mereka tiba di rumah mereka, dia langsung pergi ke kamarnya dan mengunci pintu sambil menangis sejadi-jadinya. Dalam kemarahan Huang Yaoshi telah mengusir Guo Jing dari pulau itu; sekarang setelah amarahnya mereda, dia menyesali keputusannya yang terburu-buru. Dia menyadari dia telah mengirim Guo Jing ke kematiannya. Dia ingin menghibur putrinya, tetapi tidak peduli seberapa keras atau berapa lama dia mengetuk pintunya, dia hanya menutup telinga padanya. Saat makan malam dia memanggilnya, tetapi dia tidak muncul; dia mengirim seorang pelayan dengan makan malam Huang Rong tetapi dia melemparkannya ke lantai dan bahkan memukul pelayan itu beberapa kali.
+
+“Ayah berkata bahwa jika Jing ge ge menginjakkan kaki di pulau ini lagi, dia akan membunuhnya. Saya ingin pergi dan menemukannya, tetapi bagaimana saya bisa meninggalkan Ayah sendirian di sini? Dia pasti akan berduka, “Huang Rong merenungkannya bolak-balik, tetapi tidak dapat menemukan ide apa pun sampai perutnya sakit.
+
+Beberapa bulan yang lalu Huang Yaoshi memarahinya dan dia lari dari pulau; dengan pikiran kekanak-kanakan dia tidak ingin kembali. Setelah itu, ketika dia bertemu ayahnya lagi, dia melihat bahwa jumlah uban di pelipisnya tiba-tiba bertambah. Itu baru beberapa bulan, tapi dia tampak sepuluh tahun lebih tua dari yang dia ingat. Dia merasa sangat menyesal, dan berjanji dalam hatinya untuk tidak pernah meninggalkannya lagi. Siapa yang mengira bahwa dia sekarang akan menghadapi situasi sulit ini? Dia tinggal di tempat tidurnya sepanjang hari, menangis. Dia berpikir, “Jika Ibu masih hidup, dia akan menjagaku; akankah dia membiarkanku menderita seperti ini?”
+
+Sambil memikirkan ibunya, dia memutuskan untuk keluar dari kamar dan berjalan melewati lorong menuju pintu depan. Rumahnya di Pulau Bunga Persik memiliki pintu depan yang selalu terbuka, siang dan malam, kecuali ada badai yang datang. Huang Rong pergi ke halaman. Ada langit berbintang dan udara dipenuhi aroma bunga. “Jing ge ge pasti sudah jauh sekarang; Aku bertanya-tanya kapan kita akan bertemu lagi, ”tanyanya dalam hati. Dia menghela nafas panjang, menyeka air mata dari matanya dengan ujung lengan bajunya yang panjang, dan berjalan menuju semak-semak bunga di ujung halaman mereka. Memasuki semak-semak dan menyapu daun dia tiba di makam ibunya.
+
+Keindahan kayu peti mati, berbagai tanaman dan anggrek langka serta berbagai bunga yang mekar di musim berbeda, semuanya adalah pilihan pribadi Huang Yaoshi. Mereka bersinar di bawah sinar bulan dengan masing-masing memancarkan aroma uniknya sendiri. Huang Rong mendorong batu masuk tiga kali ke kiri dan tiga kali ke kanan; kemudian mengerahkan kekuatannya dia mendorongnya. Batu masuk perlahan bergerak ke samping, memperlihatkan terowongan panjang dan sempit berdinding batu. Dia masuk, dan setelah melakukan tiga putaran, dia tiba di pintu rahasia lain. Di luar pintu ini adalah tempat peti mati ditempatkan. Ruangan itu diterangi oleh lampu minyak di dalam wadah batu mulia, menerangi tugu peringatan ibu Huang Rong.
+
+Sendirian di ruang bawah tanah kecil itu dan melihat lukisan mendiang ibunya yang dibuat oleh tangan ayahnya sendiri, hati Huang Rong dipenuhi dengan emosi yang naik turun. Dia berpikir, “Saya belum pernah melihat Ibu. Aku ingin tahu apakah, setelah aku mati, akankah aku bertemu dengannya? Apakah dia benar-benar muda dan cantik seperti di foto? Di mana dia sekarang? Apakah dia di surga di atas, di bumi di bawah, atau masih di ruangan ini? Saya akan tinggal di sini selamanya untuk menemaninya.
+
+Di sepanjang dinding makam ini terdapat permata berharga, koleksi antik, lukisan dan kaligrafi dari seniman terkenal; masing-masing bernilai uang. Setelah istrinya meninggal, Huang Yaoshi menjelajahi laut dan danau untuk mengumpulkan barang-barang berharga tersebut. Apakah itu di dalam istana kekaisaran, di dalam rumah pejabat pemerintah yang kaya, atau di sarang perampok yang tinggi di pegunungan, selama dia tahu ada harta karun, dia akan datang dan mencurinya atau mengambilnya dengan paksa. . Seni bela dirinya tinggi dan dia memiliki mata yang tajam dan selera yang canggih, jadi dia berhasil mengumpulkan beberapa harta yang dia tumpuk di dalam makam istrinya.
+
+Huang Rong dapat melihat mutiara yang cerah, batu giok yang indah, zamrud, dan batu kecubung yang berkilauan di bawah cahaya api; dia berpikir, “Permata berharga ini tidak memiliki perasaan, namun akan bertahan selama jutaan tahun. Hari ini saya melihat mereka di sini, tetapi di masa depan tubuh saya akan berubah menjadi debu dan mereka akan tetap ada di sini. Benarkah di antara makhluk hidup, yang pintar dan cerdas tidak akan berumur panjang? Apakah karena dia sangat pintar sehingga ibuku meninggal ketika dia baru berusia dua puluh tahun?”
+
+Huang Rong menatap foto ibunya sejenak, menghela nafas, lalu mematikan lampu dan berjalan ke peti mati ibunya. Dia membelai peti mati itu dengan penuh kasih dan duduk di lantai. Hatinya berat dengan mengasihani diri sendiri. Dia bersandar di peti mati, berpura-pura sedang dipeluk di sisi ibunya, mengandalkannya untuk penghiburan. Sebelumnya pada hari itu dia mengalami kegembiraan dan kecemasan yang luar biasa; malam itu dia benar-benar kelelahan dan setelah beberapa saat dia tertidur.
+
+Dia bermimpi dia berada di dalam Istana Zhao di Beijing, sendirian dan melawan sekelompok seniman bela diri; kemudian pemandangan berubah, dia berada di wilayah utara dan tanpa diduga bertemu dengan Guo Jing di sana. Dia baru saja mengucapkan beberapa kata kepadanya ketika ibunya tiba-tiba muncul. Dia hanya tahu itu ibunya meskipun, berusaha sekuat tenaga, dia tidak bisa melihat wajahnya dengan jelas. Kemudian ibunya mulai terbang ke langit sambil memanggil dan mengejar di tanah. Ibunya terbang semakin tinggi dan dia sangat ketakutan. Kemudian tiba-tiba dia mendengar suara ayahnya memanggil ibunya. Mula-mula itu adalah suara yang jauh, dan kemudian suara itu semakin dekat dan jelas. Huang Rong terbangun dengan kaget tetapi suara ayahnya masih terdengar, bergumam tidak jelas di depan tirai. Kemudian dia menenangkan diri dan menyadari bahwa itu bukanlah mimpi; ayahnya memang ada di dalam makam, berbicara dengan arwah ibunya.
+
+Ketika dia masih kecil, ayahnya sering membawanya ke sini; dia akan memberi tahu ibunya apa pun yang terjadi di luar, tidak peduli seberapa sepele masalah itu. Selama beberapa tahun terakhir dia tidak sering pergi dengan ayahnya, namun tidak mengejutkannya mendengar ayahnya berbicara di depan peti mati. Dia masih kesal padanya dan tidak ingin melihatnya. Dia ingin menunggu dengan tenang sampai dia pergi, tetapi apa yang dia dengar selanjutnya mengejutkannya.
+
+“Saya telah menemukan keinginan hati Anda,” katanya, “Saya tahu Anda sangat menderita tahun itu Anda menulis ulang 'Panduan Sembilan Yin'. Saya ingin menemukannya dan membakarnya di hadapan Anda, sehingga roh Anda di surga akan terhibur. Saya telah mencari dengan sia-sia selama lima belas tahun, tetapi hari ini saya menemukannya.”
+
+Huang Rong terkejut, "Di mana Ayah mendapatkan 'Petunjuk Sembilan Yin'?" dia bertanya-tanya.
+
+“Aku tidak sengaja ingin membunuh menantumu,” dia mendengar ayahnya melanjutkan. “Tapi merekalah yang bersikeras untuk naik perahu itu.”
+
+Huang Rong bingung, “Menantu ibu? Apakah dia berbicara tentang Jing ge ge? Dia ada di kapal itu, lalu apa?” Dia membuka telinganya dan mendengarkan dengan penuh perhatian.
+
+Huang Yaoshi menceritakan betapa sengsara dan kesepian hidupnya sejak istrinya meninggal dan betapa dia sangat merindukannya. Huang Rong mendengarkan dia mencurahkan isi hatinya dan hatinya sendiri dipenuhi dengan kesedihan. “Jing ge ge dan aku hanyalah anak muda dan kami saling mencintai. Saya pikir tidak mungkin untuk bertemu satu sama lain di masa depan; tapi aku tidak bisa meninggalkan ayahku,” pikirnya.
+
+Begitu pikirannya ditetapkan, dia terus mendengarkan ayahnya. “Landak Tua menghancurkan seluruh 'Panduan Sembilan Yin' dengan kekuatan tangannya. Saya pikir harapan saya mengorbankan manual untuk Anda hancur. Siapa yang mengira bahwa, mungkin dengan campur tangan ilahi, dia akan bersikeras untuk menaiki perahu yang saya buat untuk pertemuan kita di masa depan? dia berkata.
+
+“Setiap kali saya ingin bermain di perahu itu Ayah selalu melarang saya dengan tegas; bagaimana dia menggunakan perahu untuk menemui Ibu?” Huang Rong bertanya-tanya.
+
+Huang Yaoshi sangat mencintai istrinya. Apalagi istrinya meninggal karena ingin membahagiakannya. Karena itu, dia ingin bunuh diri sebagai pengorbanan untuknya. Tapi dia tahu seni bela dirinya sangat dalam, jadi dia tidak bisa mati dengan mudah dengan gantung diri atau hanya meminum racun. Selain itu, jika dia meninggal di pulau itu, dia yakin para pelayannya yang tuli dan bisu akan memutilasi tubuhnya. Oleh karena itu dia pergi ke daratan dan menculik seorang pembuat kapal yang sangat terampil untuk membuatkan kapal mewah ini untuknya.
+
+Lunas perahu ini tidak berbeda dengan perahu biasa, hanya saja bagian bawah perahu tidak dipaku dengan paku logam, melainkan disatukan dengan tali dan lem. Ditambatkan di marina, itu tampak seperti kapal pesiar yang sangat megah dan indah; tetapi begitu berlayar ke laut, ombak akan menghancurkan tali dan lem, dan perahu pasti akan tenggelam.
+
+Awalnya dia bermaksud untuk meletakkan peti mati istrinya di atas kapal, membawa perahu ke laut dan sementara ombak mengguncang perahu, dia akan memainkan lagu 'Gelombang Pasang Berwarna Giok' di seruling gioknya. Bersama istrinya mereka akan dikubur ribuan kaki di bawah laut. Dengan begitu dia akan mengakhiri hidupnya dengan bersih tanpa mempermalukan reputasinya sebagai master seni bela diri di usianya. Namun, setiap kali dia ingin pergi, dia tidak tahan membayangkan membawa serta putri mereka, tetapi siapa yang akan membesarkannya jika dia meninggal? Akhirnya dia memutuskan untuk membangun sebuah makam dan menempatkan istrinya di dalamnya. Dia mengecat ulang perahu itu setiap tahun, sehingga selalu tampak baru. Dia akan menunggu putri mereka tumbuh dewasa sebelum melakukan perjalanan terakhirnya.
+
+Tentu saja Huang Rong tidak mengetahui rencana ayahnya. Tapi dia tetap mendengarkan. “Landak Tua mampu melafalkan 'Panduan Sembilan Yin' sepenuhnya dan bocah Guo itu juga bisa melafalkannya dari ingatan. Jika saya menenggelamkan keduanya ke laut, itu akan sama seperti saya membakar kedua manual itu untuk Anda. Jika roh Anda di surga mengetahui hal ini, maka Anda dapat beristirahat dengan tenang. Satu-satunya penyesalan saya adalah bahwa Pengemis Tua Hong akan kehilangan nyawanya dengan sia-sia; itu agak tidak adil baginya. Dalam satu hari saya telah membunuh tiga master seni bela diri demi Anda. Saat kita bertemu lagi, Anda pasti bisa mengatakan bahwa suami Anda telah memenuhi janjinya kepada Anda. Ha ha … !"
+
+Setelah mendengarkan bagian terakhir ini, bulu kuduk Huang Rong berdiri dan hatinya menjadi sangat dingin. Dia tidak sepenuhnya mengerti apa yang sedang terjadi, tetapi mengetahui kemampuan ayahnya dengan sangat baik, dia yakin pasti ada sesuatu yang salah dengan perahu itu. Dia cemas akan keselamatan Guo Jing dan orang-orang lain di dalamnya. Hatinya dipenuhi dengan kejutan dan kesedihan pada saat yang sama. Dia ingin berdiri dan memohon kepada ayahnya untuk menyelamatkan mereka, tetapi dia tidak dapat berdiri atau berbicara; kakinya lemah dan tenggorokannya kering karena ketakutan. Dia hanya mendengar tawa ayahnya yang panjang dan sedih – terdengar seperti nyanyian atau tangisan, saat dia berjalan keluar dari makam.
+
+Huang Rong mencoba menenangkan dirinya dan berpikir keras, “Aku harus pergi untuk menyelamatkan Jing ge ge. Jika saya tidak bisa melakukannya, saya akan tetap mati bersamanya. Dia tahu betul sifat aneh ayahnya; dia menjadi gila karena cintanya yang berlebihan kepada almarhum istrinya dan tidak ada gunanya meminta bantuannya. Dia berlari keluar dari makam menuju pantai di mana dia melompat ke atas perahu, membangunkan para pelayan bisu tuli yang bertanggung jawab atas perahu dan segera berlayar.
+
+Tiba-tiba dia mendengar ketukan kuku datang ke arahnya dan pada saat yang sama dia bisa mendengar seruling giok ayahnya di kejauhan. Huang Rong menoleh ke belakang; itu adalah kuda merah kecil Guo Jing, berlari kencang di bawah sinar bulan. Itu telah berkeliaran tanpa tujuan di pulau itu dan pada malam itu ia berlari menuju pantai. Huang Rong berpikir, “Di mana saya bisa menemukan Jing ge ge di laut tak terbatas ini? Kuda merah kecil memiliki kemampuan ilahi di tanah kering, tetapi di atas air itu sama sekali tidak berguna.”
+
+
+***
+
+
+Hong Qigong, Zhou Botong dan Guo Jing berlari keluar kabin hanya untuk menemukan kaki mereka terendam air hampir setinggi lutut. Mereka sangat terkejut. Segera mereka melompat ke tiang kapal; Hong Qigong bahkan ingat untuk merebut beberapa pelaut tuli dan bisu. Mereka melihat ke bawah dan melihat air bergolak naik dengan cepat. Itu semua terjadi begitu cepat sehingga mereka bingung apa yang harus dilakukan.
+
+“Pengemis Tua,” seru Zhou Botong, “Old Heretic Huang sangat luar biasa! Saya hanya ingin tahu bagaimana dia membuat kapal ini?
+
+"Aku tidak tahu!" jawab Hong Qigong, "Jing'er, pegang tiangnya erat-erat, jangan lepaskan ..."
+
+Guo Jing hendak menjawab ketika tiba-tiba terdengar suara retakan keras; perahu pecah menjadi dua dan kedua bagian perlahan tenggelam ke dalam air. Kedua kelasi itu sangat terkejut sehingga mereka kehilangan pegangan di tiang kapal dan jatuh ke dalam air yang mengamuk di bawah. Zhou Botong melenturkan ototnya dan melompat ke air.
+
+"Landak Tua!" Hong Qigong memanggil, "Apakah kamu tahu cara berenang?"
+
+Kepala Zhou Botong keluar dari air, "Kurasa aku harus mencoba ..." dia tertawa. Pertukaran ini terjadi di tengah angin yang menderu-deru dan mereka tidak dapat mendengar satu sama lain dengan jelas.
+
+Saat ini tiang kapal sudah cukup condong sehingga akan segera membentur air. Hong Qigong berseru, “Jing'er, tiangnya disambungkan ke lambung kapal; mari kita bebaskan. Ayo!" Keduanya mengumpulkan kekuatan mereka dan menabrak tiang di dekat pusatnya. Meskipun tiangnya terbuat dari kayu solid, bagaimana bisa menahan kekuatan gabungan dari Hong Qigong dan Guo Jing? Setelah beberapa pukulan, dengan 'Crack', tiang itu menyerah. Keduanya berpegangan padanya dan bersama-sama mereka jatuh ke laut di bawah.
+
+Mereka sudah jauh dari Pulau Bunga Persik dan melihat ke segala arah ada ombak yang menjulang tinggi setinggi gunung; tidak ada daratan yang terlihat. Hong Qigong diam-diam sangat cemas. Melayang di laut seperti ini, tanpa makanan atau air tawar, jika tidak ada yang menyelamatkan mereka, mereka pasti akan mati dalam waktu kurang dari sepuluh hari tidak peduli seberapa tinggi keterampilan seni bela diri mereka. Hong Qigong mencoba mencari perahu Ouyang Feng tetapi tidak terlihat. Dia mendengar seseorang tertawa terbahak-bahak di sebelah selatan mereka, itu adalah Zhou Botong.
+
+"Jing'er," kata Hong Qigong, "Ayo coba pergi ke dia." Dengan satu tangan memegang tiang, tangan lainnya mengayuh ke arah Zhou Botong. Ombaknya cukup kuat, sehingga saat mereka memindahkan puluhan zhang mereka terdorong mundur puluhan zhang.
+
+"Landak Tua, kami datang!" Hong Qigong tertawa. Karena energi dalamnya yang kuat, suaranya bisa terdengar di tengah suara deru ombak di sekitar mereka. Mereka mendengar Zhou Botong berseru, “Landak Tua telah menjadi seekor anjing di dalam air; seperti anjing tua dalam sup asin!”
+
+Guo Jing merasa geli bahwa dalam situasi berbahaya seperti ini, dia masih memiliki keinginan untuk bermain-main; sungguh dia tidak menyandang gelar 'Landak Tua' dengan sia-sia.
+
+Laut mengamuk dengan liar di sekitar mereka dan tidak peduli seberapa keras mereka berusaha, mereka masih terpisah puluhan zhang satu sama lain. Hanya setelah bekerja keras dalam waktu yang lama, mereka akhirnya berhasil berkumpul di tiang yang patah. Begitu Hong Qigong dan Guo Jing melihat Zhou Botong, mereka tidak dapat menahan tawa mereka; Zhou Botong telah menggunakan tali layar untuk mengikat sepotong papan ke kakinya dan menggunakan kungfu ringannya yang luar biasa untuk menginjak ombak. Sayangnya ombaknya terlalu kuat. Meskipun tubuhnya naik turun dengan ombak, bebas dan tidak terkendali, sebenarnya sangat sulit untuk bergerak maju. Zhou Botong bermain air dengan antusias, sepertinya tidak menyadari bahaya yang mereka hadapi.
+
+Guo Jing melihat sekeliling untuk melihat perahu mereka sudah pergi bersama semua awaknya; mereka terkubur di bawah laut. Tiba-tiba dia mendengar Zhou Botong memanggil dengan waspada, “Aiyo! Ini serius! Old Urchin mungkin menemui kematian yang kejam.”
+
+Hong Qigong dan Guo Jing mendengar suaranya yang ketakutan dan bertanya, "Ada apa?"
+
+Zhou Botong menunjuk jarinya dan berkata, “Hiu… sekumpulan hiu!”
+
+Guo Jing dibesarkan di stepa jadi dia tidak tahu seberapa ganasnya hiu. Dia berbalik untuk melihat wajah Hong Qigong terlihat aneh. Dia bertanya-tanya monster macam apa hiu itu yang akan membuat tuannya dan kakak laki-lakinya Zhou, yang terbiasa menghadapi bahaya dengan senyum di wajah mereka, terlihat sangat gugup.
+
+Hong Qigong mengirimkan kekuatannya ke telapak tangannya dan mematahkan ujung tiang; kemudian dia membagi potongan-potongan itu menjadi dua bagian lagi. Tiba-tiba dia melihat kepala hiu muncul di antara buih putih ombak; dua baris gigi putihnya yang tajam berkilau di bawah sinar matahari. Itu hanya sesaat, dan kemudian menghilang di bawah air. Hong Qigong melemparkan tongkat kayu ke Guo Jing. "Bidik kepala mereka!" serunya.
+
+Guo Jing merogoh sakunya dan mengeluarkan belati. "Murid memiliki belati!" panggilnya kembali dan melemparkan tongkat kayu ke arah Zhou Botong.
+
+Sekarang sudah ada empat atau lima hiu yang berputar-putar di sekitar Zhou Botong; sepertinya mereka menilai situasinya, tapi belum ada hiu yang menyerang. Zhou Botong membungkuk dan memukul; kepala hiu terbelah. Begitu hiu lain mencium bau darah, mereka semua menyerang rekan mereka yang sudah mati.
+
+Guo Jing melihat permukaan air menggelegak seperti air mendidih; dia bertanya-tanya berapa ribu hiu yang ada di sana. Dia melihat gigi putih berkilau dan dalam waktu singkat, tidak ada yang tersisa dari hiu mati itu. Dia ngeri. Tiba-tiba dia merasakan sesuatu menginjak kakinya. Dengan gugup dia menendang dan seekor hiu besar melesat dari air ke arahnya. Dengan tangan kirinya memegang tiang kapal, dia mengirim semua kekuatannya ke tangan kanannya dan dengan akurasi yang tak tertandingi, belatinya yang sangat tajam membuat lubang di kepala hiu. Sekali lagi air mendidih saat sekelompok hiu berpesta dengan teman mereka yang telah mati. Ribuan hiu bergerak dan menggigit secara acak di dalam air.
+
+Seni bela diri ketiga pria itu luar biasa; dikelilingi oleh ribuan hiu, mereka bergerak ke barat dan mengelak ke timur. Setiap kali tangan mereka dipukul, seekor hiu mati atau terluka parah sementara tubuh mereka sendiri bahkan tidak tergores. Begitu seekor hiu mengeluarkan darah, itu menjadi makanan hiu lainnya dan dalam sekejap menjadi tumpukan tulang rawan yang tenggelam di laut. Meskipun seni bela diri ketiganya sangat dalam dan mereka memiliki keberanian yang besar, ketika mereka melihat pemandangan ini, mereka tidak dapat menahan rasa takut. Hiu-hiu itu tidak terhitung jumlahnya dan sepertinya mereka membunuh mereka tanpa henti. Mereka tidak punya waktu untuk memikirkan hal lain; mereka membutuhkan semua energi dan konsentrasi mereka untuk bertarung dan bertarung dan bertarung…
+
+Setelah pertempuran berjam-jam, mereka telah membunuh lebih dari dua ratus hiu, kemudian kabut mulai muncul dari air saat matahari perlahan turun ke ufuk barat. Zhou Botong berseru, “Pengemis Tua, Kakak Guo, begitu langit gelap kita bertiga akan masuk ke perut hiu. Haruskah kita bertaruh? Siapa yang akan lebih dulu dimakan?”
+
+"Apakah yang pertama dimakan adalah pemenang atau pecundang?" Hong Qigong bertanya.
+
+Pemenangnya, tentu saja, jawab Zhou Botong.
+
+“Aiyo, kalau begitu aku lebih suka menjadi pecundang,” kata Hong Qigong. Dengan punggung tangannya dia meluncurkan 'Naga Ilahi Mengayunkan Ekornya' dan menabrak hiu besar di sisinya. Hiu besar itu beratnya kira-kira 200 jins [100kg / 220 lbs], tetapi karena kekuatan Hong Qigong, ia terbang ke udara, berguling dua kali, sebelum jatuh kembali ke air, menciptakan percikan besar. Hiu itu membusungkan perut; itu telah terbunuh seketika.
+
+“Teknik telapak tangan yang luar biasa!” Zhou Botong memuji, “Saya akan tunduk kepada Anda dan menjadikan Anda sebagai tuan saya sehingga Anda dapat mengajari saya 'Delapan Belas Telapak Tangan Penakluk Naga'. Sayang sekali saya tidak akan punya waktu untuk mempelajarinya. Pengemis Tua, apakah Anda ingin bersaing dengan saya?
+
+“Maaf saya tidak bisa mengakomodasi Anda sekarang,” kata Hong Qigong.
+
+Zhou Botong tertawa terbahak-bahak, "Saudaraku, apakah kamu takut?" dia bertanya pada Guo Jing.
+
+Dalam hatinya Guo Jing sangat ketakutan; namun melihat kedua orang ini masih bisa mengobrol dan bercanda dalam situasi hidup mati semangatnya pun terangkat. "Aku takut, tapi sekarang tidak lagi," jawabnya. Tiba-tiba dia melihat seekor hiu raksasa sedang menuju ke arahnya. Dia bersandar ke samping lalu mengangkat tangan kirinya tinggi-tinggi di udara sebagai umpan. Hiu besar itu berbalik dan melompat keluar dari air untuk menggigit tangannya. Belati di tangan kanan Guo Jing bergerak ke atas dan menusuk di bawah mulut hiu. Karena hiu bergerak maju, keris membuat sayatan panjang di sepanjang tubuh hiu. Darah menyembur dan isi perutnya tumpah keluar.
+
+Saat itu Zhou Botong dan Hong Qigong masing-masing telah membunuh hiu lainnya. Zhou Botong belum pulih dari pukulan Huang Yaoshi sebelumnya; setelah bertarung sekian lama dia mulai merasakan sakit yang luar biasa di dadanya. Dia tertawa keras dan berkata, “Pengemis Tua, Kakak Guo, maaf saya tidak bisa melanjutkan lebih lama lagi, saya harus menjadi yang pertama masuk ke perut hiu. Ay! Sayang sekali kalian berdua tidak mau bertaruh. Saya akan menang!
+
+Meskipun dia tertawa, Guo Jing bisa mendengar keputusasaan dalam suaranya. "Baiklah!" dia berteriak, "Aku akan bertaruh denganmu!"
+
+"Setidaknya sekarang aku bisa mati dengan kematian yang menarik!" Zhou Botong tertawa. Saat dia berbalik untuk menghindari serangan konvergen dari dua hiu yang menyerang bersama, dia tiba-tiba melihat layar putih tinggi di kejauhan. Dalam cahaya senja yang redup, sebuah perahu pribadi besar membelah ombak dan menuju ke arah mereka.
+
+Hong Qigong juga melihat perahu itu; itu milik Ouyang Feng. Mereka sangat gembira mengetahui bahwa bantuan sedang dalam perjalanan. Guo Jing segera mendekati Zhou Botong untuk membantunya melawan hiu. Sesaat kemudian perahu datang dan menurunkan dua perahu kecil untuk menyelamatkan ketiga orang tersebut. Zhou Botong memuntahkan lebih banyak darah, tetapi dia tidak berhenti berbicara dan tertawa. Dia melambaikan jarinya pada hiu dan mengutuk mereka tanpa henti.
+
+Ouyang Feng dan Ouyang Ke berdiri di haluan kapal besar untuk menyambut mereka. Sejauh mata memandang, airnya penuh dengan sirip ikan hiu; mereka dalam hati khawatir.
+
+Zhou Botong tidak mau mengakui hutang, dia berkata, “Racun Tua, kamulah yang datang dan menyelamatkan kami; Saya tidak memanggil Anda untuk meminta bantuan, jadi saya tidak berutang apa pun kepada Anda.
+
+“Tentu saja kamu tidak berutang apa pun padaku,” jawab Ouyang Feng, “Hari ini aku bertemu dengan kalian bertiga yang terlibat dalam pembunuhan besar-besaran hiu; Adik laki-laki terpesona.”
+
+Zhou Botong tertawa, “Kamu menemukan kami dan mencegah kami bermain di dalam perut hiu, jadi aku akan tetap menyebutnya impas; kami tidak berutang apa pun kepada siapa pun.
+
+Ouyang Ke dan seorang penggembala ular menaruh beberapa potongan besar daging sapi di kail besi sebagai umpan dan dalam waktu singkat telah menangkap tujuh atau delapan hiu besar.
+
+Hong Qigong menunjuk ke hiu dan tertawa, "Bagus, kamu tidak memakan kami, tapi sepertinya kami akan memakanmu."
+
+Ouyang Ke tertawa, "Keponakan Kecil punya cara untuk membalaskan dendam Paman Hong." Dia dengan cepat memotong beberapa tongkat pendek, menajamkan kedua ujungnya, lalu membuka paksa mulut hiu dengan tombak dan memasukkan tongkat kayu itu ke mulut hiu. Kemudian dia menendang hiu itu kembali ke air.
+
+Zhou Botong tertawa, “Dengan begitu hiu tidak akan bisa makan apa pun; Saya yakin itu akan mati dalam delapan hingga sepuluh hari.
+
+Guo Jing berpikir, “Hanya dia yang memikirkan rencana jahat seperti itu. Hiu rakus ini akan mati kelaparan di laut. Itu sangat kejam.”
+
+Zhou Botong melihat wajah Guo Jing menunjukkan ekspresi jijik, dia tertawa, “Saudaraku, tipuan jahat seperti itu tidak enak dipandang, bukan? Nah, ini disebut 'paman yang beracun menghasilkan keponakan yang beracun'."
+
+Mendengar orang lain mengutuknya sebagai kejahatan sama sekali tidak mengganggu Racun Barat Ouyang Feng; sebaliknya, dia senang. Mendengarkan Zhou Botong, dia menunjukkan senyum tipis dan berkata, “Landak Tua, trik kecil ini tidak seberapa dibandingkan dengan apa yang bisa dilakukan Racun Barat. Kalian bertiga kehabisan nafas karena melawan sekelompok bayi hiu ini. Meskipun mereka banyak, bagi saya mereka bukan apa-apa.” Setelah mengatakan bahwa dia menghadap ke laut, mengulurkan tangan kanannya, menggerakkannya dengan gerakan menyapu dari kiri ke kanan dan berkata, "Bahkan jika ada hiu sepuluh kali lebih banyak dari ini, saya dapat memusnahkan mereka semua tanpa berkeringat."
+
+"Ah!" Zhou Botong berseru, “Racun Barat membunyikan klaksonnya dengan sangat keras! Jika Anda dapat membuktikan kehebatan Anda dan benar-benar membunuh hiu, Old Urchin akan bersujud kepada Anda dan akan memanggil Anda 'Kakek' tiga ratus kali.
+
+“Saya tidak berani menerima itu,” kata Ouyang Feng, “Jika Anda tidak mempercayai saya, mengapa kita tidak bertaruh?”
+
+“Baiklah,” Zhou Botong hampir berteriak, “Aku akan mempertaruhkan kepalaku!”
+
+Hong Qigong, di sisi lain, curiga, “Bahkan jika keahliannya setinggi langit, tidak mungkin untuk membunuh jutaan hiu sekaligus,” pikirnya, “Saya khawatir dia memiliki rencana jahat lain di dalam dirinya. lengan baju."
+
+“Aku tidak membutuhkan kepalamu,” kata Ouyang Feng sambil tersenyum, “Jika aku menang, aku ingin kamu melakukan sesuatu untukku dan kamu harus mematuhinya. Jika saya kalah, saya tidak akan menolak masalah sulit apa pun yang Anda ingin saya lakukan. Bagaimana menurutmu?"
+
+"Aku tidak peduli, apa pun yang kamu katakan!" teriak Zhou Botong.
+
+Ouyang Feng menoleh ke Hong Qigong, "Saya meminta Saudara Qi untuk menjadi saksi kami," katanya.
+
+Hong Qigong mengangguk, "Baiklah," katanya, "Tetapi bagaimana jika pemenang memberikan sesuatu kepada yang kalah dan dia tidak dapat melakukannya?"
+
+“Kemudian yang kalah harus melompat ke laut untuk dimakan hiu,” kata Zhou Botong.
+
+Sekali lagi Ouyang Feng menunjukkan senyum tipis tapi dia tidak mengatakan apapun. Dia memberi isyarat kepada seorang pelayan untuk membawakan cangkir anggur kecil. Dua jari kanannya mencubit leher ular yang tampak aneh di tongkatnya, memaksanya membuka mulutnya dan racun menyembur dari giginya. Ouyang Feng mengulurkan cangkir anggur dan menangkap racun di dalamnya, hitam dan kental seperti tinta China, hampir memenuhi setengah cangkir. Segera setelah ular ini kehabisan racun, dia mencubit yang lain dan melakukan hal yang sama, mengisi seluruh cangkir dengan bisa ular. Ketika dia selesai, kedua ular melilit tongkat dengan tenang, tidak lagi merayap ke atas dan ke bawah, seperti mereka sangat lelah.
+
+Pelayan Ouyang Feng mengaitkan hiu besar lainnya dan meletakkannya di geladak. Dengan tangan kirinya Ouyang Feng mencengkeram rahang atas hiu, sementara kaki kanannya menginjak rahang bawah, membuka rahangnya. Hiu itu panjangnya sekitar dua zhang [kira-kira 20 kaki atau 7 meter], tetapi tidak bisa mencegah mulutnya terbuka memperlihatkan dua baris gigi setajam belati. Kemudian dia menuangkan secangkir racun ke dalam mulut hiu, tepat di tempat luka menganga akibat kail besi itu. Dengan gerakan tiba-tiba tangan kirinya mengangkat perut hiu itu dan tanpa banyak kesulitan mengayunkannya. Hiu seberat 200 kati [sekitar 100 kg / 220lbs] terbang ke udara dan dengan percikan keras jatuh ke laut.
+
+Zhou Botong tertawa, “Aha! Saya mengerti sekarang,” katanya, “Ini adalah metode biksu tua untuk membunuh kutu busuk.”
+
+"Kakak," Guo Jing bertanya, "Bagaimana biksu tua itu membunuh serangga?"
+
+“Pernah ada seorang biksu tua yang menjajakan ramuan untuk membasmi kutu busuk di pasar jalanan Bianliang [sebuah kota di provinsi Henan],” kata Zhou Botong kepadanya, “Dia mengklaim ramuannya sangat efektif; begitu serangga memakan produknya, mereka pasti akan mati. Jika tidak, dia bersedia mengembalikan uang pelanggan sepuluh kali lipat. Tentu saja dengan jaminan seperti ini bisnisnya menjadi lancar. Salah satu pelanggannya kembali ke rumah dan menyebarkan ramuan itu di tempat tidurnya. Heh, heh… malam itu kepinding masih datang ribuan, menggigitnya setengah mati. Pelanggan itu kesal dan keesokan paginya dia kembali ke pasar untuk mencari biksu tua itu, ingin dia mengembalikan uangnya. Biksu tua itu berkata, 'Ramuan saya sangat efektif; jika itu tidak membunuh serangga Anda, mungkin Anda tidak menggunakannya dengan benar.’ Pelanggan bertanya, ‘Bagaimana Anda menggunakannya?’” Mencapai titik ini, Zhou menggelengkan kepalanya dengan senyum nakal di wajahnya, tetapi tidak melanjutkan.
+
+"Lalu bagaimana kamu menggunakannya?" tanya Guo Jing.
+
+Dengan wajah lurus Zhou Botong berkata, “Biksu tua itu berkata, 'Kamu tangkap serangga itu, buka mulutnya dan beri sedikit ramuan ini padanya. Jika tidak mati, maka Anda bisa datang ke biksu tua lagi.' Pelanggan itu marah, dia berkata, 'Jika saya bisa menangkap serangga itu, saya bisa menghancurkannya sampai mati dengan jari saya, mengapa saya membutuhkan obat efektif Anda? ramuan?' Yang mana biksu tua itu menjawab, 'Tentu saja, saya tidak pernah mengatakan Anda tidak dapat menghancurkannya sampai mati, bukan?'”
+
+Guo Jing, Hong Qigong, Ouyang Feng dan keponakannya, bersama semua orang yang mendengarkan Zhou Botong, tertawa terbahak-bahak. “Ramuan saya agak berbeda dengan ramuan biksu tua itu,” kata Ouyang Feng sambil tersenyum.
+
+“Saya tidak melihat banyak perbedaan,” kata Zhou Botong.
+
+Ouyang Feng mengarahkan jarinya ke laut dan berkata, "Baiklah, lihat saja."
+
+Hiu yang diberi racun itu naik perut, dan tentu saja tujuh atau delapan hiu lain sedang makan dengan gila-gilaan karenanya. Hal yang aneh adalah tujuh atau delapan hiu yang memakan daging rekannya juga perutnya buncit tidak lama kemudian. Setiap hiu yang mati segera dimakan oleh kelompok hiu lainnya, yang pada gilirannya juga ikut tenggelam ke dalam air. Satu hiu membunuh sepuluh lainnya, sepuluh hiu membunuh seratus, seratus membunuh seribu; tidak lama kemudian laut penuh dengan hiu mati yang mengambang. Hiu yang tersisa tidak terlalu banyak, tetapi mereka masih memakan rekan mereka yang sudah mati. Beberapa saat kemudian laut menjadi tenang, tidak ada lagi ikan hiu yang masih hidup. Ketika Hong Qigong, Zhou Botong dan Guo Jing melihat pemandangan mengerikan ini, wajah mereka memucat. Hong Qigong menghela nafas dan berkata, “Racun Tua, Racun Tua… rencana jahatmu benar-benar jahat; hanya sedikit racun dari kedua ularmu yang sangat mematikan.”
+
+Ouyang Feng terkekeh dan menatap Zhou Botong dengan ekspresi sombong. Zhou Botong meremas-remas tangannya, menginjak kakinya, dan menarik janggut dan rambutnya secara acak. Sejauh yang bisa dilihat orang, permukaan laut penuh dengan hiu mati dengan perut putih ke atas, mengambang dan terombang-ambing di atas ombak.
+
+“Melihat begitu banyak perut putih membuat perut saya mual; memikirkan banyak hiu yang terbunuh oleh racun Tua Racun, juga membuat perutku sakit, Zhou Botong berkata, Racun Tua, kamu harus berhati-hati; begitu 'Raja Naga Laut' [hai long wang] tahu, dia akan mengirim pasukan udang dan jenderal kepitingnya untuk berurusan denganmu. Ouyang Feng hanya tersenyum tanpa berkata apa-apa.
+
+"Kakak Feng, adik laki-laki tidak jelas tentang sesuatu dan saya mohon Anda menjelaskannya kepada saya," kata Hong Qigong.
+
+“Saya tidak berani,” jawab Ouyang Feng.
+
+“Itu hanya secangkir kecil racun; bahkan jika racunnya sangat mematikan, bagaimana bisa membunuh ribuan hiu?” Hong Qigong bertanya.
+
+Ouyang Feng tertawa, “Jenis racun ini sangat istimewa,” dia menjelaskan, “Begitu masuk ke dalam darah, darah menjadi beracun. Jika darah ini masuk ke sistem hiu lain, darah hiu kedua itu juga akan beracun. Bayangkan saja jumlah racunnya meningkat seratus kali lipat. Setiap hiu mati akan melipatgandakan jumlah itu menjadi seratus kali lipat; segera Anda akan memiliki racun dalam jumlah tak terbatas yang dapat membunuh selamanya.
+
+“Itu disebut pembunuhan abadi,” komentar Hong Qigong.
+
+“Tepat sekali,” jawab Ouyang Feng. “Judul adik laki-laki adalah 'Racun Barat'; jika keterampilan saya dalam menggunakan racun agak kurang, maka saya khawatir saya tidak layak menyandang gelar itu.”
+
+Saat mereka masih berbicara, hiu yang tersisa sudah mati. Ikan lain yang lebih kecil juga hilang; meski tidak dimakan hiu, mereka tetap menghilang sehingga laut sangat tenang.
+
+“Berlayarlah dengan cepat… berlayarlah dengan cepat! Udara di sini terlalu kental dengan racun, desak Hong Qigong.
+
+Ouyang Feng memberi sinyal dan perahunya bergerak dengan kecepatan penuh; semua layar berbentuk segitiga dinaikkan. Dengan angin yang datang dari selatan mereka menuju barat laut.
+
+“Racun Tua benar-benar menjual ramuan ampuh untuk membasmi kutu busuk,” kata Zhou Botong. "Apa yang kamu ingin aku lakukan?"
+
+“Saya ingin menyambut Anda bertiga ke kabin saya terlebih dahulu,” kata Ouyang Feng, “Anda harus berganti pakaian kering, makan sesuatu, lalu istirahat. Soal taruhan, belum terlambat untuk dibicarakan nanti.”
+
+Zhou Botong benar-benar tidak sabar, "Itu tidak akan berhasil, itu tidak akan berhasil!" dia berseru, “Katakan saja! Anda tidak akan mendapatkan apa pun dengan menunggu. Jika Old Urchin mati karena mati lemas, maka itu akan menjadi kerugian Anda karena tidak memberi tahu saya apa yang Anda inginkan.
+
+Ouyang Feng tersenyum, “Kalau begitu, Saudara Botong, tolong ikut saya.”
+
 
