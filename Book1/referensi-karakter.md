@@ -464,6 +464,10 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Tinju Nan Shan, atau Tinju Pegunungan Selatan.
         Ini adalah ilmu silat tangan kosong yang diajarkan Nan Xiren kepada Guo Jing.
     </dd>
+    <dt id="xiong">Xiong (兄)</dt>
+    <dd>
+        Kakak laki-laki. Berbeda dengan Ge (哥), panggilan ini lebih menunjukkan hormat.
+    </dd>
 </dl>
 
 
