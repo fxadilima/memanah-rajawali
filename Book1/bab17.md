@@ -1002,7 +1002,7 @@ beberapa batu besar dan menutupi pintu masuk gua.
 "Dage," kata Guo Jing. "Aku akan keluar untuk melihat ada apa. Kau jangan keluar!"
 
 "Hati-hati dan segera kembali," jawab Zhou Botong. "Tapi menurutku kau tidak perlu melihatnya. Apa yang sih yang menarik 
-dari ular berbisa? Kok... kok bisa banyak ular di pulau ini? Alu sudah tinggal di sini selama lima belas tahun dan belum 
+dari ular berbisa? Kok... kok bisa banyak ular di pulau ini? Aku sudah tinggal di sini selama lima belas tahun dan belum 
 pernah melihat seekor ular pun. Lihat betapa buruknya pulau ini! Huang Laoxie selalu membanggakan pengetahuan dan akalnya 
 yang luas, tetapi lihat betapa kotornya Pulau Bunga Persik ini. Kura-kura laut, ular beludak, kelabang, dan segala jenis 
 binatang melata datang ke sini."
