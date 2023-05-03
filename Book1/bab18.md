@@ -364,7 +364,7 @@ Dia pikir kungfunya lebih tinggi dari Guo Jing, dan lagi serangannya bisa diangg
 Guo Jing tidak siap. Melontarkan pukulan dengan penuh kebencian, ia mengira ia akan mematahkan hidung Guo Jing. Sedikit 
 pun ia tidak mengira bahwa Guo Jing sekarang bukanlah Guo Jing yang sama seperti saat mereka bertarung di Kuil Leluhur 
 Baoying. Guo Jing melihat kepalan datang dan ia mencondongkan tubuh ke samping untuk menghindar, kemudian tangan kirinya 
-melontarkan [Hong Jian Yu Lu](referensi-karakter.md#hong-jian-yu-lu "Angsa Pelan-pelan Mendarat") sementara tangan kanannya melontarkan [Kang Long Youou Hui](referensi-karakter.md#kanglong-you-hui "Naga Angkuh Punya Penyesalan") 
+melontarkan [Hong Jian Yu Lu](referensi-karakter.md#hong-jian-yu-lu "Angsa Pelan-pelan Mendarat") sementara tangan kanannya melontarkan [Kang Long You Hui](referensi-karakter.md#kanglong-you-hui "Naga Angkuh Punya Penyesalan") 
 keduanya dari Delapan Belas Jurus Penakluk Naga.
 
 
