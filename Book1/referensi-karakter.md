@@ -792,4 +792,45 @@ adalah keturunan dari Nona Yue ini. Dengan demikian ia secara otomatis mewarisi 
 lengkap.
 
 
+### <a name="ba-gua" id="ba-gua">Ba Gua (八卦) atau Pa Kua</a>
+
+Di Indonesia lebih populer dengan istilah Pa Kua atau Patkwa. Kedua karakter yang membentuk nama tersebut,
+Ba atau Pa/Pat (八) berarti 'Delapan'. Sedangkan Gua atau Kwa/Kua berarti 'Simbol'. Lambang yang dimaksud di sini
+semuanya berbentuk Trigram, yaitu tiga baris sub-simbol. Di jaman modern ini begitu mendengar atau membaca 
+tentang Ba Gua, ingatan orang biasanya akan tertuju kepada _Feng Shui_, karena memang diagram ini digunakan
+untuk _Feng Shui_.
+
+Ba Gua selalu berkaitan dengan Taoisme, dan memang perangkat yang digunakan di dalam Kosmologi Taoisme untuk
+mewakili prinsip-prinsip dasar dari realita.
+
+
+### <a name="hong-jian-yu-lu" id="hong-jian-yu-lu">Hong Jian Yu Lu (鸿渐于陆)</a>
+
+Nama salah satu jurus andalan Hong Qigong, yaitu 18 Jurus Penakluk Naga.
+Ini sebenarnya adalah sebuah kutipan dari literatur kuno, era Dinasti Zhou, yang dikenal sebagai Zhouyi.
+
+```
+
+鴻漸于陸，	Hong jian yu lu,
+夫征不復，	fu zheng bu fu,
+婦孕不育。	fu yun bu yu.
+
+
+Kira-kira bisa diterjemahkan menjadi ungkapan berikut:
+
+```
+
+Pelan-pelan maju ke tanah kering.
+Seorang suami pergi tidak kembali, 
+dan seorang istri yang hamil tetapi tidak mau menyusui anaknya.
+
+```
+
+Untuk keperluan kita, barangkali hanya akan kita ambil baris pertama secara literal.
+
+- Hong (鴻) = Angsa
+- Jian (漸) = Berangsur-angsur
+- Yu (于)   = kata sambung, bisa dari/ke/menuju
+- Lu (陸)   = tanah/tepian/pantai
+
 

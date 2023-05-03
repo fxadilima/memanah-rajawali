@@ -47,7 +47,7 @@ membuat padang rumput tampak beriak seperti gelombang laut. Lidah mereka keluar-
 kecil yang menari-nari.
 
 Penggembala ular membelah massa ular mereka untuk membuka jalan di tengah. Puluhan wanita berpakaian putih berjalan 
-membawa lampion merah. Beberapa [zhang](referensi-unit.md#zhang "1 zhang kira-kira 3 meter") di belakang mereka, 
+membawa lampion merah. Beberapa [zhang](referensi-unit.md#satuan-zhang "1 zhang kira-kira 3 meter") di belakang mereka, 
 ada dua orang berjalan perlahan. Yang pertama mengenakan jubah satin putih panjang, disulam dengan benang emas dan 
 memegang kipas lipat di tangannya. Itu tidak lain adalah Ouyang Ke.
 
@@ -234,10 +234,150 @@ Ouyang Feng berkata, "Kungfu adikmu kurang bagus. Aku harus minta Yao Xiong meng
 Ia duduk bersila di atas batu besar dengan sitar di pangkuannya dan segera menggunakan jari tangan kanannya untuk memetik 
 beberapa senar.
 
-Qin Zheng asli[^gu-zheng] menghasilkan nada sedih dan melengking. Sitar besi Wilayah Barat ini menghasilkan suara yang lebih menyedihkan. Guo Jing tidak mengerti musik, tapi irama sitar mempengaruhi perasaannya. Semakin keras suara sitar, semakin keras detak jantungnya. Semakin cepat nada sitar, semakin cepat napasnya. Jantungnya berdebar sangat keras, hampir melompat keluar dari tenggorokannya. Itu adalah perasaan yang sangat tidak nyaman. Setelah mendengarkan beberapa saat lagi, dia merasakan jantungnya berdetak kencang dan dia harus berjuang keras untuk tetap sadar. “Jika sitar ini semakin kuat dan kuat, bagaimana mungkin aku tidak terbunuh oleh musiknya?” dia pikir. Dia segera mundur beberapa langkah dan mengedarkan 'chi'-nya sesuai dengan metode Quanzhen. Setelah beberapa saat ia berhasil menenangkan hatinya dan musik sitar tidak lagi mempengaruhi dirinya.
+Qin Zheng asli[^gu-zheng] menghasilkan nada sedih dan melengking. Sitar besi Wilayah Barat ini menghasilkan suara yang 
+lebih menyedihkan. Guo Jing tidak mengerti musik, tapi irama sitar mempengaruhi perasaannya. Semakin keras suara sitar, 
+semakin keras detak jantungnya. Semakin cepat nada sitar, semakin cepat napasnya. Jantungnya berdebar sangat keras, 
+hampir melompat keluar dari tenggorokannya. Itu adalah perasaan yang sangat tidak nyaman. Setelah mendengarkan beberapa 
+saat lagi, ia merasakan jantungnya berdetak kencang dan ia harus berjuang keras untuk tetap sadar. "Kalau sitar ini 
+semakin kuat dan nyaring, bagaimana mungkin aku tidak terbunuh oleh iramanya?" pikirnya. Ia segera mundur beberapa 
+langkah dan mengedarkan 'qi'-nya sesuai dengan metode Quanzhen. Setelah beberapa saat ia berhasil menenangkan hatinya 
+dan musik sitar tidak lagi mempengaruhi dirinya.
+
+Irama sitar semakin nebghanyutkan dan dalam benak Guo Jing itu mirip gemuruh metalik dari kavaleri lapis baja yang 
+bergerak dengan kecepatan penuh. Nada tipis dari seruling batu giok tampak naik dengan mulus di tengah-tengah nada 
+sitar yang meraung-raung. Guo Jing gemetar, wajahnya merah karena panas dan ia berkeringat deras. Sekali lagi ia 
+dengan segera mengedarkan qi-nya mencoba untuk lebih menenangkan dirinya.
+
+Meskipun sitar itu keras, tapitidak mampu meredam suara seruling. Dua nada berbeda bercampur, menciptakan melodi yang 
+menakutkan. Sitar besi menjerit seperti kera dari Ngarai Wuxia[^ngarai] atau tangisan hantu di tengah malam, sementara 
+suara seruling itu seperti Phoenix dari Pegunungan Kunlun atau gumaman lembut dari wanita di dalam kamarnya. Yang satu 
+menyerupai tangisan jiwa yang memilukan, sementara yang lain membawa perasaan seseorang yang dengan santai berkeliaran 
+di hutan belantara. Yang satu tinggi, yang lain rendah, yang satu bergegas maju, yang lain dengan santai mundur, 
+tidak ada yang mengalahkan saingannya.
+
+Awalnya Huang Rong menyaksikan keduanya memainkan musik dengan senyum di wajahnya, tetapi kemudian ia melihat ekspresi 
+mereka menjadi serius. Ayahnya berdiri dan mulai berjalan berkeliling sambil memainkan serulingnya. Langkahnya sebenarnya 
+mengikuti [Delapan Trigram](referensi-karakter.md#ba-gua "Ba Gua atau Patkwa"). Ia tahu ini adalah gerak kaki yang 
+diikuti ayahnya ketika sedang mengerahkan tenaga dalamnya, itu menunjukkan betapa sengitnya pertempuran itu untuk ayahnya, 
+karena ia terpaksa menggunakan seluruh kekuatannya. Berbalik ke arah Ouyang Feng ia tidak melihat sesuatu yang lebih baik. 
+Uap tebal keluar dari atas kepalanya sementara lengan bajunya berkibar mengikuti gerakan tangannya ketika ia memetik senar. 
+Hembusan angin bertiup kemana-mana. Wajahnya tampak sangat fokus pada permainan sitarnya, jelas ia tidak berani lengah.
+
+Di hutan bambu, Guo Jing mendengarkan musik dengan penuh perhatian. Ia merenungkan dalam hatinya apa hubungan kedua 
+alat musik ini – sitar besi dan seruling giok – dengan ilmu silat? Keduanya terdengar sangat jahat baginya, bagaimana 
+suara bisa mempengaruhi hati dan pikiran orang lain? Awalnya ia terlalu sibuk mengedarkan 'chi'-nya dan menenangkan hati 
+dan pikirannya, namun lambat laun ia mampu mengendalikan diri dan mengikuti aliran suara suling dan sitar. Beberapa saat 
+kemudian ia mulai menyadari bahwa kedua suara itu sebenarnya saling bertarung. Ketika satu suara menyerang, suara lainnya 
+mengambil posisi bertahan. Terkadang yang satu menyerang yang lain dengan ganas, sementara yang lain memblokir serangan 
+sambil menunggu kesempatan bagus untuk melakukan serangan balik. Itu benar-benar tidak berbeda dengan pertarungan antara 
+dua ahli kungfu. Setelah merenungkan lebih banyak lagi, tiba-tiba ia sadar, "Benar! Huang Laoye sedang adu tenaga dalam 
+dengan Ouyang Feng." Karena ingin memahami dengan lebih baik, ia memejamkan mata dan memberikan perhatian penuh pada 
+telinganya.
+
+Ia mulai mendengar kedua suara itu saling bergantian mengungguli lawannya. Karena buta musik, suara musik itu tidak dapat 
+mempengaruhi semangatnya, tetapi ia merasakan keterbukaan di hatinya seolah-olah ia sedang melihat sesuatu yang cerah. 
+Zhou Botong mengajarinya jurus tujuh puluh dua Tinju Kosong yang dasarnya berasal dari kata 'kosong/kosong/terbuka' dan 
+'jernih/terang'. Dengan pikirannya yang sepenuhnya reseptif dan rapi, ia dapat dengan jelas 'melihat' setiap detail dari 
+pertarungan tenaga dalam antara Huang Yaoshi dan Ouyang Feng. Memang benar tenaga dalamnya masih kalah dengan kedua ahli 
+itu, tetapi ia telah meningkat pesat bahkan tanpa disadari. Selain itu, sebagai penonton ia bisa melihat lebih baik 
+daripada keduanya yang terlibat dalam pertempuran. Ia sering bertanya-tanya mengapa Zhou Botong tidak bisa menahan 
+suara seruling sementara dengan tenaga dalamnya yang rendah ia bisa. Ia tidak tahu bahwa Zhou Botong membawa rasa 
+bersalah yang berat di dalam hatinya karena apa yang telah dilakukannya di masa lalu. Bukan murni karena kuatnya tenaga 
+dalam seseorang yang memungkinkan orang itu menahan suara seruling.
+
+Sekarang Guo Jing mendengar suara sitar Ouyang Feng melabrak alunan seruling Huang Yaoshi dengan kekuatan sekuat petir. 
+Seruling itu mengelak ke timur dan barat, dan segera setelah ada celah pada nada sitar, seruling itu akan segera melakukan 
+serangan balik. Setelah beberapa saat suara sitar perlahan melambat, sementara seruling menjadi lebih kuat. Tiba-tiba 
+Guo Jing teringat teori di balik Tinju Kosong yang dihafalkannya. Dikatakan, 'Keras tidak boleh bertahan lama dan lunak 
+tidak boleh bertahan lama'. Ia berpikir, "Tidak lama lagi sitar akan meluncurkan serangan balik." Benar saja, ketika 
+seruling melambat sedikit, dentingan sitar tiba-tiba terdengar kembali melakukan serangan.
+
+Guo Jing telah menghafal teorinya dengan baik, tetapi persepsinya masih rendah. Zhou Botong tidak menjelaskan arti 
+dari kata-kata yang disampaikannya kepada Guo Jing, sehingga pemahamannya secara keseluruhan mungkin hanya sekitar 
+sepuluh persen. Sekarang saat ia mendengarkan pertarungan musik antara Huang Yaoshi dan Ouyang Feng, ia mulai mengerti 
+siapa yang melakukan apa. Itu mengikuti teori yang dihafalkannya dengan sangat baik. Dalam hati ia senang. Jiu Yin Zhen Jing 
+berisi banyak teori kungfu tingkat lanjut. Kalau ia disuruh membedah teorinya, bahkan dengan bantuan orang lain, ia 
+mungkin akan menghabiskan lebih dari satu tahun untuk mencoba memahami apa yang dikatakannya. Tapi saat ia mendengarkan 
+dua lagu yang saling bertentangan, ia terus membandingkan pertarungan dengan teorinya. Melihat beberapa ketidaksesuaian 
+antara teori dan situasi pertempuran nyata dan ia mengaitkan perbedaan itu dengan pemahamannya yang dangkal. Misalnya 
+ada beberapa kesempatan di mana Huang Yaoshi jelas-jelas menang selama ia menjaga nada serulingnya konstan. Kemudian 
+Ouyang Feng tidak mampu menahannya. Tapi Ouyang Feng juga melewatkan beberapa peluang yang bisa dimanfaatkan untuk 
+meraih keuntungan. Guo Jing awalnya mengira mereka bersikap rendah hati dan mengalah, tapi setelah didengarkannya 
+lagi dengan lebih cermat, ternyata bukan seperti itu.
+
+Kecerdasannya mungkin tidak tinggi, tetapi setelah kedua orang itu berulang kali melakukan kesalahan serupa, ia mulai 
+menyadari bahwa seruling dan sitar punya banyak kelemahan di pertahanan mereka. Setelah mendengarkan agak lebih banyak, 
+sebuah pemikiran muncul di benaknya, "Dibandingkan dengan teori Tinju Kosong, serangan dan pertahanan mereka punya 
+kelemahan dan kekurangan, mungkinkah teori yang diajarkan oleh Zhou Dage lebih baik daripada kungfu Huang Laoye dan 
+Racun Barat?" Tapi kemudian ia berubah pikiran, "Wah! Tidak mungkin! Kalau kungfu Zhou Dage benar-benar lebih baik 
+daripada Huang Laoye, mana mungkin setelah mereka begitu sering bertarung keduanya bertarung selama lima belas tahun, 
+dia masih terkurung di dalam gua itu?"
+
+Ia memeras otaknya sampai lama tanpa mencapai kesimpulan apapun, kemudian ia mendengar nada seruling naik lebih tinggi 
+dan lebih tinggi lagi, dan kalau terus lebih tinggi, kekalahan Ouyang Feng sudah bisa dipastikan. Tapi seruling itu tidak 
+bisa menaik lebih tinggi lagi, rupanya telah mencapai puncaknya. Guo Jing menahan tawa, "Aku benar-benar bodoh! Ada batas 
+untuk apa yang bisa dicapai seseorang. Di antara keinginan hati, sembilan dari sepuluh tidak dapat dicapai. Aku tahu bahwa 
+kalau kepalan tanganku dapat menghasilkan tenaga sepuluh ribu [kati](referensi-unit.md#kati "10 ribu kati setara dengan 5000kg / 11.000+ pounds"), 
+aku akan bisa menghancurkan lawan menjadi debu, tapi bagaimana tinjuku bisa mengembangkan kekuatan sepuluh ribu kati itu? 
+Guru Ketujuh sering berkata, 'Melihat orang lain dengan mudah memikul beban di tiang tidak berarti kita bisa melakukan hal 
+yang sama tanpa mematahkan punggung kita.' Kalau hanya soal memikul beban mengikuti prinsip ini, apalagi kungfu!"
+
+Suara musik menjadi semakin keras dan terdengar seperti keduanya terlibat dalam pertarungan tangan kosong, atau bertarung 
+dalam jarak yang sangat dekat dengan pedang terhunus. Siapa pemenangnya akan segera terlihat. Guo Jing mencemaskan Huang 
+Yaoshi, lalu ia tiba-tiba mendengar siulan panjang dan keras dari arah laut.
+
+Baik Huang Yaoshi dan Ouyang Feng terkejut dan suara seruling serta sitar melambat. Suara siulan itu datang semakin dekat. 
+Kedengarannya seperti seseorang sedang naik perahu menuju pulau. Ouyang Feng menggerakkan tangannya dan memetik dua 
+nada metalik, 'ting, ting!' Suara siulan dari jauh semakin tinggi, dan mengalahkan sitar. Tidak lama kemudian seruling 
+Huang Yaoshi bergabung. Terkadang seruling itu melawan siulan panjang dan terkadang terjerat dengan sitar dalam pertarungan 
+jarak dekat. Tiga suara berbeda saling bertarung.
+
+Guo Jing telah memainkan Pertarungan Empat Orang dengan Zhou Botong, jadi ia tidak punya masalah membagi pikirannya 
+untuk membedakan beberapa suara. Ia tahu seorang pendekar senior dengan kungfu tingkat tinggi telah tiba.
+
+Dengan segera orang yang mengeluarkan siulan panjang itu telah tiba di hutan. Suara siulan naik tinggi lalu rendah. 
+Terkadang terdengar seperti teriakan naga atau auman singa, dan terkadang menyerupai lolongan serigala atau pekikan 
+burung hantu. Kemudian terdengar seperti angin kencang bertiup melalui hutan, yang tiba-tiba berubah menjadi hujan 
+rintik membasahi bunga. Alunannya terus berubah.
+
+Suara seruling itu jernih dan cerah, suara sitarnya sangat sedih, namun kombinasi ketiganya menghasilkan suara indah yang 
+misterius, yang tidak terdengar terlalu buruk sama sekali. Tiga suara yang berbeda saling bertemu dalam pertarungan 
+jarak dekat.
+
+Guo Jing kagum dan tidak bisa menahan seruannya, "Luar biasa!" Tapi begitu ia menutup mulutnya, ia menyadari bahwa ia 
+telah membuat kesalahan besar. Ia bergegas pergi, tapi terlambat! Bayangan hijau melintas dan Huang Yaoshi berdiri di 
+hadapannya. Ketiga suara itu tak terdengar lagi. Huang Yaoshi menunduk dan berkata, "Anak Baik, ikut aku."
+
+Guo Jing tidak punya pilihan dan dengan patuh menyapa, "Huang Laoye." Bulu kuduknya berdiri, sementara ia mengikuti 
+Huang Yaoshi kembali ke pondok bambu.
+
+Huang Rong masih menutupi telinganya dengan sutra, jadi ia tidak mendengar seruan Guo Jing. Sekarang Guo Jing tiba-tiba 
+muncul dan ia sangat terkejut. "Jing Gege! Akhirnya kau datang... " panggilnya. Ia gembira, tapi juga sedih, sebelum ia 
+selesai berbicara, air mata sudah mengalir di pipinya. Ia bergegas maju dan melemparkan dirinya ke dada Guo Jing. 
+Guo Jing membuka lengannya dan memeluknya erat-erat.
+
+Sekarang setelah Guo Jing muncul, Ouyang Ke kesal, kemudian saat ia melihat betapa akrabnya Huang Rong dengan Guo Jing,
+hatinya terbakar oleh cemburu. Dengan hembusan angin tinjunya melayang ke wajah Guo Jing. 
+"[Bocah tengik](referensi-karakter.md#bocah-tengik "Chou Xiao Zi (臭小子)")... kau juga di sini!" bentaknya.
+
+Dia pikir kungfunya lebih tinggi dari Guo Jing, dan lagi serangannya bisa dianggap sebagai serangan mendadak, dan 
+Guo Jing tidak siap. Melontarkan pukulan dengan penuh kebencian, ia mengira ia akan mematahkan hidung Guo Jing. Sedikit 
+pun ia tidak mengira bahwa Guo Jing sekarang bukanlah Guo Jing yang sama seperti saat mereka bertarung di Kuil Leluhur 
+Baoying. Guo Jing melihat kepalan datang dan ia mencondongkan tubuh ke samping untuk menghindar, kemudian tangan kirinya 
+melontarkan [Hong Jian Yu Lu](referensi-karakter.md#hong-jian-yu-lu "Angsa Pelan-pelan Mendarat") sementara tangan kanannya melontarkan [Kang Long Youou Hui](referensi-karakter.md#kanglong-you-hui "Naga Angkuh Punya Penyesalan") 
+keduanya dari Delapan Belas Jurus Penakluk Naga.
+
+
+
+
+
+
 
 
 [^gu-zheng]: Gu Zheng (古筝) adalah sitar dari era Dinasti Qin, yang awalnya diciptakan oleh Jendral Meng Tian. Sebetulnya alat musik ini agak berbeda dengan Gu Qin (古琴). Keduanya sama-sama dari Dinasti Qin, dan sama-sama sitar, tetapi Gu Qin punya 7 senar, sedangkan Gu Zheng punya 13 senar di era Dinasti Qin, tetapi bisa mencapai 21 senar di era yang lebih modern. Selain itu Gu Zheng dilengkapi dengan _bridge_ yang bisa digeser-geser di setiap senarnya. Karena instrumen yang dimainkan oleh Ouyang Feng dengan jelas disebut sebagai _zheng_, maka bisa kita tarik kesimpulan bahwa yang dimaksud adalah Gu Zheng.
 
 
 [^panggilan-2]: Dibandingkan dengan panggilan seperti cara Huang Rong memanggil Guo Jing 'Ge', 'Xiong' agak lebih formal dan hormat.
+
+[^ngarai]: Salah satu dari Tiga Ngarai di Sungai Yangtze.
+

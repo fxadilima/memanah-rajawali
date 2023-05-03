@@ -33,3 +33,13 @@ Top Nine: Throttled dragon.12 Having regret.
 
 Use the Nine:13 Seeing a flock of dragons without heads. Auspicious.
 
+
+### Hong Jian Yu Liu
+
+鴻漸于陸，	Hong jian yu lu,
+夫征不復，	fu zheng bu fu,
+婦孕不育。	fu yun bu yu.
+Gradually advancing into the dry plains.
+A husband who goes on an expedition from which he does not return,
+and a wife who is pregnant but will not nourish her child.
+
