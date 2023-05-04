@@ -779,67 +779,137 @@ terbang menuju ke dada Guo Jing.
 [^peribahasa-1]: Makna peribahasa tersebut (癞蛤蟆想吃天鹅肉), kurang lebih sama dengan 'Seperti pungguk merindukan bulan', [baca lebih lanjut](referensi-karakter.md#peribahasa-kodok).
 
 
-Sementara itu Hong Qigong meluncurkan telapak tangannya ke depan dan ke belakang, sibuk melawan 'Sikap Kodok' Ouyang Feng dengan Delapan Belas Telapak Tangan Penakluk Naga. Kedua ilmu bela diri ini merupakan keahlian tertinggi dari masing-masing petarung, sehingga pertarungan tidak lagi lamban dan lamban seperti sebelumnya. Sekarang menjadi sengit karena keduanya menggunakan pelatihan seni bela diri selama puluhan tahun untuk mencoba meraih kemenangan; hidup atau mati bisa diputuskan dalam sekejap mata. Guo Jing telah mempelajari Delapan Belas Telapak Tangan Penakluk Naga, tetapi dia belum pernah melihat gurunya menggunakan teknik ini sebelumnya. Itu membuat punggungnya merinding untuk melihat betapa indahnya teknik telapak tangan itu, dengan variasi yang tak terbatas di dalamnya. Itu benar-benar tidak ada bandingannya dengan yang sudah dia kuasai. Dia benar-benar terpikat dengan apa yang terjadi di lapangan; mengapa dia berharap seseorang akan menyelinap masuk dari belakang dan diam-diam menyerangnya?
+Sementara itu Hong Qigong meluncurkan telapak tangannya ke depan dan ke belakang, sibuk melawan Jurus Kodok Ouyang Feng 
+dengan Delapan Belas Jurus Penakluk Naga. Kedua ilmu silat ini adalah ilmu andalan mereka masing-masing, karenanya 
+pertarungan tidak lagi lamban seperti sebelumnya. Sekarang menjadi sangat sengit karena keduanya menggunakan hasil 
+latihan selama puluhan tahun untuk bertarung mati-matian, hidup atau mati bisa diputuskan dalam sekejap mata. Guo Jing 
+telah mempelajari Delapan Belas Jurus Penakluk Naga, tetapi ia belum pernah melihat gurunya menggunakan teknik ini 
+sebelumnya. Hal ini membuat punggungnya merinding melihat betapa indahnya jurus itu, dengan variasi yang tak terbatas 
+di dalamnya. Itu benar-benar tidak bisa dibandingankan dengan yang sudah dikuasainya. Ia benar-benar terpesona dengan 
+apa yang terjadi di lapangan, maka ia sama sekali tidak menduga seseorang akan menyelinap masuk dari belakang dan 
+diam-diam menyerangnya.
 
-Huang Rong tidak menyadari bahwa kedua orang yang bertarung di lapangan menggunakan keterampilan seni bela diri tertinggi mereka; dia masih tertawa dan bercanda ketika dia tiba-tiba menyadari satu orang hilang dari paviliun bambu. Pikirannya langsung tertuju pada Ouyang Ke karena dia takut akan kelicikannya. Matanya memindai area itu, tetapi telinganyalah yang mendengar angin yang dihasilkan oleh proyektil tersembunyi yang datang ke arah punggung Guo Jing. Dari sudut matanya dia bisa melihat tiga garis keperakan datang dengan cepat. Dia tidak punya waktu untuk berpikir dan segera melemparkan dirinya ke belakang punggung Guo Jing. "Puff... engah... engah!" tiga proyektil tersembunyi mendarat tepat di punggungnya. Dia mengenakan 'Soft Hedgehog Armor' [ruan wei jia] jadi dia tidak terluka, tapi dia tetap merasakan sakit.
+Huang Rong tidak menyadari bahwa kedua orang yang bertarung di lapangan menggunakan kungfu tertinggi mereka, ia masih 
+tertawa dan bercanda ketika tiba-tiba menyadari satu orang hilang dari pondok bambu. Pikirannya langsung tertuju kepada 
+Ouyang Ke, karena ia takut akan kelicikannya. Matanya menerawang areal itu, tetapi telinganyalah yang mendengar angin 
+yang dihasilkan oleh jarum yang datang ke arah punggung Guo Jing. Dari sudut matanya ia bisa melihat tiga garis 
+keperakan datang dengan cepat. Ia tidak punya waktu untuk berpikir, dan segera melemparkan dirinya ke belakang punggung 
+Guo Jing. "Puff...!" tiga senjata rahasia mendarat tepat di punggungnya. Ia mengenakan 
+[Ruan Wei Jia](referensi-karakter.md#ruan-wei-jia "Rompi Kulit Landak"), jadi ia tidak terluka, tapi ia tetap merasa 
+sakit.
 
-Tangannya meraih ke belakang dan meraih proyektil yang tersembunyi. Dia berbalik dan tersenyum manis, “Kamu menggaruk gatal di punggungku, bukan? Terima kasih, tetapi saya harus mengembalikan ini kepada Anda.”
+Ia mengulurkan tangan ke belakang dan meraih jarum yang tersangkut di jubahnya. Ia berbalik dan tersenyum manis, 
+"Kau menggaruk gatal di punggungku, kan? Terima kasih, tapi aku harus mengembalikan ini."
 
-Ouyang Ke melihat bagaimana dia mencegat proyektil dengan tubuhnya sendiri untuk melindungi Guo Jing dan dia lebih cemburu dari sebelumnya. Mendengar apa yang dia katakan, dia pikir dia akan melempar proyektil ke arahnya, jadi dia mempersiapkan diri. Tetapi setelah beberapa saat dia melihat Huang Rong memegang proyektil di telapak tangannya, seolah dia mengharapkan dia mengambilnya kembali dari tangannya.
+Ouyang Ke melihat bagaimana ia mencegat jarum-jarum itu dengan tubuhnya sendiri untuk melindungi Guo Jing, dan ia 
+lebih cemburu lagi dari sebelumnya. Mendengar apa yang dikatakannya, ia pikir Huang Rong akan melemparkan jarum-jarum 
+itu ke arahnya, jadi ia mempersiapkan diri. Tetapi setelah beberapa saat ia melihat Huang Rong memegang jarum-jarum itu 
+di telapak tangannya, seolah sedang mengharapkan ia mengambilnya kembali dari tangannya.
 
-Ouyang Ke menendang kaki kirinya dan melompat ke atap paviliun bambu. Dia bermaksud memamerkan kungfu ringannya dan, dengan ringan bertengger di tepi atap, dia tampak seperti bayangan putih yang bergoyang lembut tertiup angin. Itu memang keterampilan yang luar biasa; anggun seperti dewa.
+Ouyang Ke menendang kaki kirinya dan melompat ke atap pondok bambu. Ia bermaksud memamerkan kungfu meringankan tubuhnya 
+dan dengan ringan bertengger di tepi atap. Ia tampak seperti bayangan putih yang bergoyang lembut tertiup angin. Itu 
+memang luar biasa, ia tampak anggun seperti dewa.
 
-"Kungfu ringanmu benar-benar luar biasa!" seru Huang Rong. Dia berdiri dan berjalan ke arahnya, lengan terulur dengan proyektil di tangannya.
+"Qing Gong-mu benar-benar luar biasa!" seru Huang Rong. Ia berdiri dan berjalan ke arahnya, lengannya terulur sambil 
+memegang jarum-jarum dari Ouyang Ke di tangannya.
 
-Ouyang Ke melihat kulit putihnya dan dia terpesona. Tanpa sadar dia mengulurkan tangannya untuk mengambil proyektil, dengan niat buruk untuk menggosok tangannya. Tiba-tiba beberapa garis logam menghampirinya. Dia sudah dua kali tertipu oleh trik Huang Rong dan tidak ingin mengulanginya. Dia jungkir balik dari atap melambaikan lengan bajunya dan menangkis banyak jarum baja Huang Rong.
+Ouyang Ke melihat kulit putihnya dan ia terpesona. Tanpa sadar ia mengulurkan tangannya untuk mengambil jarum, dengan 
+niat buruk untuk mengelus tangannya. Tiba-tiba beberapa garis logam menghampirinya. Ia sudah dua kali tertipu oleh trik 
+Huang Rong dan tidak ingin mengulanginya. Ia bersalto dari atap sambil melambaikan lengan bajunya dan menangkis sejumlah 
+jarum baja Huang Rong.
 
-Huang Rong terkikik dan melemparkan tiga proyektil perak ke tanah, tepat di depan Ouyang Feng yang berjongkok.
+Huang Rong terkikik dan melemparkan tiga jarum perak ke tanah, tepat di depan Ouyang Feng yang berjongkok.
 
-"TIDAK! Jangan!" Guo Jing berteriak ketakutan. Dia meraih pinggang Huang Rong dan melompat turun dari atap. Bahkan sebelum kakinya menyentuh tanah, dia mendengar teriakan cemas Huang Yaoshi, "Kakak Feng kasihanilah!"
+"Tidak! Jangan!" seru Guo Jing ketakutan. Ia meraih pinggang Huang Rong dan melompat turun dari atap. Bahkan sebelum 
+kakinya menyentuh tanah, ia mendengar teriakan cemas Huang Yaoshi, "Feng Xiong, berbelas-kasihanlah!"
 
-Guo Jing merasakan kekuatan yang menghancurkan bumi menghampirinya. Dengan cepat dia mendorong Huang Rong ke samping dan mengerahkan seluruh kekuatannya ke tangannya dengan salah satu dari Delapan Belas Telapak Tangan Penakluk Naga, 'Melihat Dagon di Lapangan' [jian long zai tian].
+Guo Jing merasakan gelombang tenaga dahsyat yang bisa menghancurkan bumi menghampirinya. Dengan cepat ia mendorong 
+Huang Rong ke samping dan mengerahkan seluruh tenaga ke tangannya, diiringi oleh salah satu dari Delapan Belas Jurus 
+Penakluk Naga, [Jian Long Zai Tian](referensi-karakter.md#jianlong-zai-tian "Melihat Naga Di lapangan").
 
-Sebuah 'ledakan' keras terdengar saat kekuatannya bertabrakan dengan 'Sikap Kodok' Ouyang Feng. Akibatnya dia terhuyung mundur tujuh atau delapan langkah. Guo Jing merasakan darah naik dari dadanya ke tenggorokannya. Dia khawatir dan juga takut Ouyang Feng akan mengirimkan serangan lagi, jadi dia memaksa dirinya untuk bergerak dan berdiri di depan Huang Rong, siap menerima pukulan lagi. Kemudian dia melihat Hong Qigong dan Huang Yaoshi sudah melangkah di antara mereka.
+Suara ledakan keras terdengar saat tenaganya bertabrakan dengan Jurus Kodok Ouyang Feng. Akibatnya ia terhuyung mundur 
+tujuh atau delapan langkah. Guo Jing merasakan darah naik dari dadanya ke tenggorokan. Ia kuatir dan juga takut 
+Ouyang Feng akan mengirimkan serangan lagi, jadi ia memaksa diri untuk bergerak dan berdiri di depan Huang Rong, 
+siap menerima pukulan lagi. Kemudian ia melihat Hong Qigong dan Huang Yaoshi sudah melangkah di antara mereka.
 
-"Saya minta maaf! Aku sangat malu!" Kata Ouyang Feng sambil berdiri. “Saya tidak dapat menarik kembali kekuatan saya. Saya harap saya tidak menyakiti wanita muda itu, bukan? serunya.
+"Aku minta maaf! Aku sangat malu!" Kata Ouyang Feng sambil berdiri. "Aku tidak bisa menarik kembali tenagaku. Kuharap 
+aku tidak menyakiti nona cilik itu," serunya.
 
-Sebenarnya Huang Rong ketakutan dan wajahnya yang cantik pucat; tetapi mendengar dia mengatakan hal seperti itu, dia memasang wajah berani dan tertawa, "Dengan Ayahku di sekitar, bagaimana kamu bisa menyakitiku?"
+Sebenarnya Huang Rong ketakutan dan wajahnya yang cantik pucat, tetapi mendengar ia mengatakan hal seperti itu, ia 
+memasang muka berani dan tertawa, "Dengan ayahku di dekat sini, mana bisa kau menyakitiku?"
 
-Huang Yaoshi sangat cemas; dia meraih tangannya dan dengan tenang bertanya, “Apakah kamu merasakan sesuatu yang berbeda di tubuhmu? Tarik dan keluarkan napas dengan cepat beberapa kali.” Huang Rong mendengarkan ayahnya dan diam-diam mengedarkan 'chi'-nya tetapi tidak merasakan sesuatu yang aneh, jadi dia tertawa dan menggelengkan kepalanya.
+Huang Yaoshi sangat cemas, ia meraih tangannya dan dengan tenang bertanya, "Kau merasa sesuatu yang aneh di tubuhmu? 
+Tarik dan keluarkan napas dengan beberapa kali." Huang Rong mendengarkan ayahnya dan diam-diam mengedarkan 'chi'-nya, 
+tetapi tidak merasakan sesuatu yang aneh, jadi ia tertawa dan menggelengkan kepalanya.
 
-Huang Yaoshi merasa lega. "Dua pamanmu sedang berlatih seni bela diri mereka barusan, apa yang dilakukan gadis kecil sepertimu dengan sembarangan ikut campur?" dia menegur. “'Sikap Katak' Paman Ouyang bukanlah masalah kecil; jika dia tidak menunjukkan belas kasihan kepada Anda, menurut Anda apakah hidup kecil Anda akan selamat?
+Huang Yaoshi merasa lega. "Dua pamanmu sedang berlatih kungfu mereka barusan, untuk apa anak kecil sepertimu sembarangan 
+ikut campur?" tegurnya. "Jurus Kodok Paman Ouyang bukan ilmu sepele, kalau dia tidak berbelas kasihan, menurutmu nyawa
+kecilmu[^xiao-ming] itu bisa selamat?"
 
-Untuk meluncurkan 'Sikap Katak' yang kuat, Ouyang Feng harus memusatkan seluruh kekuatannya di seluruh tubuhnya. Begitu lawan menyerang, dia akan bisa melakukan serangan balik dengan meluncurkan kekuatan penuh yang sudah tersimpan. Itulah yang terjadi saat dia menunggu Hong Qigong menyerang; kekuatannya terkonsentrasi, siap diluncurkan seperti anak panah di busur yang ditarik sepenuhnya. Tanpa diduga, Huang Rong melemparkan sesuatu ke arahnya sehingga dia secara naluriah melakukan serangan balik ke arahnya.
+[^xiao-ming]: Xiao Ming (小命). Istilah ini digunakan untuk mengatakan bahwa nyawa seseorang bernilai kecil.
 
-Ketika dia menyadari bahwa itu adalah Huang Rong, dia sangat terkejut; tapi kekuatannya sudah dilepaskan jadi tidak mungkin dia bisa menariknya kembali. Dia menghela nafas dalam hati, mengira dia telah menciptakan bencana yang mengerikan dan bahwa gadis bunga yang cantik ini akan mati dengan kejam di tangannya. Selain itu dia mendengar Huang Yaoshi memanggil, 'Saudara Feng, kasihanilah!' Dia dengan panik mencoba mengalihkan kekuatannya, tetapi tidak ada cukup waktu. Kemudian dia tiba-tiba merasakan kekuatan lain bertabrakan dengannya. Dia mengambil kesempatan ini untuk menarik kembali kekuatannya. Ketika dia melihat dengan hati-hati, dia menemukan bahwa orang yang menyelamatkan Huang Rong adalah Guo Jing! Dia diam-diam mengagumi Hong Qigong, “Pengemis Tua itu sangat baik; dia telah berhasil mengajar murid muda ini ke seni bela diri tingkat tinggi!”
 
-Huang Yaoshi telah melihat seni bela diri Guo Jing di Cloud Manor; dia berpikir, “Anak muda ini tidak mengetahui ketinggian langit atau kedalaman bumi, namun dia berani menangkis 'Sikap Katak' Ouyang Feng yang ganas. Jika Ouyang Feng tidak melihat wajahku dan menunjukkan belas kasihan padanya, tulangnya akan hancur berkeping-keping.” Dia tidak tahu bahwa Guo Jing yang dia temui di Cloud Manor bukanlah Guo Jing yang sama seperti sekarang. Namun, dia mengakui bahwa Guo Jing tanpa pamrih menyelamatkan nyawa Huang Rong tanpa memperhatikan keselamatannya sendiri. Kebenciannya terhadapnya, sebagian besar, telah hilang. Dia berpikir, “Anak ini benar-benar memiliki hati yang baik dan dia sangat mencintai Rong'er. Aku tidak bisa memberikan Ronger padanya, tapi aku pasti bisa menghadiahinya dengan mengajarinya sesuatu.” Bajingan di depannya tampak agak bodoh dan kata 'bodoh' telah membangkitkan amarah dalam dirinya.
+Untuk melakukan Jurus Kodok yang kuat, Ouyang Feng harus memusatkan seluruh tenaganya di seluruh tubuhnya. Begitu 
+lawan menyerang, ia akan bisa melakukan serangan balik dengan meluncurkan kekuatan penuh yang sudah tersimpan. Itulah 
+yang terjadi saat ia menunggu Hong Qigong menyerang, tenaganya terkonsentrasi, siap diluncurkan seperti anak panah di 
+busur yang ditarik sepenuhnya. Tanpa diduga, Huang Rong melemparkan sesuatu ke arahnya sehingga dia secara naluriah 
+melakukan serangan balik ke arahnya.
 
-“Racun Tua… kamu benar-benar hebat!” Hong Qigong berseru, “Tapi kemenangan atau kekalahan belum diputuskan; mari kita bertarung lagi!”
+Ketika menyadari bahwa itu adalah Huang Rong, ia sangat terkejut, tapi tenaganya sudah dilepaskan, jadi tidak mungkin 
+ia bisa menariknya kembali. Ia menghela nafas dalam hati, mengira ia telah menciptakan bencana yang mengerikan dan bahwa 
+gadis yang secantik bunga ini akan mati tragis di tangannya. Selain itu ia mendengar Huang Yaoshi berseru, 'Feng Xiong, 
+berbelas-kasihanlah!' Dengan panik ia mencoba mengalihkan tenaganya, tetapi tidak ada cukup waktu. Kemudian ia tiba-tiba 
+merasakan tenaga lain bertabrakan dengan tangannya. Ia mengambil kesempatan ini untuk menarik kembali kekuatannya. 
+Ketika ia melihat dengan terliti, ternyata orang yang menyelamatkan Huang Rong adalah Guo Jing! Ia diam-diam mengagumi 
+Hong Qigong, "Pengemis Tua itu hebat, ia berhasil mendidik murid muda ini untuk menguasai kungfu tingkat tinggi!"
 
-"Sangat baik!" Ouyang Feng menjawab, "Saya akan mempertaruhkan hidup saya untuk menemani permainan seorang pria!"
+Huang Yaoshi telah melihat ilmu silat Guo Jing di Rumah Awan, ia berpikir, "Anak muda ini tidak tahu tingginya langit dan 
+dalamnya bumi, tapi dia berani menangkis Jurus Kodok Ouyang Feng yang dahsyat. Kalau Ouyang Feng tidak memandang mukaku 
+dan menunjukkan belas kasihan, tulangnya akan hancur berkeping-keping." Ia tidak tahu bahwa Guo Jing yang ditemuinya di 
+Rumah Awan bukanlah Guo Jing yang sama seperti sekarang. Namun ia mengakui bahwa Guo Jing tanpa pamrih menyelamatkan 
+nyawa Huang Rong tanpa memperhatikan keselamatannya sendiri. Kebenciannya terhadapnya sebagian besar telah hilang. Ia 
+berpikir, "Anak ini benar-benar punya hati yang baik, dan dia sangat mencintai Rong'er. Aku tidak bisa memberikan Rong'er 
+kepadanya, tapi aku pasti bisa memberinya hadiah dengan mengajarinya sesuatu." Bajingan di depannya tampak agak bodoh dan 
+kata 'bodoh' membangkitkan amarah dalam dirinya.
 
-"Saya bukan seorang pria," Hong Qigong tertawa. "Kamu mempertaruhkan hidupmu untuk bermain dengan seorang pengemis!" Dengan melompat dia berdiri di halaman lagi.
+"Racun Tua... kau benar-benar hebat!" seru Hong Qigong. "Tapi siapa yang menang atau kalah masih belum ditentukan. Mari 
+kita bertarung lagi!"
 
-Ouyang Feng hendak bergabung dengannya ketika Huang Yaoshi tiba-tiba mengangkat tangan kirinya, "Tahan!" dia berseru, “Kakak Qi, Kakak Feng, kamu telah bertarung selama lebih dari seribu gerakan dan kalian berdua sama kuatnya. Hari ini kalian berdua adalah tamu kehormatan Pulau Bunga Persik; Anda berhak minum beberapa cangkir anggur saudara Anda sendiri. Pertemuan pedang di Gunung Hua sudah dekat. Pada saat itu kalian berdua tidak hanya akan melihat siapa yang akan mendapatkan kemenangan, tetapi saudaramu, bersama Kaisar Selatan akan ada di sana untuk melatih seni bela diri kita. Mengapa kita tidak mengakhiri kontes hari ini sekarang juga?”
+"Baik!" jawab Ouyang Feng. "Aku akan mempertaruhkan hidupku untuk menemani seorang pria terhormat bermain-main!"
 
-"Itu baik-baik saja dengan saya!" Ouyang Feng tertawa, "Jika pertarungan ini berlanjut, bagaimanapun juga aku akan dipaksa untuk segera mengakui kekalahan."
+"Wah, aku bukan seorang pria terhormat," kata Hong Qigong sambil tertawa. "Kau mempertaruhkan hidupmu untuk bermain 
+dengan seorang pengemis!" Sambil melompat ia berdiri di halaman lagi.
 
-Hong Qigong berbalik dan tertawa, “Old Western Poison itu licik; ketika dia mengatakan dia akan mengaku kalah, dia sebenarnya bermaksud dia akan menang. Saya tidak percaya apa yang dia katakan sedikit pun.
+Ouyang Feng hendak bergabung dengannya ketika Huang Yaoshi tiba-tiba mengangkat tangan kirinya, "Tahan!" serunya. 
+"Qi Xiong, Feng Xiong, kalian berdua sudah bertarung lebih dari seribu jurus, dan sama kuatnya. Hari ini kalian berdua 
+adalah tamu kehormatan Pulau Bunga Persik, kalian berhak minum beberapa cawan arak saudara kalian sendiri. Pertemuan
+di Hua Shan berikutnya sudah dekat. Pada saat itu kalian berdua tidak hanya akan melihat siapa yang akan menang, 
+tetapi saudaramu ini, bersama dengan Kaisar Selatan akan hadir di sana untuk melatih kungfu kita. Kenapa kita tidak 
+mengakhiri saja pertarungan hari ini?"
 
-“Baiklah, kalau begitu,” jawab Ouyang Feng, “Izinkan saya menanyakan pendapat ahli Brother Qi lagi.”
+"Itu boleh saja, aku tidak keberatan!" kata Ouyang Feng sambil tertawa. "Kalau dilanjutkan, bagaimanapun juga aku akan dipaksa untuk mengakui kekalahan."
 
-Hong Qigong menjentikkan lengan bajunya dan berkata, "Tidak ada yang lebih baik!"
+Hong Qigong berbalik dan tertawa, "Lao Xidu licik, kalau dia bilang dia akan mengaku kalah, sebenarnya maksudnya dia akan 
+menang. Aku tidak percaya apa yang dikatakannya sedikit pun."
 
-"Begitu ya," sela Huang Yaoshi, "Jadi kedatanganmu di Pulau Bunga Persik hari ini sebenarnya untuk memamerkan seni bela dirimu," katanya sambil tersenyum.
+"Baiklah, kalau begitu," jawab Ouyang Feng. "Ijinkan aku menanyakan pendapat ahli Qi Xiong sekali lagi."
 
-Hong Qigong tertawa terbahak-bahak. “Kakak Yao benar! Kami datang ke sini untuk meminta putri Anda menikah, bukan untuk saling bertarung.
+Hong Qigong menyentilkan lengan bajunya dan berkata, "Silakan!"
 
-“Saya katakan sebelumnya bahwa saya akan memberikan tiga mata pelajaran untuk menguji kedua pria itu,” lanjut Huang Yaoshi, “Orang yang lulus ujian akan menjadi menantu saya; tapi yang gagal juga tidak akan pulang dengan tangan kosong.”
+"Begitu ya," sela Huang Yaoshi, "Jadi kedatangan kalian di Pulau Bunga Persik hari ini sebenarnya untuk pameran kungfu," katanya sambil tersenyum.
 
-"Apa? Apa kau punya anak perempuan lagi?” Hong Qigong bertanya.
+Hong Qigong tertawa terbahak-bahak. "Yao Xiong benar! Kita datang ke sini untuk melamar putrimu, bukan untuk berkelahi."
 
-Huang Yaoshi tersenyum, “Tidak, saya tidak. Bahkan jika saya menemukan istri lain, saya tidak berpikir kita ingin menunggu selama itu bukan? Kakakmu memiliki banyak keterampilan lain: medis, astrologi, dan banyak hal lainnya. Kepada pria yang gagal dalam ujian, selama dia tidak meremehkan pengetahuan dangkal saya dan bersedia mempelajari satu mata pelajaran tertentu, saya akan mengabdikan waktu saya dan mengajarinya dengan sepenuh hati agar dia tidak meninggalkan Pulau Bunga Persik dengan tangan kosong.”
+"Aku sebelumnya sudah bilang bahwa aku akan memberikan tiga ujian untuk kedua anak muda itu," lanjut Huang Yaoshi. 
+"Orang yang lulus ujian akan menjadi menantuku, tapi yang gagal juga tidak akan pulang dengan tangan kosong."
+
+"Apa? Apa kau punya anak perempuan lagi?" tanya Hong Qigong.
+
+Huang Yaoshi tersenyum, "Tidak. Bahkan kalau aku menemukan istri lain, aku pikir kita ingin menunggu selama itu, kan? 
+Saudaramu punya banyak keterampilan lain, pengobatan, perbintangan, dan banyak hal lainnya. Kepada orang yang gagal 
+dalam ujian, selama dia tidak meremehkan pengetahuanku yang dangkal ini, dan bersedia mempelajari satu mata pelajaran 
+tertentu, aku akan mengabdikan waktuku untuk mengajarinya dengan sepenuh hati, supaya dia tidak meninggalkan Pulau Bunga 
+Persik dengan tangan hampa."
 
 Hong Qigong sangat menyadari kemampuan Huang Yaoshi; dia berpikir bahwa jika Guo Jing tidak bisa menjadi menantunya tetapi berhasil belajar hanya satu keterampilan darinya, bagaimanapun juga dia akan mendapatkan keuntungan seumur hidup. Dia berpikir bahwa apa pun subjek ujiannya, Guo Jing pasti akan menderita kerugian dan dia merasa tidak enak untuknya.
 
