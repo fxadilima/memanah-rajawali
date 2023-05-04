@@ -37,3 +37,7 @@ tengahnya. Lubang tersebut digunakan untuk mengikat sejumlah koin yang sama untu
 Sistem ini berlaku mulai dari era Dinasti Song sampai dengan Dinasti Qing.
 
 
+### <a name="kati" id="kati">Kati/Jin (斤)</a>
+
+Ini adalah satuan berat Tiongkok. 1 kati secara umum dibulatkan menjadi 600 gram.
+
