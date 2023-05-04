@@ -476,95 +476,177 @@ Huang Yaoshi mendengarkan Ouyang Feng memuji kungfu keluarganya dan tersenyum ti
 Beralih ke Huang Yaoshi, Ouyang Feng berkata, "Yao Xiong, sejak keponakanku pertama kali melihat putrimu, hatinya 
 terpikat oleh kecantikan dan kungfunya yang luar biasa. Dia mengirim seekor merpati untuk memanggilku dan aku datang 
 dari [Bai Tuo Shan](referensi-karakter.md#bai-tuo-shan "Pegunungan Onta Putih, Bai Tuo Shan (白驼山)"), 
-ribuan li jauhnya, menyeberangi Central Plains dan laut ke Pulau Bunga Persik untuk meminang putri Anda. Anda telah mempertimbangkan ketergesaan saya dan, meskipun tidak layak, telah menerima saya dengan baik. Selain Saudara Yao, tidak ada seorang pun di zaman sekarang ini yang akan melakukan hal seperti itu.”
+ribuan li jauhnya, menyeberangi Dataran Tengah dan laut ke Pulau Bunga Persik untuk meminang putrimu. Dan meskipun 
+aku tidak layak, kau sudah menerimaku dengan baik. Selain Yao Xiong, tidak ada seorang pun di jaman sekarang ini yang 
+akan melakukan hal seperti itu."
 
-“Saya tidak berani menerima pujian seperti itu,” Huang Yaoshi tersenyum. Dia berpikir bahwa meskipun posisinya tinggi, Ouyang Feng masih rela melakukan perjalanan jauh untuk menemuinya dan dia merasa terhormat.
+"Aku tidak berani menerima pujian seperti itu," Huang Yaoshi tersenyum. Ia berpikir bahwa meskipun posisinya tinggi, 
+Ouyang Feng masih rela melakukan perjalanan jauh untuk menemuinya dan dia merasa terhormat.
 
-Ouyang Feng kemudian menoleh ke Hong Qigong dan berkata, “Kakak Qi, kami paman dan keponakan mengagumi seni bela diri Pulau Bunga Persik; tapi kamu… bagaimana kamu bisa meremehkan kami dengan menggertak para junior? Jika keponakan saya tidak beruntung, dia bisa saja mati karena keahlian unik Anda tentang 'Hujan Jarum Baja'.
+Ouyang Feng kemudian menoleh ke Hong Qigong dan berkata, "Kakak Qi, kami paman dan keponakan mengagumi kungfu Pulau Bunga 
+Persik, tapi kau... bagaimana kau bisa meremehkan kami dengan menggertak orang yang lebih muda? Kalau keponakanku tidak 
+beruntung, dia bisa saja mati kena Hujan Jarum Baja hasil karyamu itu."
 
-Sebenarnya, Hong Qigong-lah yang menyelamatkan Ouyang Ke dari 'Hujan Jarum Baja' yang diluncurkan oleh Huang Rong, tapi sekarang Ouyang Feng menyalahkannya. Dia tahu Ouyang Ke pasti berbohong kepada pamannya dan pamannya menggunakan itu untuk mendiskreditkannya. Hong Qigong adalah orang yang jujur, lugas dan dia tidak ingin berdebat; dia hanya tertawa terbahak-bahak, mencabut labu anggurnya dan meneguknya.
+Sebenarnya, Hong Qigong-lah yang menyelamatkan Ouyang Ke dari Hujan Jarum Baja yang ditembakkan Huang Rong, tapi 
+sekarang Ouyang Feng menyalahkannya. Ia tahu Ouyang Ke pasti berbohong kepada pamannya dan pamannya menggunakan itu 
+untuk mennyudutkannya. Hong Qigong adalah orang yang jujur, lugas dan ia tidak ingin berdebat. Ia hanya tertawa 
+terbahak-bahak, mencabut botol araknya dan meneguk araknya dari situ.
 
-Guo Jing tidak bisa menahan kesabarannya lagi, “Qigong Seniorlah yang menyelamatkan nyawa keponakanmu; bagaimana Anda bisa mengatakan hal seperti itu untuk menyalahkannya?
+Guo Jing tidak bisa menahan kesabarannya lagi, "Qigong Qianbei-lah yang menyelamatkan nyawa keponakanmu, bagaimana kau 
+bisa mengatakan hal seperti itu untuk menyalahkannya?"
 
-"Nak, kita masih berbicara, beraninya kamu menyela?" Huang Yaoshi menggonggong.
+"Nak, kita masih berbicara, beraninya kamu menyela?" bentak Huang Yaoshi.
 
-"Rong'er, beri tahu dia ... beri tahu Ayahmu apa yang terjadi pada Nona Cheng," kata Guo Jing buru-buru.
+"Rong'er, beri tahu dia... beri tahu Ayahmu apa yang terjadi pada Nona Cheng," kata Guo Jing buru-buru.
 
-Huang Rong sangat mengenal temperamen ayahnya; dia bukanlah orang yang mengikuti adat dan tradisi. Dia sering berkata, "Apa hubungan kebiasaan itu dengan kita?" Cara berpikirnya berbeda dengan orang awam pada masanya. Apa yang dianggap benar oleh orang lain, dia akan menganggapnya salah; apa yang orang lain anggap salah, dia mungkin menganggapnya benar. Begitulah cara dia mendapatkan gelar 'Bidat Timur.' Huang Rong berpikir, "Perilaku Ouyang Ke benar-benar menjijikkan, tetapi Ayah mungkin berpikir bahwa dia melakukan apa yang akan dilakukan oleh pemuda romantis normal mana pun." Dia memperhatikan bahwa ayahnya sedang menatap Guo Jing dengan mata berapi-api sehingga dia buru-buru mendapatkan sebuah ide.
+Huang Rong sangat mengenal temperamen ayahnya, ia bukan orang yang mengikuti adat dan tradisi. Ia sering berkata, "Apa 
+hubungannya kebiasaan itu dengan kita?" Cara berpikirnya berbeda dengan orang awam pada umumnya. Apa yang dianggap 
+benar oleh orang lain, dia akan menganggapnya salah, apa yang orang lain anggap salah, dia mungkin menganggapnya 
+benar. Karena itulah ia dijuluki 'Si Sesat Timur'. Huang Rong berpikir, "Perilaku Ouyang Ke benar-benar menjijikkan, 
+tapi Ayah mungkin berpikir bahwa dia melakukan apa yang akan dilakukan oleh pemuda romantis normal mana pun." 
+Ia memperhatikan bahwa ayahnya sedang menatap Guo Jing dengan mata berapi-api, jadi ia buru-buru mencari ide.
 
-“Aku belum selesai denganmu,” katanya menoleh ke Ouyang Ke, “Hari itu ketika kita mengadakan kontes seni bela diri di Istana Zhao, kamu mengikat kedua tanganmu ke belakang dan berkata bahwa kamu tidak memerlukan tangan untuk melakukannya. taklukkan aku, bukan?” Ouyang Ke mengakui dengan anggukan kepala.
+“Aku belum selesai denganmu,” katanya menoleh ke Ouyang Ke, "Hari itu waktu kita mengadu ilmu silat di Istana Zhao, 
+kau mengikat kedua tanganmu ke belakang dan bilang bahwa kau tidak perlu tangan untuk menaklukkan aku, kan?" 
+Ouyang Ke mengakui dengan anggukan kepala.
 
-“Kemudian setelah saya mengambil Qigong Senior sebagai guru saya, kami bertemu lagi di Baoying,” lanjut Huang Rong. “Kamu mengatakan bahwa apapun jenis seni bela diri yang aku gunakan, apakah itu dari ayahku atau yang diajarkan oleh Hong Qigong; Anda hanya akan menggunakan seni bela diri Paman Anda untuk mengalahkan saya, bukan?
+"Kemudian setelah aku menjadi murid Qigong Qianbei, kita bertemu lagi di Baoying," lanjut Huang Rong. "Kau bilang, entah
+aku mau menggunakan kungfu ajaran ayahku atau ajaran Qigong Qianbei, kau hanya akan menggunakan kungfu pamanmu untuk
+mengalahkan aku, kan?"
 
-Ouyang Ke berpikir, “Itu idemu sendiri; Saya tidak mengatakan hal seperti itu.”
+Ouyang Ke berpikir, "Itu idemu sendiri, aku tidak mengatakan hal seperti itu."
 
-Melihat keragu-raguannya, Huang Rong dengan cepat melanjutkan, “Kamu menggambar lingkaran di tanah dengan kakimu dan berkata bahwa jika aku bisa mengeluarkanmu dari lingkaran menggunakan seni bela diri yang kupelajari dari ayahku, kamu akan mengaku kalah, bukan? ” Ouyang Ke mengangguk lagi.
+Melihat keragu-raguannya, Huang Rong cepat-cepat melanjutkan, "Kau menggambar lingkaran di tanah dengan kakimu dan 
+berkata bahwa kalau aku bisa membuatmu keluar dari lingkaran menggunakan kungfu dari ayahku, kau akan mengaku kalah, kan?" 
+Ouyang Ke mengangguk lagi.
 
-Beralih ke ayahnya, Huang Rong berkata, “Ayah, apakah kamu mendengar itu? Dia tidak menghormati Hong Qigong dan dia tidak menghormati Anda. Dia mengatakan bahwa seni bela diri kalian berdua lebih rendah dari pamannya dan bahkan jika kalian berdua datang bersama, kalian masih tidak bisa mengalahkan pamannya. Saya tidak percaya.”
+Beralih ke ayahnya, Huang Rong berkata, "Ayah, apakah kau dengar itu? Dia tidak menghormati Hong Qigong maupun ayah. Dia 
+bilang kungfu kalian berdua lebih rendah dari pamannya, dan bahkan kalaupun kalian berdua maju bersama, kalian masih 
+tidak bisa mengalahkan pamannya. Aku tidak percaya."
 
-“Gadis kecil itu memiliki lidah yang panjang [dia merentangkan kebenaran],” kata Huang Yaoshi. “Siapa di antara orang-orang di bawah langit yang tidak tahu bahwa seni bela diri Bidat Timur, Racun Barat, Kaisar Selatan, dan Pengemis Utara seperti satu pon hingga enam belas ons? Tidak ada yang lebih unggul dari yang lain.” Meskipun mulutnya mengucapkan kata-kata itu, dia membenci kesombongan Ouyang Ke, tetapi dia tidak ingin membahas masalah ini lagi. Dia menoleh ke arah Hong Qigong dan bertanya, “Kakak Qi, kehadiranmu membawa kehormatan bagi Pulau Bunga Persik. Saya ingin tahu apakah ada yang bisa saya lakukan untuk Anda?
+"Anak ini punya lidah panjang[^lidah-panjang]," kata Huang Yaoshi. "Di dunia ini siapapun tahu bahwa kita berempat, 
+Si Sesat Timur, Racun Barat, Kaisar Selatan, Pengemis Utara, sebetulnya seimbang. Tak seorang pun lebih unggul dari 
+yang lain." Meskipun mulutnya mengucapkan kata-kata itu, ia membenci kesombongan Ouyang Ke, tetapi ia tidak ingin 
+membahas masalah ini lagi. Ia menoleh kepada Hong Qigong dan bertanya, "Kakak Qi, kehadiranmu adalah kehormatan bagi 
+Pulau Bunga Persik. Aku ingin tahu, apa yang bisa kulakukan untukmu?"
 
-“Saya datang ke sini untuk meminta bantuan Anda,” jawab Hong Qigong.
+"Aku ke sini untuk minta bantuanmu," jawab Hong Qigong.
 
-Meskipun Hong Qigong suka bercanda, dia adalah orang yang jujur dan lugas, selalu menjunjung tinggi keadilan. Keterampilan seni bela dirinya sangat tinggi, jadi Huang Yaoshi selalu menghormatinya. Huang Yaoshi tahu bahwa bisnis apa pun yang ditangani Hong Qigong, selalu diurus, jika tidak secara pribadi, maka dengan bantuan banyak anggota Klan Pengemisnya. Kali ini Hong Qigong meminta bantuannya. Dia sangat senang dan berkata, “Kami telah berteman selama puluhan tahun; jika Saudara Qi memiliki sesuatu untuk ditanyakan, bagaimana mungkin adik laki-lakimu tidak menurut?”
+Meskipun Hong Qigong suka bercanda, dia orang yang jujur dan lugas, selalu menjunjung tinggi keadilan. Kungfunya sangat 
+tinggi, jadi Huang Yaoshi selalu menghormatinya. Huang Yaoshi tahu bahwa masalah apa pun yang dihadapi Hong Qigong akan 
+selalu diurus, jika tidak secara pribadi, maka dengan bantuan banyak anggota Kai Pang. Kali ini Hong Qigong meminta 
+bantuannya. Ia sangat senang dan berkata, "Kita berteman selama puluhan tahun, kalau Saudara Qi perlu bantuanku, masa
+aku bisa menolak?"
 
-“Jangan menuruti terlalu cepat,” kata Hong Qigong, “Saya khawatir masalah ini tidak mudah ditangani.”
+"Jangan buru-buru setuju," kata Hong Qigong, "Aku takut masalah tidak mudah ditangani."
 
-Huang Yaoshi tersenyum, "Jika masalahnya mudah, Kakak Qi tidak akan berpikir untuk bertanya pada adik laki-lakimu."
+Huang Yaoshi tersenyum, "Jika masalahnya mudah, Qi Xiong tidak akan berpikir untuk minta bantuan saudaramu ini, kan?"
 
-Hong Qigong bertepuk tangan. "Itu benar!" dia tertawa, “Itulah tanda persahabatan sejati! Anda telah memutuskan untuk memenuhi permintaan saya?
+Hong Qigong bertepuk tangan. "Itu benar!" dia tertawa, "Itulah tanda persahabatan sejati! Kau telah memutuskan untuk 
+memenuhi permintaan saya?"
 
-"Angkat bicara!" kata Huang Yaoshi. "Bahkan jika itu berarti melewati api atau air, aku akan melakukannya."
+"Langsung bicara!" kata Huang Yaoshi. "Bahkan jika itu berarti melewati api atau air, aku akan melakukannya."
 
-Ouyang Feng mengayunkan tongkat ularnya dan membuka mulutnya, "Pelan-pelan Saudara Yao, pertama-tama kita harus bertanya kepada Saudara Qi apa yang dia inginkan."
+Ouyang Feng mengayunkan tongkat ularnya dan membuka mulutnya, "Pelan-pelan Saudara Yao, pertama-tama kita harus bertanya 
+kepada Saudara Qi apa yang dia inginkan."
 
-Hong Qigong tertawa. “Racun Tua, masalah ini bukan urusanmu. Anda sedang usil. Anda sebaiknya mempersiapkan perut Anda untuk minum 'anggur perayaan'. [xi jiu – istilah yang digunakan untuk anggur yang disajikan di pesta pernikahan.]
+Hong Qigong tertawa. 
+"[Racun Tua](referensi-karakter.md#empat-lao "Lao Du (老毒) = Racun Tua, panggilan akrab Ouyang Feng di antara mereka berempat."), 
+masalah ini bukan urusanmu. Kau sedang usil. Kau sebaiknya menyiapkan perutmu untuk minum 
+[Xi Jiu](referensi-karakter.md#xi-jiu "Xi Jiu (喜酒), istilah yang digunakan untuk anggur yang disajikan di pesta pernikahan.")."
 
-"Minum 'anggur perayaan'?" Ouyang Feng bertanya-tanya.
+"Minum xi jiu?" Ouyang Feng bertanya-tanya.
 
-"Itu benar," jawab Hong Qigong, "'Anggur perayaan'." Menunjuk Guo Jing dan Huang Rong dia melanjutkan, “Keduanya adalah muridku; Saya telah setuju untuk meminta Saudara Yao atas nama mereka agar mereka menikah satu sama lain. Saudara Yao telah menyetujuinya.”
+"Benar," jawab Hong Qigong. "Xi Jiu." Menunjuk Guo Jing dan Huang Rong ia melanjutkan, "Keduanya adalah muridku. 
+Aku sudah berjanji untuk meminta Saudara Yao atas nama mereka supaya mereka bisa menikah. Yao Xiong menyetujuinya."
 
-Guo Jing dan Huang Rong sama-sama ketakutan sekaligus bahagia. Mereka bertukar pandang satu sama lain. Ouyang Feng dan keponakannya, serta Huang Yaoshi, terkejut.
+Guo Jing dan Huang Rong sama-sama ketakutan sekaligus bahagia. Mereka bertukar pandang satu sama lain. Ouyang Feng dan 
+keponakannya, serta Huang Yaoshi, terkejut.
 
-"Kakak Qi!" Ouyang Feng berkata, “Kamu salah! 'Yang berharga' Saudara Yao [qian jin - seribu emas'] telah bertunangan dengan keponakan saya sebelumnya. Kami datang ke Pulau Bunga Persik hari ini untuk mengantarkan mahar dan mengatur upacaranya.”
+"Kakak Qi!" Ouyang Feng berkata, "Kau salah! Putri Yao Xiong[^qian-jin] telah bertunangan dengan keponakanku sebelumnya. 
+Kami datang ke Pulau Bunga Persik hari ini justru untuk mengantarkan mahar dan mengatur upacaranya."
 
-"Kakak Yao," tanya Hong Qigong, "Begitukah?"
+[^qian-jin]: Qian Jin (千金) bermakna 'Seribu Emas'. Maksudnya adalah 'Harta yang paling berharga' milik Huang Yaoshi, yaitu Huang Rong, putri tunggalnya. Ouyang Feng menggunakan istilah ini untuk menyanjung Huang Yaoshi.
 
-"Aku khawatir begitu," jawab Huang Yaoshi, "Kakak Qi, tolong jangan bercanda dengan adik laki-lakimu."
 
-Hong Qigong memasang wajah masam. "Siapa yang mempermainkanmu?" dia berkata. “Kamu telah mempertunangkan putrimu dengan dua keluarga; reputasi keluargamu dipertaruhkan di sini.” Memalingkan kepalanya ke arah Ouyang Feng, dia bertanya, "Saya adalah mak comblang utama keluarga Guo, di mana mak comblang Anda?"
+"Yao Xiong," tanya Hong Qigong, "Begitukah?"
 
-Ouyang Feng tercengang; dia tidak menyangka Hong Qigong akan menanyakan pertanyaan itu padanya. Dengan gagap dia mencoba menjawab, “Saudara Yao telah menyetujui pernikahan ini, saya juga telah menyetujui; mengapa kita membutuhkan mak comblang?”
+"Aku kuatir begitu," jawab Huang Yaoshi, "Qi Xiong, tolong jangan bercanda dengan saudaramu ini."
 
-"Apakah Anda sadar bahwa ada seseorang yang tidak menyetujui pengaturan ini?" Hong Qigong memotongnya.
+Hong Qigong memasang wajah masam. "Siapa yang bercanda?" katanya. "Kau menunangkan putrimu dengan dua keluarga, reputasi 
+keluargamu dipertaruhkan di sini." Memalingkan kepalanya ke arah Ouyang Feng, ia bertanya, "Aku adalah mak comblang utama 
+keluarga Guo, mana mak comblangmu?"[^mak-comblang]
 
-"Siapa?" Ouyang Feng bertanya.
+[^mak-comblang]: Dalam tradisi masyarakat Tionghoa, setiap perkawinan dengan mutlak harus menghadirkan seorang 'mak comblang', alias _perantara_. Mak Comblang ini _bukan_ dari anggota keluarga. Tetapi dia bertindak atas nama salah satu anggota keluarga. Peranannya sudah dimulai pada saat meminang calon pengantin perempuan.
 
-"Ha ... ha ... itu milikmu benar-benar, Hong Pengemis Tua!" Hong Qigong tertawa.
+Ouyang Feng tercengang, ia tidak menyangka Hong Qigong akan menanyakan pertanyaan. Dengan gagap ia mencoba menjawab, 
+"Saudara Yao sudah menyetujui pernikahan ini, aku juga setuju, mengapa kita membutuhkan mak comblang?"
 
-Segera setelah Ouyang Feng mendengar ini dan mengetahui karakter Hong Qigong yang berkemauan keras dan perilakunya tegas dan tegas, dia tahu perkelahian tidak dapat dihindari; wajahnya tidak menunjukkan sedikit pun perubahan tapi dia menunda mengatakan apapun.
+"Kau sadar bahwa ada seseorang yang tidak menyetujui pengaturan ini?" potong Hong Qigong.
 
-Hong Qigong tersenyum, “Perilaku keponakanmu tidak pantas. Bagaimana dia bisa dibandingkan dengan putri cantik-seperti-bunga dari Saudara Yao? Jika Anda memaksa mereka untuk menikah, mereka akan memperebutkan segala macam hal setiap hari dan mereka mungkin akan saling membunuh. Apa gunanya?”
+"Siapa?" tanya Ouyang Feng.
 
-Huang Yaoshi mendengarkan dengan penuh perhatian dan hatinya tergerak. Dia memandang Huang Rong, yang sedang menatap Guo Jing dengan penuh kasih. Lalu dia menatap Guo Jing. Dia sangat membenci anak bodoh ini... Kecerdasan Guo Jing dipertanyakan; dia tidak tahu apa-apa tentang sastra atau seni bela diri atau musik, catur, kaligrafi, dan lukisan. Dia tidak akan menjadi sarjana berbakat atau ksatria gagah. Baik dia maupun istrinya adalah orang-orang yang cerdas dan dia tahu kekuatan otak putri tunggal mereka tidak jauh di bawah mereka. Jika dia membiarkan orang bodoh ini menikahi putrinya, itu seperti melempar bunga segar ke kotoran sapi.
+"Ha... ha... sudah tentu adalah _aku_, Hong Laogai!" jawab Hong Qigong sambil tertawa.
 
-Saat ini dia melihat Guo Jing berdiri di samping Ouyang Ke; dia tidak bisa tidak membandingkan keduanya. Kecerdasan dan penampilan cerdas Ouyang Ke seratus kali lebih baik daripada Guo Jing. Pikirannya ditetapkan untuk mengambil pemuda ini sebagai menantunya. Tapi wajah Hong Qigong menunjukkan dia tidak akan mudah menyerah; jadi dia membuat skema dan berkata, “Kakak Feng [Feng Xiong], keponakanmu terluka. Anda sebaiknya mengurus itu dulu; kita akan membahas masalah ini lebih lanjut nanti.”
+Segera setelah Ouyang Feng mendengar ini, dan mengetahui karakter Hong Qigong yang berkemauan keras, dan perilakunya 
+tegas dan terus-terang, ia tahu perkelahian tidak dapat dihindari. Wajahnya tidak menunjukkan sedikit pun perubahan 
+tapi ia menahan lidahnya untuk mengatakan apapun.
 
-Ouyang Feng telah mengkhawatirkan kondisi keponakannya untuk sementara waktu dan berharap Huang Yaoshi memberi mereka kesempatan untuk merawat luka-lukanya. Dia segera memberi isyarat kepada keponakannya dan keduanya berjalan kembali ke alur bambu. Huang Yaoshi kemudian berbasa-basi dengan Hong Qigong.
+Hong Qigong tersenyum, "Perilaku keponakanmu tidak pantas. Bagaimana dia bisa disandingkan dengan putri Yao Xiong yang 
+cantik-seperti-bunga? Kalau kau memaksa mereka menikah, mereka akan memperdebatkan segala macam hal setiap hari dan mereka 
+mungkin akan saling membunuh. Apa gunanya?"
 
-Kira-kira waktu yang dibutuhkan untuk memasak nasi nanti, paman dan keponakan kembali ke paviliun. Ouyang Feng telah mengeluarkan jarum baja dari tubuh keponakannya dan juga memperbaiki tulang rusuk yang patah.
+Huang Yaoshi mendengarkan dengan penuh perhatian dan hatinya tergerak. Ia memandang Huang Rong, yang sedang menatap 
+Guo Jing dengan penuh kasih. Lalu ia menatap Guo Jing. Ia sangat membenci anak bodoh ini... Kecerdasan Guo Jing 
+patut dipertanyakan, ia tidak tahu apa-apa tentang sastra atau kungfu atau musik, catur, kaligrafi, dan lukisan. Ia 
+tidak akan menjadi sastrawan berbakat atau ksatria gagah. Baik dia maupun istrinya adalah orang-orang yang cerdas dan 
+dia tahu kemampuan otak putri tunggal mereka tidak jauh di bawah mereka. Kalau dia membiarkan orang bodoh ini menikahi 
+putrinya, itu seperti melempar bunga segar ke kotoran sapi.
 
-“Postur putriku lemah seperti pohon willow; dia keras kepala, tidak patuh dan hampir tidak layak menjadi istri seorang pria. Tapi Saudara Qi dan Saudara Feng secara tak terduga memberi saya kehormatan tertinggi dengan melamarnya. Putri saya sudah bertunangan dengan Tuan Ouyang, tetapi permintaan Saudara Qi juga sulit untuk tidak diterima. Saya punya ide dan saya ingin tahu apakah kalian berdua akan memberi tahu saya apakah ide ini akan berhasil atau tidak? kata Huang Yaoshi.
+Saat ini ia melihat Guo Jing berdiri di samping Ouyang Ke, ia tidak bisa tidak membandingkan keduanya. Kecerdasan dan 
+penampilan Ouyang Ke seratus kali lebih baik daripada Guo Jing. Ia menetapkan pikiran untuk mengambil pemuda ini sebagai 
+menantunya. Tapi wajah Hong Qigong menunjukkan ia tidak akan mudah menyerah, jadi ia membuat sebuah akal-akalan dan 
+berkata, "Feng Xiong, keponakanmu terluka. Kau sebaiknya mengurus itu dulu. Kita akan membahas masalah ini lebih lanjut 
+nanti."
 
-"Katakan dengan cepat ... katakan dengan cepat!" Hong Qigong menyela. "Pengemis Tua tidak suka mendengarkan kata-katamu yang berbelit-belit dan berbunga-bunga."
+Ouyang Feng menguatirkan kondisi keponakannya sejak tadi, dan memang berharap Huang Yaoshi memberi mereka kesempatan 
+untuk merawat luka-lukanya. Ia segera memberi isyarat kepada keponakannya dan keduanya berjalan kembali ke hutan bambu. 
+Huang Yaoshi kemudian berbasa-basi dengan Hong Qigong.
 
-Huang Yaoshi tersenyum tipis. “Saudaraku, meskipun putriku ini tidak layak, aku tetap berharap dia akan menemukan suami yang baik,” lanjutnya. "Tn. Ouyang adalah keponakan terhormat Saudara Feng, sedangkan Tuan Guo adalah murid luar biasa Saudara Qi. Keduanya adalah pria yang sangat baik dan sangat sulit untuk memilih salah satu dari mereka. Saya tidak punya alternatif selain membuat tes tiga mata pelajaran dan saya akan menunangkan putri saya dengan siapa pun yang lulus tes ini. Saya tidak akan memihak salah satu dari mereka. Akankah kedua teman lama memberi tahu saya jika ide ini bagus?
+Kira-kira selama waktu yang dibutuhkan untuk menanak nasi, paman dan keponakan itu kembali ke pondok. Ouyang Feng telah 
+mengeluarkan jarum baja dari tubuh keponakannya dan juga memperbaiki tulang rusuknya yang patah.
 
-Ouyang Feng bertepuk tangan. "Cerdik! Luar biasa!" serunya. “Satu-satunya adalah, keponakan saya terluka; jika ujiannya melibatkan seni bela diri maka kita harus menunggu sampai dia pulih sepenuhnya.” Dia telah melihat keganasan serangan Guo Jing yang melukai keponakannya; dia tahu bahwa jika mereka bertanding dalam seni bela diri, keponakannya pasti akan kalah. Jadi dia menggunakan cedera keponakannya untuk keuntungan terbaik mereka.
+"Postur putriku lemah seperti pohon willow, ia keras kepala, tidak patuh dan hampir tidak layak menjadi istri laki-laki 
+manapun. Tapi Saudara Qi dan Saudara Feng secara tak terduga memberiku kehormatan tertinggi dengan melamarnya. Putriku 
+sudah bertunangan dengan Ouyang Gongzi, tetapi permintaan Saudara Qi juga sulit untuk tidak diterima. Aku punya ide, 
+dan aku ingin tahu pendapat kalian berdua," kata Huang Yaoshi.
 
-“Tentu saja,” kata Huang Yaoshi. “Kontes seni bela diri akan merusak hubungan baik antara dua keluarga.”
+"Katakan... cepat katakan!" sela Hong Qigong. "Pengemis Tua tidak suka mendengar omonganmu yang berbelit-belit dan 
+berbunga-bunga."
 
-Hong Qigong berpikir dalam hati, “Ini sangat tipikal dari Old Heretic Huang. Kita semua adalah orang Wulin; jika tes melibatkan keterampilan sastra dan bukan seni bela diri, apakah Anda mengharapkan seorang 'sarjana akademis' [zhuang yuan] menjadi menantu Anda? Jika Anda membuat musik atau puisi, bahkan jika dia bereinkarnasi, murid bodoh saya tidak akan dapat mengikuti ujian. Mulut Anda mengatakan tidak ada favorit, tetapi jelas Anda sangat menyukai pihak lain. Murid bodohku pasti akan kalah. Ini membingungkan! Saya akan melawan Racun Tua terlebih dahulu dan berbicara nanti. Dia melihat ke atas dan tertawa keras; lalu sambil menatap Ouyang Feng dia berkata, “Kita semua adalah praktisi seni bela diri; daripada lomba pencak silat, lebih suka lomba makan atau lomba buang air besar? Keponakan Anda terluka, tetapi Anda tidak. Ayo… ayo… ayo! Kami akan bertarung menggantikan mereka.”
+Huang Yaoshi tersenyum tipis. "Saudara-saudaraku, meskipun putriku ini tidak layak, aku tetap berharap dia akan menemukan 
+suami yang baik," lanjutnya. "Ouyang Gongzi adalah keponakan terhormat dari Feng Xiong, sedangkan Guo Gongzi adalah murid 
+luar biasa dari Qi Xiong. Keduanya adalah laki-laki yang sangat baik dan sangat sulit untuk memilih salah satu dari mereka. 
+Aku tidak punya pilihan selain membuat tiga ujian untuk mereka, dan aku akan menunangkan putriku dengan siapa pun yang 
+lulus ujian ini. Aku tidak akan berpihak ke salah satu dari mereka. Bagaimana menurut kalian berdua?"
+
+Ouyang Feng bertepuk tangan. "Cerdik! Luar biasa!" serunya. "Satu-satunya masalah adalah, keponakanku terluka, kalau 
+ujiannya melibatkan kungfu maka kita harus menunggu sampai dia pulih sepenuhnya." Ia telah melihat kedahsyatan serangan 
+Guo Jing yang melukai keponakannya. Ia tahu kalau mereka diuji dalam hal kungfu, maka keponakannya pasti akan kalah. 
+Jadi ia menggunakan cedera keponakannya untuk keuntungan mereka.
+
+"Tentu saja," kata Huang Yaoshi. "Kontes seni bela diri akan merusak hubungan baik antara dua keluarga."
+
+Hong Qigong berpikir dalam hati, "Ini ciri khas dari Huang Laoxie. Kita semua adalah orang dunia persilatan, jika tes ini 
+melibatkan keterampilan sastra, dan bukan kungfu, masa itu berarti kau mengharapkan seorang Zhuangyuan[^zhuangyuan] 
+menjadi menantumu? Kalau tes musik atau puisi, bahkan dalam _reinkarnasi_ berikutnya pun murid bodohku ini tidak bakalan 
+mengikuti ujian. Mulutmu mengatakan 'tidak berpihak', tetapi jelas kau sudah menyukai pihak lain itu. Murid bodohku pasti 
+akan kalah. Ini membingungkan! Aku akan melawan Racun Tua terlebih dahulu, dan bicara nanti." Ia menengadah dan tertawa 
+keras, lalu sambil menatap Ouyang Feng ia berkata, "Kita semua sudah jelas orang-orang dari dunia persilatan. Kalau bukan 
+adu kungfu, maksudmu kau lebih suka lomba makan atau lomba berak? Keponakanmu cedera, tetapi kau tidak. Ayo... ayo! Kita 
+berdua yang akan bertarung menggantikan mereka."
+
+[^zhuangyuan]: Zhuang Yuan (狀元) adalah gelar atau jabatan yang diberikan kepada seorang penulis tesis yang keluar sebagai juara pertama di dalam ujian negara.
 
 Tanpa menunggu jawaban, dia mengarahkan telapak tangannya ke bahu Ouyang Feng. Ouyang Feng mundur beberapa kaki. Hong Qigong meletakkan tongkat bambunya di atas meja bambu kecil. “Hati-hati dengan ini!” dia berteriak. Sementara kata-katanya masih menggantung di udara, kedua telapak tangannya sudah bergerak tujuh kali berturut-turut dengan cepat.
 

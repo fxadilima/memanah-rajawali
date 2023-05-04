@@ -470,6 +470,10 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     </dd>
     <dt id="bai-tuo-shan">Bai Tuo Shan (白駝山)</dt>
     <dd>Pegunungan Onta Putih, wilayah kekuasaan Ouyang Feng di daerah Barat.</dd>
+    <dt id="xi-jiu">Xi Qing Jiu (喜庆酒)</dt>
+    <dd>
+        Xi Qing Jiu atau disingkat Xi Jiu adalah arak yang disajikan dalam upacara perkawinan.
+    </dd>
 </dl>
 
 
@@ -833,4 +837,18 @@ dan seorang istri yang hamil tetapi tidak mau menyusui anaknya.
 - Jian (漸) = Berangsur-angsur 
 - Yu (于)   = kata sambung, bisa dari/ke/menuju 
 - Lu (陸)   = tanah/tepian/pantai 
+
+
+### <a name="empat-lao" id="empat-lao">Empat Lao (老)</a>
+
+Keempat Pendekar Besar, Huang Yaoshi, Hong Qigong, Kaisar Duan, dan Ouyang Feng, punya cara khusus
+untuk saling menyapa di antara mereka sendiri. Mereka berempat saling mengenal dengan baik, dan meskipun
+masing-masing punya pendirian sendiri-sendiri mengenai hampir segala sesuatu, tetapi mereka semuanya
+akrab seperti keluarga.
+
+Huang Yaoshi biasa dipanggil Sesat Tua, atau Lao Xie (老邪), Ouyang Feng dipanggil Racun Tua atau Lao Du (老毒),
+Hong Qigong dipanggil Pengemis Tua atau Lao Gai (老丐), sedangkan Kaisar Duan dipanggil Lao Huangdi (老皇帝) 
+atau Kaisar Tua.
+
+Ketika Wang Chongyang masih hidup, ia dipanggil Lao Dao (老道), yang melambangkan bahwa is adalah seorang Pendeta Tao.
 
