@@ -436,7 +436,7 @@ dari keluarga Racun Barat.
 
 "Aku tidak berani menjawab pertanyaan Ayah Mertua dengan tidak jujur," janji Ouyang Ke.
 
-"Kau berbicara omong kosong lagi!" Huang Rong meludah. "Kau membuatku ingin menampar telingamu dengan sangat keras. 
+"Kau omong kosong lagi!" Huang Rong meludah. "Kau membuatku ingin menampar telingamu dengan sangat keras. 
 Coba jawab, apa kau pernah melihatku di Yanjing, di Istana Zhao?"
 
 Tulang rusuk Ouyang Ke patah dan dadanya terkena jarum baja, jadi rasa sakitnya hampir tak tertahankan, tapi ia terlalu 
