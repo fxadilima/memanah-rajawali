@@ -495,7 +495,7 @@ terbahak-bahak, mencabut botol arak dan meneguk araknya dari situ.
 Guo Jing tidak bisa menahan kesabarannya lagi, "Qigong Qianbei-lah yang menyelamatkan nyawa keponakanmu, bagaimana kau 
 bisa mengatakan hal seperti itu untuk menyalahkannya?"
 
-"Nak, kita masih berbicara, beraninya kamu menyela?" bentak Huang Yaoshi.
+"Nak, kita masih berbicara, beraninya kau menyela?" bentak Huang Yaoshi.
 
 "Rong'er, beri tahu dia... beri tahu Ayahmu apa yang terjadi pada Nona Cheng," kata Guo Jing buru-buru.
 
