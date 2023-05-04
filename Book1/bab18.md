@@ -953,8 +953,8 @@ Bunga Persik dan merusak persahabatan mereka."
 Huang Yaoshi menggelengkan kepalanya, "Tidak, kalau aku melakukan itu, tidak ada yang bisa menjamin bahwa aku akan adil, 
 karena aku bisa membuat gerakanku berat atau ringan sesuka hati. Feng Xiong, kau dan Qi Xiong sudah mencapai puncak 
 ilmu kalian masing-masing, dan pertarungan barusan adalah buktinya. Kalian sudah berjuang selama lebih dari seribu jurus, 
-tapi tidak ada yang tahu siapa yang menang atau kalah. Feng, kau menguji Guo Gongzi, dan Qi Xiong, kau mencoba Ouyang 
-Gongzi."
+tapi tidak ada yang tahu siapa yang menang atau kalah. Feng Xiong, kau menguji Guo Gongzi, dan Qi Xiong, kau mencoba 
+Ouyang Gongzi."
 
 Hong Qigong berpikir dalam hati, "Ini memang sangat adil. Huang Laoxie benar-benar pintar memikirkan metode ini. 
 Pengemis Tua tidak akan pernah memikirkan hal seperti itu." Ia tertawa dan berkata, "Cara ini tidak buruk! Ayo...
@@ -985,7 +985,7 @@ lainnya tampak serius, hampir-hampir tegang.
 Huang Rong tahu seni bela diri Ouyang Ke sebenarnya lebih tinggi dari Guo Jing, tapi untungnya ia terluka. Tapi bertarung 
 di atas pohon pinus sangat bergantung pada ilmu meringankan tubuh, di mana Ouyang Ke jelas memiliki beberapa keunggulan 
 dibandingkan Guo Jing. Ia mau tidak mau jadi merasa cemas. Sementara itu ia mendengar suara ayahnya yang keras dan 
-jelas, "Saya akan menghitung sampai tiga, baru kalian bisa mulai. Ouyang Gongzi, Guo Gongzi, siapa pun yang jatuh ke 
+jelas, "Aku akan menghitung sampai tiga, baru kalian bisa mulai. Ouyang Gongzi, Guo Gongzi, siapa pun yang jatuh ke 
 tanah terlebih dahulu akan kalah!"
 
 Huang Rong berpikir untuk membantu Guo Jing, tetapi kungfu Ouyang Feng sangat tinggi, mana mungkin ia bisa melawannya.
