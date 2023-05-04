@@ -648,43 +648,91 @@ berdua yang akan bertarung menggantikan mereka."
 
 [^zhuangyuan]: Zhuang Yuan (狀元) adalah gelar atau jabatan yang diberikan kepada seorang penulis tesis yang keluar sebagai juara pertama di dalam ujian negara.
 
-Tanpa menunggu jawaban, dia mengarahkan telapak tangannya ke bahu Ouyang Feng. Ouyang Feng mundur beberapa kaki. Hong Qigong meletakkan tongkat bambunya di atas meja bambu kecil. “Hati-hati dengan ini!” dia berteriak. Sementara kata-katanya masih menggantung di udara, kedua telapak tangannya sudah bergerak tujuh kali berturut-turut dengan cepat.
+Tanpa menunggu jawaban, ia mengarahkan telapak tangannya ke bahu Ouyang Feng. Ouyang Feng mundur beberapa kaki. Hong Qigong 
+meletakkan tongkat bambunya di atas meja bambu kecil. "Awas!" ia berteriak. Sementara kata-katanya masih menggantung di 
+udara, kedua telapak tangannya sudah bergerak tujuh kali berturut-turut dengan cepat.
 
-Ouyang Feng mengelak ke kiri dan mengelak ke kanan dan ketujuh serangan itu terbang melewatinya. Tangan kanannya mendorong tongkat ular ke batu bata di depan paviliun, dan dalam sekejap tangan kirinya juga mengirim tujuh serangan balik.
+Ouyang Feng mengelak ke kiri-kanan, dan ketujuh serangan itu terbang melewatinya. Tangan kanannya mendorong tongkat ular 
+ke batu bata di depan pondok bambu, dan dalam sekejap tangan kirinya juga mengirim tujuh serangan balik.
 
-Huang Yaoshi bersorak, tapi tidak mencegah mereka berkelahi. Dia ingin menonton dua master seni bela diri kelas dunia ini, yang merupakan rekan-rekannya, dan melihat peningkatan seperti apa yang telah mereka buat dua puluh tahun setelah pertemuan terakhir mereka.
+Huang Yaoshi bersorak, tapi tidak mencegah mereka berkelahi. Ia ingin menonton pertarungan dua ahli kungfu kelas dunia ini, 
+yang adalah rekan-rekannya, dan melihat kemajuan seperti apa yang telah mereka capai dalam dua puluh tahun setelah pertemuan 
+terakhir mereka di Hua Shan.
 
-Baik Hong Qigong dan Ouyang Feng adalah ahli dari sekolah seni bela diri masing-masing. Mereka telah mencapai puncak seni bela diri mereka dua puluh tahun yang lalu. Setelah Pedang Bertemu Gunung Hua keduanya telah berlatih keras dan meningkatkan keterampilan mereka secara luar biasa. Keterampilan mereka tidak ada bandingannya ketika mereka bertemu di Gunung Hua dan sekarang mereka bertemu lagi di Pulau Bunga Persik. Masing-masing meluncurkan serangan cepat dan serangan balik, namun mereka sebenarnya masih menyelidiki keterampilan lawan mereka. Kedua petarung saling bertukar telapak tangan dan tinju dengan cepat dan kuat sehingga hembusan angin yang tercipta menggoyangkan daun bambu di sekitar mereka. Meskipun mereka hanya menguji satu sama lain, gerakan mereka membawa teknik seni bela diri yang mendalam.
+Baik Hong Qigong dan Ouyang Feng adalah ahli dari aliran kungfu mereka masing-masing. Mereka telah mencapai puncak ilmu 
+silat mereka dua puluh tahun yang lalu. Setelah Hua Shan Lun Jian keduanya telah berlatih keras dan meningkatkan 
+kungfu mereka secara luar biasa. Kungfu mereka tidak ada bandingannya ketika mereka bertemu di Hua Shan, dan sekarang 
+mereka bertemu lagi di Pulau Bunga Persik. Masing-masing meluncurkan serangan cepat dan serangan balik, namun mereka 
+sebenarnya masih saling menyelidiki kekuatan lawan mereka. Kedua ahli silat itu saling mengadu kepalan dan telapak tangan 
+dengan cepat dan keras, sehingga hembusan angin yang tercipta menggoyangkan dedaunan pohon bambu di sekitar mereka. 
+Meskipun mereka hanya saling menguji, gerakan mereka mengandung teknik kungfu yang mendalam.
 
-Di pinggir lapangan, Guo Jing sedang menonton dengan penuh perhatian; apakah itu serangan atau pertahanan, setiap gerakan adalah gerakan yang luar biasa dan di luar imajinasinya yang paling liar. 'Panduan Sembilan Yin' berisi teori seni bela diri terdalam di dunia apakah itu penanaman energi internal atau eksternal, tangan kosong atau permainan pedang, dan jenis seni bela diri paling mendalam lainnya yang bisa dibayangkan. Setelah Guo Jing menghafal isinya dengan hati dan meskipun dia tidak memahami semuanya, teori-teori itu benar-benar tertanam di otaknya. Sekarang ketika dia menyaksikan kedua petarung itu bertukar gerakan yang indah, teori-teori itu muncul kembali di benaknya, membentuk bayangan kabur di otaknya.
+Di pinggir lapangan, Guo Jing sedang menonton dengan penuh perhatian, entah itu serangan atau pertahanan, setiap gerakan 
+adalah luar biasa dan di luar imajinasinya yang paling liar sekalipun. Jiu Yin Zhen Jing berisi teori seni bela diri 
+terdalam di dunia, baik tenaga dalam maupun luar, tangan kosong atau permainan pedang, dan jenis kungfu paling mendalam 
+lainnya yang bisa dibayangkan. Setelah Guo Jing menghafal isinya dalam hati, meskipun ia tidak memahami semuanya, 
+teori-teori itu benar-benar tertanam di otaknya. Sekarang ketika ia menyaksikan kedua ahli itu saling bergebrak dengan 
+gerakan yang indah, teori-teori itu muncul kembali di benaknya, membentuk bayangan kabur di otaknya.
 
-Sebelumnya dia mendengarkan seruling Huang Yaoshi dan Ouyang Feng versus pertempuran sitar. Itu adalah pertempuran energi internal yang tak terlihat dan sangat sulit untuk melihat dengan jelas hubungan mereka dengan teori di manual. Kali ini pertarungannya adalah tinju dan tendangan dan jauh lebih mudah untuk dirasakan. Dalam kegembiraannya, hatinya gatal untuk mencoba apa yang telah dilihatnya.
+Sebelumnya ia mendengarkan seruling Huang Yaoshi melawan sitar Ouyang Feng. Itu adu tenaga dalam yang tak terlihat dan 
+sangat sulit untuk mengenali dengan jelas hubungan mereka dengan teori di dalam kitab. Kali ini pertarungannya adalah 
+tinju dan tendangan, dan jauh lebih mudah untuk dirasakan. Dalam kegembiraannya, hatinya gatal untuk mencoba apa yang 
+telah dilihatnya.
 
-Dengan sangat cepat Hong Qigong dan Ouyang Feng bertukar lebih dari tiga ratus posisi. Keduanya terkejut dengan keterampilan lawan mereka dan tidak bisa tidak memuji satu sama lain di dalam hati mereka. Di sela-sela, Huang Yaoshi memandang sambil menghela nafas dan berpikir, “Saya telah melatih diri saya dengan susah payah di Pulau Bunga Persik dan saya pikir, setelah Wang Chongyang meninggal, seni bela diri saya akan menjadi nomor satu di dunia. Siapa yang mengira bahwa Pengemis Tua dan Racun Tua telah mengambil jalan mereka sendiri dan mencapai tingkat seni bela diri yang sangat terhormat ini?
+Dengan sangat cepat Hong Qigong dan Ouyang Feng bergebrak lebih dari tiga ratus jurus. Keduanya terkejut melihat kungfu 
+lawan mereka dan tidak bisa tidak mereka saling memuji di dalam hati. Di luar arena, Huang Yaoshi memandang mereka sambil 
+menghela nafas dan berpikir, "Aku sudah melatih diri dengan susah payah di Pulau Bunga Persik dan kupikir setelah Wang 
+Chongyang meninggal, kungfuku akan menjadi nomor satu di dunia. Siapa sangka Pengemis Tua dan Racun Tua ternyata punya cara 
+sendiri dan mencapai tingkat yang sulit dipercaya ini?"
 
-Baik Ouyang Ke dan Huang Rong tenggelam dalam pikiran mereka sendiri dan masing-masing berharap pihak mereka akan memperoleh kemenangan cepat. Tapi mereka sebenarnya tidak bisa memahami keindahan seni bela diri yang ditampilkan di depan mata mereka. Dari sudut matanya, Huang Rong melihat bayangan hitam menari-nari tak menentu dengan tangan dan kaki yang bergerak-gerak terus menerus. Dia menoleh dan menemukan bahwa bayangan itu adalah Guo Jing. Ekspresi Guo Jing aneh dan sepertinya dia sedang dalam ekstase. Jantungnya berdetak kencang. "Jing ge ge!" panggilnya dengan suara rendah.
+Baik Ouyang Ke dan Huang Rong tenggelam dalam pikiran mereka sendiri, dan masing-masing berharap pihak mereka akan 
+menang secepatnya. Tapi mereka sebenarnya tidak bisa memahami keindahan seni bela diri yang ditampilkan di depan mata 
+mereka. Dari sudut matanya Huang Rong melihat bayangan hitam menari-nari tak menentu dengan tangan dan kaki yang 
+bergerak-gerak terus-menerus. Ia menoleh dan menemukan bahwa bayangan itu adalah Guo Jing. Ekspresi Guo Jing aneh dan 
+sepertinya ia sedang terhanyut oleh pertarungan kedua ahli itu. Jantungnya berdetak kencang. "Jing ge ge!" panggilnya 
+dengan suara rendah.
 
-Guo Jing tidak mendengarnya; dia terlalu sibuk menggerakkan tangan dan kakinya. Huang Rong merasa cemas, jadi dia memperhatikan dengan seksama dan menemukan bahwa Guo Jing sebenarnya meniru gerakan Hong Qigong dan Ouyang Feng.
+Guo Jing tidak mendengarnya, ia terlalu sibuk menggerakkan tangan dan kakinya. Huang Rong merasa cemas, jadi ia 
+memperhatikan dengan lebih cermat, dan menemukan bahwa Guo Jing sebenarnya meniru gerakan Hong Qigong dan Ouyang Feng.
 
-Sekarang keduanya telah mengubah cara mereka bertarung; setiap tinju dan setiap tendangan dikirim perlahan. Kadang-kadang mereka akan berdiri diam sejenak, dan kemudian mengepalkan tangan. Setelah bertukar posisi, mereka akan duduk di tanah untuk beristirahat; lalu berdiri dan bertukar gerakan lagi. Nyatanya, cara mereka bertarung lebih lambat dari dua murid yang berlatih seni bela diri. Tapi melihat wajah mereka, orang bisa melihat keseriusan ekspresi mereka, hampir sampai sangat tegang.
+Sekarang keduanya telah mengubah cara mereka bertarung, setiap tinju dan setiap tendangan dikirim perlahan. Kadang-kadang 
+mereka akan berdiri diam sejenak, dan kemudian mengepalkan tangan. Setelah bertukar posisi, mereka akan duduk di tanah 
+untuk beristirahat, lalu berdiri dan bergebrak lagi. Kelihatannya cara mereka bertarung lebih lambat dari dua murid yang 
+sedang latihan kungfu, tetapi melihat wajah mereka orang bisa melihat keseriusan, hampir-hampir bisa dikatakan bahwa mereka
+sebenarnya tegang.
 
-Huang Rong melirik ke arah ayahnya dan melihatnya menatap tajam ke arah keduanya dan wajahnya juga sangat tegang. Ouyang Ke adalah satu-satunya orang di sekitar yang mempertahankan ketenangannya. Dia menatapnya genit sambil dengan ringan melambaikan kipas lipatnya.
+Huang Rong melirik ke arah ayahnya dan melihatnya menatap tajam ke arah keduanya, wajahnya juga sangat tegang. Ouyang Ke 
+adalah satu-satunya orang di sekitar situ yang mempertahankan ketenangannya. Ia menatapnya genit sambil dengan ringan melambai-lambaikan kipas lipatnya.
 
-Guo Jing melihat gerakan yang tidak biasa dan dia tidak bisa menahan diri untuk tidak bersorak keras. Ouyang Ke kesal, "Anak kotormu tidak mengerti apa-apa, apa yang dia teriakkan?"
+Guo Jing melihat gerakan yang tidak biasa dan ia tidak bisa menahan diri untuk tidak bersorak keras. Ouyang Ke kesal, 
+"Bocah tengik ini tidak mengerti apa-apa, buat apa berteriak?"
 
-“Hanya karena kamu tidak mengerti, bagaimana kamu tahu apakah orang lain mengerti atau tidak?” Huang Rong membalas.
+"Hanya karena kau tidak mengerti, dari mana kau tahu orang lain mengerti atau tidak?" balas Huang Rong.
 
-Ouyang Ke tertawa, “Dia hanya mengayun-ayunkan tangan dan kakinya dengan bodoh. Mengingat usianya yang masih muda, bagaimana dia bisa tahu keajaiban seni bela diri pamanku?”
+Ouyang Ke tertawa, "Dia hanya mengayun-ayunkan tangan dan kakinya dengan bodoh. Mengingat usianya yang masih muda, 
+bagaimana dia bisa tahu keajaiban kungfu pamanku?"
 
-“Kamu bukan dia; bagaimana Anda tahu apa yang dia ketahui?” Huang Rong menjawab.
+"Kamu bukan dia, dari mana kau tahu dia tahu apa?" jawab Huang Rong.
 
-Sementara keduanya bertengkar di samping, Huang Yaoshi dan Guo Jing mengabaikan mereka; mereka menyaksikan pertarungan dengan penuh perhatian.
+Sementara keduanya bertengkar di samping, Huang Yaoshi dan Guo Jing mengabaikan mereka, keduanya menyaksikan pertarungan 
+itu dengan penuh perhatian.
 
-Pada saat itu baik Hong Qigong dan Ouyang Feng sedang berjongkok di tanah; satu dengan jari tengah kiri menunjuk ke dahinya dan yang lainnya menggunakan kedua tangan untuk menutupi telinganya. Keduanya berpikir sangat keras dengan mata tertutup. Tiba-tiba mereka berteriak dan serentak melompat ke arah satu sama lain; yang satu mengirim tinjunya dan yang lain menggunakan kakinya; lalu mereka berpisah lagi.
+Pada saat itu baik Hong Qigong dan Ouyang Feng sedang berjongkok di tanah, satu dengan jari tengah kiri menunjuk ke dahinya 
+dan yang lainnya menggunakan kedua tangan untuk menutupi telinganya. Keduanya berpikir sangat keras dengan mata tertutup. 
+Tiba-tiba mereka berteriak dan serentak melompat ke arah lawan, yang satu mengirim tinjunya dan yang lain menggunakan 
+kakinya, lalu mereka berpisah lagi.
 
-Kedua orang itu telah mencapai tingkat di mana masing-masing seni bela diri milik keluarga atau sekolah mereka sendiri tidak memiliki kekurangan apa pun. Namun, mereka berdua tahu bahwa sekuat apapun sikap mereka, lawan akan dengan mudah mematahkannya. Oleh karena itu, mereka harus membuat gerakan baru dan tidak dikenal untuk mendapatkan keunggulan.
+Kedua orang itu telah mencapai puncak kungfu milik keluarga atau perguruan mereka masing-masing. Namun mereka berdua tahu 
+bahwa sekuat apapun jurus mereka, lawan akan dengan mudah mematahkannya. Oleh karena itu mereka harus membuat gerakan baru 
+yang tidak dikenal untuk mengungguli lawan.
 
-Setelah pedang mereka bertemu dua puluh tahun yang lalu, kedua pria itu, yang satu tinggal di Dataran Tengah, yang lain dari Wilayah Barat, belum pernah bertemu atau bahkan mendengar tentang keadaan saat ini, jadi mereka tidak tahu seberapa banyak orang lain telah meningkatkan kemampuannya. seni bela diri. Sekarang mereka saling bertarung, situasinya tidak jauh berbeda. Masing-masing memiliki kekuatannya sendiri; masing-masing memiliki kelemahannya sendiri dan tidak ada yang tahu siapa yang akan mengalahkan siapa. Sementara itu, cahaya bulan telah memudar dan orang bisa melihat seberkas sinar matahari bersinar di timur. Keduanya memeras otak dan menciptakan gerakan baru dan indah yang tak terhitung banyaknya; tinju atau teknik telapak tangan bersama dengan puluhan ribu variasinya, tapi tetap saja, tidak ada yang tahu mana yang lebih baik.
+Setelah kontes mereka dua puluh tahun yang lalu, kedua orang itu, yang satu tinggal di Dataran Tengah, yang lain dari 
+Wilayah Barat, belum pernah bertemu atau bahkan mendengar kabar terakhir lawannya, jadi mereka tidak tahu seberapa jauh 
+kemajuan kungfu lawannya. Sekarang mereka bertarung, situasinya tidak jauh berbeda. Masing-masing memiliki kekuatannya dan 
+kelemahannya sendiri, dan tidak ada yang tahu siapa yang akan menang. Sementara itu cahaya bulan telah memudar dan orang 
+bisa melihat seberkas sinar matahari di timur. Keduanya memeras otak dan menciptakan gerakan baru dan indah, yang tak 
+terhitung banyaknya, tinju atau teknik telapak tangan bersama dengan puluhan ribu variasinya, tapi tetap saja, tidak ada 
+yang tahu mana yang lebih baik.
 
 Guo Jing menyaksikan pertarungan antara dua pakar top dunia seni bela diri zaman sekarang; gerakan indah dan teknik indah datang satu demi satu. Kadang dia mengerti, tapi lebih sering dia tidak mengerti. Kadang-kadang dia melihat sesuatu yang berhubungan dengan teori yang diajarkan oleh Zhou Botong yang membuatnya bersemangat dan dia ingin mencoba. Tapi sebelum dia bisa menyelesaikan setengah jurus, Hong Qigong dan Ouyang Feng telah meluncurkan jurus baru dan Guo Jing sudah melupakan jurus sebelumnya yang dia coba kuasai.
 
