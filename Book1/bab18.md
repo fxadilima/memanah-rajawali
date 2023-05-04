@@ -489,8 +489,8 @@ beruntung, dia bisa saja mati kena Hujan Jarum Baja hasil karyamu itu."
 
 Sebenarnya, Hong Qigong-lah yang menyelamatkan Ouyang Ke dari Hujan Jarum Baja yang ditembakkan Huang Rong, tapi 
 sekarang Ouyang Feng menyalahkannya. Ia tahu Ouyang Ke pasti berbohong kepada pamannya dan pamannya menggunakan itu 
-untuk mennyudutkannya. Hong Qigong adalah orang yang jujur, lugas dan ia tidak ingin berdebat. Ia hanya tertawa 
-terbahak-bahak, mencabut botol araknya dan meneguk araknya dari situ.
+untuk menyudutkan Hong Qigong. Hong Qigong adalah orang yang jujur dan lugas, ia tidak ingin berdebat. Ia hanya tertawa 
+terbahak-bahak, mencabut botol arak dan meneguk araknya dari situ.
 
 Guo Jing tidak bisa menahan kesabarannya lagi, "Qigong Qianbei-lah yang menyelamatkan nyawa keponakanmu, bagaimana kau 
 bisa mengatakan hal seperti itu untuk menyalahkannya?"
