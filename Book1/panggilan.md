@@ -14,3 +14,7 @@ Pemilik Pulau atau Majikan Pulau. Contoh nyata dalam cerita ini adalah Huang Yao
 akan dipanggil Huang Daozhu.
 
 
+### <a name="yuefu" id="yuefu">Yue Fu (岳父)</a>
+
+Panggilan untuk Ayah Mertua.
+

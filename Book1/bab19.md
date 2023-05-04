@@ -9,35 +9,59 @@
 ***
 
 
-Tidak dalam mimpi terliarnya, Hong Qigong mengira kontes menghafal akan berakhir seperti ini. Guo Jing mengalahkan Ouyang Ke dan membuatnya berguling-guling di tanah tujuh belas atau delapan belas kali akan sepuluh kali lebih bisa dipercaya baginya. Dia sangat senang bahwa dia tidak bisa menghapus senyum dari wajahnya. Mendengar protes Ouyang Ke, dia membentak, “Apa? Anda tidak yakin?”
+Hong Qigong sama sekali tidak mengira bahwa kontes menghafal buku itu akan berakhir seperti ini. Guo Jing mengalahkan 
+Ouyang Ke dan membuatnya berguling-guling di tanah tujuh belas atau delapan belas kali akan sepuluh kali lebih bisa 
+dipercaya baginya. Saking senangnya ia tidak bisa menghapus senyum dari wajahnya. Mendengar protes Ouyang Ke, ia membentak, 
+"Apa? Kau tidak yakin?"
 
-“Yang dilafalkan oleh Saudara Guo jauh lebih banyak daripada yang tertulis di buku,” kata Ouyang Ke, “Dia pasti memiliki ‘Panduan Sembilan Yin’ miliknya. Junior memiliki keberanian untuk meminta untuk menggeledahnya.
+"Yang dihafalkan oleh Saudara Guo jauh lebih banyak daripada yang tertulis di buku," kata Ouyang Ke, "Dia pasti punya 
+Kitab Sembilan Bulan. Wanbei memberanikan diri minta ijin untuk menggeledahnya."
 
-“Island Master Huang telah menerima proposalnya,” kata Hong Qigong, “Apa urusan lain yang perlu didiskusikan? Apakah kamu tidak mendengar apa yang dikatakan pamanmu sebelum ujian?”
+"Huang Daozhu sudah menerima lamarannya," kata Hong Qigong, "Apa masih ada urusan lain yang perlu didiskusikan? Kau tidak 
+mendengar apa yang dikatakan pamanmu sebelum ujian?"
 
-Ouyang Feng melotot. “Apakah menurutmu pria bermarga Ouyang akan mudah ditipu?” dia berkata. Dia mendengar apa yang keponakannya baru saja katakan dan yakin bahwa Guo Jing mengetahui 'Pedoman Sembilan Yin'. Dia sangat ingin mendapatkan buku itu untuk dirinya sendiri. Apakah Huang Yaoshi menerima lamaran pernikahannya atau tidak menjadi nomor dua baginya.
+Ouyang Feng melotot. "Apa menurutmu orang bermarga Ouyang akan mudah ditipu?" katanya. Ia mendengar apa yang baru saja 
+dikatakan keponakannya, dan yakin bahwa Guo Jing tahu sesuatu mengenai Jiu Yin Zhen Jing. Ia sangat ingin mendapatkan 
+kitab itu untuk dirinya sendiri. Soal Huang Yaoshi menerima lamarannya atau tidak sekarang menjadi nomor dua baginya.
 
-Guo Jing melepas ikat pinggangnya dan membuka pakaiannya, berkata, "Ouyang Senior, kamu bisa menggeledahku jika kamu mau." Dia segera mengeluarkan semuanya dari sakunya dan meletakkannya di atas batu besar di dekatnya: koin perak, sapu tangan, batu api, dan sejenisnya.
+Guo Jing melepas ikat pinggangnya dan membuka pakaiannya sambil berkata, "Ouyang Qianbei, kau bisa menggeledahku kalau 
+kau mau." Ia segera mengeluarkan semua barang dari sakunya dan meletakkannya di atas batu besar di dekatnya, koin perak, 
+sapu tangan, batu api, dan sejenisnya.
 
-"Huh!" Ouyang Feng mendengus dan mulai menggeledah tubuh Guo Jing. Huang Yaoshi sudah lama mengenal Ouyang Feng sebagai pria yang kejam dan dia akan melakukan hal-hal yang tidak terduga saat marah. Kekuatannya sangat besar dan jika dia mengulurkan tangan yang kejam, tidak ada yang bisa menyelamatkan Guo Jing. Huang Yaoshi terbatuk, mengulurkan tangan kirinya dan meletakkannya di leher Ouyang Ke dekat tulang punggungnya; itu adalah poin penting. Jika Huang Yaoshi memberikan kekuatan padanya, tulang belakang Ouyang Ke akan patah dan Ouyang Feng dapat melepaskan ide untuk menyelamatkannya.
+"Huh!" Ouyang Feng mendengus dan mulai menggeledah tubuh Guo Jing. Huang Yaoshi sudah lama mengenal Ouyang Feng sebagai 
+pria yang kejam dan ia akan melakukan hal-hal yang tidak terduga saat marah. Tenaganya sangat besar dan jika ia menurunkan
+tangan kejam, tidak ada yang bisa menyelamatkan Guo Jing. Huang Yaoshi terbatuk, mengulurkan tangan kirinya dan meletakkannya 
+di leher Ouyang Ke dekat tulang punggungnya, itu adalah peringatan penting. Jika Huang Yaoshi memberikan tekanan ke bagian 
+itu, tulang belakang Ouyang Ke akan patah, dan Ouyang Feng bisa melupakan ide untuk menyelamatkannya.
 
-Hong Qigong tahu niatnya dengan sangat baik dan dia terpesona, “Old Heretic Huang benar-benar sepihak. Sekarang dia memberikan bantuan kepada putrinya dan calon menantunya, dia ingin melindungi muridku yang bodoh ini. Ay! Dia mampu membaca seluruh buku, jadi saya tidak bisa menyebutnya bodoh lagi.”
+Hong Qigong tahu niatnya dengan sangat baik dan ia terpesona, "Huang Laoxie benar-benar berpihak. Sekarang dia memberikan 
+bantuan kepada putrinya dan calon menantunya, dia ingin melindungi muridku yang bodoh ini. Ay! Dia mampu membaca seluruh 
+buku, jadi aku tidak bisa memanggilnya 'bodoh' lagi."
 
-Awalnya Ouyang Feng akan menyerang perut bagian bawah Guo Jing dengan energi 'Sikap Katak' dan membiarkannya menderita selama tiga tahun sebelum akhirnya meninggal. Melihat bahwa Huang Yaoshi telah waspada terhadap rencananya, dia tidak berani menyerang. Dia menggeledah tubuh Guo Jing tanpa hasil. Yang bisa dia lakukan hanyalah diam untuk waktu yang lama, berpikir sangat keras. Dia tidak percaya semua omong kosong tentang semangat Madame Huang memilih menantunya. Dia ingat bahwa anak ini bodoh, lamban dan ternyata dia tidak bisa berbohong. Mungkin dia bisa memaksa keberadaan Manual darinya. Dia menggoyangkan tongkat di tangannya dan dengan suara garukan kedua ular yang tampak aneh itu merayap di sepanjang tongkat.
+Awalnya Ouyang Feng akan menyerang perut bagian bawah Guo Jing dengan tenaga Ilmu Kodoknya, dan membiarkannya menderita 
+selama tiga tahun sebelum akhirnya tewas. Melihat bahwa Huang Yaoshi telah waspada terhadap rencananya, ia tidak berani 
+menyerang. Ia menggeledah tubuh Guo Jing tanpa hasil. Yang bisa dilakukannya hanya diam cukup lama, berpikir sangat keras. 
+Ia tidak percaya semua omong kosong tentang arwah Nyonya Huang yang memilih menantunya. Ia ingat bahwa anak ini bodoh, 
+lamban dan ternyata ia tidak bisa berbohong. Mungkin ia bisa memaksanya mengatakan keberadaan kitab itu. Ia menggoyangkan 
+tongkat di tangannya dan dengan suara garukan kedua ular yang tampak aneh itu merayap di sepanjang tongkat.
 
-Huang Rong dan Guo Jing telah melihat hewan-hewan aneh ini; mereka ketakutan dan mundur satu langkah. Menunjuk tenggorokan Guo Jing, dia bertanya, "Keponakan Guo, di mana kamu mempelajari 'Panduan Sembilan Yin'?" Matanya menyala merah saat dia menatap Guo Jing dengan tatapan tajam.
+Huang Rong dan Guo Jing telah melihat hewan-hewan aneh ini, mereka ketakutan dan mundur satu langkah. Menunjuk tenggorokan 
+Guo Jing, Ouyang Feng bertanya, "Keponakan Guo, di mana kau mempelajari Jiu Yin Zhen Jing?" Matanya menyala merah saat ia 
+menatap Guo Jing lekat-lekat.
 
-"Aku tahu tentang 'Petunjuk Sembilan Yin', tapi aku belum pernah melihatnya," kata Guo Jing. “Jilid pertama ada di tangan Zhou Botong, Kakak Zhou …”
+"Aku sudah mendengar soal Jiu Yin Zhen Jing, tapi aku belum pernah melihatnya," kata Guo Jing. "Jilid pertama ada di 
+tangan Zhou Botong, Kakak Zhou..."
 
-"Mengapa kamu memanggil Zhou Botong 'Big Brother Zhou'?" Hong Qigong bertanya, "Apakah Anda pernah bertemu dengan Old Urchin Zhou Botong?"
+"Mengapa kamu memanggil Zhou Botong 'Zhou Dage'?" Hong Qigong bertanya, "Kau pernah bertemu dengan Lao Wantong, Zhou Botong?"
 
-"Ya," jawab Guo Jing, "Kakak Zhou dan muridmu telah menjadi saudara angkat."
+"Ya," jawab Guo Jing, "Kakak Zhou dan dizi sudah menjadi saudara angkat."
 
-“Yang satu tua dan yang lain muda,” Hong Qigong mengejek, “Itu benar-benar tidak masuk akal!”
+"Yang satu tua dan yang lain muda," Hong Qigong mengejek, "Itu benar-benar tidak masuk akal!"
 
 "Bagaimana dengan jilid kedua?" Ouyang Feng bertanya.
 
-“Jilid kedua ada di Mei Chaofeng … Mei … Mei Shijie tangan, tapi hilang di Danau Tai,” jelas Guo Jing. “Saat ini dia di bawah perintah ayah mertua untuk mencarinya kemana-mana. Murid berpikir bahwa setelah semuanya selesai di sini, saya akan pergi dan membantunya.”
+"Jilid kedua ada di tangan Mei Chaofeng... Mei... tangan Mei Shijie, tapi hilang di Danau Tai," jelas Guo Jing. "Saat ini 
+dia di bawah perintah [Yuefu](panggilan.md#yuefu "Ayah Mertua") untuk mencarinya kemana-mana. Dizi berpikir bahwa setelah semuanya selesai di sini, dizi akan pergi dan membantunya."
 
 Ouyang Feng bertanya dengan sengit, "Jika Anda belum melihat 'Panduan Sembilan Yin', bagaimana Anda bisa melafalkannya dengan baik?"
 
