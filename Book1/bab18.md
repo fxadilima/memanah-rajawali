@@ -1419,7 +1419,7 @@ jadi aku lebih baik menghafalkan yang diajarkan Kakak Zhou. Kalau salah, ya suda
 Hong Qigong berkata, "Anak bodoh, mereka sengaja ingin membodohi kita, mereka merencanakan semuanya."
 
 Huang Rong tiba-tiba menendang tanah dan melompat ke atas pondok bambu. Dengan sentilan tangannya ia menodongkan belati 
-ke dadanya sendiri dan berkata, "Ayah, kalau ayah bersikeras aku pergi ke Barat dengan bocah engik itu, aku akan mati di 
+ke dadanya sendiri dan berkata, "Ayah, kalau ayah bersikeras aku pergi ke Barat dengan bocah tengik itu, aku akan mati di 
 sini sekarang di hadapanmu."
 
 Huang Yaoshi tahu putri tunggalnya ini akan melakukan apa saja yang dikatakannya, jadi ia berteriak, "Letakkan pisau itu! 
