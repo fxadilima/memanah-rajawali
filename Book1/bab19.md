@@ -151,7 +151,7 @@ tersinggung."
 
 Hong Qigong tertawa, "Lao Du! Kau sangat licik, ini adalah apa yang kau rencanakan dari awal. Cukup pintar!" ejeknya.
 
-Huang Yaoshi menyelipkan seruling giok ke ikat pinggangnya dan berkata, "Semuanya, tolong ikuti saya."
+Huang Yaoshi menyelipkan seruling giok ke ikat pinggangnya dan berkata, "Semuanya, silakan ikuti aku."
 
 Ouyang Ke melihat kemarahan di wajahnya, jadi ia meminta petunjuk dari pamannya. Ouyang Feng menganggukkan kepalanya dan 
 mulai berjalan di belakang Huang Yaoshi. Semua orang mengikuti tidak terlalu jauh di belakang.
