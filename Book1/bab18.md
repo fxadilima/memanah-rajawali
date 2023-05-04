@@ -734,23 +734,50 @@ bisa melihat seberkas sinar matahari di timur. Keduanya memeras otak dan mencipt
 terhitung banyaknya, tinju atau teknik telapak tangan bersama dengan puluhan ribu variasinya, tapi tetap saja, tidak ada 
 yang tahu mana yang lebih baik.
 
-Guo Jing menyaksikan pertarungan antara dua pakar top dunia seni bela diri zaman sekarang; gerakan indah dan teknik indah datang satu demi satu. Kadang dia mengerti, tapi lebih sering dia tidak mengerti. Kadang-kadang dia melihat sesuatu yang berhubungan dengan teori yang diajarkan oleh Zhou Botong yang membuatnya bersemangat dan dia ingin mencoba. Tapi sebelum dia bisa menyelesaikan setengah jurus, Hong Qigong dan Ouyang Feng telah meluncurkan jurus baru dan Guo Jing sudah melupakan jurus sebelumnya yang dia coba kuasai.
+Guo Jing menyaksikan pertarungan antara dua pakar top seni bela diri jaman itu. Gerakan-gerakan menakjubkan dan 
+teknik-teknik indah bermunculan tanpa henti. Kadang ia mengerti, tapi lebih sering ia tidak mengerti. Kadang-kadang 
+ia melihat sesuatu yang berhubungan dengan teori yang diajarkan oleh Zhou Botong, yang membuatnya bersemangat dan 
+ingin mencoba. Tapi sebelum ia sempat menyelesaikan setengah jurus, Hong Qigong dan Ouyang Feng telah meluncurkan 
+jurus baru dan Guo Jing sudah melupakan jurus sebelumnya yang sedang coba-coba ditirunya.
 
-Ketika Huang Rong melihat Guo Jing seperti itu, dia terkejut. “Saya tidak melihatnya selama puluhan hari; mungkinkah dia mendapat pelajaran seni bela diri yang mendalam dari makhluk ilahi? dia berpikir, “Saya menonton pertarungan dan saya menjadi bingung; bagaimana dia bisa berseru dengan kagum?” Tetapi kemudian pikiran lain muncul di benaknya, "Mungkinkah saudara laki-laki saya yang bodoh ini sangat merindukan saya sehingga dia menjadi gila?"
+Ketika Huang Rong melihat Guo Jing seperti itu, ia terkejut. "Aku tidak melihatnya selama puluhan hari, apa mungkin
+dia belajar kungfu dari dewa?" pikirnya. "Aku menonton pertarungan ini dan aku bingung, bagaimana dia bisa berseru 
+kagum seperti itu?" Tetapi kemudian pikiran lain muncul di benaknya, "Apa mungkin Gege yang bodoh ini begitu 
+merindukanku sampai jadi gila?"
 
-Dia sudah lama tidak bertemu Guo Jing dan sekarang setelah mereka bertemu lagi, situasinya tidak kondusif bagi mereka untuk saling menyayangi. Dia bergerak maju, ingin memegang tangan Guo Jing. Tepat pada saat itu Guo Jing sedang meniru teknik telapak tangan Ouyang Feng; dia membalikkan tubuhnya dan melancarkan serangan telapak tangan. Itu tampak biasa, tetapi sebenarnya itu membawa energi tersembunyi yang sangat besar. Tangannya hampir tidak menyentuh telapak tangan Guo Jing ketika dia tiba-tiba merasakan gelombang energi yang luar biasa mendorongnya. Dia dikirim terbang ke atas.
+Ia sudah lama tidak bertemu Guo Jing dan sekarang setelah mereka bertemu lagi, situasinya sedang tidak cocok bagi 
+mereka untuk bersikap mesra. Ia bergerak maju, ingin memegang tangan Guo Jing. Tepat pada saat itu Guo Jing sedang 
+meniru teknik telapak tangan Ouyang Feng, ia membalikkan tubuhnya dan melancarkan serangan telapak tangan. Itu 
+tampak biasa, tetapi sebenarnya mengandung tenaga dalam yang sangat besar. Tangannya tidak menyentuh telapak tangan 
+Guo Jing, tetapi tiba-tiba ia merasakan gelombang tenaga yang luar biasa mendorongnya. Ia dikirim terbang ke atas.
 
-Setelah menyentuh tangan Huang Rong, Guo Jing kembali ke dunia nyata. "Aiyo!" dia berteriak dan melompat untuk meraih pinggang Huang Rong. Sambil jatuh kembali ke tanah, tangan kiri Guo Jing meraih atap paviliun bambu. Dia mengayunkan tubuh mereka dan mereka mendarat di atap. Keduanya duduk bahu-membahu di atas paviliun bambu menyaksikan pertarungan di lapangan.
+Setelah menyentuh tangan Huang Rong, Guo Jing kembali ke dunia nyata. "Wah!" ia berteriak dan melompat untuk meraih 
+pinggang Huang Rong. Sementara turun kembali ke tanah, tangan kiri Guo Jing meraih atap pondok bambu. Ia mengayunkan 
+tubuh mereka dan mereka mendarat di atap. Keduanya duduk bahu-membahu di atas pondok bambu menyaksikan pertarungan 
+di lapangan.
 
-Saat itu situasi pertempuran di lapangan telah berubah lagi. Ouyang Feng berjongkok di tanah dengan kedua tangan ditekuk di bahu, menyerupai katak besar yang akan menyerang musuhnya. Mulutnya menciptakan suara gemuruh yang dalam seperti sapi melenguh; terkadang terdengar dan terkadang tidak.
+Saat itu situasi pertempuran di lapangan telah berubah lagi. Ouyang Feng berjongkok di tanah dengan kedua tangan 
+ditekuk di bahu, menyerupai katak besar yang akan menyerang musuhnya. Mulutnya mengeluarkan suara gemuruh yang dalam 
+seperti sapi melenguh, terkadang terdengar dan terkadang tidak.
 
-Huang Rong geli; dia tersenyum dan dengan suara rendah bertanya, "Jing ge ge, apa yang dia lakukan?"
+Huang Rong geli, ia tersenyum dan dengan suara rendah bertanya, "Jing Gege, apa yang dia lakukan?"
 
-"Aku tidak tahu," jawab Guo Jing. Tapi tiba-tiba dia teringat cerita Zhou Botong tentang 'Jari Yang Soliter' Wang Chongyang yang mematahkan 'Sikap Kodok' Ouyang Feng. "Pasti itu!" dia berseru, “Ini adalah seni bela dirinya yang paling sengit; itu disebut 'Sikap Katak'."
+"Aku tidak tahu," jawab Guo Jing. Tapi tiba-tiba ia teringat cerita Zhou Botong tentang ilmu Yi Yang Zhi Wang Chongyang, 
+yang mematahkan Jurus Kodok Ouyang Feng. "Pasti itu!" serunya. "Ini kungfunya yang paling lihai, disebut 
+[Jurus Kodok](referensi-karakter.md#ha-ma-gong "Ha Ma Gong (蛤蟆功) = Jurus Kodok")!"
 
-Huang Rong bertepuk tangan dan tertawa, “Dia memang terlihat seperti kodok!”
+Huang Rong bertepuk tangan dan tertawa, "Dia memang kelihatan seperti kodok!"
 
-Ouyang Ke telah mengamati keduanya duduk berdekatan dan bersandar satu sama lain, berbicara dan tertawa; hatinya terbakar cemburu. Dia ingin melompat dan melawan Guo Jing, tapi dadanya masih sakit dan dia tidak bisa mengerahkan kekuatan apapun. Selain itu, dia tidak yakin bahwa seni bela dirinya lebih unggul dari Guo Jing. Tetapi mendengar Huang Rong mengatakan 'dia terlihat seperti kodok' dia pikir mereka mengejeknya dan mengatakan bahwa dia terlihat seperti kodok kotor yang ingin makan daging angsa [seorang pria mesum yang bernafsu pada gadis yang tidak bersalah?]; dia sangat marah. Dengan tangan kanannya memegang tiga proyektil tersembunyi, dia diam-diam berjalan menuju bagian belakang paviliun bambu. Sambil menggertakkan giginya, dia menggerakkan tangannya dan tiga garis keperakan terbang menuju dada Guo Jing.
+Ouyang Ke mengamati keduanya duduk berdekatan dan saling bersandar, berbicara dan tertawa, hatinya terbakar cemburu. 
+Ia ingin melompat dan melawan Guo Jing, tapi dadanya masih sakit dan ia tidak bisa mengerahkan tenaga apapun. Selain 
+itu ia tidak yakin bahwa kungfunya lebih unggul dari Guo Jing. Tetapi mendengar Huang Rong mengatakan 'dia kelihatan 
+seperti kodok' ia pikir mereka mengejeknya dan mengatakan bahwa ia terlihat seperti kodok kotor yang ingin makan daging 
+angsa[^peribahasa-1], ia sangat marah. Dengan tangan kanannya memegang tiga senjata rahasia, ia diam-diam berjalan 
+menuju bagian belakang pondok bambu. Sambil menggertakkan giginya, ia menggerakkan tangannya dan tiga garis keperakan 
+terbang menuju ke dada Guo Jing.
+
+[^peribahasa-1]: Makna peribahasa tersebut (癞蛤蟆想吃天鹅肉), kurang lebih sama dengan 'Seperti pungguk merindukan bulan', [baca lebih lanjut](referensi-karakter.md#peribahasa-kodok).
+
 
 Sementara itu Hong Qigong meluncurkan telapak tangannya ke depan dan ke belakang, sibuk melawan 'Sikap Kodok' Ouyang Feng dengan Delapan Belas Telapak Tangan Penakluk Naga. Kedua ilmu bela diri ini merupakan keahlian tertinggi dari masing-masing petarung, sehingga pertarungan tidak lagi lamban dan lamban seperti sebelumnya. Sekarang menjadi sengit karena keduanya menggunakan pelatihan seni bela diri selama puluhan tahun untuk mencoba meraih kemenangan; hidup atau mati bisa diputuskan dalam sekejap mata. Guo Jing telah mempelajari Delapan Belas Telapak Tangan Penakluk Naga, tetapi dia belum pernah melihat gurunya menggunakan teknik ini sebelumnya. Itu membuat punggungnya merinding untuk melihat betapa indahnya teknik telapak tangan itu, dengan variasi yang tak terbatas di dalamnya. Itu benar-benar tidak ada bandingannya dengan yang sudah dia kuasai. Dia benar-benar terpikat dengan apa yang terjadi di lapangan; mengapa dia berharap seseorang akan menyelinap masuk dari belakang dan diam-diam menyerangnya?
 

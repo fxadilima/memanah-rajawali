@@ -852,3 +852,9 @@ atau Kaisar Tua.
 
 Ketika Wang Chongyang masih hidup, ia dipanggil Lao Dao (老道), yang melambangkan bahwa is adalah seorang Pendeta Tao.
 
+### <a name="peribahasa-kodok" id="peribahasa-kodok">Lai Ha Ma Xiang Chi Tian E Rou (癞蛤蟆想吃天鹅肉)</a>
+
+Rangkaian karakter yang membentuk peribahasa ini bisa kita terjemahkan menjadi 'Kodok berpikir untuk makan daging angsa'.
+Ini kurang-lebih sama seperti peribahasa Indonesia 'Seperti pungguk merindukan bulan'.
+
+
