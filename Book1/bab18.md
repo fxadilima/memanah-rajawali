@@ -1365,7 +1365,7 @@ memahami semua itu.
 
 Beberapa saat kemudian Huang Yaoshi membalik halaman terakhir. "Siapa yang akan membaca pertama?" tanyanya.
 
-Ouyang Ke berpikir, "Buku ini membingungkan dan sangat sulit untuk dihafal. Aku lebih baik mehafalkannya selagi masih 
+Ouyang Ke berpikir, "Buku ini membingungkan dan sangat sulit untuk dihafal. Aku lebih baik menghafalnya selagi masih 
 segar dalam ingatan." Menyambar kesempatan ia berkata, "Aku!"
 
 Huang Yaoshi menganggukkan kepalanya, lalu kepada Guo Jing ia berkata, "Silakan pergi ke hutan bambu di sana. Kau tidak 
