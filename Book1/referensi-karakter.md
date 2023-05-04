@@ -474,6 +474,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Xi Qing Jiu atau disingkat Xi Jiu adalah arak yang disajikan dalam upacara perkawinan.
     </dd>
+    <dt id="yinzei">Yin Zei (淫贼)</dt>
+    <dd>Penjahat Cabul</dd>
 </dl>
 
 
@@ -850,11 +852,23 @@ Huang Yaoshi biasa dipanggil Sesat Tua, atau Lao Xie (老邪), Ouyang Feng dipan
 Hong Qigong dipanggil Pengemis Tua atau Lao Gai (老丐), sedangkan Kaisar Duan dipanggil Lao Huangdi (老皇帝) 
 atau Kaisar Tua.
 
-Ketika Wang Chongyang masih hidup, ia dipanggil Lao Dao (老道), yang melambangkan bahwa is adalah seorang Pendeta Tao.
+Kadang-kadang mereka juga menyelipkan nama lokasi asal sahabat mereka, misalnya, Lao Xidu (老西毒) untuk Ouyang Feng,
+di mana karakter Xi (西) tersebut berarti 'Barat', dan Lao Beigai (老北丐) untuk Hong Qigong.
+
+Ketika Wang Chongyang masih hidup, ia dipanggil Lao Dao (老道), yang melambangkan bahwa ia adalah seorang Pendeta Tao.
 
 ### <a name="peribahasa-kodok" id="peribahasa-kodok">Lai Ha Ma Xiang Chi Tian E Rou (癞蛤蟆想吃天鹅肉)</a>
 
 Rangkaian karakter yang membentuk peribahasa ini bisa kita terjemahkan menjadi 'Kodok berpikir untuk makan daging angsa'.
 Ini kurang-lebih sama seperti peribahasa Indonesia 'Seperti pungguk merindukan bulan'.
 
+
+### <a name="fei-long-zai-tian" id="fei-long-zai-tian">Fei Long Zai Tian (飞龙在天)</a>
+
+Nama jurus ini juga dikutip dari Kitab Yijing, dan secara literal berarti 'Naga Terbang Di Langit'.
+Maknanya adalah 'Sang Kaisar sedang berada di ruang kerjanya, dan memerintah negara dengan baik'.
+
+Berbeda dengan Jian Long Zai Tian yang memakai karakter Tian (田), karakter Tian di sini adalah (天), 
+yang berarti 'Langit'. Dan Naga memang seharusnya berada di langit. Dengan demikian ini melambangkan bahwa Sang Kaisar
+sedang menjalankan tugasnya baik-baik, di ruang kerjanya.
 

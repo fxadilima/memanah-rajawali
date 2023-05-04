@@ -911,119 +911,268 @@ dalam ujian, selama dia tidak meremehkan pengetahuanku yang dangkal ini, dan ber
 tertentu, aku akan mengabdikan waktuku untuk mengajarinya dengan sepenuh hati, supaya dia tidak meninggalkan Pulau Bunga 
 Persik dengan tangan hampa."
 
-Hong Qigong sangat menyadari kemampuan Huang Yaoshi; dia berpikir bahwa jika Guo Jing tidak bisa menjadi menantunya tetapi berhasil belajar hanya satu keterampilan darinya, bagaimanapun juga dia akan mendapatkan keuntungan seumur hidup. Dia berpikir bahwa apa pun subjek ujiannya, Guo Jing pasti akan menderita kerugian dan dia merasa tidak enak untuknya.
+Hong Qigong sangat menyadari kemampuan Huang Yaoshi, ia berpikir bahwa jika Guo Jing tidak bisa menjadi menantunya, 
+tetapi berhasil belajar hanya satu keterampilan darinya, bagaimanapun juga ia akan mendapatkan keuntungan seumur hidup. 
+Ia berpikir bahwa apa pun ujiannya, Guo Jing pasti akan menderita kerugian, dan ia merasa tidak enak untuknya.
 
-Ouyang Feng, menyadari keengganan Hong Qigong, mengambil kesempatan untuk berkata, “Bagus… biarlah seperti itu! Saudara Yao sebenarnya telah menerima lamaran keponakan saya, tetapi dia menghormati wajah Saudara Qi. Jadi biarkan kedua anak ini diuji. Dengan begitu itu tidak akan merusak persahabatan kita.” Berbalik ke arah Ouyang Ke dia berkata, “Nanti, jika kamu kalah, kamu hanya akan memiliki kekurangan kemampuan untuk menyalahkan dan kamu tidak dapat menyalahkan orang lain. Kami akan dengan senang hati meminum anggur antik Saudara Yao [xi jiu]. Jika nanti Anda memiliki pikiran untuk membuat masalah lain, kedua senior ini tidak hanya tidak akan melepaskan Anda dengan mudah, tetapi saya sendiri tidak akan mengampuni Anda.
+Ouyang Feng yang menyadari keengganan Hong Qigong, mengambil kesempatan untuk berkata, "Bagus... biarlah seperti itu! 
+Yao Xiong sebenarnya sudah menerima lamaran keponakanku, tapi dia menghormati Qi Xiong. Jadi biarkan kedua anak ini diuji. 
+Dengan begitu tidak akan merusak persahabatan kita." Berbalik ke arah Ouyang Ke ia berkata, "Nanti kalau kau kalah, kau 
+hanya boleh menyalahkan kekuranganmu sendiri, dan kau tidak boleh menyalahkan orang lain. Kita akan dengan senang hati 
+meminum Xi Jiu dari Yao Xiong. Kalau nanti kau punya pikiran untuk membuat masalah lagi, kedua senior ini tidak hanya 
+tidak akan melepaskanmu, tapi aku sendiri juga tidak akan mengampunimu."
 
-Hong Qigong mendongak dan tertawa terbahak-bahak, “Racun Tua, Anda sembilan puluh persen yakin bahwa Anda akan menang. Pidato Anda sebenarnya ditujukan kepada saya dan murid saya; apa yang Anda katakan adalah 'sayang dan akui saja kekalahan'."
+Hong Qigong mendongak dan tertawa terbahak-bahak, "Racun Tua, kau sembilan puluh persen yakin akan menang. Pidatomu 
+sebenarnya ditujukan kepadaku dan muridku, apa yang kau katakan adalah 'jadilah anak baik, dan akui saja kekalahanmu'."
 
-Ouyang Feng tersenyum dan berkata, “Siapa yang menang dan siapa yang kalah, bagaimana Anda tahu sebelumnya? Bahkan untuk orang-orang setingkat kita, apakah menurut Anda mudah untuk mengklaim kemenangan tanpa malu-malu? Saudara Yao, tolong tunjukkan subjek ujian Anda. ”
+Ouyang Feng tersenyum dan berkata, "Siapa yang bakal menang atau kalah, bagaimana kau tahu sebelumnya? Bahkan untuk 
+orang-orang setingkat kita, apakah menurutmu mudah untuk mengakui kemenangan tanpa malu-malu? Yao Xiong, tolong tunjukkan 
+apa ujianmu."
 
-Huang Yaoshi telah bertekad untuk memberikan putrinya kepada Ouyang Ke, oleh karena itu, dia harus memikirkan tiga mata pelajaran yang akan menjamin kemenangan bagi Ouyang Ke. Tapi pertama-tama, pria dengan perawakannya tidak bisa terang-terangan sepihak; kedua, dia tidak ingin menyinggung Hong Qigong. Tetapi sementara dia masih dengan hati-hati mempertimbangkan apa yang akan dia katakan, Hong Qigong membuka mulutnya, “Kita semua hidup dengan tinju dan tendangan kita, ujian yang akan dilakukan oleh Saudara Yao harus terkait dengan seni bela diri. Jika mata pelajaran Anda adalah puisi, musik, membaca kitab suci atau melukis, maka kami - guru dan murid, hanya akan mengakui kekalahan dan mengambil pantat kami dari sini; tidak perlu kehilangan muka.”
+Huang Yaoshi telah bertekad untuk memberikan putrinya kepada Ouyang Ke, oleh karena itu ia harus memikirkan tiga ujian 
+yang akan menjamin kemenangan bagi Ouyang Ke. Tapi pertama-tama, orang dengan kedudukan seperti dia tidak bisa 
+terang-terangan berpihak. Kedua, dia tidak ingin menyinggung Hong Qigong. Tetapi sementara ia masih dengan hati-hati 
+mempertimbangkan apa yang akan dikatakannya, Hong Qigong membuka mulutnya, "Kita semua hidup dengan tinju dan tendangan 
+kita, ujian yang akan dilakukan oleh Yao Xiong harus terkait dengan kungfu. Kalau ujianmu adalah puisi, musik, membaca 
+kitab suci atau melukis, maka kami — guru dan murid — hanya bisa mengaku kalah, dan mengangkat pantat kami dari sini. 
+Tidak perlu kehilangan muka."
 
-“Tentu saja,” Huang Yaoshi meyakinkannya, “Subjek pertama adalah kompetisi seni bela diri.”
+"Tentu saja," kata Huang Yaoshi meyakinkannya. "Ujian pertama adalah adu ilmu silat."
 
-“Itu tidak cukup,” kata Ouyang Feng, “Keponakanku terluka saat ini.”
+"Itu tidak bisa," kata Ouyang Feng. "Keponakanku terluka saat ini."
 
-Huang Yaoshi tersenyum. “Aku tahu itu,” katanya, “Aku tidak bisa membiarkan dua bersaudara mengadakan kontes bela diri di Pulau Bunga Persik dan merusak persahabatan mereka.”
+Huang Yaoshi tersenyum. "Aku tahu itu," katanya. "Aku tidak bisa membiarkan dua bersaudara mengadu ilmu silat di Pulau 
+Bunga Persik dan merusak persahabatan mereka."
 
-"Mereka tidak akan bertarung?" Ouyang Feng bingung.
+"Mereka tidak akan bertarung?" tanya Ouyang Feng bingung.
 
-“Itu benar,” jawab Huang Yaoshi.
+"Itu benar," jawab Huang Yaoshi.
 
-"Ah!" Ouyang Feng tersenyum, "Kalau begitu pemberi tes akan mencoba seni bela diri masing-masing orang?"
+"Ah!" Ouyang Feng tersenyum, "Kalau begitu orang yang memberi ujian akan mencoba kungfu mereka masing-masing?"
 
-Huang Yaoshi menggelengkan kepalanya, “Tidak, jika saya melakukan itu, tidak ada yang bisa menjamin bahwa saya akan adil karena saya dapat membuat gerakan saya berat atau ringan sesuka hati. Saudara Feng, Anda dan Saudara Qi telah mencapai puncak keterampilan seni bela diri Anda masing-masing dan pertarungan barusan adalah buktinya. Anda telah berjuang selama lebih dari seribu langkah, namun tidak ada yang tahu siapa yang menang atau menderita kekalahan. Saudara Feng, kamu menguji Saudara Guo, dan Saudara Qi, kamu mencoba Saudara Ouyang.”
+Huang Yaoshi menggelengkan kepalanya, "Tidak, kalau aku melakukan itu, tidak ada yang bisa menjamin bahwa aku akan adil, 
+karena aku bisa membuat gerakanku berat atau ringan sesuka hati. Feng Xiong, kau dan Qi Xiong sudah mencapai puncak 
+ilmu kalian masing-masing, dan pertarungan barusan adalah buktinya. Kalian sudah berjuang selama lebih dari seribu jurus, 
+tapi tidak ada yang tahu siapa yang menang atau kalah. Feng, kau menguji Guo Gongzi, dan Qi Xiong, kau mencoba Ouyang 
+Gongzi."
 
-Hong Qigong berpikir dalam hati, “Ini memang sangat adil. Old Heretic Huang benar-benar pintar memikirkan metode ini. Pengemis Tua tidak akan pernah memikirkan hal seperti itu.” Dia tertawa dan berkata, “Metode ini tidak buruk! Ayo… ayo… ayo! Mari kita bermain!” Dia memberi isyarat kepada Ouyang Ke.
+Hong Qigong berpikir dalam hati, "Ini memang sangat adil. Huang Laoxie benar-benar pintar memikirkan metode ini. 
+Pengemis Tua tidak akan pernah memikirkan hal seperti itu." Ia tertawa dan berkata, "Cara ini tidak buruk! Ayo...
+ayo... ayo! Mari kita bermain-main!" Ia memberi isyarat kepada Ouyang Ke.
 
-"Tunggu!" Huang Yaoshi berkata, “Ada beberapa aturan untuk permainan yang perlu kami tangani. Peraturan nomor satu: Saudara Ouyang terluka dan dia tidak dapat mengerahkan tenaga apapun; keduanya, oleh karena itu, akan diuji dalam hal seni bela diri, bukan dalam hal kekuatan. Aturan nomor dua: Kalian berempat akan bertarung di atas pohon pinus ini, dia menunjuk ke dua pohon pinus besar di luar paviliun bambu, Junior yang jatuh ke tanah lebih dulu akan kalah. Aturan nomor tiga: Kakak Feng dan Kakak Qi, jika salah satu dari kalian memberi tekanan terlalu berat pada junior dan secara tidak sengaja melukainya, dia akan kalah.”
+"Tunggu!" Huang Yaoshi berkata, "Ada beberapa aturan permainan yang perlu kita tetapkan. Peraturan nomor satu, 
+Ouyang Gongzi terluka, dan dia tidak bisa mengerahkan tenaga apapun, maka keduanya akan diuji dalam hal kungfu, 
+bukan dalam hal tenaga. Aturan nomor dua, kalian berempat akan bertarung di atas pohon pinus ini." Ia menunjuk ke 
+dua pohon pinus besar di luar pondok bambu. "Anak muda yang jatuh ke tanah lebih dulu akan kalah. Aturan nomor tiga, 
+Feng Xiong dan Qi Xiong, jika salah satu dari kalian memberi tekanan terlalu berat kepada anak-anak muda ini, dan 
+secara tidak sengaja melukainya, maka akan dianggap kalah."
 
-"Melukai seorang junior dianggap kalah?" Hong Qigong merenung.
+"Melukai seorang anak muda dianggap kalah?" gumam Hong Qigong merenung.
 
-“Tentu saja,” Huang Yaoshi menjelaskan, “Kalian berdua memiliki keterampilan yang sangat tinggi, jadi jika saya tidak memiliki aturan ini, haruskah Anda mengulurkan tangan yang berat, menurut Anda apakah junior itu akan hidup? Saudara Qi, jika kamu bahkan menggores kulit Saudara Ouyang, kamu kalah. Hal yang sama berlaku untuk Saudara Feng. Dari dua junior ini, satu akan menjadi menantu saya; bagaimana mereka bisa terluka oleh tanganmu?”
+"Tentu saja," jelas Huang Yaoshi. "Kalian berdua punya kungfu yang sangat tinggi, jadi kalau tidak ada aturan ini, 
+dan kalian turun tangan dengan keras, menurut kalian apakah anak muda itu akan hidup? Saudara Qi, kalau kau sampai 
+menggores kulit Ouyang Gongzi saja, kau dianggap kalah. Hal yang sama berlaku untuk Saudara Feng. Dari dua anak ini, 
+salah satu akan menjadi menantuku, masa mereka boleh terluka oleh tangan kalian?"
 
-Hong Qigong menggaruk kepalanya dan tertawa, “Old Heretic Huang cukup aneh dan benar-benar sesuai dengan reputasinya. Melukai lawan akan dianggap sebagai kerugian; aturan aneh ini belum pernah terdengar selama ribuan tahun. Bagus! Selama itu adil, Pengemis Tua akan patuh.”
+Hong Qigong menggaruk kepalanya dan tertawa, "Huang Laoxie cukup aneh dan benar-benar sesuai dengan reputasinya. 
+Melukai lawan akan dianggap sebagai kerugian, aturan aneh ini belum pernah terdengar selama ribuan tahun. Bagus! 
+Selama itu adil, Pengemis Tua akan patuh."
 
-Huang Yaoshi memberi isyarat tangan dan mereka berempat melompat ke pohon pinus, membentuk dua kelompok. Hong Qigong dan Ouyang Ke berada di pohon kanan dan Ouyang Feng dan Guo Jing di kiri. Wajah Hong Qigong masih tampak geli, sementara tiga lainnya tampak serius, hampir tegang.
+Huang Yaoshi memberi isyarat tangan dan mereka berempat melompat ke pohon pinus, membentuk dua kelompok. Hong Qigong dan 
+Ouyang Ke berada di pohon kanan dan Ouyang Feng dan Guo Jing di kiri. Wajah Hong Qigong masih tampak geli, sementara tiga 
+lainnya tampak serius, hampir-hampir tegang.
 
-Huang Rong tahu seni bela diri Ouyang Ke sebenarnya lebih tinggi dari Guo Jing, tapi untungnya dia terluka. Namun, persaingan di atas pohon pinus sangat bergantung pada kungfu ringan, di mana Ouyang Ke jelas memiliki beberapa keunggulan dibandingkan Guo Jing. Dia tidak bisa menghindari perasaan cemas. Sementara itu dia mendengar suara ayahnya yang keras dan jelas, “Saya akan menghitung sampai tiga, baru kamu bisa mulai. Saudara Ouyang, Saudara Guo, siapa pun yang jatuh ke tanah terlebih dahulu akan kalah!”
+Huang Rong tahu seni bela diri Ouyang Ke sebenarnya lebih tinggi dari Guo Jing, tapi untungnya ia terluka. Tapi bertarung 
+di atas pohon pinus sangat bergantung pada ilmu meringankan tubuh, di mana Ouyang Ke jelas memiliki beberapa keunggulan 
+dibandingkan Guo Jing. Ia mau tidak mau jadi merasa cemas. Sementara itu ia mendengar suara ayahnya yang keras dan 
+jelas, "Saya akan menghitung sampai tiga, baru kalian bisa mulai. Ouyang Gongzi, Guo Gongzi, siapa pun yang jatuh ke 
+tanah terlebih dahulu akan kalah!"
 
-Huang Rong berpikir untuk membantu Guo Jing, tetapi seni bela diri Ouyang Feng sangat tinggi; bagaimana dia bisa melawannya dengan kemampuannya saat ini?
+Huang Rong berpikir untuk membantu Guo Jing, tetapi kungfu Ouyang Feng sangat tinggi, mana mungkin ia bisa melawannya.
 
-Huang Yaoshi mulai menghitung, "Satu...dua...tiga!" Empat bayangan menari di atas pohon pinus; mereka telah mulai.
+Huang Yaoshi mulai menghitung, "Satu... dua... tiga!" Empat bayangan menari di atas pohon pinus, mereka telah mulai.
 
-Tatapan Huang Rong tidak pernah lepas dari Guo Jing dan melihatnya bertarung lebih dari sepuluh jurus melawan Ouyang Feng dalam sekejap mata. Baik Huang Rong maupun Huang Yaoshi diam-diam terkejut, “Bagaimana seni bela dirinya tiba-tiba meningkat pesat? Dia berhasil melawan banyak gerakan ini tanpa menunjukkan tanda-tanda kalah.”
+Tatapan Huang Rong tidak pernah lepas dari Guo Jing dan melihatnya dalam sekejap mata sudah bertarung lebih dari sepuluh 
+jurus melawan Ouyang Feng. Baik Huang Rong maupun Huang Yaoshi diam-diam terkejut, "Mana mungkin kungfunya tiba-tiba 
+maju sepesat ini? Ia berhasil melawan sejumlah besar jurus ini tanpa menunjukkan tanda-tanda kalah atau terdesak."
 
-Ouyang Feng cemas, jadi dia secara bertahap meningkatkan kekuatannya sedikit demi sedikit. Tapi dia takut melukai Guo Jing. Tiba-tiba sebuah ide muncul di benaknya dan kakinya berputar seperti roda, mencoba menyapu Guo Jing dari pohon pinus. Guo Jing menggunakan 'Flying Dragon Soaring Through the Heavens' [fei long zai tian] dari Eighteen Dragon-Subduing Palms miliknya; dia berulang kali melompat tinggi dengan kedua telapak tangan menebas seperti pisau yang mencoba mengenai kaki lawannya.
+Ouyang Feng cemas, jadi ia secara bertahap meningkatkan kekuatannya. Tapi ia takut melukai Guo Jing. Tiba-tiba sebuah 
+ide muncul di benaknya, dan kakinya berputar seperti roda, mencoba menyapu Guo Jing dari pohon pinus. Guo Jing menggunakan 
+[Sang Naga Terbang Di Langit](referensi-karakter.md#fei-long-zai-tian "Fei Long Zai Tian (飞龙在天)") 
+dari Delapan Belas Jurus Penakluk Naga miliknya. Ia berulang kali melompat tinggi dengan kedua telapak tangan menebas 
+seperti pisau yang mencoba mengenai kaki lawannya.
 
-Jantung Huang Rong berdebar kencang. Dia mengalihkan pandangannya ke arah Hong Qigong hanya untuk melihat pertarungannya mengambil jalan yang berbeda. Ouyang Ke menggunakan kungfu ringannya dan melompat ke timur dan mengelak ke barat; dia tidak ingin terlibat bahkan setengah dari gerakan Hong Qigong. Hong Qigong terpaksa mengejarnya, tapi Ouyang Ke terus berlarian. Hong Qigong berpikir, “Makhluk bau ini licik dan dia mencoba mengulur waktu. Guo Jing adalah anak yang bodoh; dia benar-benar melawan Racun Tua. Jika dia terus melakukannya, dia pasti akan jatuh ke tanah terlebih dahulu. Huh! Pemerkosa cilik! Apa menurutmu Pengemis Tua tidak bisa memelukmu di bawah lenganku?” Tiba-tiba dia melompat tinggi ke udara dan dengan jari seperti dua cakar baja dia menyerang ke arah kepala Ouyang Ke.
+Jantung Huang Rong berdebar kencang. Ia mengalihkan pandangannya ke arah Hong Qigong dan melihat jalan pertarungan yang 
+berbeda. Ouyang Ke menggunakan teknik meringankan tubuhnya untuk melompat ke timur dan barat, ia tidak ingin bergebrak 
+setengah jurus pun dengan Hong Qigong. Hong Qigong terpaksa mengejarnya, tapi Ouyang Ke terus berlarian. Hong Qigong 
+berpikir, "Makhluk bau ini licik, dia mencoba mengulur waktu. Guo Jing anak yang bodoh, dia benar-benar melawan Racun 
+Tua. Jika dia terus melakukannya, dia pasti akan jatuh ke tanah lebih dulu. Huh! 
+[Xiao Yinzei](referensi-karakter.md#yinzei "Cabul Cilik (小淫贼)")! Apa menurutmu Pengemis Tua tidak bisa membekukmu?" 
+Tiba-tiba ia melompat tinggi ke udara dan dengan jari seperti dua cakar baja ia menyerang ke arah kepala Ouyang Ke.
 
-Ouyang Ke melihat bahwa kekuatan yang masuk ini cepat dan ganas; itu tentu saja bukan serangan tipe kontes tetapi dimaksudkan untuk mengambil nyawanya. Dia terkejut dan buru-buru mencoba melarikan diri ke kanan. Tanpa sepengetahuannya, serangan Hong Qigong adalah tipuan. Hong Qigong telah mengantisipasi gerakan ini dan segera setelah Ouyang Ke berbelok ke kanan, Hong Qigong membungkuk di udara dan terbang ke kanan. Tangannya bergerak cepat ke arah Ouyang Ke dan dia berteriak dengan jelas, “Saya tidak peduli jika saya kalah; hari ini aku akan membunuhmu bocah bau.”
+Ouyang Ke melihat bahwa kekuatan yang masuk ini cepat dan berbahaya, itu tentu saja bukan serangan tipe kontes tetapi 
+dimaksudkan untuk mengambil nyawanya. Ia terkejut dan buru-buru mencoba melarikan diri ke kanan. Tanpa sepengetahuannya, 
+serangan Hong Qigong adalah tipuan. Hong Qigong telah mengantisipasi gerakan ini dan segera setelah Ouyang Ke berbelok ke 
+kanan, Hong Qigong membungkuk di udara dan terbang ke kanan. Tangannya bergerak cepat ke arah Ouyang Ke dan ia berteriak 
+dengan jelas, "Aku tidak peduli kalau dianggap kalah, hari ini aku akan membunuhmu bocah tengik!"
 
-Ouyang Ke kaget karena Hong Qigong mampu memutar tubuhnya di udara; dia ketakutan dan membeku sesaat setelah mendengar teriakan Hong Qigong. Dia tidak berani menangkis serangan ini, jadi dia dengan panik melangkah mundur ke udara kosong. Dia jatuh dari pohon dengan pemikiran ini di benaknya, "Saya kalah dalam ujian pertama!" Tiba-tiba dia mendengar suara gemerisik di sampingnya saat Guo Jing juga jatuh dari pohon di sebelahnya.
+Ouyang Ke kaget karena Hong Qigong mampu memutar tubuhnya di udara, ia ketakutan dan membeku sesaat setelah mendengar 
+teriakan Hong Qigong. Ia tidak berani menangkis serangan ini, jadi ia dengan panik melangkah mundur ke udara kosong. 
+Ia jatuh dari pohon dengan pemikiran ini di benaknya, "Aku kalah dalam ujian pertama!" Tiba-tiba ia mendengar suara 
+gemerisik di sampingnya, ternyata Guo Jing juga jatuh dari pohon di sebelahnya.
 
-Setelah melawan Guo Jing cukup lama, Ouyang Feng kehilangan kesabaran, "Jika aku membiarkan anak ini melawanku selama lima puluh langkah lagi, bagaimana aku bisa mempertahankan kebanggaan Racun Barat?" dia pikir. Tiba-tiba pikiran jahat muncul di benaknya. Tangan kirinya bergerak secepat kilat ke arah leher Guo Jing sambil berteriak keras, "Turun!"
+Setelah melawan Guo Jing cukup lama, Ouyang Feng kehilangan kesabaran, "Jika aku membiarkan anak ini melawanku selama 
+lima puluh jurus lagi, bagaimana aku bisa mempertahankan reputasiku sebagai Racun Barat?" pikirnya. Tiba-tiba pikiran 
+jahat muncul di benaknya. Tangan kirinya bergerak secepat kilat ke arah leher Guo Jing sambil berteriak keras, "Turun!"
 
-Guo Jing menghindari serangan ini dan mengangkat tangan kirinya dan mencoba menangkis dengan punggung tangannya. Tapi Ouyang Feng tiba-tiba memberikan lebih banyak kekuatan ke tangannya. "Kamu ... kamu ..." Guo Jing tergagap. Dia akan berkata, "Kamu tidak mengikuti aturan Huang Yaoshi?" tetapi tidak dapat mengatakannya karena dia terpaksa menggunakan seluruh energinya untuk menahan serangan ini. Ouyang Feng tersenyum dan dengan dingin berkata, "Aku apa?" dan menaruh lebih banyak kekuatan di tangannya.
+Guo Jing menghindari serangan ini dan mengangkat tangan kirinya dan mencoba menangkis dengan punggung tangannya. 
+Tapi Ouyang Feng tiba-tiba menambah tenaga di tangannya. "Kau... kau..." Guo Jing tergagap. Ia ingin berkata, "Kau 
+tidak mematuhi aturan Huang Yaoshi?" tetapi tidak dapat mengatakannya karena ia terpaksa menggunakan seluruh tenaganya 
+untuk menahan serangan ini. Ouyang Feng tersenyum dan dengan dingin berkata, "Aku apa?" dan malah menambah lebih banyak 
+tenaga lagi di tangannya.
 
-Guo Jing berusaha mendapatkan pijakan yang kuat karena takut dia mungkin terluka secara internal oleh kekuatan 'Sikap Kodok' ini. Siapa yang bisa membayangkan bahwa kekuatan luar biasa yang mendorongnya ke bawah akan tiba-tiba menghilang? Beruntung baginya keterampilannya telah meningkat; jika tidak, dia tidak akan mampu menahan kekuatan Ouyang Feng yang tiba-tiba menjadi lebih kuat, lalu tiba-tiba menghilang. Untungnya itu mirip dengan tujuh puluh dua gerakan 'Tinju Kosong' yang dia pelajari dari Zhou Botong, di mana kekuatan keras mengandung kelembutan di dalamnya. Jika bukan karena pengetahuan ini, dia akan terluka seperti saat dia melawan Huang Yaoshi di Cloud Manor dan tangannya tertangkap dan patah. Namun demikian, ia kehilangan keseimbangan dan terlempar dari kepala pohon terlebih dahulu.
+Guo Jing berusaha mendapatkan pijakan yang kuat karena takut ia mungkin terluka dalam oleh kekuatan Jurus Kodok ini. 
+Siapa yang bisa membayangkan bahwa kekuatan luar biasa yang mendorongnya ke bawah akan tiba-tiba menghilang? Beruntung 
+baginya, kungfunya sudah meningkat pesat, jika tidak ia tidak akan mampu menahan tenaga Ouyang Feng yang tiba-tiba 
+menjadi lebih kuat, lalu tiba-tiba menghilang. Untungnya itu mirip dengan tujuh puluh dua gerakan Tinju Kosong yang 
+dipelajarinya dari Zhou Botong, di mana kekuatan keras mengandung kelembutan di dalamnya. Jika bukan karena pengetahuan 
+ini, ia akan terluka seperti saat ia melawan Huang Yaoshi di Rumah Awan, tangannya tertangkap dan patah. Namun demikian, 
+ia kehilangan keseimbangan dan terlempar dari atas pohon terlebih dahulu.
 
-Ouyang Ke jatuh ke kanan ke atas, sementara Guo Jing jatuh terbalik dan keduanya melihat tanah mendekat dengan cepat. Melihat Guo Jing jatuh di sampingnya, Ouyang Ke punya ide; dia merentangkan tangannya ke arah kaki Guo Jing. Dia ingin menggunakan Guo Jing sebagai batu loncatan, jadi dia bisa melompat kembali sementara Guo Jing pasti akan jatuh lebih cepat ke tanah. Atau begitulah pikirnya.
+Ouyang Ke jatuh miring di sisi kanan tubuhnya, sementara Guo Jing jatuh jungkir balik, dan keduanya melihat tanah semakin 
+mendekat dengan cepat. Melihat Guo Jing jatuh di sampingnya, Ouyang Ke punya ide, ia merentangkan tangannya ke arah kaki 
+Guo Jing. Ia ingin menggunakan Guo Jing sebagai batu loncatan, jadi ia bisa melompat kembali sementara Guo Jing pasti 
+akan jatuh lebih cepat ke tanah. Atau seperti itulah yang ada di benaknya.
 
-Huang Rong memperhatikan situasi genting Guo Jing dan berteriak, "Aiyo!" Tapi yang luar biasa adalah Guo Jing yang dia lihat melompat kembali ke pohon sementara, dengan suara keras, Ouyang Ke membentur tanah. Guo Jing mendarat di dahan pohon dengan terengah-engah dan terengah-engah.
+Huang Rong memperhatikan situasi genting Guo Jing dan berteriak, "Waduh!" Tapi yang luar biasa adalah, ia kemudian melihat 
+Guo Jing melompat kembali ke atas pohon, sementara Ouyang Ke meluncur deras dan membentur tanah dengan suara keras. 
+Guo Jing mendarat di dahan pohon, kehabisan napas dan terengah-engah.
 
-Huang Rong sangat senang. Dia tidak melihat dengan jelas bagaimana itu terjadi atau bagaimana, pada saat kritis, Guo Jing mampu mengubah kekalahan menjadi kemenangan, tetapi dia tetap senang dan tidak dapat menahan diri untuk berteriak, "Aiyo!" Tapi kedua 'aiyos' itu membawa emosi yang sama sekali berbeda.
+Huang Rong sangat senang. Ia tidak melihat dengan jelas bagaimana hal itu terjadi, atau bagaimana pada saat kritis itu, 
+Guo Jing mampu mengubah kekalahan menjadi kemenangan, tetapi ia tetap senang dan tidak dapat menahan diri untuk berteriak, 
+"Waduh!" Tapi kedua 'Waduh' itu membawa emosi yang sama sekali berbeda.
 
-Saat itu Ouyang Feng dan Hong Qigong sudah turun dari pepohonan. Hong Qigong tertawa terbahak-bahak dan berulang kali mengucapkan, “Luar biasa! Luar biasa!" Wajah Ouyang Feng menjadi hijau karena marah. "Saudara Qi," katanya dengan murung, "Seni bela diri murid pintar Anda sangat beragam bahkan termasuk keterampilan gulat Mongolia."
+Saat itu Ouyang Feng dan Hong Qigong sudah turun dari pepohonan. Hong Qigong tertawa terbahak-bahak dan berulang kali 
+mengucapkan, "Luar biasa! Luar biasa!" Wajah Ouyang Feng berubah menjadi hijau karena marah. "Saudara Qi," katanya dengan 
+murung, "Kungfu murid pintarmu itu sangat beragam, bahkan termasuk ilmu gulat Mongolia!"
 
-Hong Qigong tertawa dan berkata, “Saya tidak tahu cara bergulat, jadi bukan saya yang mengajarinya. Anda tidak bisa menyalahkan saya.
+Hong Qigong tertawa dan berkata, "Aku tidak mengerti cara gulat Mongolia, jadi bukan aku yang mengajarinya. Kau tidak 
+bisa menyalahkanku!"
 
-Apa yang sebenarnya terjadi adalah: saat Guo Jing didorong ke bawah oleh Ouyang Ke, dia jatuh lebih cepat. Dia melihat kaki Ouyang Ke melayang tepat di depannya. Dia tidak punya waktu untuk berpikir. Pada saat kritis itu dia secara naluriah mengulurkan kedua tangannya untuk meraih betis Ouyang Ke dan menarik dirinya ke atas dengan memutar tubuhnya dari posisi terbalik ke posisi tegak. Itu justru teknik gulat yang digunakan orang Mongolia.
+Apa yang sebenarnya terjadi adalah, pada saat Guo Jing didorong ke bawah oleh Ouyang Ke, ia jatuh lebih cepat. Ia 
+melihat kaki Ouyang Ke melayang tepat di depannya. Ia tidak punya waktu untuk berpikir. Pada saat kritis itu ia secara 
+naluriah mengulurkan kedua tangannya untuk meraih betis Ouyang Ke dan menarik dirinya ke atas dengan memutar tubuhnya 
+dari posisi terbalik ke posisi tegak. Itu teknik gulat yang digunakan orang Mongolia, dan sama sekali bukan kungfu.
 
-Orang-orang Mongolia telah melatih dan menyempurnakan teknik gulat mereka dari generasi ke generasi; mereka dianggap salah satu yang terbaik. Guo Jing dibesarkan di stepa Mongolia dan bahkan sebelum dia belajar seni bela diri dari Enam Orang Aneh di Jiangnan, dia bermain dan bergulat setiap hari dengan Tolui dan teman-temannya. Gulat Mongolia baginya sama alaminya dengan makan nasi. Dia pada dasarnya lambat dan dia jatuh dengan cepat; meskipun dia tahu teknik gulat Mongolia, dia tidak akan punya cukup waktu untuk berpikir. Dia tidak secara sadar berpikir: “Oh, sepasang kaki, bagus! Hei, kenapa aku tidak menggunakan kaki itu untuk melompat kembali ke atas pohon?” Itu terjadi begitu cepat sehingga bahkan setelah dia berhasil mendarat dengan kakinya di dahan pohon dia tidak tahu apa yang telah terjadi! Jadi dia menang melawan segala rintangan.
+Orang-orang Mongolia telah melatih dan menyempurnakan teknik gulat mereka dari generasi ke generasi, mereka dianggap 
+salah satu yang terbaik. Guo Jing dibesarkan di padang rumput Mongolia, dan bahkan sebelum ia belajar seni bela diri 
+dari Enam Orang Aneh dari Jiangnan, ia bermain dan bergulat setiap hari dengan Tolui dan teman-temannya. Gulat Mongolia 
+baginya sama alamiahnya dengan makan nasi. Ia pada dasarnya lambat dan ia jatuh dengan cepat, meskipun ia mengerti 
+teknik gulat Mongolia, ia tetap tidak akan punya cukup waktu untuk berpikir. Ia tanpa sadar berpikir, "Oh, ada kaki, 
+bagus! Hei, kenapa aku tidak menggunakan kaki itu untuk melompat kembali ke atas pohon?" Itu terjadi begitu cepat, 
+bahkan setelah ia berhasil mendarat dengan kakinya di dahan pohon, ia tidak tahu apa yang telah terjadi! Jadi ia menang 
+melawan segala rintangan.
 
-Huang Yaoshi menggelengkan kepalanya sedikit dan berpikir, “Guo Jing ini adalah anak yang lamban. Kemenangan ini jelas karena keberuntungan semata.” Dia memberikan keputusannya, “Tes pertama dimenangkan oleh Keponakan yang Layak Guo [Guo Xianzhi]. Tolong jangan khawatir Saudara Feng, Anda telah mengajari keponakan Anda yang terhormat dengan baik. Siapa tahu, mungkin dia akan mencetak kemenangan di tes kedua dan ketiga.”
+Huang Yaoshi menggelengkan kepalanya sedikit dan berpikir, "Guo Jing ini anak yang lamban. Kemenangan ini jelas karena 
+keberuntungan semata." Ia memberikan keputusannya, "Tes pertama dimenangkan oleh Guo Xianzhi[^xian-zhi]. Tolong jangan 
+kuatir Saudara Feng, kau telah mengajari keponakanmu yang terhormat dengan baik. Siapa tahu, mungkin dia akan mencetak 
+kemenangan di tes kedua dan ketiga."
 
-“Saudara Yao, tolong tunjukkan tes kedua,” jawab Ouyang Feng.
+[^xian-zhi]: Ini berarti 'Anak Yang Baik'. 
 
-“Tes kedua adalah …” Huang Yaoshi memulai, tetapi sebelum dia bisa menyelesaikannya, Huang Rong memotongnya, “Ayah, kamu jelas-jelas memihak. Beberapa saat yang lalu Anda mengatakan Anda hanya akan menguji keterampilan seni bela diri mereka, mengapa Anda ingin menguji dengan mata pelajaran lain? Jing ge ge, sebaiknya kau mengaku kalah dan pergi.”
+"Yao Xiong, tolong tunjukkan tes kedua," jawab Ouyang Feng.
 
-"Apa yang Anda tahu?" Huang Yaoshi berkata, “Setelah mencapai tingkat keterampilan seni bela diri tertentu, apakah Anda masih ingin bertarung setiap hari? Ya, kami adalah orang-orang seni bela diri; tetapi tidak seperti orang militer biasa, kami tidak hidup hari demi hari hanya untuk seni bela diri. Selain itu, kami tidak menghibur diri dengan berduel untuk mencari pasangan…” Setelah mendengarkan bagian ini, Huang Rong melirik Guo Jing. Guo Jing juga menatapnya. Mereka memikirkan hal yang sama: Mu Nianci dan Yang Kang, yang bertemu satu sama lain di ibu kota dengan 'berduel untuk mencari pasangan'. Sementara itu, Huang Yaoshi melanjutkan pidatonya, “… Oleh karena itu, subjek tes kedua saya adalah meminta kedua keponakan ini untuk mendengarkan orang tua ini memainkan nada pada seruling saya.”
+"Tes kedua adalah..." Huang Yaoshi memulai, tetapi sebelum ia bisa menyelesaikannya, Huang Rong memotongnya, "Ayah, 
+kau jelas-jelas berpihak. Beberapa saat yang lalu kau mengatakan hanya akan menguji kungfu mereka, mengapa kau ingin 
+menguji soal lain? Jing Gege, sebaiknya kau mengaku kalah dan pergi."
 
-Ouyang Ke sangat gembira; dia berpikir, “Apa yang diketahui anak bodoh ini tentang alat musik tiup atau senar? Kemenangan pasti milikku.”
+"Kau tahu apa?" kata Huang Yaoshi. "Setelah mencapai tingkat tertentu dalam kungfu, apa kau masih ingin bertarung setiap 
+hari? Ya, kita _memang_ orang-orang dari dunia persilatan, tapi tidak seperti prajurit, kita tidak hidup hari demi hari 
+hanya untuk kungfu. Selain itu kita tidak menghibur diri dengan berduel untuk mencari pasangan..." Setelah mendengarkan 
+bagian ini, Huang Rong melirik Guo Jing. Guo Jing juga menatapnya. Mereka memikirkan hal yang sama, Mu Nianci dan Yang Kang, 
+yang saling bertemu di ibu kota dengan 'berduel untuk mencari pasangan'. Sementara itu, Huang Yaoshi melanjutkan pidatonya, 
+"... oleh sebab itu, tes kedua adalah meminta kedua keponakan ini untuk mendengarkan orang tua ini memainkan nada dari serulingku."
 
-Sebaliknya, Ouyang Feng tidak begitu yakin. Dia curiga Huang Yaoshi akan menguji kekuatan energi internal kedua orang ini dengan suara seruling. Dia tahu tingkat energi internal Guo Jing cukup kuat dan keponakannya belum tentu melebihi dirinya. Juga, dia takut keponakannya akan terluka secara internal oleh suara seruling Huang Yaoshi. Dia berkata, “Kultivasi energi internal Juniors dangkal dan saya khawatir mereka tidak akan dapat mendengarkan melodi elegan Brother Yao. Saya ingin tahu apakah Saudara Yao akan mempertimbangkan …”
+Ouyang Ke sangat gembira, ia berpikir, "Apa yang diketahui anak bodoh ini tentang alat musik tiup atau senar? Kemenangan 
+pasti milikku."
 
-Huang Yaoshi tidak memberinya kesempatan untuk menyelesaikan, “Lagu saya adalah lagu biasa tanpa energi internal tingkat tinggi. Saudara Feng, tenangkan hatimu.” Menuju Ouyang Ke dan Guo Jing dia berkata, “Keponakan, tolong ambil tongkat bambu dan ikuti musik saya dengan mengetuknya sesuai irama. Orang yang bisa mengikuti dengan baik akan memenangkan ujian kedua.”
+Sebaliknya, Ouyang Feng tidak begitu yakin. Ia curiga Huang Yaoshi akan menguji tenaga dalam kedua orang ini dengan 
+suara seruling. Ia tahu tingkat tenaga dalam Guo Jing cukup kuat, dan keponakannya belum tentu melebihinya. Juga ia 
+takut keponakannya akan terluka dalam akibat suara seruling Huang Yaoshi. Ia berkata, "Tenaga dalam anak-anak muda ini 
+dangkal, dan aku kuatir mereka tidak akan dapat mendengarkan melodi elegan Yao Xiong. Aku ingin tahu apakah Yao Xiong 
+akan mempertimbangkan..."
 
-Guo Jing melangkah maju dan menangkupkan tangannya, "Tuan Pulau Huang, muridnya sangat lamban dan bodoh. Saya tidak tahu apa-apa tentang musik, jadi izinkan saya mengaku kalah dalam ujian kedua.”
+Huang Yaoshi tidak memberinya kesempatan untuk menyelesaikan, "Lagu ini adalah lagu biasa, tidak ada kaitannya dengan 
+tenaga dalam tingkat tinggi. Saudara Feng, tenangkan hatimu." Sambil mendekati Ouyang Ke dan Guo Jing ia berkata, 
+"Keponakan-keponakanku, tolong ambil tongkat bambu dan ikuti laguku dengan mengetuk sesuai irama. Orang yang bisa 
+mengikuti irama dengan baik akan memenangkan ujian kedua."
 
-“Jangan terburu-buru… jangan tergesa-gesa,” Hong Qigong mengintervensi, “Paling buruk kamu akan kalah, jadi kenapa kamu tidak mencoba? Apakah Anda takut orang lain akan menertawakan Anda?
+Guo Jing melangkah maju dan menangkupkan tangannya, "Huang Laoye, dizi sangat lamban dan bodoh. Dizi tidak tahu apa-apa 
+soal musik, jadi ijinkan dizi mengaku kalah dalam ujian kedua."
 
-Guo Jing berpikir tuannya masuk akal; melihat Ouyang Ke mengambil tongkat bambu, dia melakukan hal yang sama.
+"Jangan terburu-buru... jangan tergesa-gesa," sela Hong Qigong. "Paling buruk kau akan kalah, jadi kenapa kau tidak 
+mencoba? Kau takut orang lain akan menertawakanmu?"
 
-"Kakak Qi, Kakak Feng," Huang Yaoshi tersenyum, "Adik laki-laki akan menunjukkan kurangnya kemampuannya." Mengangkat seruling giok ke bibirnya, dia mulai meniup. Bagian dari lagunya ini tidak membawa energi internal apa pun dan tidak ada bedanya dengan yang dimainkan orang biasa.
+Guo Jing berpikir ucapan gurunya masuk akal. Melihat Ouyang Ke mengambil tongkat bambu, ia juga melakukan hal yang sama.
 
-Ouyang Ke mendengarkan dengan penuh perhatian, mencoba mengikuti ritme; lalu dia mulai mengetukkan tongkat bambunya dengan benar. Guo Jing tidak tahu apa-apa, jadi dia mengangkat tongkat bambunya tinggi-tinggi tapi tidak berani mengetuknya. Hanya setelah Huang Yaoshi bermain selama kira-kira waktu yang dibutuhkan untuk minum secangkir teh, dia mulai menggerakkan tongkatnya.
+"Qi Xiong, Feng Xiong," kata Huang Yaoshi sambil tersenyum. "Saudaramu ini akan memamerkan kemampuannya yang kurang bagus." 
+Mengangkat seruling giok ke bibirnya, ia mulai meniup. Bagian dari lagunya ini tidak mengandung tenaga dalam apa pun dan 
+tidak ada bedanya dengan yang dimainkan orang biasa.
 
-Keluarga Ouyang, paman dan keponakan, sangat sombong. Mereka mengira kemenangan kali ini dijamin. Karena subjek ketiga adalah sastra, mereka yakin sembilan puluh persen akan menang.
+Ouyang Ke mendengarkan dengan penuh perhatian, mencoba mengikuti irama, lalu ia mulai mengetukkan tongkat bambunya dengan 
+benar. Guo Jing tidak tahu apa-apa, jadi ia mengangkat tongkat bambunya tinggi-tinggi, tapi tidak berani mengetuknya. 
+Hanya setelah Huang Yaoshi bermain selama kira-kira waktu yang dibutuhkan untuk minum secangkir teh, ia mulai menggerakkan 
+tongkatnya.
 
-Huang Rong merasa cemas jadi dia dengan ringan mengetukkan jari tangan kanannya di buku-buku jari kirinya dengan harapan Guo Jing akan mengikuti. Siapa yang mengira bahwa Guo Jing akan duduk menatap kosong ke langit, melamun; jelas dia tidak melihat sinyalnya.
+Keluarga Ouyang, baik paman maupun keponakannya, sangat sombong. Mereka mengira kemenangan kali sudah terjamin. Karena 
+ujian ketiga tampaknya adalah sastra, mereka yakin sembilan puluh persen akan menang.
 
-Huang Yaoshi terus meniup serulingnya. Guo Jing mengangkat tangannya dan memukul tongkat bambu di antara dua ketukan musik. Ouyang Ke menahan tawa, berpikir bahwa anak bodoh ini menyerang dengan irama yang salah. Guo Jing memukul lagi, masih di antara dua ketukan musik. Dia telah memukul empat kali dengan tongkat bambunya, semuanya di tempat yang salah.
+Huang Rong merasa cemas jadi ia dengan ringan mengetukkan jari tangan kanannya di buku-buku jari kirinya dengan harapan 
+Guo Jing akan mengikuti. Tak terduga Guo Jing hanya duduk menatap kosong ke langit dan melamun, jelas ia tidak melihat 
+isyaratnya.
 
-Huang Rong menggelengkan kepalanya dengan cemas, "Adikku yang bodoh tidak mengerti apa-apa tentang musik," pikirnya, "Ayah seharusnya tidak mengujinya." Memiliki pemikiran ini, dia memeras otaknya, mencoba mencari cara untuk mengganggu ujian. Tapi ketika dia mengalihkan pandangannya ke arah ayahnya dia terkejut; ayahnya menunjukkan keheranan di wajahnya. Dia mendengar Guo Jing mengetuk beberapa kali lagi dan suara seruling tiba-tiba menjadi sedikit lambat, tapi kemudian segera kembali ke tempo semula.
+Huang Yaoshi terus meniup serulingnya. Guo Jing mengangkat tangannya dan memukul tongkat bambu di antara dua ketukan musik. 
+Ouyang Ke menahan tawa, berpikir bahwa anak bodoh ini mengetuk dengan irama yang salah. Guo Jing memukul lagi, masih di 
+antara dua ketukan musik. Ia telah memukul empat kali dengan tongkat bambunya, semuanya di tempat yang salah.
 
-Guo Jing terus mengetukkan tongkat bambunya, selalu dengan irama yang tidak teratur: kadang mengetuk lebih cepat, kadang lebih lambat. Dia memacu tempo lebih cepat, dan terkadang lebih lambat. Dalam beberapa kesempatan musik dari suling hampir tidak bisa mempertahankan iramanya yang mantap dan hampir dipaksa mengikuti tempo tongkat bambu yang tidak menentu. Huang Yaoshi bukan satu-satunya yang tercengang; Hong Qigong dan Ouyang Feng juga merasakan sesuatu yang aneh sedang terjadi.
+Huang Rong menggelengkan kepalanya dengan cemas, "Aduh, kakak yang bodoh ini tidak mengerti apa-apa tentang musik," 
+pikirnya. "Ayah seharusnya tidak mengujinya." Dengan pemikiran ini ia memeras otaknya, mencoba mencari cara untuk 
+mengganggu ujian. Tapi ketika ia mengalihkan pandangannya ke arah ayahnya ia terkejut, wajah ayahnya tampak keheranan. 
+Ia mendengar Guo Jing mengetuk beberapa kali lagi dan suara seruling tiba-tiba menjadi lebih lambat, tapi kemudian segera 
+kembali ke tempo semula.
 
-Sebenarnya Guo Jing ingat mendengarkan pertarungan antara tiga orang tadi: seruling, sitar dan peluit. Dia memperhatikan bahwa suara-suara itu saling bertarung secara sistematis, seperti strategi pertempuran dalam perang. Dia tidak memiliki sedikit pun pemahaman tentang teori musik, tetapi mendengarkan seruling Huang Yaoshi dia ingin mencoba melawan suara itu dan karena itu dia memukul tongkat bambu secara tidak menentu untuk mengacaukan melodi. Dia mengetuk tongkat bambu ke pohon bambu tua, menciptakan suara 'bonk, bonk' yang keras. Suara itu membuat Huang Yaoshi merasa seperti berada di dalam tungku panas dan apinya bersinar putih panas, memaksa seruling untuk menyerah dan mengikuti tempo tongkat bambu yang tidak menentu.
+Guo Jing terus mengetukkan tongkat bambunya, selalu dengan irama yang tidak teratur, kadang mengetuk lebih cepat, kadang 
+lebih lambat. Ia memacu tempo lebih cepat, dan terkadang lebih lambat. Dalam beberapa kesempatan musik dari seruling hampir 
+tidak bisa mempertahankan iramanya yang mantap dan hampir dipaksa mengikuti tempo tongkat bambu yang tidak menentu. Huang 
+Yaoshi bukan satu-satunya yang tercengang, Hong Qigong dan Ouyang Feng juga merasakan sesuatu yang aneh sedang terjadi.
 
-Semangat Huang Yaoshi bangkit saat dia memikirkan anak ini yang secara tak terduga memiliki kemampuan seperti ini. Suara seruling berubah lagi; kali ini mengalir lebih cepat dan lebih lambat tampaknya memiliki variasi yang tak terbatas. Ouyang Ke hanya berhenti untuk mendengarkan sesaat, kemudian dia tidak bisa menahan diri untuk mengangkat tongkat bambunya dan mengacungkannya ke udara. Ouyang Feng menghela nafas, dengan cepat meraih tangan keponakannya, dan menekan arteri utama di pergelangan tangannya. Kemudian dia mengeluarkan sapu tangan sutra, merobeknya menjadi dua bagian dan menyumbat telinga Ouyang Ke. Setelah beberapa saat Ouyang Ke mulai tenang dan Ouyang Feng melepaskan tangannya.
+Sebenarnya Guo Jing teringat pada saat mendengarkan pertarungan antara tiga orang tadi, seruling, sitar dan siulan. Ia 
+memperhatikan bahwa suara-suara itu saling bertarung secara sistematis, seperti strategi pertempuran dalam perang. Ia 
+tidak memiliki sedikit pun pemahaman tentang teori musik, tetapi mendengarkan seruling Huang Yaoshi ia ingin mencoba 
+melawan suara itu, dan karena itu ia memukul tongkat bambu secara tidak menentu untuk mengacaukan melodi. Ia mengetuk 
+tongkat bambu ke pohon bambu tua, menciptakan suara 'buk, buk' yang keras. Suara itu membuat Huang Yaoshi merasa seperti 
+berada di dalam tungku panas dan apinya bersinar putih panas, memaksa seruling untuk menyerah dan mengikuti tempo tongkat 
+bambu yang tidak menentu.
 
-Sejak masa kecilnya, Huang Rong telah mendengarkan 'Lagu Gelombang Pasang Berwarna Giok' ayahnya; bahkan pernah Huang Yaoshi menjelaskan, secara detail, setiap variasi yang ada. Pikiran ayah dan putrinya seperti satu sehingga lagu ini tidak mempengaruhinya sama sekali, tetapi dia sepenuhnya sadar bahwa seruling ayahnya membawa kekuatan yang sangat besar. Oleh karena itu, dia khawatir Guo Jing tidak akan mampu membela diri.
+Semangat Huang Yaoshi bangkit saat ia memikirkan anak ini secara tak terduga memiliki kemampuan seperti itu. Suara seruling 
+berubah lagi, kali ini mengalir lebih cepat dan lebih lambat tampaknya memiliki variasi yang tak terbatas. Ouyang Ke hanya 
+berhenti untuk mendengarkan sesaat, kemudian ia tidak bisa menahan diri untuk mengangkat tongkat bambunya dan 
+mengacungkannya ke udara. Ouyang Feng menghela nafas, dengan cepat meraih tangan keponakannya, dan menekan arteri utama di 
+pergelangan tangannya. Kemudian ia mengeluarkan sapu tangan sutra, merobeknya menjadi dua bagian dan menyumbat telinga 
+Ouyang Ke. Setelah beberapa saat Ouyang Ke mulai tenang dan Ouyang Feng melepaskan tangannya.
 
-Lagu ini menyimulasikan luasnya lautan dengan ribuan ombaknya, datang perlahan dari jauh, lalu menghempas di tepian. Ombaknya putih berbusa dan setinggi gunung; tetapi pada saat air pasang ikan melompat dan ikan paus mengapung, sementara burung camar terbang di atas air. Sesaat air menjadi liar, seperti sekelompok setan yang mengaduknya; cuaca menjadi dingin dan gunung es melayang. Di saat lain menjadi panas, sangat panas, sehingga laut beriak dan menggelegak seperti air mendidih. Saat berikutnya, dengan cepat, laut menjadi tenang dan permukaannya sehalus cermin. Air mengalir deras, namun tenang; tetapi di bawah permukaan ada arus yang sangat kuat yang mengancam mereka yang tanpa disadari cukup berani untuk masuk dan menantang kekuatannya. Begitulah kerumitan lagu itu.
+Sejak masa kecilnya, Huang Rong telah mendengarkan 'Irama Gelombang Laut Biru' ayahnya, bahkan pernah Huang Yaoshi 
+menjelaskan secara detail setiap variasi yang ada. Pikiran ayah dan putrinya seolah bersatu sehingga lagu ini tidak 
+mempengaruhinya sama sekali, tetapi ia sepenuhnya sadar bahwa seruling ayahnya membawa kekuatan yang sangat besar. Oleh 
+karena itu, ia khawatir Guo Jing tidak akan mampu membela diri.
+
+Lagu ini menyimulasikan luasnya lautan dengan ribuan ombaknya, datang perlahan dari jauh, lalu menghempas di tepian. 
+Ombaknya putih berbusa dan setinggi gunung; tetapi pada saat air pasang ikan melompat dan ikan paus mengapung, sementara 
+burung camar terbang di atas air. Sesaat air menjadi liar, seperti sekelompok setan yang mengaduknya; cuaca menjadi dingin 
+dan gunung es melayang. Di saat lain menjadi panas, sangat panas, sehingga laut beriak dan menggelegak seperti air mendidih. 
+Saat berikutnya, dengan cepat, laut menjadi tenang dan permukaannya sehalus cermin. Air mengalir deras, namun tenang; tetapi 
+di bawah permukaan ada arus yang sangat kuat yang mengancam mereka yang tanpa disadari cukup berani untuk masuk dan 
+menantang kekuatannya. Begitulah kerumitan lagu itu.
 
 Guo Jing duduk bersila di tanah sambil mengerahkan energi internal Sekte Quanzhen untuk menekan gejolak di hatinya dan menyegarkan jiwanya, sambil menahan godaan suara seruling. Pada saat yang sama dia terus mengetuk-ngetuk tongkat bambu yang mengganggu nyanyian seruling.
 
