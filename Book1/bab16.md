@@ -887,11 +887,11 @@ dalam pintu gerbang Perguruan Quanzhen," jawab Guo Jing.[^bahasa-halus-1]
 Orang tua itu tertawa terbahak-bahak dan kemudian membuat ekspresi lucu. Ia terlihat sangat lucu, seperti anak 
 kecil yang sedang bercanda. "Jadi begitu," katanya, "Bagaimana kau datang ke Pulau Bunga Persik?"
 
-"Huang [Laoye](referensi-karakter.md#lauye "Laoye (老爺) = Tuan Rumah") yang menyuruhku datang," jawab Guo Jing.
+"[Huang Daozhu](panggilan.md#daozhu "Dao Zhu (岛主) = Majikan Pulau Huang") yang menyuruhku datang," jawab Guo Jing.
 
 Air muka orang tua itu mendadak berubah. "Untuk apa?" tanyanya.
 
-"Dizi menyinggung Huang Laoye," jawab Guo Jing. "Dizi datang ke sini untuk menerima nasib."
+"Dizi menyinggung Huang Daozhu," jawab Guo Jing. "Dizi datang ke sini untuk menerima nasib."
 
 "Kau bicara sejujurnya?" tanya orang tua itu.
 
@@ -948,7 +948,7 @@ pemilik Pulau Bunga Persik. Apa mungkin Lao Qianbei ini Ouyang Qianbei atau Kais
 "Kau pikir kungfuku setara dengan Pengemis Utara dan Si Sesat Timur ya?" tanya orang tua itu sambil tersenyum.
 
 "Kungfu dizi biasa saja, dan pengalaman dizi juga tidak banyak, dizi tidak berani bicara sembarangan. Tapi waktu
-qianbei mendorong dizi tadi, dizi bisa bilang dengan yakin bahwa selain Hong Shifu dan Huang Laoye, dizi belum
+qianbei mendorong dizi tadi, dizi bisa bilang dengan yakin bahwa selain Hong Shifu dan Huang Daozhu, dizi belum
 pernah bertemu orang lain yang punya tenaga sebesar itu," kata Guo Jing.
 
 Orang tua itu senang sekali mendengar pujian Guo Jing, mukanya terlihat seperti anak-anak yang kegirangan. "Aku 
@@ -1317,7 +1317,7 @@ berpindah tangan."
 
 "Kalau itu masalahnya, maka buku ini sebenarnya adalah hal kutukan bagi umat manusia," kata Guo Jing. "Kalau 
 Chen Xuanfeng tidak memiliki buku ini, dia akan dapat hidup damai dengan Mei Chaofeng di desa terpencil dan 
-Huang Laoye tidak akan mencarinya. Kalau Mei Chaofeng tidak memiliki buku ini, dia tidak akan berada dalam kondisi 
+Huang Daozhu tidak akan mencarinya. Kalau Mei Chaofeng tidak memiliki buku ini, dia tidak akan berada dalam kondisi 
 buruk seperti hari ini."
 
 "Saudaraku, mengapa kau punya perasaan seburuk itu tentang buku itu?" tanya Zhou Botong. "Kungfu yang terkandung 
@@ -1470,7 +1470,7 @@ Guo Jing berpikir sejenak, kemudian berseru, "Racun Barat!"
 Guo Jing menjawab, "Adikmu berpikir bahwa orang-orang yang kungfunya lebih tinggi darimu pastilah orang-orang yang 
 terlibat dalam pertandingan besar di Hua Shan. Hong Shifu baik hati, terus terang dan jujur. Kaisar Duan adalah 
 seorang Kaisar, dia tidak akan merendahkan diri sampai mencuri milik orang lain. Adikmu tidak tahu karakter asli 
-Huang Laoye dengan baik, tapi dia orang yang sombong, dan bukan tipe orang yang akan mengambil keuntungan dari 
+Huang Daozhu dengan baik, tapi dia orang yang sombong, dan bukan tipe orang yang akan mengambil keuntungan dari 
 kondisi genting orang lain dan menjadi pencuri!"
 
 Dari balik semak-semak bunga tiba-tiba terdengar suara yang jernih dan lantang berseru, "Penilaian 

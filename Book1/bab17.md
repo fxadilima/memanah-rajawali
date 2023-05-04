@@ -279,7 +279,7 @@ tapi tidak bisa mempraktekkannya."
 "Tapi ada orang-orang tertentu di dunia ini, yang cukup dengan melihat orang lain memasang kuda-kuda, mereka langsung
 bisa mengingat semuanya selamanya," kata Zhou Botong.
 
-"Benar sekali!" Seru Guo Jing. "Putri Huang Laoye memang seperti itu. Ketika Hong Enshi[^enshi] mengajarinya kungfu, 
+"Benar sekali!" Seru Guo Jing. "Putri Huang Daozhu memang seperti itu. Ketika Hong Enshi[^enshi] mengajarinya kungfu, 
 paling banyak dia akan mengajarinya dua kali, sangat jarang dia harus mengulang pelajaran tiga kali."
 
 [^enshi]: En Shi (恩師), Guru Yang Baik. Ini setara dengan Shifu, tetapi ditambah dengan ungkapan kasih yang lebih khusus, menandakan bahwa Sang guru tersebut adalah juga penolongnya.
@@ -759,10 +759,10 @@ membengkak.
 "Kau bilang apa?" tanya Guo Jing.
 
 Guo Jing tahu ia mengigau karena racun itu dan ia sangat cemas. Ia berlari keluar dari gua dan memanjat pohon di luar, 
-berteriak keras, "Rong'er! Rong'er! Huang Laoye! Huang Laoye! Tolong, tolong!" Tapi Pulau Bunga Persik berareal seluas 
+berteriak keras, "Rong'er! Rong'er! Huang Daozhu! Huang Daozhu! Tolong, tolong!" Tapi Pulau Bunga Persik berareal seluas 
 lebih dari sepuluh li, sebuah pulau besar. Kediaman Huang Yaoshi terletak di sisi lain pulau. Teriakan Guo Jing sia-sia. 
 Satu-satunya tanggapan yang didengarnya adalah gema suaranya sendiri yang terpantul dari gunung dan lembah di depan, 
-"... Huang Laoye! Tolong, tolong..."
+"... Huang Daozhu! Tolong, tolong..."
 
 Guo Jing melompat turun dari pohon, bingung. Pada saat kritis itu sebuah ide melintas di benaknya, "Racun ular tidak dapat 
 menyakitiku, mungkin darahku mengandung penawar racun ular." Tanpa membuang waktu lagi, ia meraba-raba di tanah, mencari 

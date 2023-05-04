@@ -52,9 +52,9 @@ ada dua orang berjalan perlahan. Yang pertama mengenakan jubah satin putih panja
 memegang kipas lipat di tangannya. Itu tidak lain adalah Ouyang Ke.
 
 Sesampainya di hutan bambu ia berkata dengan suara lantang dan jelas, "Ouyang Xiansheng dari Wilayah Barat mengunjungi 
-Pemilik Pulau Bunga Persik, Huang Laoye."
+Pemilik Pulau Bunga Persik, [Huang Daozhu](panggilan.md#daozhu "Pemilik Pulau Huang")."
 
-"Ternya benar-benar Racun Barat," pikir Guo Jing, "Tidak heran ada semua kemegahan dan kemeriahan ini." Ia mengalihkan 
+"Ternyata benar-benar Racun Barat," pikir Guo Jing, "Tidak heran ada semua kemegahan dan kemeriahan ini." Ia mengalihkan 
 pandangannya kepada pria di samping Ouyang Ke. Orang itu tinggi besar dan juga memakai pakaian putih, tapi karena cahaya 
 datang dari belakangnya, Guo Jing tidak bisa melihat wajahnya dengan jelas.
 
@@ -65,7 +65,7 @@ para tamu.
 Ouyang Feng bergegas maju dan mengangkat tangannya memberi hormat. Huang Yaoshi membalas dengan merangkapkan tangannya. 
 Ouyang Ke benar-benar berlutut di tempat ia sedang berada, bersujud empat kali dan berkata, "Menantu
 [kowtow](referensi-karakter,md#kowtow "Bersujud, membenturkan kepala ke tanah.") kepada Ayah Mertua yang Terhormat 
-dan berharap kedamaian dan kemakmuran Ayah mertua yang Terhormat."
+dan berharap kedamaian dan kemakmuran Ayah Mertua Yang Terhormat."
 
 "Cukup!" Kata Huang Yaoshi, mengulurkan tangannya untuk mengangkatnya. Guo Jing dapat mendengar dengan jelas apa yang 
 dikatakan kedua orang ini, hatinya kacau dan ia tidak tahu harus berbuat apa.
@@ -84,7 +84,7 @@ ularnya. Aku ingin melihat kungfu macam apa yang dimilikinya."
 
 Ouyang Feng tertawa. "Itu kesalahpahaman kecil yang kekanak-kanakan, Yao Xiong, tolong jangan pedulikan dia. Anakku ini, 
 apa dia cukup layak untuk menjadi pasangan putrimu itu?" Ia menoleh ke arah Huang Rong untuk memeriksanya, mendecakkan 
-lidahnya karena kagum, ia melanjutkan, "Huang Laoge, dengan nona cilik yang cantik ini, hidupmu tidak kekurangan apa pun."
+lidahnya karena kagum, ia melanjutkan, "Yao Xiong, dengan nona cilik yang cantik ini, hidupmu tidak kekurangan apa pun."
 
 Ia merogoh sakunya dan mengeluarkan sebuah kotak kecil bersulam. Ia membuka kotak itu dan memperlihatkan bola seukuran 
 telur merpati. Bola itu bersinar terang dalam kegelapan dan menyilaukan mata. Ia menoleh ke Huang Rong dan tersenyum, 
@@ -207,7 +207,7 @@ Ouyang Feng memainkan beberapa nada pada sitarnya yang menghasilkan suara metali
 arah musuh, kebalikan dari suara gumaman lembut seruling. Huang Yaoshi tersenyum dan berkata, "Ayo, ayo! Mari kita 
 berduet." Begitu seruling lepas dari bibirnya, semua orang terlepas dari kondisi histerisnya.
 
-"Semuanya tutup telingamu! Huang Laoye dan aku akan bermain musik," seru Ouyang Feng. Orang-orang yang datang bersamanya 
+"Semuanya tutup telingamu! Huang Daozhu dan aku akan bermain musik," seru Ouyang Feng. Orang-orang yang datang bersamanya 
 tahu bahwa lagu itu pasti bukan lagu biasa. Mereka langsung mengambil apa saja, termasuk potongan pakaian mereka sendiri 
 yang bisa digunakan untuk menutup telinga. Mereka meletakkan lapis demi lapis kapas dan potongan-potongan pakaian untuk
 menyumbat telinga mereka, tapi mereka masih takut suara itu akan menembus sumbat itu. Ouyang Ke juga mengeluarkan 
@@ -270,7 +270,7 @@ dan pikirannya, namun lambat laun ia mampu mengendalikan diri dan mengikuti alir
 kemudian ia mulai menyadari bahwa kedua suara itu sebenarnya saling bertarung. Ketika satu suara menyerang, suara lainnya 
 mengambil posisi bertahan. Terkadang yang satu menyerang yang lain dengan ganas, sementara yang lain memblokir serangan 
 sambil menunggu kesempatan bagus untuk melakukan serangan balik. Itu benar-benar tidak berbeda dengan pertarungan antara 
-dua ahli kungfu. Setelah merenungkan lebih banyak lagi, tiba-tiba ia sadar, "Benar! Huang Laoye sedang adu tenaga dalam 
+dua ahli kungfu. Setelah merenungkan lebih banyak lagi, tiba-tiba ia sadar, "Benar! Huang Daozhu sedang adu tenaga dalam 
 dengan Ouyang Feng." Karena ingin memahami dengan lebih baik, ia memejamkan mata dan memberikan perhatian penuh pada 
 telinganya.
 
@@ -308,9 +308,9 @@ lagi dengan lebih cermat, ternyata bukan seperti itu.
 Kecerdasannya mungkin tidak tinggi, tetapi setelah kedua orang itu berulang kali melakukan kesalahan serupa, ia mulai 
 menyadari bahwa seruling dan sitar punya banyak kelemahan di pertahanan mereka. Setelah mendengarkan agak lebih banyak, 
 sebuah pemikiran muncul di benaknya, "Dibandingkan dengan teori Tinju Kosong, serangan dan pertahanan mereka punya 
-kelemahan dan kekurangan, mungkinkah teori yang diajarkan oleh Zhou Dage lebih baik daripada kungfu Huang Laoye dan 
+kelemahan dan kekurangan, mungkinkah teori yang diajarkan oleh Zhou Dage lebih baik daripada kungfu Huang Daozhu dan 
 Racun Barat?" Tapi kemudian ia berubah pikiran, "Wah! Tidak mungkin! Kalau kungfu Zhou Dage benar-benar lebih baik 
-daripada Huang Laoye, mana mungkin setelah mereka begitu sering bertarung keduanya bertarung selama lima belas tahun, 
+daripada Huang Daozhu, mana mungkin setelah mereka begitu sering bertarung keduanya bertarung selama lima belas tahun, 
 dia masih terkurung di dalam gua itu?"
 
 Ia memeras otaknya sampai lama tanpa mencapai kesimpulan apapun, kemudian ia mendengar nada seruling naik lebih tinggi 
@@ -348,7 +348,7 @@ Guo Jing kagum dan tidak bisa menahan seruannya, "Luar biasa!" Tapi begitu ia me
 telah membuat kesalahan besar. Ia bergegas pergi, tapi terlambat! Bayangan hijau melintas dan Huang Yaoshi berdiri di 
 hadapannya. Ketiga suara itu tak terdengar lagi. Huang Yaoshi menunduk dan berkata, "Anak Baik, ikut aku."
 
-Guo Jing tidak punya pilihan dan dengan patuh menyapa, "Huang Laoye." Bulu kuduknya berdiri, sementara ia mengikuti 
+Guo Jing tidak punya pilihan dan dengan patuh menyapa, "Huang Daozhu." Bulu kuduknya berdiri, sementara ia mengikuti 
 Huang Yaoshi kembali ke pondok bambu.
 
 Huang Rong masih menutupi telinganya dengan sutra, jadi ia tidak mendengar seruan Guo Jing. Sekarang Guo Jing tiba-tiba 
@@ -1107,7 +1107,7 @@ tenaga dalam tingkat tinggi. Saudara Feng, tenangkan hatimu." Sambil mendekati O
 "Keponakan-keponakanku, tolong ambil tongkat bambu dan ikuti laguku dengan mengetuk sesuai irama. Orang yang bisa 
 mengikuti irama dengan baik akan memenangkan ujian kedua."
 
-Guo Jing melangkah maju dan menangkupkan tangannya, "Huang Laoye, dizi sangat lamban dan bodoh. Dizi tidak tahu apa-apa 
+Guo Jing melangkah maju dan menangkupkan tangannya, "Huang Daozhu, dizi sangat lamban dan bodoh. Dizi tidak tahu apa-apa 
 soal musik, jadi ijinkan dizi mengaku kalah dalam ujian kedua."
 
 "Jangan terburu-buru... jangan tergesa-gesa," sela Hong Qigong. "Paling buruk kau akan kalah, jadi kenapa kau tidak 
@@ -1166,164 +1166,334 @@ menjelaskan secara detail setiap variasi yang ada. Pikiran ayah dan putrinya seo
 mempengaruhinya sama sekali, tetapi ia sepenuhnya sadar bahwa seruling ayahnya membawa kekuatan yang sangat besar. Oleh 
 karena itu, ia khawatir Guo Jing tidak akan mampu membela diri.
 
-Lagu ini menyimulasikan luasnya lautan dengan ribuan ombaknya, datang perlahan dari jauh, lalu menghempas di tepian. 
-Ombaknya putih berbusa dan setinggi gunung; tetapi pada saat air pasang ikan melompat dan ikan paus mengapung, sementara 
-burung camar terbang di atas air. Sesaat air menjadi liar, seperti sekelompok setan yang mengaduknya; cuaca menjadi dingin 
-dan gunung es melayang. Di saat lain menjadi panas, sangat panas, sehingga laut beriak dan menggelegak seperti air mendidih. 
-Saat berikutnya, dengan cepat, laut menjadi tenang dan permukaannya sehalus cermin. Air mengalir deras, namun tenang; tetapi 
-di bawah permukaan ada arus yang sangat kuat yang mengancam mereka yang tanpa disadari cukup berani untuk masuk dan 
-menantang kekuatannya. Begitulah kerumitan lagu itu.
+Lagu ini menggambarkan luasnya lautan dengan ribuan ombaknya, datang perlahan dari jauh, lalu terhempas di tepian. 
+Ombak putihnya berbusa dan menjulang setinggi gunung, tetapi pada saat air pasang ikan melompat dan ikan paus mengapung, 
+sementara burung camar terbang di atas air. Sesaat air menjadi liar, seperti sekelompok setan yang mengaduk-aduknya, 
+cuaca menjadi dingin dan gunung es melayang. Di saat lain menjadi panas, sangat panas, sehingga laut beriak dan 
+bergolak seperti air mendidih. Saat berikutnya dengan cepat laut menjadi tenang, dan permukaannya sehalus cermin. 
+Air mengalir deras, namun tenang, tetapi di bawah permukaan ada arus yang sangat kuat, yang mengancam mereka yang tanpa 
+disadari cukup berani untuk masuk dan menantang kekuatannya. Begitulah kerumitan lagu itu.
 
-Guo Jing duduk bersila di tanah sambil mengerahkan energi internal Sekte Quanzhen untuk menekan gejolak di hatinya dan menyegarkan jiwanya, sambil menahan godaan suara seruling. Pada saat yang sama dia terus mengetuk-ngetuk tongkat bambu yang mengganggu nyanyian seruling.
+Guo Jing duduk bersila di tanah sambil mengerahkan tenaga dalam Perguruan Quanzhen untuk menekan gejolak di hatinya, 
+dan menyegarkan jiwanya, sambil menahan godaan suara seruling. Pada saat yang sama ia terus mengetuk-ngetuk tongkat 
+bambu untuk mengganggu irama seruling.
 
-Ketika Huang Yaoshi, Hong Qigong dan Ouyang Feng saling bertarung dengan suara sebelumnya, mereka menyerang dan bertahan secara bergantian. Mereka harus menjaga hati dan pikiran mereka sendiri sambil mencari kesempatan untuk melancarkan serangan balik; masing-masing berusaha menaklukkan hati dan pikiran yang lain. Energi internal Guo Jing jauh lebih rendah dari ketiganya; dia hanya mampu memasang pertahanan yang kuat, tanpa bisa melancarkan serangan balik. Tapi Huang Yaoshi juga tidak bisa menembus pertahanannya.
+Ketika Huang Yaoshi, Hong Qigong dan Ouyang Feng saling bertarung dengan suara sebelumnya, mereka menyerang dan bertahan 
+secara bergantian. Mereka harus menjaga hati dan pikiran mereka sendiri sambil mencari kesempatan untuk melancarkan 
+serangan balik, masing-masing berusaha menaklukkan hati dan pikiran yang lain. Tenaga dalam Guo Jing jauh lebih rendah 
+dari ketiganya, ia hanya mampu memasang pertahanan yang kuat, tanpa bisa melancarkan serangan balik. Tapi Huang Yaoshi 
+juga tidak bisa menembus pertahanannya.
 
-After a long while, the volume of the flute gradually decreased, making it difficult to hear. Guo Jing stopped tapping to listen. This was the moment Huang Yaoshi was waiting for; unexpectedly, as the sound became softer, the stronger the energy it carried. Because Guo Jing was listening attentively, his heart began to follow the rhythm of the flute. Had this happened to someone else, they would fall into the trap and would not be able to escape; but Guo Jing was different. He had learned the ‘Left/Right Mutual Hands Combat’ and he was capable of dividing his mind. He used his left hand to take the shoe from his left foot to knock on the bamboo pole. “Knock! Knock! Knock!” again, disrupting the flute’s sound.
+Setelah sekian lama, volume seruling berangsur-angsur berkurang, sehingga sulit didengar. Guo Jing berhenti mengetuk 
+untuk mendengarkan. Inilah saat yang ditunggu-tunggu oleh Huang Yaoshi, tiba-tiba saat suaranya menjadi lebih lembut, 
+semakin kuat tenaga yang dibawanya. Karena Guo Jing mendengarkan dengan penuh perhatian, hatinya mulai mengikuti irama 
+seruling. Seandainya ini terjadi pada orang lain, mereka akan jatuh ke dalam perangkap dan tidak akan bisa melarikan 
+diri, tapi Guo Jing berbeda. Ia telah mempelajari Pertarungan Antar Tangan Kiri-Kanan, dan ia mampu membagi pikirannya. 
+Ia menggunakan tangan kirinya untuk mengambil sepatu dari kaki kirinya untuk mengetuk tiang bambu. "Tuk! Tuk! Tuk!" 
+sekali lagi, mengganggu suara seruling.
 
-Huang Yaoshi terkejut, “Anak ini memiliki keterampilan yang luar biasa; dia benar-benar tidak bisa diremehkan.” Dia mulai berjalan sesuai dengan 'Delapan Trigram' sambil terus bermain.
+Huang Yaoshi terkejut, "Anak ini punya keterampilan yang luar biasa, ia benar-benar tidak bisa diremehkan." Ia 
+mulai berjalan mondar-mandir sesuai dengan Delapan Trigram sambil terus bermain.
 
-Kedua tangan Guo Jing memukul tiang bambu dengan tempo yang tidak menentu berlawanan dengan irama seruling. Tangannya seperti dua orang yang bergabung untuk bertahan melawan serangan Huang Yaoshi. “Bonk…bonk…bonk! Tok…tok…tok!” Kekuatan pertahanannya berlipat ganda.
+Kedua tangan Guo Jing memukul tiang bambu dengan tempo yang tidak menentu berlawanan dengan irama seruling. 
+Tangannya seperti dua orang yang bergabung untuk bertahan melawan serangan Huang Yaoshi. "Duk, duk, duk! 
+Tok, tok, tok!" Kekuatan pertahanannya berlipat ganda.
 
-Hong Qigong dan Ouyang Feng diam-diam memusatkan perhatian dan energi mereka untuk menjaga diri dari pertarungan energi internal antara kedua orang ini. Meski satu pihak hanya bertahan, mereka tidak berani sembarangan mengabaikan energi ofensif dari seruling.
+Hong Qigong dan Ouyang Feng diam-diam memusatkan perhatian dan tenaga mereka untuk menjaga diri dari pertarungan 
+tenaga dalam antara kedua orang ini. Meski satu pihak hanya bertahan, mereka tidak berani sembarangan mengabaikan 
+tenaga serangan dari seruling.
 
-Suara seruling tiba-tiba terdengar dari tinggi ke rendah; pernah berubah, aneh namun indah. Guo Jing tiba-tiba merasakan semburan udara dingin yang dibawa oleh suara seruling. Dia merasa tubuhnya terbungkus lapisan es yang tebal, yang membuatnya menggigil hebat.
+Suara seruling tiba-tiba terdengar berubah dari tinggi ke rendah, selalu berubah, aneh namun indah. Guo Jing tiba-tiba 
+merasakan semburan udara dingin yang dibawa oleh suara seruling. Ia merasa tubuhnya terbungkus lapisan es yang tebal, 
+yang membuatnya menggigil hebat.
 
-Suara seruling perlahan naik ke atas bukit, semakin intens. Guo Jing merasa dingin sampai ke tulangnya. Dia berjuang keras untuk mengalihkan pikirannya dan memikirkan tentang matahari yang terbakar di langit, atau tentang menyentuh besi yang terkena panasnya siang hari, atau tentang memegang bara api di tangannya, atau bahwa dia sedang memasuki kompor yang sangat panas; singkatnya, segala jenis pikiran yang memicu panas. Dia berhasil. Huang Yaoshi melihat sisi kiri Guo Jing membiru dan menggigil kedinginan, sedangkan sisi kanannya merah, terik karena panas.
+Suara seruling perlahan naik ke atas bukit, makin lama makin kuat. Guo Jing merasa dingin sampai ke tulangnya. 
+Ia berjuang keras untuk mengalihkan pikirannya dan memikirkan tentang matahari yang terbakar di langit, atau tentang 
+menyentuh besi yang terkena panasnya siang hari, atau tentang memegang bara api di tangannya, atau bahwa ia sedang 
+memasuki kompor yang sangat panas, singkatnya segala jenis pikiran yang memicu panas. Ia berhasil. Huang Yaoshi 
+melihat sisi kiri Guo Jing membiru dan menggigil kedinginan, sedangkan sisi kanannya merah terik karena panas.
 
-Huang Yaoshi dalam hati terkagum-kagum. Sekali lagi dia mengubah suara seruling: sekarang musim dingin telah berlalu dan musim panas tiba. Guo Jing berjuang keras untuk melawan, tetapi tempo tepukannya mulai mengikuti irama seruling. Huang Yaoshi berkata dalam hatinya, “Jika anak ini terus melawan seperti ini – meskipun dia masih muda, dia tidak akan mampu menahan panas dan dingin berturut-turut dan dia akan menderita penyakit parah di masa depan.” Suara seruling menjadi anggun, menyebar ke dalam hutan lalu berhenti.
+Huang Yaoshi dalam hati terkagum-kagum. Sekali lagi ia mengubah suara seruling, sekarang musim dingin telah berlalu, 
+dan musim panas tiba. Guo Jing berjuang keras untuk melawan, tetapi tempo tepukannya mulai mengikuti irama seruling. 
+Huang Yaoshi berkata dalam hatinya, "Jika anak ini terus melawan seperti ini — meskipun dia masih muda, dia tidak 
+akan mampu menahan panas dan dingin berturut-turut, dan dia akan menderita penyakit parah di masa depan." 
+Suara seruling menjadi anggun, menyebar ke dalam hutan lalu berhenti.
 
-Guo Jing menghela nafas panjang, berdiri, terhuyung-huyung dan hampir jatuh lagi ke tanah. Hanya setelah menarik napas dalam-dalam beberapa kali, dia berhasil menenangkan diri. Dia tahu Huang Yaoshi menunjukkan belas kasihan; jadi dia melangkah maju, membungkuk dan berterima kasih padanya. “Terima kasih banyak telah menunjukkan belas kasihan, Master Pulau Huang,” katanya, “Murid sangat berterima kasih.”
+Guo Jing menghela nafas panjang, berdiri terhuyung-huyung dan hampir jatuh lagi ke tanah. Hanya setelah menarik napas 
+dalam-dalam beberapa kali ia berhasil menenangkan diri. Ia tahu Huang Yaoshi telah menunjukkan belas kasihan, jadi ia 
+melangkah maju, membungkuk dan berterima kasih kepadanya. "Terima kasih banyak Huang Daozhu sudah menunjukkan belas kasihan,"
+katanya, "Dizi sangat berterima kasih."
 
-Huang Rong melihat tangan kiri Guo Jing masih memegang sepatunya dan tidak bisa menahan tawa, "Jing ge ge, pakai sepatumu kembali," katanya.
+Huang Rong melihat tangan kiri Guo Jing masih memegang sepatunya dan tidak bisa menahan tawa, "Jing Gege, pakai sepatumu 
+kembali," katanya.
 
 "Ya," jawab Guo Jing, dan mengembalikan sepatu itu ke kaki kirinya.
 
-Sebuah pikiran tiba-tiba muncul di benak Huang Yaoshi, “Anak ini masih sangat muda, namun seni bela dirinya sebenarnya cukup mendalam. Mungkinkah dia hanya berpura-pura bodoh, tetapi kenyataannya adalah orang yang sangat cerdas? Jika demikian, apa yang akan menghalangi saya jika saya ingin memberikan putri saya kepadanya?” Senyum tipis muncul di wajahnya dan dia berkata, "Kamu sangat baik, mengapa kamu masih memanggilku Master Pulau Huang?" Apa yang dia katakan adalah, karena Guo Jing telah memenangkan dua dari tiga ujian maka Guo Jing harus memanggilnya 'Ayah mertua'.
+Sebuah pikiran tiba-tiba muncul di benak Huang Yaoshi, "Anak ini masih sangat muda, tapi kungfunya sebenarnya cukup 
+mendalam. Mungkinkah dia hanya pura-pura bodoh, tetapi kenyataannya adalah orang yang sangat cerdas? Kalau begitu, 
+memberikan putriku kepadanya?" Senyum tipis muncul di wajahnya dan ia berkata, "Kau sangat baik, mengapa kau masih 
+memanggilku Huang Daozhu[^daozhu]?" Apa yang dikatakannya adalah, karena Guo Jing telah memenangkan dua dari tiga ujian maka 
+Guo Jing harus memanggilnya Yuefu[^ayah-mertua].
 
-Siapa sangka Guo Jing benar-benar tidak tahu apa yang dia bicarakan, jadi dia hanya tergagap, "Aku ... aku ..." matanya menatap Huang Rong; meminta bantuan. Huang Rong berada di surga ketujuh; dia membungkukkan ibu jari kanannya, memberi isyarat kepada Guo Jing bahwa dia harus bersujud. Guo Jing memahami sinyal ini, jadi dia menekuk lututnya dan bersujud empat kali kepada Huang Yaoshi, tetapi dia tetap tidak membuka mulut untuk berbicara.
+[^daozhu]: Huang Yaoshi adalah pemilik Pulau Bunga Persik, karena itu Guo Jing memanggilnya [Dao Zhu](panggilan.md#daozhu), yang memang berarti 'Majikan Pulau'.
+
+[^ayah-mertua]: Ayah Mertua = Yue Fu (岳父).
+
+Siapa sangka Guo Jing benar-benar tidak tahu apa yang dibicarakannya, jadi ia hanya tergagap, "Aku ... aku ..." matanya 
+menatap Huang Rong, meminta bantuan. Huang Rong berada di surga ketujuh, ia menekuk ibu jari kanannya, memberi isyarat 
+kepada Guo Jing bahwa ia harus bersujud. Guo Jing memahami sinyal ini, jadi ia menekuk lututnya dan bersujud empat kali 
+kepada Huang Yaoshi, tetapi ia tetap tidak membuka mulut untuk berbicara.
 
 Huang Yaoshi tersenyum dan bertanya, "Untuk apa kau bersujud padaku?"
 
 "Rong'er menyuruhku," jawab Guo Jing dengan jujur.
 
-Huang Yaoshi menghela nafas dalam diam, "Anak bodoh adalah anak bodoh," pikirnya. Mengulurkan tangannya dia mengambil sapu tangan sutra dari telinga Ouyang Ke, dan memberikan keputusannya. “Mengenai energi internal, Keponakan Guo lebih kuat; tetapi subjek tes saya adalah pengetahuan musik, di mana Keponakan Ouyang jauh lebih baik … Anggap saja tes kedua adalah seri. Saya akan mempresentasikan subjek ketiga dan membiarkan kedua Keponakan memutuskan menang atau kalah.
+Huang Yaoshi menghela nafas dalam diam, "Anak bodoh adalah anak bodoh," pikirnya. Mengulurkan tangannya ia mengambil sapu 
+tangan sutra dari telinga Ouyang Ke, dan memberikan keputusannya. "Mengenai tenaga dalam, Guo Xianzhi lebih kuat, tetapi 
+ujianku adalah pengetahuan musik, di mana Ouyang Xianzhi jauh lebih baik... Anggap saja ujian kedua adalah seri. Aku akan 
+mengatakan ujian ketiga, dan mempersilakan kedua keponakan untuk menentukan siapa yang terbaik.
 
-Ouyang Feng tahu keponakannya telah kalah, tetapi dia tidak menyangka Huang Yaoshi akan membantunya, jadi dia dengan cepat menjawab, “Benar, benar! Biarkan mereka bersaing sekali lagi.”
+Ouyang Feng tahu keponakannya telah kalah, tetapi ia tidak menyangka Huang Yaoshi akan membantunya, jadi ia dengan cepat 
+menjawab, "Benar, benar! Biarkan mereka bersaing sekali lagi."
 
-Hong Qigong kesal tetapi tidak mengatakan apa-apa, dia berpikir, “Gadis itu adalah putrimu dan orang lain tidak bisa ikut campur. Anda ingin memberikannya kepada playboy busuk itu. Aku selalu ingin melawanmu, tapi saat ini sulit bagi kedua tanganku untuk melawan keempat tanganmu. Tunggu sampai saya meminta Kaisar Duan untuk membantu saya. Nanti kita lihat…”
+Hong Qigong kesal tetapi tidak mengatakan apa-apa, ia berpikir, "Gadis itu adalah putrimu dan orang lain tidak bisa ikut 
+campur. Kau ingin memberikannya kepada Si Cabul Busuk itu. Aku selalu ingin melawanmu, tapi saat ini sulit bagi kedua 
+tanganku untuk melawan keempat tanganmu. Tunggu sampai aku meminta bantuan Kaisar Duan. Nanti kita lihat..."
 
-Huang Yaoshi mengeluarkan sebuah buku tipis dengan sampul sutra merah dari dadanya dan berkata, “Istri saya dan saya hanya memiliki satu anak perempuan. Sayangnya dia meninggal sebelum waktunya. Hari ini Saudara Feng dan Saudara Qi ada di sini untuk melamarnya. Jika istri saya ada di sini, saya yakin dia akan sangat senang…” Mendengarkan ayahnya berbicara, mata Huang Rong memerah. Huang Yaoshi melanjutkan, “Buku ini ditulis oleh istri saya pada tahun yang sama ketika dia meninggal. Itu adalah buah dari kerja kerasnya. Saya akan membiarkan kedua Keponakan membacanya dan kemudian melafalkannya dari ingatan. Siapa pun yang berhasil mengaji paling banyak akan ditunangkan dengan putriku.” Dia melihat Hong Qigong dengan sedikit senyum dingin di wajahnya, tetapi dia melanjutkan, “Sebenarnya, Keponakan Guo telah memenangkan satu subjek, tetapi buku ini telah sangat memengaruhi hidup saya sejak istri saya meninggal karenanya. Sekarang saya diam-diam berharap jiwanya di surga akan secara pribadi memilih menantu kami dan dia akan memberkati Keponakan yang menang.
+Huang Yaoshi mengeluarkan sebuah buku tipis dengan sampul sutra merah dari dadanya dan berkata, "Istriku dan aku hanya 
+memiliki seorang anak perempuan. Sayangnya dia meninggal sebelum waktunya. Hari ini Saudara Feng dan Saudara Qi ada di 
+sini untuk melamarnya. Jika istriku ada di sini, aku yakin dia akan sangat senang..." Mendengarkan ayahnya berbicara, 
+mata Huang Rong memerah. Huang Yaoshi melanjutkan, "Buku ini ditulis oleh istriku pada tahun yang sama ketika dia 
+meninggal. Ini adalah buah dari kerja kerasnya. Aku akan membiarkan kedua Keponakan ini membacanya dan kemudian 
+menghafalkannya. Siapa pun yang berhasil menghafal paling banyak akan ditunangkan dengan putriku." Ia memandang 
+Hong Qigong dengan senyum dingin tersamar di wajahnya, tetapi ia melanjutkan, "Sebenarnya Keponakan Guo sudah 
+memenangkan satu ujian, tetapi buku ini sangat memengaruhi hidupku, karena istriku meninggal akibat buku ini. Sekarang 
+aku diam-diam berharap jiwanya di surga akan secara pribadi memilih menantu kami, dan dia akan memberkati Keponakan yang 
+menang."
 
-Hong Qigong tidak bisa lagi mempertahankan kesabarannya. Dia berteriak keras dan jelas, “Old Heretic Huang! Siapa yang mau mendengarkan cerita hantu sentimental Anda? Anda tahu betul bahwa murid saya adalah orang bodoh dan tidak tahu buku atau puisi, namun Anda bersikeras untuk mengujinya tentang hal itu. Kemudian Anda menakut-nakuti dia dengan berbicara tentang istri muda Anda yang sudah meninggal. Kamu tidak tahu malu!” Dia menyikat lengan bajunya yang panjang dan membalikkan tubuhnya untuk pergi.
+Hong Qigong tidak bisa lagi mempertahankan kesabarannya. Ia berteriak keras dan jelas, "Huang Laoxie! Siapa yang mau 
+mendengarkan cerita hantumu? Kau tahu betul bahwa muridku orang bodoh, dan tidak tahu buku atau puisi, tapi kau 
+bersikeras untuk mengujinya tentang hal itu. Kemudian kau menakut-nakuti dia dengan berbicara tentang istri mudamu yang 
+sudah meninggal. Kau tidak tahu malu!" Dia mengebaskan lengan bajunya yang panjang dan membalikkan tubuhnya untuk pergi.
 
-Huang Yaoshi mencibir, "Kakak Qi, jika kamu datang ke Pulau Bunga Persik untuk memamerkan kekuatanmu, kamu masih perlu berlatih selama beberapa tahun lagi," katanya dengan dingin.
+Huang Yaoshi mencibir, "Qi Xiong, kalau kau datang ke Pulau Bunga Persik untuk memamerkan kekuatanmu, kau masih perlu 
+berlatih beberapa tahun lagi," katanya dengan dingin.
 
-Hong Qigong berhenti di jalurnya, "Apa?" dia mengangkat alisnya, "Kamu ingin melawanku?" Dia bertanya.
+Langkah Hong Qigong terhenti, "Apa?" Ia mengangkat alisnya. "Kau ingin melawanku?" Dia bertanya.
 
-“Kamu tidak mengerti teknik 'Gerbang Aneh Lima Elemen' [wu xing chi men...mengacu pada jalur seperti labirin di pulau],” jawab Huang Yaoshi, “Jangan pernah berpikir untuk meninggalkan pulau ini hidup-hidup tanpa izin."
+"Kau tidak mengerti teori 'Gerbang Aneh Lima Elemen'[^lima-elemen]," jawab Huang Yaoshi, "Jangan pernah berpikir untuk 
+meninggalkan pulau ini hidup-hidup tanpa seijinku."
+
+[^lima-elemen]: Ini berkaitan erat dengan Taoisme, terutama sekali yang berhubungan dengan [Ba Gua](referensi-karakter.md#ba-gua "Ba Gua/Pakuq/Patkwa = Delapan Trigram"). Kalau Anda pernah memainkan game semacam _Maze_, maka intinya kurang lebih adalah sama. Tetapi tentunya apa yang disusun Huang Yaoshi di Pulau Persik jauh lebih rumit dari game modern, karena semuanya berdasarkan Ba Gua dan ajaran dasar Taoisme.
 
 Hong Qigong marah, "Aku akan membakar pohon dan semak bungamu yang bau!"
 
-"Jika kamu memiliki kemampuan, silakan dan coba!" Huang Yaoshi dengan dingin menantang.
+"Kalau kau punya kemampuan untuk itu, silakan coba!" kata Huang Yaoshi dengan dingin dan menantang.
 
-Guo Jing tahu mereka berdua akan bertarung dan dia juga tahu bahwa Pulau Bunga Persik tidak bisa dianggap enteng; dia takut tuannya akan jatuh ke dalam perangkap di pulau itu. Dia dengan cepat melangkah maju dan berkata, “Tuan Pulau Huang, Shifu, biarkan murid dan kakak laki-laki Ouyang ini bersaing dalam kontes menghafal buku ini. Murid benar-benar bodoh; jika saya kalah, saya kalah.” Tapi di dalam hatinya dia berpikir, “Aku akan menunggu sampai Shifu aman, lalu Ronger dan aku akan melompat ke laut dan berenang sejauh kekuatan kita membawa kita. Lalu kita akan mati bersama di laut.”
+Guo Jing tahu mereka berdua akan bertarung, dan ia juga tahu bahwa Pulau Bunga Persik tidak bisa dianggap enteng. Ia 
+takut gurunya akan jatuh ke dalam perangkap di pulau itu. Ia cepat-cepat melangkah maju dan berkata, "Huang Daozhu, 
+Shifu, biarkan dizi dan Ouyang Dage ini bersaing sekali lagi dalam lomba menghafal buku ini. Dizi benar-benar bodoh, 
+dizi kalah, berarti memang kalah." Tapi di dalam hatinya ia berpikir, "Aku akan menunggu sampai Shifu aman, lalu Rong'er 
+dan aku akan melompat ke laut, dan berenang sejauh kekuatan kami mampu membawa kami. Lalu kami akan mati bersama di laut."
 
-"Besar!" Hong Qigong berkata dengan mengejek, “Kamu tidak sabar untuk kehilangan muka, bukan? Jadilah tamuku, kalau begitu! Jadilah tamuku.” Pemikirannya adalah, 'kalau toh kamu akan kalah, mengapa harus bersaing?' Dia bermaksud membawa murid-muridnya dan berjalan pergi ke pantai, merebut perahu dan berlayar menjauh dari pulau. Siapa yang mengira bahwa muridnya yang bodoh ini tidak akan bertindak sesuai dengan keadaan? Dia tidak punya pilihan selain menyerah.
+"Hebat!" ejek Hong Qigong. "Kau sudah tidak sabar untuk kehilangan muka, kan? Silakan kalau begitu! Silakan!" 
+Pemikirannya adalah, 'kalau toh kau akan kalah, mengapa harus bersaing?' Ia bermaksud membawa murid-muridnya dan 
+berjalan pergi ke pantai, merebut perahu dan berlayar menjauh dari pulau. Siapa yang mengira bahwa muridnya yang bodoh 
+ini tidak akan bertindak sesuai dengan keadaan? Ia tidak punya pilihan selain menyerah.
 
-“Jadilah gadis yang baik dan duduk dengan tenang. Jangan berpikir aneh-aneh,” kata Huang Yaoshi kepada putrinya.
+"Jadilah anak yang baik dan duduk dengan tenang. Jangan berpikir aneh-aneh," kata Huang Yaoshi kepada putrinya.
 
-Huang Rong tidak mengatakan apa-apa, tapi dia berharap Guo Jing akan gagal dalam ujian berikutnya. Ayahnya berkata bahwa dia akan membiarkan almarhum ibunya memilih menantu mereka; itu berarti dua tes sebelumnya yang dimenangkan Guo Jing tidak dihitung sama sekali. Dari tiga tes, Guo Jing jelas memenangkan yang kedua, jadi keputusan seri sulit diterima. Singkatnya, dia percaya bahwa alasan ayahnya bersikeras melakukan tes ketiga adalah agar Ouyang Ke menang. Dia mulai menyusun rencana pelarian tentang bagaimana dia akan mengeluarkan Guo Jing dari pulau itu.
+Huang Rong tidak mengatakan apa-apa, tapi ia menduga Guo Jing akan gagal dalam ujian berikutnya. Ayahnya berkata 
+bahwa dia akan membiarkan almarhum ibunya memilih menantu mereka, itu berarti dua tes sebelumnya yang dimenangkan 
+Guo Jing tidak dihitung sama sekali. Dari tiga tes, Guo Jing jelas memenangkan yang kedua, jadi keputusan seri sulit 
+diterima. Singkatnya, ia percaya bahwa alasan ayahnya bersikeras melakukan tes ketiga adalah agar Ouyang Ke menang. 
+Ia mulai menyusun rencana untuk kabur, entah bagaimana caranya ia akan mengeluarkan Guo Jing dari pulau itu.
 
-Huang Yaoshi menyuruh Ouyang Ke dan Guo Jing untuk duduk berdampingan di atas batu besar; lalu dia mempresentasikan buku itu di depan mereka. Ouyang Ke melihat sampulnya ditulis dengan karakter segel [yang ditemukan di dokumen resmi] dengan enam karakter, 'Panduan Sembilan Yin' [jiu yin zhen jing]; dia sangat gembira. “‘Pedoman Sembilan Yin’ adalah pedoman seni bela diri paling mendalam di dunia; Ayah mertua pasti sangat menyayangi saya karena mengizinkan saya membaca buku yang luar biasa ini.” Guo Jing, di sisi lain, juga melihat keenam karakter itu tetapi tidak tahu apa itu; dia berpikir, “Dia sengaja ingin mempersulit saya. Bagaimana saya tahu karakter kecebong melengkung seperti itu? Bagaimanapun aku akan mengaku kalah.”
+Huang Yaoshi menyuruh Ouyang Ke dan Guo Jing untuk duduk berdampingan di atas batu besar, lalu ia memperlihatkan buku 
+itu di depan mereka. Ouyang Ke melihat di sampulnya tertulis dengan karakter segel[^karakter-segel] dengan enam karakter, [Jiu Yin Zhen Jing](referensi-karakter.md#jiu-yin-zhen-jing "Kitab Sembilan Bulan."), ia sangat gembira. "Kitab Sembilan 
+Bulan adalah buku pedoman kungfu paling mendalam di dunia ini. Ayah mertua pasti sangat menyayangiku, karena mengijinkan 
+aku membaca buku yang luar biasa ini." pikirnya. Di pihak lain, Guo Jing juga melihat keenam karakter itu, tetapi ia tidak 
+memahaminya. Ia berpikir, "Dia sengaja ingin mempersulit aku. Bagaimana bisa tahu arti karakter _kecebong melengkung_ 
+seperti itu? Bagaimanapun juga aku akan mengaku kalah."
 
-Huang Yaoshi membuka sampulnya dan buku itu sebenarnya ditulis dengan karakter normal. Tulisan tangannya anggun dan jelas ditulis oleh tangan perempuan. Guo Jing mulai membaca dan jantungnya berdetak kencang. Baris pertama berbunyi, “Jalan Surga: Perbaikan sederhana tidak cukup untuk memperbaiki kerusakan; itu benar-benar kemenangan kosong, tidak cukup untuk kemenangan yang nyata. Itu persis seperti kalimat yang Zhou Botong suruh untuk dihafal. Dia melihat lebih jauh ke bawah dan yang mengejutkannya, kalimat itu adalah kalimat yang sudah dia hafal.
+[^karakter-segel]: Zhuan Shu (篆书), atau Seal Script, adalah karakter-karakter yang bisa ditemukan dalam dokumen-dokumen resmi, seperti misalnya, Titah Kaisar, Tata Tertib Istana, dan sebagainya. Semuanya ini adalah karakter kuno yang berasal dari era Dinasti Shang, atau bahkan lebih kuno lagi. Stempel Kekaisaran juga memakai karakter ini. Kurang jelas mengapa di situ dikatakan bahwa nama kitab itu ditulis dalam enam karakter, padahal sudah jelas empat. Kemungkinan besar ini mengandung kalimat semacam 'Buku Satu', atau sejenisnya.
 
-Huang Yaoshi menunggu sebentar, dan ketika dia mengira keduanya telah selesai, dia membalik halaman itu. Di halaman kedua kata dan frase sedikit rusak, dan lebih jauh ke dalam buku, kalimat menjadi lebih membingungkan dan karakter terlihat lembut dan lemah.
+Huang Yaoshi membuka sampulnya, dan buku itu sebenarnya ditulis dengan karakter normal. Tulisan tangannya anggun dan 
+jelas ditulis oleh tangan perempuan. Guo Jing mulai membaca dan jantungnya berdetak kencang. Baris pertama berbunyi, 
+"Jalan Surga, perbaikan sederhana tidak cukup untuk memperbaiki kerusakan, itu benar-benar kemenangan kosong, tidak 
+cukup untuk kemenangan yang nyata." Kalimat tu persis seperti kalimat yang dihafalkannya karena disuruh Zhou Botong. 
+Ia melihat lebih jauh ke bawah, dan ia lebih terkejut lagi, karena semua kalimat itu adalah kalimat yang sudah 
+dihafalkannya dengan susah payah.
 
-Hati Guo Jing terguncang lagi ketika dia mengingat cerita Zhou Botong tentang bagaimana Nyonya Huang menulis ulang 'Panduan Sembilan Yin' dari ingatan dan bagaimana hal itu menguras emosi dan fisiknya sehingga dia meninggal saat melahirkan anaknya. Buku ini jelas yang dia tulis sebelum dia meninggal. "Mungkinkah yang diajarkan Kakak Zhou kepadaku adalah 'Pedoman Sembilan Yin'?" dia bertanya-tanya dalam hatinya. "TIDAK. Itu tidak mungkin. Volume kedua dari 'Panduan Sembilan Yin' hilang oleh Mei Chaofeng; dari mana dia mendapatkannya?”
+Huang Yaoshi menunggu sebentar, dan ketika ia mengira keduanya telah selesai, ia membalik halaman itu. Di halaman kedua 
+kata dan frase agak rusak, dan lebih jauh ke dalam buku, kalimat menjadi lebih membingungkan dan karakter-karakternya 
+tampak lembut dan lemah.
 
-Huang Yaoshi melihatnya menatap kosong, melamun dan bahkan tampak bingung. Dia tidak memperhatikan lebih lanjut dan perlahan membalik halaman satu per satu. Awalnya Ouyang Ke mampu menghafal apa yang tertulis, tetapi kemudian ketika sampai pada metode pelatihan, kalimatnya kacau dan tidak ada hubungan yang jelas antara yang sebelumnya dan yang berikutnya. Lebih jauh ke dalam buku, bahkan karakternya pun tidak jelas. Hatinya tenggelam dan dia tidak bisa menahan desahan dalam hati, "Sepertinya dia masih tidak mau menunjukkan kepada saya Manual teks lengkap yang sebenarnya." Tapi kemudian dia memiliki pemikiran lain, “Meskipun saya tidak dapat melihat Manual lengkapnya, dibandingkan dengan anak bodoh ini saya yakin saya telah menghafal lebih banyak teks. Dengan ujian ini kemenanganku telah diputuskan.” Memiliki pemikiran ini, dia merasa puas dan tidak bisa menahan diri untuk tidak melirik ke arah Huang Rong.
+Hati Guo Jing terguncang lagi ketika ia mengingat cerita Zhou Botong tentang bagaimana Huang Furen menulis ulang 
+Jiu Yin Zhen Jing hanya berdasarkan ingatan, dan bagaimana hal itu menguras emosi dan fisiknya sehingga ia meninggal 
+saat melahirkan anaknya. Buku ini jelas adalah yang ditulisnya sebelum meninggal. "Mungkinkah yang diajarkan Kakak 
+Zhou kepadaku adalah Jiu Yin Zhen Jing?" pikirnya, bertanya-tanya dalam hati. "Tidak! Itu tidak mungkin! Jilid kedua 
+dari Jiu Yin Zhen Jing hilang di tangan Mei Chaofeng, dari mana dia bisa mendapatkannya?"
 
-Huang Rong menangkap pandangannya dan dia menjulurkan lidah sambil membuat wajah jelek. “Kakak Ouyang,” katanya, “Kamu menangkap Saudari Mu dan memasukkannya ke dalam peti mati di kuil leluhur. Anda mencekiknya sampai mati. Dia datang ke dalam mimpiku tadi malam; rambutnya acak-acakan, wajahnya berlumuran darah dan dia bilang dia mencarimu; dia ingin mengambil nyawamu.”
+Huang Yaoshi melihatnya menatap kosong, melamun, dan bahkan tampak bingung. Ia tidak memperhatikan lebih lanjut, dan 
+perlahan membalik halaman satu per satu. Awalnya Ouyang Ke mampu menghafal apa yang tertulis, tetapi kemudian ketika 
+sampai di metode latihan, kalimatnya kacau dan tidak ada hubungan yang jelas antara yang sebelumnya dan yang berikutnya. 
+Lebih jauh ke dalam buku, bahkan karakternya pun tidak jelas. Semangatnya tenggelam dan ia tidak bisa menahan desahan 
+dalam hati, "Sepertinya dia masih tidak mau menunjukkan kepadaku tulisan lengkap kitab itu yang sebenarnya." Tapi 
+kemudian ia punya pikiran lain, "Meskipun aku tidak bisa melihat buku lengkapnya, dibandingkan dengan bocah tolol ini 
+aku yakin aku menghafal lebih banyak tulisan. Dengan ujian ini kemenanganku sudah bisa dipastikan." Punya pikiran 
+seperti ini ia merasa puas, dan tidak bisa menahan diri untuk melirik ke arah Huang Rong.
 
-Ouyang Ke sudah lama melupakannya dan sekarang, tiba-tiba, Huang Rong menyebutkan namanya; dia terkejut, “Aiyo! Aku lupa mengeluarkannya dari sana!” Dia berpikir dalam hati, “Sayang sekali seorang gadis muda seperti dia meninggal karena mati lemas.” Tapi kemudian dia melihat Huang Rong sedang tersenyum; rupanya dia bercanda. “Bagaimana kamu tahu dia ada di peti mati? Apakah Anda menyelamatkannya?” Dia bertanya.
+Huang Rong menangkap pandangannya dan menjulurkan lidah sambil membuat wajah jelek. "Kakak Ouyang," katanya, "Kau 
+menangkap Mu Jiejie dan memasukkannya ke dalam peti mati di kuil leluhur. Kau mencekiknya sampai mati. Dia datang 
+ke dalam mimpiku tadi malam, rambutnya acak-acakan, wajahnya berlumuran darah dan dia bilang mau mencarimu. Dia 
+ingin mengambil nyawamu."
 
-Ouyang Feng tahu Huang Rong sedang mencoba mengacaukan pikiran keponakannya, sehingga dia tidak dapat mengingat teks itu. “Ke’er,” katanya, “Jangan repot-repot dengan hal lain; hanya berkonsentrasi pada buku. Ouyang Ke menggigil. “Ya,” katanya; dan dengan cepat mengalihkan pandangannya kembali ke buku itu.
+Ouyang Ke sudah lama melupakannya, dan sekarang tiba-tiba Huang Rong menyebutkan namanya. Ia terkejut, "Wah, celaka! 
+Aku lupa mengeluarkannya dari sana!" Ia berpikir, "Sayang sekali seorang gadis muda seperti dia mati lemas di dalam 
+peti mati." Tapi kemudian ia melihat Huang Rong sedang tersenyum, rupanya ia bercanda. "Bagaimana kau bisa tahu dia 
+ada di peti mati? Kau menyelamatkan dia?" tanyanya.
 
-Guo Jing memperhatikan bahwa kalimat dalam buku itu hampir sama dengan yang diajarkan Zhou Botong kepadanya. Yang ada dalam ingatannya bahkan lebih berintegritas daripada yang ada di buku ini. Buku ini berisi banyak lubang, kalimat yang tidak lengkap dan kata-kata yang hilang di dalamnya. Dia mengangkat kepalanya dan menatap dahan-dahan pohon, mencoba memahami semua itu.
+Ouyang Feng tahu Huang Rong sedang mencoba mengacaukan pikiran keponakannya, supaya ia tidak bisa mengingat teks itu. 
+"Ke'er," katanya, "Jangan repot-repot dengan hal lain, hanya konsentrasi pada buku!" Ouyang Ke menggigil. "Ya," katanya, 
+dan dengan cepat mengalihkan pandangannya kembali ke buku itu.
 
-Beberapa saat kemudian Huang Yaoshi membalik halaman terakhir. "Siapa yang akan membaca pertama?" Dia bertanya.
+Guo Jing memperhatikan bahwa kalimat dalam buku itu hampir sama dengan yang diajarkan Zhou Botong kepadanya. Yang ada 
+dalam ingatannya bahkan lebih teratur daripada yang ada di buku ini. Buku ini mengandung banyak lubang, kalimat yang 
+tidak lengkap dan kata-kata yang hilang di dalamnya. Ia mengangkat kepalanya dan menatap dahan-dahan pohon, mencoba 
+memahami semua itu.
 
-Ouyang Ke berpikir, “Buku ini membingungkan dan sangat sulit untuk dihafal. Saya lebih baik melafalkannya selagi masih segar dalam ingatan saya.” Menyambar kesempatan dia berkata, "Saya akan."
+Beberapa saat kemudian Huang Yaoshi membalik halaman terakhir. "Siapa yang akan membaca pertama?" tanyanya.
 
-Huang Yaoshi menganggukkan kepalanya, lalu kepada Guo Jing dia berkata, “Silakan pergi ke alur bambu di sana. Anda tidak dapat mendengarkan dia membaca.”
+Ouyang Ke berpikir, "Buku ini membingungkan dan sangat sulit untuk dihafal. Aku lebih baik mehafalkannya selagi masih 
+segar dalam ingatan." Menyambar kesempatan ia berkata, "Aku!"
 
-Guo Jing mematuhinya dan berjalan beberapa puluh langkah menuju alur bambu. Huang Rong melihat ini sebagai kesempatan bagus bagi mereka untuk melarikan diri bersama, jadi dia diam-diam berjalan ke arahnya. Huang Yaoshi tiba-tiba berseru, “Rong'er, kemarilah! Anda harus mendengarkan mereka melafalkan, jika tidak, Anda akan mengatakan saya sepihak.”
+Huang Yaoshi menganggukkan kepalanya, lalu kepada Guo Jing ia berkata, "Silakan pergi ke hutan bambu di sana. Kau tidak 
+boleh mendengarkan dia menghafal."
 
-"Kamu sepihak," jawab Huang Rong, "Kamu tidak perlu orang lain mengatakan itu."
+Guo Jing mematuhinya dan berjalan beberapa puluh langkah menuju hutan bambu. Huang Rong melihat ini sebagai kesempatan 
+bagus bagi mereka untuk melarikan diri bersama, jadi ia diam-diam berjalan ke arahnya. Huang Yaoshi tiba-tiba berseru, 
+"Rong'er, sini! Kau harus mendengarkan mereka menghafalkan, kalau tidak kau akan bilang aku berpihak!"
 
-"Itu tidak masuk akal!" Huang Yaoshi tertawa, "Kemarilah!"
+"Ayah _memang_ berpihak," jawab Huang Rong. "Tidak perlu orang lain yang mengatakan itu."
 
-Dengan mulutnya, Huang Rong diam-diam berkata, "Aku tidak ingin datang," tetapi dia tahu betul temperamen ayahnya; begitu dia memutuskan untuk menjaganya di bawah pengawasannya, akan semakin sulit baginya untuk melarikan diri. Perlahan dia berjalan kembali ke arah mereka, memberikan Ouyang Ke senyum termanisnya dan berkata, "Kakak Ouyang, apa yang baik tentangku sehingga kamu sangat menyukaiku?"
+"Itu tidak masuk akal!" kata Huang Yaoshi sambil tertawa. "Sini!"
 
-Hati Ouyang Ke meleleh dan pandangannya kabur. Sambil menyeringai lebar dia menjawab, “Adik, kamu… kamu…” dia tidak bisa mengatakan lebih dari itu.
+Dengan mulutnya Huang Rong diam-diam berkata, "Aku tidak ingin datang," tetapi ia tahu betul temperamen ayahnya, begitu 
+dia memutuskan untuk mengawasi semua langkahnya, akan semakin sulit baginya untuk melarikan diri. Perlahan ia berjalan 
+kembali ke arah mereka, memberikan Ouyang Ke senyum termanisnya dan berkata, "Kakak Ouyang, apa yang baik dari aku, 
+sehingga kau sangat menyukaiku?"
 
-“Jangan terlalu cepat kembali ke Barat,” Huang Rong menambahkan, “Tinggallah di Pulau Bunga Persik selama beberapa hari. Barat sangat dingin, bukan?”
+Hati Ouyang Ke meleleh dan pandangannya kabur. Sambil menyeringai lebar ia menjawab, "Mei Mei, kau... kau..." ia tidak bisa mengatakan lebih dari itu.
 
-“Barat jauh lebih besar dari yang Anda kira. Ada beberapa daerah dingin, tidak diragukan lagi, tetapi bagian lain hangat dan cerah, seperti selatan (Jiangnan),” jawab Ouyang Ke.
+"Jangan terlalu cepat kembali ke Barat," tambah Huang Rong. "Tinggallah di Pulau Bunga Persik selama beberapa hari lagi. 
+Barat sangat dingin, kan?"
 
-"Aku tidak percaya padamu," Huang Rong tersenyum, "Kamu suka menipu orang."
+"Barat jauh lebih besar dari yang kau kira. Ada beberapa daerah dingin, tidak diragukan lagi, tetapi bagian lain hangat 
+dan cerah, seperti Jiangnan," jawab Ouyang Ke.
 
-Ouyang Ke hendak berdebat dengannya, tetapi Ouyang Feng dengan dingin berkata, “Nak, kamu bisa mengobrol lagi nanti; sekarang kamu perlu membaca buku itu.”
+"Aku tidak percaya," kata Huang Rong tersenyum. "Kau suka menipu orang."
 
-Ouyang Ke terkejut; dia menyadari bahwa percakapan Huang Rong dimaksudkan untuk membuatnya bingung, dan memang dia sekarang telah melupakan banyak karakter dari bagian yang membingungkan. Karena itu dia memfokuskan kembali perhatiannya dan perlahan membaca buku itu. “Jalan Surga: Perbaikan sederhana tidak cukup untuk memperbaiki kerusakan; itu benar-benar kemenangan kosong, tidak cukup untuk yang nyata…”
+Ouyang Ke hendak berdebat dengannya, tetapi Ouyang Feng dengan dingin berkata, "Nak, kau bisa mengobrol lagi nanti, 
+sekarang kau perlu menghafalkan buku itu."
 
-Ingatannya cukup baik; dia berhasil mengingat sebagian besar teori di bagian depan, tetapi menjelang bagian akhir buku – di mana metode pelatihan dijelaskan, dia banyak ketinggalan. Sebenarnya tidak mengherankan, karena Madame Huang tidak tahu seni bela diri dan beberapa waktu kemudian dia menulis ulang buku itu dari ingatan, jadi kata-katanya tanpa sadar campur aduk. Ouyang Ke hanya berhasil mengingat sekitar sepuluh persen dari bagian terakhir ini. Sementara itu Huang Rong terus berusaha mengalihkan perhatiannya dengan berkata, “Tidak benar! Kamu salah ingat!” Dia bahkan tidak dapat mengingat sepuluh persen menjelang akhir buku.
+Ouyang Ke terkejut, ia baru menyadari bahwa percakapan Huang Rong tadi dimaksudkan untuk membuatnya bingung, dan memang 
+sekarang ia telah melupakan banyak karakter dari bagian yang membingungkan. Karena itu ia memusatkan kembali perhatiannya 
+dan perlahan membaca buku itu. "Jalan Surga, perbaikan sederhana tidak cukup untuk memperbaiki kerusakan, itu benar-benar 
+kemenangan kosong, tidak cukup untuk yang nyata..."
 
-Huang Yaoshi tersenyum dan berkata, "Kamu mengingat sebanyak itu dan itu sangat bagus!" Dengan meninggikan suaranya, dia berseru, "Keponakan Guo, giliranmu untuk melafalkan."
+Ingatannya cukup baik. Ia berhasil mengingat sebagian besar teori di bagian depan, tetapi menjelang bagian akhir buku —
+di mana metode latihan dijelaskan, ia banyak lupa. Sebenarnya tidak mengherankan, karena Nyonya Huang tidak mengerti 
+ilmu bela diri, dan beberapa waktu kemudian ia baru menulis ulang buku itu dari ingatan, jadi kata-katanya tanpa sadar 
+campur aduk. Ouyang Ke hanya berhasil mengingat sekitar sepuluh persen dari bagian terakhir ini. Sementara itu Huang Rong 
+terus berusaha mengalihkan perhatiannya dengan berkata, "Tidak benar! Kau salah ingat!" Ia bahkan tidak dapat mengingat 
+sepuluh persen menjelang akhir buku.
 
-Guo Jing berjalan kembali dan, melihat ekspresi sombong di wajah Ouyang Ke, dia berpikir, “Pria ini sangat pintar, dia hanya membacanya sekali, namun dia masih bisa melafalkan teks omong kosong ini. Saya tidak memiliki kemampuan itu, jadi saya lebih baik melafalkan yang diajarkan Kakak Zhou kepada saya. Kalau salah, ya sudahlah… saya tidak punya pilihan.”
+Huang Yaoshi tersenyum dan berkata, "Kamu mengingat sebanyak itu, dan itu sangat bagus!" Dengan meninggikan suaranya, 
+ia berseru, "Keponakan Guo, giliranmu untuk menghafal."
 
-Hong Qigong berkata, “Bocah bodoh, mereka sengaja ingin membodohi kita; mereka merencanakan semuanya.”
+Guo Jing berjalan kembali, dan melihat ekspresi sombong di wajah Ouyang Ke ia berpikir, "Orang ini sangat pintar, dia 
+hanya membacanya sekali, tapi dia masih bisa mengingatkan tulisan omong kosong ini. Aku tidak punya kemampuan itu, 
+jadi aku lebih baik menghafalkan yang diajarkan Kakak Zhou. Kalau salah, ya sudahlah... aku tidak punya pilihan."
 
-Huang Rong tiba-tiba menendang tanah dan melompat ke atas paviliun bambu. Dengan jentikan tangannya dia menunjuk belati ke dadanya sendiri dan berkata, "Ayah, jika ayah bersikeras aku pergi ke Barat dengan bocah bau itu, aku akan mati di sini sekarang di hadapanmu."
+Hong Qigong berkata, "Anak bodoh, mereka sengaja ingin membodohi kita, mereka merencanakan semuanya."
 
-Huang Yaoshi tahu putrinya yang berharga akan melakukan apa yang dikatakannya, jadi dia berteriak, “Letakkan belati itu! Kita bisa membicarakannya.”
+Huang Rong tiba-tiba menendang tanah dan melompat ke atas pondok bambu. Dengan sentilan tangannya ia menodongkan belati 
+ke dadanya sendiri dan berkata, "Ayah, kalau ayah bersikeras aku pergi ke Barat dengan bocah engik itu, aku akan mati di 
+sini sekarang di hadapanmu."
 
-Ouyang Feng mendorong tongkatnya ke tanah dan dengan suara mendengung, sesuatu terbang dari tongkat itu langsung ke arah Huang Rong. Proyektil tersembunyi itu sangat cepat; sebelum Huang Rong bisa melihat apa itu, dia sudah mendengar suara dentang dan belati terbang dari tangannya, jatuh ke tanah. Pada saat yang sama Huang Yaoshi melompat ke atap, merentangkan tangannya, meraih bahu putrinya dan dengan lembut berkata, “Tidak apa-apa jika kamu tidak ingin menikah. Kamu bisa tinggal di Pulau Bunga Persik dan menemani ayahmu selama sisa hidupmu.”
+Huang Yaoshi tahu putri tunggalnya ini akan melakukan apa saja yang dikatakannya, jadi ia berteriak, "Letakkan pisau itu! 
+Kita bisa membicarakannya."
 
-Huang Rong mengayunkan tangan dan kakinya, menangis, “Ayah, kamu tidak mencintai Rong'er! Kamu tidak mencintai Rong'er!"
+Ouyang Feng mendorong tongkatnya ke tanah dan dengan suara mendengung, sesuatu terbang dari tongkat itu langsung ke arah 
+Huang Rong. Senjata rahasia itu sangat cepat, sebelum Huang Rong bisa melihat apa itu, ia sudah mendengar suara dentang 
+dan belati itu terbang dari tangannya, jatuh ke tanah. Pada saat yang sama Huang Yaoshi melompat ke atap, merentangkan 
+tangannya, meraih bahu putrinya dan dengan lembut berkata, "Tidak apa-apa kalau kau tidak ingin menikah. Kau bisa tinggal 
+di Pulau Bunga Persik dan menemani ayahmu selama sisa hidupmu."
 
-Hong Qigong geli melihat Huang Yaoshi, yang menjelajahi danau dan laut tanpa rasa takut, yang membunuh orang tanpa mengedipkan mata, sebenarnya kesulitan mengendalikan putrinya sendiri. Dia tidak bisa menahan tawa yang sangat keras.
+Huang Rong mengayunkan tangan dan kakinya, menangis, "Ayah, ayah tidak mencintai Rong'er! Ayah tidak mencintai Rong'er!"
 
-Ouyang Feng berpikir, “Saya akan menunggu keputusan akhir dan kemudian saya akan mengurus Pengemis Tua ini dan anak laki-laki bermarga Guo itu. Kami akan memilah hal-hal lain nanti. Jika gadis ini bertingkah seperti anak manja, apa peduliku?” Oleh karena itu dia berkata, “Keterampilan seni bela diri Keponakan Guo sangat bagus; dia adalah pahlawan muda sejati. Kecerdasannya juga harus prima. Saudara Yao, sebaiknya Anda memintanya untuk melafalkan.”
+Hong Qigong geli melihat Huang Yaoshi yang menjelajahi danau dan laut tanpa rasa takut, yang membunuh orang tanpa 
+mengedipkan mata, sebenarnya kesulitan mengendalikan putrinya sendiri. Ia tidak bisa menahan perasaannya lagi, dan tertawa
+keras-keras.
 
-"Tepat!" Huang Yaoshi berkata, "Rong'er, jika kamu terus mengoceh, kamu akan mengganggu konsentrasi Keponakan Guo." Huang Rong segera menutup mulutnya.
+Ouyang Feng berpikir, "Aku akan menunggu keputusan akhir dan kemudian aku akan mengurus Pengemis Tua ini, dan bocah 
+bermarga Guo itu. Kita akan memilah hal-hal lain nanti. Kalau gadis ini bertingkah seperti anak manja, apa peduliku?" 
+Oleh karena itu ia berkata, "Kungfu Keponakan Guo sangat bagus, dia adalah pendekar muda sejati. Kecerdasannya juga 
+harus prima. Yao Xiong, sebaiknya biarkan dia mulai menghafal."
 
-Ouyang Feng sangat ingin mempermalukan Guo Jing. “Keponakan Guo, tolong mulai membaca. Kami akan mendengarkan dengan hormat,” desaknya.
+"Betul!" kata Huang Yaoshi. "Rong'er, kalau kau terus mengoceh, kau akan mengganggu konsentrasi Keponakan Guo." 
+Huang Rong segera menutup mulutnya.
 
-Wajah Guo Jing memerah saat dia berpikir, “Aku tidak bisa melakukannya; Saya lebih baik melafalkan apa yang diajarkan Kakak Zhou kepada saya. Setelah itu dia mulai melafalkan, “Jalan Surga: Perbaikan sederhana tidak cukup untuk memperbaiki kerusakan; itu benar-benar kemenangan kosong, tidak cukup untuk yang nyata …” Dia telah melafalkan 'Pedoman Sembilan Yin' dari awal hingga akhir ratusan kali sebelumnya; sekarang itu tertanam dalam di otaknya. Dia membaca perlahan tapi pasti tanpa ragu sama sekali.
+Ouyang Feng sangat ingin mempermalukan Guo Jing. "Keponakan Guo, tolong mulai membaca. Kami akan mendengarkan dengan 
+hormat," desaknya.
 
-Sekitar setengah halaman kemudian semua orang tercengang dan mereka berpikir, “Anak ini terlihat lamban dan bodoh, siapa yang tahu bahwa dia sebenarnya sangat pintar.”
+Wajah Guo Jing memerah, ia berpikir, "Aku tidak bisa melakukannya. Aku lebih baik menghafalkan apa yang diajarkan 
+Kakak Zhou. Setelah itu ia mulai menghafal, "Jalan Surga, perbaikan sederhana tidak cukup untuk memperbaiki kerusakan, 
+itu benar-benar kemenangan kosong, tidak cukup untuk yang nyata..." Ia sudah menghafal isi Jiu Yin Zhen Jing dari awal 
+hingga akhir ratusan kali sebelumnya. Sekarang semua itu tertanam dalam di otaknya. Ia membaca perlahan tapi pasti tanpa 
+ragu sama sekali.
 
-Segera Guo Jing telah mencapai halaman keempat. Hong Qigong dan Huang Rong tahu betul bahwa Guo Jing tidak memiliki kecerdasan seperti itu dan mereka tidak tahu apa yang merasukinya, tetapi mereka sangat terkejut.
+Sekitar setengah halaman kemudian semua orang tercengang dan mereka berpikir, "Anak ini kelihatannya lamban dan bodoh, 
+tapi ternyata sebenarnya sangat pintar."
 
-Huang Yaoshi mendengarkan dengan penuh perhatian dan membandingkan setiap kata dengan yang ada di buku. Dia menemukan bahwa kalimat Guo Jing sepuluh kali lebih logis; tegas menyerupai teks asli yang dia ingat. Hatinya menjadi dingin dan dia tanpa sadar berkeringat dingin. “Mungkinkah arwah istriku yang sudah meninggal di dunia bawah sangat pintar sehingga dia berhasil mengingat teks lengkapnya dan meneruskannya kepada anak laki-laki ini?” Kata-kata itu terus keluar dari mulut Guo Jing seperti tetesan air. Huang Yaoshi mulai yakin bahwa semangat istrinya membantu anak muda ini; dia melihat ke langit dan dengan lembut bergumam, “A Heng, A Heng, kamu sangat mencintaiku sehingga kamu menggunakan mulut anak laki-laki ini untuk memberikan manual kepadaku. Tapi mengapa Anda tidak membiarkan saya melihat Anda sekilas? Saya telah memainkan seruling saya setiap malam untuk Anda; apakah kamu mendengarnya?”
+Dengan cepat Guo Jing mencapai halaman keempat. Hong Qigong dan Huang Rong tahu betul bahwa Guo Jing tidak punya 
+kecerdasan seperti itu, dan mereka tidak tahu apa yang merasukinya, mereka sangat terkejut.
 
-'A Heng' adalah nama panggilan Nyonya Huang dan tidak ada orang lain selain dia yang mengetahui hal ini; tentu saja tidak ada orang lain yang tahu apa yang dia bicarakan. Mereka melihat wajahnya tampak berbeda; matanya berkaca-kaca, mulutnya bergetar tetapi tidak ada yang keluar darinya; mereka bingung.
+Huang Yaoshi mendengarkan dengan penuh perhatian dan membandingkan setiap kata dengan yang ada di buku. Ia menemukan 
+kenyataan bahwa kalimat Guo Jing sepuluh kali lebih logis, tegas, dan menyerupai teks asli yang bisa diingatnya. 
+Hatinya menjadi dingin dan ia tanpa sadar berkeringat dingin. "Mungkinkah arwah istriku yang sudah meninggal di 
+dunia bawah tanah begitu pintarnya, sehingga dia berhasil mengingat teks lengkapnya, dan meneruskannya kepada bocah ini?"
+Kata-kata itu terus mengalir dari mulut Guo Jing seperti tetesan air. Huang Yaoshi mulai yakin bahwa semangat istrinya 
+membantu anak muda ini, ia melihat ke langit dan dengan lembut bergumam, "Ah Heng, Ah Heng, kau sangat mencintaiku, 
+sehingga kau menggunakan mulut anak laki-laki ini untuk memberikan kitab kepadaku. Tapi kenapa kau tidak membiarkan aku 
+melihatmu sekilas saja? Aku sudah memainkan serulingku setiap malam untukmu, apakah kau mendengarnya?"
 
-Setelah berada dalam kondisi linglung untuk beberapa saat, Huang Yaoshi tiba-tiba berpikir lain. Dia melambaikan tangannya untuk menghentikan Guo Jing. Wajahnya sedingin es di atasnya; dengan sengit dia bertanya, "'Panduan Sembilan Yin' yang hilang dari Mei Chaofeng, di mana kamu menemukannya?"
+Ah Heng adalah nama panggilan Nyonya Huang, dan tak ada orang lain selain dia yang mengetahui hal ini, tentu saja 
+tidak ada orang lain yang tahu apa yang dia bicarakan. Mereka melihat wajahnya tampak berbeda, matanya berkaca-kaca, 
+mulutnya bergetar tetapi tidak ada kata-kata yang keluar dari situ, mereka bingung.
 
-Guo Jing melihat matanya memiliki tatapan membunuh dan dia benar-benar ketakutan. “Murid benar-benar tidak tahu Mei … keberadaan Manual Senior Mei. Jika saya melakukannya, saya dengan senang hati akan membantu mengambilnya dan mengembalikannya ke Master Pulau.
+Setelah berada dalam kondisi linglung untuk beberapa saat, Huang Yaoshi tiba-tiba berpikir lain. Ia melambaikan 
+tangannya untuk menghentikan Guo Jing. Wajahnya sedingin es, dengan sengit ia bertanya, "Jiu Yin Zhen Jing yang hilang 
+dari Mei Chaofeng itu, di mana kau menemukannya?"
 
-Huang Yaoshi menatapnya dengan tatapan tajam namun tidak melihat sedikit pun tipu daya di wajah Guo Jing. Dia terpaksa percaya bahwa mendiang istrinya dari dunia bawahlah yang mengajari Guo Jing; ia merasakan suka dan duka dalam waktu yang bersamaan. Dengan suara lantang dan jelas dia memberikan keputusannya, “Baiklah. Saudara Qi, Saudara Feng, mendiang istri saya yang memilih menantu kami; saudaramu tidak punya hal lain untuk dikatakan. Nak, aku menunangkan Rong'er denganmu. Perlakukan dia dengan baik. Saya telah memanjakan Rong'er dengan buruk, jadi Anda harus menghasilkan tiga puluh persen dari waktu."
+Guo Jing melihat matanya menatap tajam, seolah-olah ingin membunuh, dan ia benar-benar ketakutan. "Dizi benar-benar 
+tidak tahu Mei... keberadaan Mei Qianbei. Kalau dizi melakukannya, dizi dengan senang hati akan membantu mengambilnya 
+dan mengembalikannya kepada Huang Daozhu."
 
-Huang Rong sangat gembira dan dia menyeringai dari telinga ke telinga, “Saya seorang gadis yang berperilaku sangat baik; siapa bilang aku sangat manja?”
+Huang Yaoshi menatapnya dengan tatapan tajam, tetapi ia tidak melihat sedikit pun tipu daya di wajah Guo Jing. Ia 
+terpaksa percaya bahwa mendiang istrinya dari dunia bawahlah yang mengajari Guo Jing, ia merasakan suka dan duka 
+dalam waktu yang bersamaan. Dengan suara lantang dan jelas ia memberikan keputusannya, "Baiklah! Qi Xiong, Feng Xiong, 
+mendiang istriku yang memilih menantu kami. Saudaramu tidak bisa bicara apa-apa lagi. Nak, aku menunangkan Rong'er 
+denganmu. Perlakukan dia dengan baik. Aku sudah memanjakan Rong'er dengan cara yang buruk, jadi kau harus meluangkan 
+tiga puluh persen dari waktumu untuk dia."
 
-Guo Jing mungkin bodoh, dia mungkin lambat, tapi kali ini dia tidak membutuhkan Huang Rong untuk mendorongnya; dia segera berlutut dan bersujud, "Ayah mertua!"
+Huang Rong sangat gembira dan ia tersenyum lebar, "Aku justru anak yang sangat baik, siapa bilang aku manja?"
 
-Dia belum berdiri kembali ketika Ouyang Ke tiba-tiba berseru, "Tunggu!"
+Guo Jing mungkin bodoh, ia mungkin lambat, tapi kali ini ia tidak membutuhkan Huang Rong untuk mendorongnya, ia segera 
+berlutut dan bersujud, "Yuefu!"
 
+Ia belum berdiri kembali ketika Ouyang Ke tiba-tiba berseru, "Tunggu!"
 
 
 [^gu-zheng]: Gu Zheng (古筝) adalah sitar dari era Dinasti Qin, yang awalnya diciptakan oleh Jendral Meng Tian. Sebetulnya alat musik ini agak berbeda dengan Gu Qin (古琴). Keduanya sama-sama dari Dinasti Qin, dan sama-sama sitar, tetapi Gu Qin punya 7 senar, sedangkan Gu Zheng punya 13 senar di era Dinasti Qin, tetapi bisa mencapai 21 senar di era yang lebih modern. Selain itu Gu Zheng dilengkapi dengan _bridge_ yang bisa digeser-geser di setiap senarnya. Karena instrumen yang dimainkan oleh Ouyang Feng dengan jelas disebut sebagai _zheng_, maka bisa kita tarik kesimpulan bahwa yang dimaksud adalah Gu Zheng.

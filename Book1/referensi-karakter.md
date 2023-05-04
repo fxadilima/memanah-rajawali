@@ -872,3 +872,8 @@ Berbeda dengan Jian Long Zai Tian yang memakai karakter Tian (田), karakter Tia
 yang berarti 'Langit'. Dan Naga memang seharusnya berada di langit. Dengan demikian ini melambangkan bahwa Sang Kaisar
 sedang menjalankan tugasnya baik-baik, di ruang kerjanya.
 
+### <a name="wuxing-qimen" id="wuxing-qimen">Wu Xing Qi Men (五行奇门)</a>
+
+Keempat karakter tersebut bisa diterjemahkan menjadi 'Pintu Gerbang Ajaib dari Lima Elemen'.
+Ini adalah bagian dari teori Lima Elemen (五行) yang berkaitan dengan ajaran Tao.
+
