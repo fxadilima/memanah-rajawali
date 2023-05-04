@@ -63,71 +63,132 @@ tangan Zhou Botong, Kakak Zhou..."
 "Jilid kedua ada di tangan Mei Chaofeng... Mei... tangan Mei Shijie, tapi hilang di Danau Tai," jelas Guo Jing. "Saat ini 
 dia di bawah perintah [Yuefu](panggilan.md#yuefu "Ayah Mertua") untuk mencarinya kemana-mana. Dizi berpikir bahwa setelah semuanya selesai di sini, dizi akan pergi dan membantunya."
 
-Ouyang Feng bertanya dengan sengit, "Jika Anda belum melihat 'Panduan Sembilan Yin', bagaimana Anda bisa melafalkannya dengan baik?"
+Ouyang Feng bertanya dengan sengit, "Kalau kau belum pernah melihat Jiu Yin Zhen Jing, bagaimana kau bisa menghafalkannya 
+dengan baik?"
 
-Guo Jing bingung. "Apakah saya melafalkan 'Panduan Sembilan Yin'?" dia bertanya, “Itu tidak mungkin. Saya membacakan teks yang diajarkan Kakak Zhou kepada saya; dia mengatakan itu adalah kreasi seni bela diri rahasianya sendiri.
+Guo Jing bingung. "Apa aku menghafalkan Jiu Yin Zhen Jing?" tanyanya. "Itu tidak mungkin. Aku membacakan tulisan yang 
+diajarkan Kakak Zhou, dia bilang itu adalah ilmu silat rahasianya sendiri."
 
-Huang Yaoshi menghela nafas dalam hati. Dia kecewa dan berpikir, “Zhou Botong menerima perintah mendiang saudara laki-lakinya untuk menjaga ‘Panduan Sembilan Yin’. Kami bermain kelereng dan dia kalah dari saya; Saya menipunya dan pada akhirnya dia membakar buku itu. Sampai saat itu dia sama sekali tidak melihat isi buku itu, yang sama sekali tidak aneh. Tapi sekarang tampaknya ada campur tangan ilahi; semuanya terjadi secara kebetulan sehingga putri saya akhirnya bertunangan dengannya. Bukankah dia sangat beruntung?”
+Huang Yaoshi menghela nafas dalam hati. Ia kecewa dan berpikir, "Zhou Botong menerima perintah mendiang kakak seperguruannya 
+untuk menjaga Jiu Yin Zhen Jing. Kami taruhan main kelereng, dan dia kalah. Aku menipunya, dan pada akhirnya dia membakar 
+buku itu. Sampai saat itu dia sama sekali tidak melihat isi buku itu, yang sama sekali tidak aneh. Tapi sekarang tampaknya 
+ada campur tangan ilahi, semuanya terjadi secara kebetulan sehingga putriku akhirnya bertunangan dengannya. Bukankah dia 
+sangat beruntung?"
 
-Huang Yaoshi masih tenggelam dalam pikirannya saat Ouyang Feng melanjutkan, "Di mana Zhou Botong sekarang?" Dia bertanya.
+Huang Yaoshi masih tenggelam dalam pikirannya saat Ouyang Feng melanjutkan, "Di mana Zhou Botong sekarang?" tanyanya.
 
-Guo Jing hendak menjawab ketika Huang Yaoshi memotongnya, "Jing'er, tidak perlu bicara lagi." Memalingkan kepalanya ke Ouyang Feng, dia berkata, “Ini masalah sepele, mengapa kamu begitu peduli? Saudara Feng, Saudara Qi, kita sudah tidak bertemu selama dua puluh tahun. Mari kita habiskan tiga hari bersama di Pulau Bunga Persik, minum sepuasnya.”
+Guo Jing hendak menjawab ketika Huang Yaoshi memotongnya, "Jing'er, tidak perlu bicara lagi." Ia memalingkan kepalanya 
+kepada Ouyang Feng, dan berkata, "Ini masalah sepele, mengapa kau begitu peduli? Saudara Feng, Saudara Qi, kita sudah 
+tidak bertemu selama dua puluh tahun. Mari kita habiskan tiga hari bersama di Pulau Bunga Persik, minum sepuasnya."
 
-“Shifu, saya akan menyiapkan makanan untuk Anda,” kata Huang Rong, “Teratai di pulau ini luar biasa; jadi bagaimana dengan ayam yang dikukus dengan kelopak teratai, atau sup kastanye air tawar dan daun teratai? Saya yakin Anda akan menyukainya.”
+"Shifu, aku akan menyiapkan makanan untuk kalian," kata Huang Rong. "Teratai di pulau ini luar biasa, jadi bagaimana 
+dengan ayam yang dikukus dengan kelopak teratai, atau sup kastanye air tawar dan daun teratai? Aku yakin kalian akan 
+menyukainya."
 
-Hong Qigong tersenyum lebar, "Sekarang kamu telah mendapatkan keinginan hatimu, lihat betapa bahagianya kamu!"
+Hong Qigong tersenyum lebar, "Sekarang kau sudah mendapatkan keinginanmu, lihat betapa bahagianya kau ini!"
 
-Huang Rong hanya memberinya senyum tipis. “Shifu, Paman Ouyang, Kakak Ouyang, tolong,” katanya. Dia sangat senang bertunangan dengan Guo Jing sehingga permusuhannya terhadap Ouyang Ke menghilang begitu saja. Pada saat ini semua orang di seluruh dunia, baginya, adalah orang yang baik.
+Huang Rong hanya memberinya senyum tipis. "Shifu, Paman Ouyang, Kakak Ouyang, tolong," katanya. Ia sangat senang bertunangan 
+dengan Guo Jing, sehingga permusuhannya dengan Ouyang Ke menghilang begitu saja. Pada saat ini semua orang di seluruh dunia 
+baginya adalah orang yang baik.
 
-Ouyang Feng mengangkat tangannya untuk menghormati Huang Yaoshi, “Saudara Yao, saya harus menolak keramahtamahan Anda. Terimakasih banyak. Mari kita berpisah hari ini.”
+Ouyang Feng mengangkat tangannya untuk menghormati Huang Yaoshi, "Yao Xiong, aku harus menolak keramahtamahanmu. 
+Terimakasih banyak. Mari kita berpisah hari ini."
 
-“Saudara Feng telah menempuh perjalanan jauh,” jawab Huang Yaoshi, “Saudara belum memenuhi tanggung jawab saya sebagai tuan rumah yang baik; bagaimana saya bisa membiarkan Anda pergi?"
+"Feng Xiong sudah menempuh perjalanan jauh," jawab Huang Yaoshi. "Saudaramu belum memenuhi tanggung jawab sebagai tuan 
+rumah yang baik, masa aku bisa membiarkanmu pergi?"
 
-Ouyang Feng datang dari ribuan li jauhnya, tidak hanya demi keponakannya, tetapi juga untuk skema besar lainnya. Dia telah menerima pesan merpati pembawa keponakannya yang mengatakan bahwa 'Pedoman Sembilan Yin' telah muncul kembali dan berada di tangan murid perempuan tunanetra pemberontak Huang Yaoshi. Setelah pernikahan, dia berencana untuk bergabung dengan Huang Yaoshi dan mendapatkan 'Petunjuk Sembilan Yin'. Tapi sekarang lamaran pernikahan itu gagal; keponakannya kalah bersaing dan dia merasa sangat sedih, jadi dia bersikeras untuk pergi.
+Ouyang Feng datang dari ribuan li jauhnya, tidak hanya demi keponakannya, tetapi juga untuk rencana besar lainnya. Ia 
+menerima pesan keponakannya yang dibawa burung merpati, yang mengatakan bahwa Jiu Yin Zhen Jing telah muncul kembali, 
+dan berada di tangan murid perempuan murtad Huang Yaoshi yang buta. Setelah pernikahan, ia berencana untuk bergabung 
+dengan Huang Yaoshi dan mendapatkan Jiu Yin Zhen Jing. Tapi sekarang lamaran pernikahan itu gagal, keponakannya kalah 
+bersaing dan ia merasa sangat sedih, jadi ia bersikeras untuk pergi.
 
-"Paman!" Ouyang Ke tiba-tiba berkata, “Keponakanmu tidak berguna dan aku telah membuatmu kehilangan muka. Tapi Paman Huang telah berjanji bahwa dia akan mengajari Keponakanku beberapa keterampilan.”
+"Paman!" Ouyang Ke tiba-tiba berkata, "Keponakanmu tidak berguna dan aku telah membuatmu kehilangan muka. Tapi Paman Huang 
+telah berjanji bahwa dia akan mengajari keponakanmu beberapa ilmu."
 
-"Huh!" Ouyang Feng bergumam. Dia sadar keponakannya tidak putus asa pada gadis keluarga Huang, jadi dia menemukan alasan untuk tinggal lebih lama agar dekat dengan Huang Rong dan mencoba memenangkan hatinya. Siapa tahu, dia mungkin akhirnya jatuh ke tangannya?
+"Huh!" Ouyang Feng bergumam. Ia sadar keponakannya tidak putus asa pada gadis keluarga Huang, jadi ia menemukan alasan 
+untuk tinggal lebih lama, agar dekat dengan Huang Rong, dan mencoba memenangkan hatinya. Siapa tahu ia mungkin akhirnya 
+jatuh ke tangannya.
 
-Huang Yaoshi kesal. Dia keliru berpikir bahwa Ouyang Ke akan memenangkan tiga ujian dan itulah mengapa dia berjanji untuk memberi penghargaan kepada Guo Jing. Tapi Ouyang Ke yang tiba-tiba gagal dalam ujian. Dengan menyesal dia berkata, “Keponakan Ouyang, seni bela diri pamanmu tidak tertandingi di dunia; yang lain tidak bisa memegang lilin untuknya. Anda telah menguasai keterampilan warisan keluarga Anda sendiri, apa perlunya Anda mempelajari keterampilan orang lain? Anjing tua ini beruntung menguasai beberapa teknik 'pintu belakang kelas dua' [zuo dao pang men]. Jika Keponakan tidak menganggapnya terlalu dangkal, maka keterampilan apa pun yang ingin Anda pelajari, anjing tua ini akan dengan senang hati mengajarkannya kepada Anda.
+Huang Yaoshi kesal. Ia keliru berpikir bahwa Ouyang Ke akan memenangkan tiga ujian, dan itulah alasannya mengapa ia 
+berjanji untuk memberi penghargaan kepada Guo Jing. Tapi Ouyang Ke yang tiba-tiba gagal dalam ujian. Dengan menyesal 
+ia berkata, "Ouyang Xianzhi, kungfu pamanmu tidak tertandingi di dunia, yang lain bahkan tidak pantas memegang lilin 
+untuknya. Kau menguasai kungfu warisan keluargamu sendiri, apa perlunya kau mempelajari kungfu orang lain? Anjing tua 
+ini beruntung menguasai beberapa teknik 'pintu belakang kelas dua'[^zuo-dao-pang-men]. Kalau Xianzhi tidak menganggapnya 
+terlalu dangkal, maka kungfu apa pun yang ingin kau pelajari, anjing tua ini akan dengan senang hati mengajarkannya 
+kepadamu."
 
-Ouyang Ke berpikir, “Saya harus memilih salah satu yang membutuhkan waktu paling lama untuk dikuasai. Saya sudah lama mendengar tentang 'Gerbang Terbuka Lima Elemen' Pulau Bunga Persik [wu xing qi men] sebagai nomor satu di dunia. Saya yakin dia tidak akan selesai dalam sehari. Setelah itu dia membungkuk dan berkata, “Keponakan Muda sangat mengagumi teknik 'wu xing qi men' Anda. Saya meminta Paman untuk dengan baik hati memberikan itu pada saya. ”
+Ouyang Ke berpikir, "Aku harus memilih salah satu yang membutuhkan waktu paling lama untuk dikuasai. Aku sudah lama 
+mendengar tentang 
+[Gerbang Terbuka Lima Elemen](referensi-karakter.md#wuxing-qimen "Wu Xing Qi Men (五行奇门)") Pulau Bunga Persik 
+sebagai ilmu nomor satu di dunia. Aku yakin ini tidak akan selesai dalam sehari." Setelah itu ia membungkuk dan berkata, 
+"[Xiao Zhi](panggilan.md#zhi "Xiao Zhi (小侄), Keponakanmu ini") sangat mengagumi ilmu Wu Xing Qi Men Paman. Kuharap 
+Paman sudi berbaik hati memberikannya."
 
-Huang Yaoshi tidak segera menjawab; dia ragu-ragu dengan perasaan canggung di hatinya. Teknik yang diminta adalah yang paling dia banggakan. Selain rumit pada awalnya, dia telah memperluas dan mengembangkan interpretasi dan variasi baru dari teknik asli yang dia pelajari dari nenek moyangnya. Putrinya sendiri, karena usianya yang masih muda, belum mempelajari teknik ini, jadi bagaimana dia bisa menyebarkan pengetahuan ini kepada orang asing? Tapi dia telah memberikan janjinya dan tidak mungkin untuk menarik kembali, jadi dengan enggan dia bertanya, “Teknik 'wu xing qi men' sangat luas dan dalam. Kamu mau belajar yang mana?”
+Huang Yaoshi tidak segera menjawab, ia ragu-ragu dan di dalam hati ia merasa tidak enak. Teknik yang diminta adalah 
+yang paling dibanggakannya. Selain pada awalnya rumit, ia telah memperluas dan mengembangkan interpretasi dan variasi 
+baru dari teknik asli yang dipelajarinya dari nenek moyangnya. Putrinya sendiri, karena usianya yang masih muda, belum 
+mempelajari teknik ini, jadi bagaimana ia bisa menyebarkan pengetahuan ini kepada orang asing? Tapi ia telah memberikan janjinya dan tidak mungkin ditarik kembali, jadi dengan enggan ia bertanya, "Teori Wu Xing Qi Men itu sangat luas dan 
+dalam. Kau mau belajar yang mana?"
 
-Ouyang Ke ingin tinggal di Pulau Bunga Persik selama mungkin, jadi dia meminta, “Keponakan Muda melihat jalur berliku Pulau Bunga Persik; pengaturan vegetasi sangat rumit. Hati saya mengagumi pengaturan ini tanpa akhir. Saya meminta Paman untuk mengizinkan keponakan muda tinggal di pulau selama beberapa bulan dan mempelajari misteri jalur rumit ini dan variasinya secara menyeluruh.
+Ouyang Ke ingin tinggal di Pulau Bunga Persik selama mungkin, jadi ia meminta, "Xiaozhi melihat jalan berliku di Pulau 
+Bunga Persik, tata letak pepohonan sangat rumit. Hati xiaozhi tak habis-habisnya mengagumi tata letak ini. Xiaozhi 
+mohon Paman sudi mengijinkan xiaozhi tinggal di pulau selama beberapa bulan dan mempelajari misteri jalanan rumit ini 
+dan variasinya secara menyeluruh."
 
-Wajah Huang Yaoshi sedikit berubah dan dia melirik ke arah Ouyang Feng. Dia berpikir, “Jadi, Anda ingin menyelidiki dan mencari tahu tentang pengaturan cerdik Pulau Bunga Persik. Apa niatmu yang sebenarnya?”
+Wajah Huang Yaoshi sedikit berubah dan ia melirik ke arah Ouyang Feng. Ia berpikir, "Jadi kau ingin menyelidiki dan 
+mencari tahu tentang tata letak Pulau Bunga Persik. Apa niatmu yang sebenarnya?"
 
-Ouyang Feng melihat ekspresinya dan bisa menebak apa yang ada di dalam hatinya, jadi dia menegur keponakannya, “Kamu tidak tahu seberapa tinggi langit atau seberapa dalam bumi! Paman Huang telah menghabiskan separuh hidupnya dengan susah payah mengatur pulau itu. Itu adalah pembelaannya terhadap penyusup; bagaimana dia bisa membocorkan misteri ini kepadamu?”
+Ouyang Feng melihat ekspresinya dan bisa menebak apa yang ada di dalam hatinya, jadi ia menegur keponakannya, "Kau tidak 
+tahu seberapa tinggi langit atau seberapa dalam bumi! Paman Huang menghabiskan separuh hidupnya dengan susah payah mengatur 
+pulau ini. Itu adalah pertahanannya terhadap penyusup, mana dia bisa membocorkan misteri ini kepadamu?"
 
-Huang Yaoshi tertawa dingin, “Pulau Bunga Persik hanyalah bukit tandus dan berbatu; Saya ragu apakah ada orang yang akan datang dan menyakiti saya.”
+Huang Yaoshi tertawa dingin, "Pulau Bunga Persik hanya bukit tandus dan berbatu. Aku ragu apakah ada orang yang akan 
+datang dan mencelakai aku."
 
-Ouyang Feng tersenyum meminta maaf, "Adik laki-laki dengan kasar membuat pernyataan yang tidak bijaksana, Kakak Yao, tolong jangan tersinggung."
+Ouyang Feng tersenyum meminta maaf, "Aku dengan kasar membuat pernyataan yang tidak bijaksana, Yao Xiong, tolong jangan 
+tersinggung."
 
-Hong Qigong tertawa, “Racun Tua! Anda sangat licik; ini adalah apa yang Anda rencanakan dari awal. Cukup brilian!” dia mengejek.
+Hong Qigong tertawa, "Lao Du! Kau sangat licik, ini adalah apa yang kau rencanakan dari awal. Cukup pintar!" ejeknya.
 
 Huang Yaoshi menyelipkan seruling giok ke ikat pinggangnya dan berkata, "Semuanya, tolong ikuti saya."
 
-Ouyang Ke melihat kemarahan di wajahnya, jadi dia meminta petunjuk dari pamannya. Ouyang Feng menganggukkan kepalanya dan mulai berjalan di belakang Huang Yaoshi. Semua orang mengikuti tidak terlalu jauh di belakang.
+Ouyang Ke melihat kemarahan di wajahnya, jadi ia meminta petunjuk dari pamannya. Ouyang Feng menganggukkan kepalanya dan 
+mulai berjalan di belakang Huang Yaoshi. Semua orang mengikuti tidak terlalu jauh di belakang.
 
-Berkelok-kelok melalui rumpun bambu mereka tiba di sebuah kolam teratai besar. Teratai itu berwarna putih, memancarkan aroma harum. Permukaan kolam ditutupi dengan daun teratai dan ada jalan lintas yang terbuat dari batu-batu kecil yang berkelok-kelok di tengahnya. Huang Yaoshi berjalan di sepanjang jalan lintas membawa semua orang ke sebuah bangunan di seberang kolam. Bangunan itu terbuat dari kayu pinus dan pohon rotan memanjat dinding luar. Saat itu pertengahan musim panas dan cuacanya panas, tetapi begitu mereka melihat bangunan itu, semua orang merasakan hembusan udara dingin. Huang Yaoshi memimpin keempat orang itu ke ruang kerjanya. Seorang pelayan yang tuli dan bisu segera datang dan menyajikan teh. Tehnya berwarna hijau tua dan sedingin salju. Begitu masuk ke mulut mereka, hawa dingin meresap ke tulang mereka.
+Berkelok-kelok melalui rumpun bambu mereka tiba di sebuah kolam teratai besar. Teratai itu berwarna putih, memancarkan 
+aroma harum. Permukaan kolam ditutupi dengan daun teratai dan ada jalan lintas yang terbuat dari batu-batu kecil yang 
+berkelok-kelok di tengahnya. Huang Yaoshi berjalan di sepanjang jalan lintas, membawa semua orang ke sebuah bangunan di 
+seberang kolam. Bangunan itu terbuat dari kayu pinus dan pohon rotan merambat di dinding luarnya. Saat itu pertengahan 
+musim panas dan cuacanya panas, tetapi begitu mereka melihat bangunan itu, semua orang merasakan hembusan udara dingin. 
+Huang Yaoshi memimpin keempat orang itu ke ruang kerjanya. Seorang pelayan yang tuli dan bisu segera datang dan menyajikan 
+teh. Tehnya berwarna hijau tua dan sedingin salju. Begitu masuk ke mulut mereka, hawa dingin meresap ke tulang mereka.
 
-Hong Qigong tertawa dan berkomentar, “Orang-orang berkata: 'setelah menjadi pengemis selama tiga tahun, seseorang tidak akan mau menjadi pejabat pemerintah'. Kakak Yao, jika aku tinggal di tempatmu yang sejuk selama tiga tahun, aku tidak akan mau menjadi pengemis lagi!”
+Hong Qigong tertawa dan berkomentar, "Orang-orang berkata, 'setelah menjadi pengemis selama tiga tahun, seseorang tidak 
+akan mau menjadi pejabat pemerintah'. Yao Xiong, kalau aku tinggal di tempatmu yang sejuk selama tiga tahun, aku tidak 
+akan mau menjadi pengemis lagi!"
 
-“Jika Brother Qi bersedia untuk tetap minum dan berbicara sepuasnya, itu benar-benar keinginan saya yang menjadi kenyataan,” kata Huang Yaoshi.
+"Kalau Qi Xiong bersedia untuk tinggal di sini dan minum bersamaku sambil ngobrol sepuasnya, itu benar-benar harapanku 
+yang menjadi kenyataan," kata Huang Yaoshi.
 
-Hong Qigong bisa mendengar ketulusan dalam suaranya dan hatinya tersentuh. “Terima kasih banyak,” katanya, “Sayang sekali Pengemis Tua menjalani kehidupan yang sibuk dan melelahkan; Saya tidak memiliki kemewahan untuk menikmati kehidupan yang damai seperti Saudara Yao.”
+Hong Qigong bisa mendengar ketulusan dalam suaranya dan hatinya tersentuh. "Terima kasih banyak," katanya, "Sayang 
+sekali Pengemis Tua menjalani kehidupan yang sibuk dan melelahkan. Aku tidak punya keberuntungan untuk menikmati 
+kehidupan yang damai seperti Yao Xiong."
 
-Ouyang Feng berkata, "Dengan kalian berdua tinggal di tempat yang sama, selama kalian tidak bertarung satu sama lain, aku berani bertaruh dalam dua bulan kalian akan menciptakan beberapa set teknik kepalan tangan atau jurus pedang."
+Ouyang Feng berkata, "Dengan kalian berdua tinggal di tempat yang sama, selama kalian tidak saling bertarung, aku 
+berani bertaruh dalam dua bulan kalian akan menciptakan beberapa set teknik kepalan tangan atau jurus pedang."
 
-Hong Qigong tertawa, "Apakah kamu cemburu?"
+Hong Qigong tertawa, "Jadi kau iri ya?"
 
-“Ruangan ini adalah aula besar untuk mempelajari seni bela diri,” Ouyang Feng menjelaskan, “Wajar jika saya sampai pada kesimpulan itu.”
+"Ruangan ini adalah aula besar untuk mempelajari kungfu," kata Ouyang Feng menjelaskan. "Wajar kalau aku sampai pada 
+kesimpulan itu."
 
-Hong Qigong tertawa, “Ha… ha…! Itu adalah salah satu dari jenis pidato 'apa-yang-kamu-katakan-bukan-apa-yang-kamu-pikirkan'.”
+Hong Qigong tertawa, "Haha...! Itu adalah salah satu dari pidato 'apa-yang-kau-katakan-bukan-apa-yang-kau-pikirkan'."
 
-Meskipun kedua pria ini tidak saling memusuhi satu sama lain, pikiran mereka sangat berbeda dan itulah sebabnya mereka tidak menyukai satu sama lain. Perasaan Ouyang Feng tersembunyi di balik tembok tebal, tidak seperti Hong Qigong yang terbuka dan blak-blakan. Ketika Ouyang Feng mendengar komentar Hong Qigong, dia ingin mengirim Hong Qigong ke kuburan dengan satu serangan… tetapi wajahnya tidak menunjukkannya. Dia tertawa tetapi tidak mengatakan apa-apa.
+Meskipun kedua orang ini tidak saling bermusuhan, pikiran mereka sangat berbeda dan itulah sebabnya mereka tidak saling 
+menyukai. Perasaan Ouyang Feng tersembunyi di balik tembok tebal, tidak seperti Hong Qigong yang terbuka dan blak-blakan. 
+Ketika Ouyang Feng mendengar komentar Hong Qigong, ia ingin mengirim Hong Qigong ke kuburan dengan satu serangan... 
+tetapi wajahnya tidak menunjukkan hal itu. Ia tertawa, tetapi tidak mengatakan apa-apa.
 
 Huang Yaoshi menekan sesuatu di sisi meja dan lukisan pemandangan di dinding barat perlahan naik, memperlihatkan kompartemen rahasia di belakangnya. Dia berjalan menuju dinding, membuka pintu kompartemen dan mengeluarkan gulungan kertas. Dia dengan lembut mengusap gulungan itu beberapa kali sebelum dia menghadap Ouyang Ke dan berkata, “Ini adalah peta Pulau Bunga Persik, lengkap dengan semua variasi lima elemen, elemen yin dan yang dan perubahan delapan trigram; semuanya ada di sana. Ambil ini dan pelajari dengan seksama.”
 
