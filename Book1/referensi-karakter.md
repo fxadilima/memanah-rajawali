@@ -853,7 +853,9 @@ Hong Qigong dipanggil Pengemis Tua atau Lao Gai (老丐), sedangkan Kaisar Duan 
 atau Kaisar Tua.
 
 Kadang-kadang mereka juga menyelipkan nama lokasi asal sahabat mereka, misalnya, Lao Xidu (老西毒) untuk Ouyang Feng,
-di mana karakter Xi (西) tersebut berarti 'Barat', dan Lao Beigai (老北丐) untuk Hong Qigong.
+di mana karakter Xi (西) tersebut berarti 'Barat', dan Lao Beigai (老北丐) untuk Hong Qigong. Dan kadang-kadang mereka
+saling memanggil dengan istilah Xiong (兄) alias 'Saudara', dan timbullah nama panggilan baru yang terasa lucu,
+seperti Du Xiong (毒兄) bagi Ouyang Feng, yang berarti 'Saudara Racun'.
 
 Ketika Wang Chongyang masih hidup, ia dipanggil Lao Dao (老道), yang melambangkan bahwa ia adalah seorang Pendeta Tao.
 

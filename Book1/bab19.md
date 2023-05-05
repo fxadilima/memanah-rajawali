@@ -178,7 +178,7 @@ kehidupan yang damai seperti Yao Xiong."
 Ouyang Feng berkata, "Dengan kalian berdua tinggal di tempat yang sama, selama kalian tidak saling bertarung, aku 
 berani bertaruh dalam dua bulan kalian akan menciptakan beberapa set teknik kepalan tangan atau jurus pedang."
 
-Hong Qigong tertawa, "Jadi kau iri ya?"
+Hong Qigong tertawa, "Kau iri ya?"
 
 "Ruangan ini adalah aula besar untuk mempelajari kungfu," kata Ouyang Feng menjelaskan. "Wajar kalau aku sampai pada 
 kesimpulan itu."
@@ -190,41 +190,75 @@ menyukai. Perasaan Ouyang Feng tersembunyi di balik tembok tebal, tidak seperti 
 Ketika Ouyang Feng mendengar komentar Hong Qigong, ia ingin mengirim Hong Qigong ke kuburan dengan satu serangan... 
 tetapi wajahnya tidak menunjukkan hal itu. Ia tertawa, tetapi tidak mengatakan apa-apa.
 
-Huang Yaoshi menekan sesuatu di sisi meja dan lukisan pemandangan di dinding barat perlahan naik, memperlihatkan kompartemen rahasia di belakangnya. Dia berjalan menuju dinding, membuka pintu kompartemen dan mengeluarkan gulungan kertas. Dia dengan lembut mengusap gulungan itu beberapa kali sebelum dia menghadap Ouyang Ke dan berkata, “Ini adalah peta Pulau Bunga Persik, lengkap dengan semua variasi lima elemen, elemen yin dan yang dan perubahan delapan trigram; semuanya ada di sana. Ambil ini dan pelajari dengan seksama.”
+Huang Yaoshi menekan sesuatu di sisi meja dan lukisan pemandangan di dinding barat perlahan naik, memperlihatkan ruangan 
+rahasia di belakangnya. Ia berjalan menuju dinding, membuka pintu ruangan itu dan mengeluarkan gulungan kertas. Ia dengan 
+lembut mengusap gulungan itu beberapa kali sebelum berpaling kepada Ouyang Ke dan berkata, "Ini adalah peta Pulau Bunga 
+Persik, lengkap dengan semua variasi lima elemen, elemen yin dan yang dan perubahan delapan trigram, semuanya ada di sana. 
+Ambil ini dan pelajari dengan seksama."
 
-Ouyang Ke kecewa; dia berharap dia bisa tinggal di Pulau Bunga Persik untuk sementara waktu. Dia tidak menyangka bahwa Huang Yaoshi hanya akan memberinya peta untuk dilihat. Dia tahu itu akan menjadi topik yang sulit untuk dipelajari; karena dia tidak punya pilihan, dia membungkuk dengan hormat dan melangkah maju untuk mengambil gulungan itu dari tangannya.
+Ouyang Ke kecewa, ia berharap bisa tinggal di Pulau Bunga Persik untuk sementara waktu. Ia tidak menyangka bahwa Huang Yaoshi 
+hanya akan memberinya peta untuk dilihat. Ia tahu itu akan menjadi topik yang sulit untuk dipelajari, karena tidak punya 
+pilihan, ia membungkuk dengan hormat dan melangkah maju untuk mengambil gulungan itu dari tangannya.
 
-"Tunggu!" Huang Yaoshi tiba-tiba berkata. Ouyang Ke kaget, dia menarik tangannya kembali. “Saat kamu mengambil gambar ini, aku ingin kamu pergi ke Lin'an dan mencari penginapan atau kuil untuk ditinggali. Setelah tiga bulan, aku akan mengirim seseorang untuk mengambilnya. Anda dapat mengingat semua yang ada di peta; tapi saya melarang Anda membuat salinan apa pun, ”lanjut Huang Yaoshi.
+"Tunggu!" Huang Yaoshi tiba-tiba berkata. Ouyang Ke kaget, ia menarik tangannya kembali. "Saat kamu mengambil gambar ini, 
+aku ingin kau pergi ke Lin'an dan mencari penginapan atau kuil untuk ditinggali. Setelah tiga bulan, aku akan mengirim 
+seseorang untuk mengambilnya. Kau bisa mengingat semua yang ada di peta, tapi aku melarangmu membuat salinan apa pun," 
+lanjut Huang Yaoshi.
 
-Ouyang Ke berpikir, “Kamu tidak mengizinkanku tinggal di Pulau Bunga Persik; itu juga karena aku tidak terlalu peduli dengan keahlian anehmu. Selama tiga bulan ke depan saya akan bertanggung jawab atas bagan ini. Jika saya tidak berhati-hati, saya mungkin kehilangan atau merusaknya; lalu apa yang akan saya lakukan? Tidak, lebih baik aku tidak mengambilnya!” Dia akan mengucapkan beberapa kata manis untuk menolak tawaran itu ketika tiba-tiba pikiran lain muncul di benaknya, “Dia berkata akan mengirim seseorang untuk mengambilnya; bahwa seseorang pasti putrinya. Itu akan menjadi kesempatan bagus untuk berhubungan intim dengannya.” Dia senang dengan pemikiran ini dan segera mengulurkan tangannya untuk menerima gulungan itu sambil mengucapkan beberapa kata terima kasih.
+Ouyang Ke berpikir, "Kau tidak mengijinkanku tinggal di Pulau Bunga Persik, itu juga karena aku tidak terlalu peduli 
+dengan keahlian anehmu. Selama tiga bulan ke depan aku akan bertanggung jawab atas peta ini. Kalau tidak berhati-hati, aku 
+mungkin menghilangkan atau merusaknya, lalu apa yang akan kulakukan? Tidak, lebih baik aku tidak mengambilnya!" Ia akan 
+mengucapkan beberapa kata manis untuk menolak tawaran itu ketika tiba-tiba pikiran lain muncul di benaknya, "Dia bilang 
+akan mengirim seseorang untuk mengambilnya, itu pasti putrinya. Itu akan menjadi kesempatan bagus untuk berhubungan intim 
+dengannya." Ia senang dengan pemikiran ini dan segera mengulurkan tangan untuk menerima gulungan itu sambil mengucapkan 
+beberapa kata terima kasih.
 
-Huang Rong mengambil kotak kecil berisi pil naga dan mengembalikannya kepada Ouyang Feng. “Paman Ouyang,” katanya, “Ini adalah pil penawar racunmu; keponakanmu tidak berani menerimanya.”
+Huang Rong mengambil kotak kecil berisi Pil Naga dan mengembalikannya kepada Ouyang Feng. "Paman Ouyang," katanya. 
+"Ini adalah pil penawar racunmu, keponakanmu tidak berani menerimanya."
 
-Ouyang Feng berpikir, “Jika benda ini jatuh ke tangan Old Heretic Huang, dia akan kebal terhadap racunku. Meskipun mengambilnya kembali sepertinya sangat kecil, saya tidak bisa membiarkan dia memilikinya. Oleh karena itu, dia mengulurkan tangannya untuk mengambil pil tersebut dan segera mengangkat tangannya untuk mengucapkan selamat tinggal kepada Huang Yaoshi.
+Ouyang Feng berpikir, "Kalau benda ini jatuh ke tangan Huang Laoxie, dia akan kebal terhadap racunku. Meskipun mengambilnya 
+kembali sepertinya sangat remeh, aku tidak bisa membiarkan dia memilikinya. Oleh karena itu ia mengulurkan tangan untuk 
+mengambil pil tersebut, dan segera merangkapkan kedua tangannya untuk mengucapkan selamat tinggal kepada Huang Yaoshi.
 
-Huang Yaoshi tidak menahannya dan menyuruh mereka pergi. Berjalan ke pintu, Hong Qigong berkata, “Poison Brother [Du Xiong], Pertemuan Pedang kita di Gunung Hua akan berakhir. Anda harus menghemat energi Anda dengan baik karena kita akan memiliki persaingan yang sangat ketat.”
+Huang Yaoshi tidak menahannya dan menyuruh mereka pergi. Berjalan ke pintu, Hong Qigong berkata, "Du Xiong, 
+Pertemuan kita di Hua Shan kan akhir tahun depan. Kau harus menghemat energimu baik-baik karena persaingan kita sangat 
+ketat."
 
-Ouyang Feng hanya tersenyum santai, “Menurut saya, kita tidak perlu membuang energi untuk bertarung. Judul 'seniman bela diri nomor satu dunia' telah diputuskan."
+Ouyang Feng hanya tersenyum santai, "Menurutku kita tidak perlu membuang energi untuk bertarung. Gelar 'Pendekar Nomor Satu' 
+di dunia persilatan sudah ditentukan."
 
-Hong Qigong terkejut, “Sudah diputuskan? Mungkinkah Du Xiong telah menguasai keterampilan yang tak tertandingi dan unik?”
+Hong Qigong terkejut, "Sudah ditentukan? Mungkin Du Xiong menguasai kungfu hebat yang unik?"
 
-Ouyang Feng menunjukkan senyum tipis, “Dengan keterampilan yang biasa-biasa saja, bagaimana mungkin Ouyang Feng berani mengingini gelar 'seniman bela diri nomor satu dunia'? Saya berbicara tentang orang yang mengajar Keponakan kita Guo.”
+Ouyang Feng tersenyum tipis, "Dengan kungfu yang biasa-biasa saja, mana mungkin Ouyang Feng berani menginginkan gelar 
+'Pendekar Nomor Satu Dunia'? Aku bicara tentang orang yang mengajar keponakan kita Guo."
 
-Hong Qigong tertawa, "Apakah kamu berbicara tentang Pengemis Tua?" dia berkata, “Saya suka itu, tetapi seni bela diri Saudara Yao meningkat setiap hari. Bagimu, Poison Brother, bertambahnya tahun juga berarti meningkatkan keterampilan. Saya khawatir keterampilan seni bela diri Kaisar Duan juga tidak melemah. Saya tidak berpikir Pengemis Tua akan mendapat keuntungan apa pun.
+Hong Qigong tertawa, "Kau bicara tentang Pengemis Tua?" katanya. "Aku suka itu, tapi kungfu Yao Xiong meningkat setiap hari. 
+Bagimu, Du Xiong[^du-xiong], bertambahnya tahun juga berarti meningkatkan keterampilan. Saya khawatir keterampilan seni bela diri Kaisar Duan juga tidak melemah. Saya tidak berpikir Pengemis Tua akan mendapat keuntungan apa pun.
 
-Ouyang Feng dengan dingin berkata, "Dari orang-orang yang mengajar Keponakan Guo, belum tentu seni bela diri Brother Qi yang terbaik."
+[^du-xiong]: Du Xiong (毒兄) secara literal bisa diterjemahkan menjadi 'Saudara Racun'. Tentu saja sebutan ini hanya lelucon karangan Hong Qigong yang secara khusus ditujukan kepada Ouyang Feng untuk mengejeknya.
 
-"Apa?" Hong Qigong baru saja menutup mulutnya ketika Huang Yaoshi menyela, "Eh, apakah kamu berbicara tentang Old Urchin Zhou Botong?"
+Ouyang Feng dengan dingin berkata, "Dari orang-orang yang mengajar Keponakan Guo, belum tentu kungfu Qi Xiong yang terbaik."
 
-"Itu benar!" Ouyang Feng menjawab, "Karena Urchin Tua telah menguasai 'Petunjuk Sembilan Yin', maka kita semua: Bidat Timur, Racun Barat, Kaisar Selatan dan Pengemis Utara, bukan lagi tandingannya."
+"Apa?" Hong Qigong baru saja menutup mulutnya ketika Huang Yaoshi menyela, "Eh, kau berbicara tentang Lao Wantong, 
+Zhou Botong?"
 
-Itu belum tentu benar, kata Huang Yaoshi, Manual sudah mati, tetapi seni bela diri masih hidup.
+"Itu benar!" Ouyang Feng menjawab, "Karena Zhou Botong sudah menguasai Jiu Yin Zhen Jing, maka kita semua, Sesat Timur, 
+Racun Barat, Kaisar Selatan dan Pengemis Utara, bukan lagi tandingannya."
 
-Ouyang Feng memperhatikan sebelumnya bahwa Huang Yaoshi telah mengalihkan pertanyaannya dan dia tidak membiarkan Guo Jing memberi tahu mereka keberadaan Zhou Botong. Dia tahu ada sesuatu yang salah; jadi dia memutuskan untuk menyebutkannya lagi sebelum dia pergi. Mendengar apa yang dikatakan Huang Yaoshi, dia tahu kecurigaannya tidak berdasar; tapi dia licik, jadi wajahnya tidak menunjukkan perubahan apapun. Dengan acuh tak acuh dia berkata, “Kita semua tahu kualitas seni bela diri Sekte Quanzhen; kita bahkan perlu meminta nasihat mereka. Sekarang Old Urchin telah menambahkan keterampilan 'Sembilan Yin Manual' untuk itu, bahkan jika Wang Chongyang masih hidup, saya ragu bahkan dia akan menjadi tandingannya, tidak perlu menyebut kita. Ay! Quanzhen sangat bagus; bahkan jika kami bertiga bekerja keras seumur hidup, kami masih setingkat di bawah mereka.”
+"Itu belum tentu benar," kata Huang Yaoshi. "Kitab sudah mati, tapi kungfu akan selalu hidup."
 
-“Seni bela diri Old Urchin jauh lebih baik daripada milikku,” kata Huang Yaoshi, “Tapi itu belum mencapai level Brother Feng atau Brother Qi. Saya tahu ini pasti.”
+Ouyang Feng memperhatikan sebelumnya bahwa Huang Yaoshi telah mengalihkan pertanyaannya, dan ia tidak membiarkan Guo Jing 
+memberitahu mereka keberadaan Zhou Botong. Ia tahu ada sesuatu yang salah, jadi ia memutuskan untuk menyebutkannya lagi 
+sebelum pergi. Mendengar apa yang dikatakan Huang Yaoshi, ia tahu kecurigaannya tidak berdasar, tapi ia licik, jadi 
+wajahnya tidak menunjukkan perubahan apapun. Dengan acuh tak acuh ia berkata, "Kita semua tahu kehebatan kungfu Quanzhen, 
+kita bahkan perlu meminta nasihat mereka. Sekarang Lao Wantong sudah menambahnya dengan Jiu Yin Zhen Jing, bahkan jika 
+Wang Chongyang masih hidup, aku ragu apa dia akan bisa menandinginya, apalagi kita. Ah! Quanzhen sangat bagus, bahkan 
+seandainya kita bertiga bekerja keras seumur hidup, kita masih setingkat di bawah mereka."
 
-“Saudara Yao tidak perlu rendah hati,” kata Ouyang Feng, “Kamu dan aku adalah 'larangan jin ba liang' [lit. setengah 'jin' sampai delapan 'liang' = sebanding atau sama]. Anda sendiri telah mengatakan bahwa seni bela diri Zhou Botong tidak sebaik milik Anda. Namun, saya takut …” Dia menggelengkan kepalanya.
+"Kungfu Lao Wantong jauh lebih baik dari aku," kata Huang Yaoshi. "Tapi belum mencapai tingkat Feng Xiong atau Qi Xiong. 
+Aku tahu _pasti_."
+
+"Yao Xiong tidak perlu merendah," kata Ouyang Feng, "Kau dan aku adalah 'larangan jin ba liang' [lit. setengah 'jin' sampai delapan 'liang' = sebanding atau sama]. Anda sendiri telah mengatakan bahwa seni bela diri Zhou Botong tidak sebaik milik Anda. Namun, saya takut …” Dia menggelengkan kepalanya.
 
 “Saudara Feng akan mengetahuinya tahun depan di Pertemuan Pedang di Gunung Hua,” Huang Yaoshi tersenyum.
 
