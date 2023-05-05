@@ -258,67 +258,137 @@ seandainya kita bertiga bekerja keras seumur hidup, kita masih setingkat di bawa
 "Kungfu Lao Wantong jauh lebih baik dari aku," kata Huang Yaoshi. "Tapi belum mencapai tingkat Feng Xiong atau Qi Xiong. 
 Aku tahu _pasti_."
 
-"Yao Xiong tidak perlu merendah," kata Ouyang Feng, "Kau dan aku adalah 'larangan jin ba liang' [lit. setengah 'jin' sampai delapan 'liang' = sebanding atau sama]. Anda sendiri telah mengatakan bahwa seni bela diri Zhou Botong tidak sebaik milik Anda. Namun, saya takut …” Dia menggelengkan kepalanya.
+"Yao Xiong tidak perlu merendah," kata Ouyang Feng, "Kau dan aku adalah Ban Jin Ba Liang[^setengah-kati-delapan-liang]. 
+Kau sendiri mengatakan bahwa kungfu Zhou Botong tidak sebaik milikmu. Tapi aku kuatir..." Ia menggelengkan kepalanya.
 
-“Saudara Feng akan mengetahuinya tahun depan di Pertemuan Pedang di Gunung Hua,” Huang Yaoshi tersenyum.
+[^setengah-kati-delapan-liang]: Ban Jin Ba Liang (半斤八兩), secara literal artinta adalah 'Setengah kati delapan liang', yang maksudnya adalah 'Setara' atau 'Seimbang'.
 
-Ouyang Feng serius, “Kakak Yao, saya biasanya menghormati seni bela diri Anda, tapi saya meragukannya ketika Anda mengatakan Anda bisa mengalahkan Old Urchin. Ketika datang kepadanya, Anda sebaiknya berhati-hati.
+"Feng Xiong akan tahu juga tahun depan di Hua Shan," kata Huang Yaoshi sambil tersenyum.
 
-Bukan karena Huang Yaoshi tidak tahu bahwa dia sedang diprovokasi, tetapi dia adalah orang yang sombong, jadi tentu saja dia tidak ingin ada yang meremehkannya. Mendidih karena marah, dia berkata, “Landak Tua sebenarnya ada di Pulau Bunga Persik. Kakak telah memenjarakannya di sini selama lima belas tahun.”
+Ouyang Feng serius, "Yao Xiong, aku biasanya menghargai kungfumu, tapi aku sangat meragukannya kalau kau bilang bisa 
+mengalahkan Lao Wantong. Kalau ketemu dia, sebaiknya kau hati-hati."
 
-Ouyang Feng dan Hong Qigong tercengang. Hong Qigong hanya mengangkat alisnya, tetapi Ouyang Feng benar-benar tertawa terbahak-bahak, "Kakak Yao ... itu lelucon yang sangat bagus!"
+Bukan karena Huang Yaoshi tidak tahu bahwa ia sedang dipancing, tapi ia orang yang sombong, jadi tentu saja ia tidak 
+ingin ada yang meremehkannya. Darahnya mendidih karena marah, ia berkata, "Lao Wantong sebenarnya ada di Pulau Bunga 
+Persik. Aku sudah mengurungnya di sini selama lima belas tahun."
 
-Huang Yaoshi tidak mengatakan apa-apa selain menunjuk jarinya seolah menunjukkan jalan; lalu dia mengerahkan kekuatan untuk berdiri dan terbang kembali ke alur bambu. Hong Qigong mengikuti dengan tangan kirinya memegang lengan Guo Jing, tangan kanannya memegang tangan Huang Rong. Ouyang Feng meraih lengan Ouyang Ke dan bersama-sama mereka menggunakan kungfu ringan mereka. Tidak lama kemudian mereka sampai di depan gua Zhou Botong.
+Ouyang Feng dan Hong Qigong tercengang. Hong Qigong hanya mengangkat alisnya, tetapi Ouyang Feng benar-benar tertawa 
+terbahak-bahak, "Kakak Yao ... itu lelucon yang sangat bagus!"
 
-Ketika mereka masih cukup jauh, Huang Yaoshi memperhatikan bahwa gua itu kosong. "Ah!" dia berkata dengan terkejut. Dengan tubuhnya seringan bulu, dia melompat ke langit dan setelah beberapa kali melompat dia sampai di mulut gua. Kaki kirinya mendarat lebih dulu, hanya untuk merasa seolah-olah dia menginjak ruang kosong. Bahkan menghadapi situasi ini secara tiba-tiba, dia tidak panik; dia menendang kaki kanannya ke udara dan melompat vertikal. Sekali lagi dia mendarat dengan lembut dengan kaki kirinya, tetapi sekali lagi merasa dia melangkah ke udara kosong. Kali ini dia tidak dapat menggunakan apa pun sebagai batu loncatan, jadi dengan jentikan tangannya ke belakang dia menarik seruling giok dari ikat pinggangnya dan dalam satu gerakan mengalir membentur dinding gua dengan seruling itu. Dengan satu dorongan tubuhnya terbang keluar dari gua seperti anak panah.
+Huang Yaoshi tidak mengatakan apa-apa selain menunjuk jarinya seolah menunjukkan jalan, lalu ia mengerahkan tenaga 
+untuk berdiri dan melesat kembali ke hutan bambu. Hong Qigong mengikuti dengan tangan kirinya memegang lengan Guo Jing, 
+tangan kanannya memegang tangan Huang Rong. Ouyang Feng meraih lengan Ouyang Ke dan bersama-sama mereka menggunakan 
+ilmu meringankan tubuh mereka. Tidak lama kemudian mereka sampai di depan gua Zhou Botong.
 
-Lompatan vertikal itu, mengeluarkan seruling batu giok dan terbang mundur ke luar gua dilakukan dalam sekejap. Hong Qigong dan Ouyang Feng, melihat keahliannya yang luar biasa, bersorak… hanya untuk mendengar “Splotch!” suara. Kaki Huang Yaoshi telah mendarat di sebuah lubang di tanah di luar gua.
+Ketika mereka masih cukup jauh, Huang Yaoshi menyadari bahwa gua itu kosong. "Ah!" ia terkejut dan berseru tanpa sadar. 
+Dengan lompatan seringan bulu, ia melesat ke atas, dan setelah beberapa kali melompat ia sampai di mulut gua. Kaki 
+kirinya mendarat lebih dulu, hanya untuk merasa seolah-olah ia menginjak ruang kosong. Bahkan menghadapi situasi tak 
+terduga ini ia tidak panik, ia menendang kaki kanannya ke udara dan melompat vertikal. Sekali lagi ia mendarat dengan 
+ringan dengan kaki kirinya, tetapi sekali lagi merasa ia melangkah ke ruang kosong. Kali ini ia tidak dapat menggunakan 
+apa pun sebagai batu loncatan, jadi dengan sentakan tangan ke belakang ia menarik seruling giok dari ikat pinggangnya, 
+dan dalam satu gerakan mengalir membentur dinding gua dengan seruling itu. Dengan satu dorongan tubuhnya terbang keluar 
+dari gua seperti anak panah.
 
-Huang Yaoshi merasakan kakinya menginjak sesuatu yang basah dan lembut. Dengan tendangan ringan sekali lagi tubuhnya terbang. Saat dia masih di udara dia melihat Hong Qigong dan yang lainnya telah tiba dan mereka tidak jatuh ke dalam perangkap apapun. Dia mendarat dengan lembut di sisi putrinya. Tiba-tiba bau busuk menyerang lubang hidungnya; dia melihat ke bawah dan, dengan cemas, dia melihat kakinya tertutup kotoran.
+Lompatan vertikal itu, mengeluarkan seruling batu giok dan terbang mundur ke luar gua dilakukan dalam sekejap. 
+Hong Qigong dan Ouyang Feng yang melihat keahliannya yang luar biasa itu bersorak... tetapi kemudian mereka mendengar 
+suara cipratan lumpur. Kaki Huang Yaoshi mendarat di sebuah lubang di tanah di luar gua.
 
-Semua orang bingung. Dengan keterampilan seni bela diri tingkat tinggi, ditambah kecerdasannya, bagaimana mungkin Huang Yaoshi jatuh ke dalam perangkap seseorang?
+Huang Yaoshi merasakan kakinya menginjak sesuatu yang basah dan lembut. Dengan tendangan ringan sekali lagi tubuhnya 
+terbang. Saat ia masih di udara, ia melihat Hong Qigong dan yang lainnya telah tiba, mereka tidak jatuh ke dalam 
+perangkap apapun. Ia mendarat dengan lembut di sisi putrinya. Tiba-tiba bau busuk menyerang lubang hidungnya, ia 
+melihat ke bawah, dan dengan gusar ia melihat kakinya tertutup kotoran manusia yang masih segar.
 
-Huang Yaoshi sangat marah; dia mengambil dahan pohon untuk menguji tanah, menyodok ke timur dan menyerang ke barat. Yang mengejutkan, hanya tiga lubang itu yang ada di sana, sisanya adalah tanah yang kokoh.
+Semua orang bingung. Dengan kungfu tingkat tinggi, ditambah kecerdasannya, bagaimana mungkin Huang Yaoshi jatuh ke 
+dalam perangkap ini.
 
-Jelas Zhou Botong mengharapkan dia datang bergegas ke dalam gua, jadi dia menyiapkan lubang pertama. Dia telah menghitung dengan hati-hati bahwa dengan tingkat ringannya, kungfu Huang Yaoshi akan melompat secara vertikal untuk menghindari jatuh ke dalam lubang itu; oleh karena itu, dia menyiapkan lubang kedua. Sekali lagi, dia tahu bahwa lubang kedua ini tidak akan menjebak Huang Yaoshi. Jadi dia dengan cerdik menempatkan lubang ketiga, mengetahui Huang Yaoshi akan melompat mundur dari gua, dan mengisi lubang ini dengan kotoran.
+Huang Yaoshi sangat marah, ia mengambil dahan pohon untuk menguji tanah, menyodok ke sana-sini. Yang mengejutkan adalah, 
+ternyata hanya tiga lubang itu yang ada di sana, sisanya adalah tanah yang kokoh.
 
-Huang Yaoshi dengan hati-hati memasuki gua, melihat ke segala arah, dan tidak melihat apa pun kecuali beberapa guci tanah liat dan mangkuk tanah liat. Dia samar-samar memperhatikan beberapa baris karakter yang tertulis di dinding gua.
+Jelas Zhou Botong mengharapkan ia datang bergegas ke dalam gua, jadi ia menyiapkan lubang pertama. Ia telah memperhitungkan 
+dengan cermat bahwa dengan 
+[qinggong](referensi-karakter.md#qing-gong "Ilmu meringankan tubuh") Huang Yaoshi yang tinggi, ia akan melompat secara 
+vertikal untuk menghindari jatuh ke dalam lubang itu, oleh karena itu ia menyiapkan lubang kedua. Sekali lagi ia tahu 
+bahwa lubang kedua ini tidak akan menjebak Huang Yaoshi. Jadi ia dengan cerdik menempatkan lubang ketiga, mengetahui 
+bahwa Huang Yaoshi akan melompat mundur dari gua, ia mengisi lubang ini dengan kotorannya sendiri.
 
-Menonton Huang Yaoshi jatuh ke dalam perangkap, Ouyang Feng tertawa di dalam. Tapi sekarang dia melihat Huang Yaoshi berjalan menuju dinding gua untuk melihatnya; dia pikir ada sedikit kemungkinan bahwa 'Pedoman Sembilan Yin' tertulis di dinding itu, jadi dia berhati-hati dan buru-buru maju untuk melihat lebih dekat. Apa yang dia lihat adalah beberapa karakter yang diukir dengan jarum yang bertuliskan, “Old Heretic Huang, kamu telah mematahkan kedua kakiku dan memenjarakanku di dalam gua ini selama lima belas tahun. Seharusnya aku mematahkan kedua kakimu untuk melampiaskan amarahku. Tetapi setelah beberapa pemikiran saya memutuskan untuk membiarkannya berlalu. Sebagai gantinya, aku memberimu setumpuk kotoran dan sepanci air seni yang bau. Tolong, tolong …” Karakter di bawah kata 'tolong' ditutupi oleh daun.
+Huang Yaoshi dengan hati-hati memasuki gua, melihat ke segala arah, dan tidak melihat apa pun kecuali beberapa guci 
+dan mangkuk tanah liat. Ia samar-samar memperhatikan beberapa baris karakter yang tertulis di dinding gua.
 
-Huang Yaoshi dengan santai mengulurkan tangannya untuk mengangkat daun itu, tetapi daun itu diikat dengan tali. Tanpa pikir panjang dia menarik senar hanya untuk mendengar suara ketukan di atasnya. Menyadari apa yang terjadi, Huang Yaoshi dengan cepat melompat ke kiri. Tepat di sebelahnya Ouyang Feng juga cepat; melihat Huang Yaoshi bergerak, dia melompat ke kanan. Siapa sangka setelah serangkaian suara berdenting, seikat guci tanah liat jatuh dari kedua sisi? Kedua pria itu basah kuyup oleh air seni yang bau!
+Menonton Huang Yaoshi jatuh ke dalam perangkap, Ouyang Feng tertawa di dalam hati. Tapi sekarang ia melihat Huang Yaoshi 
+berjalan menuju dinding gua untuk mengamatinya, ia pikir ada sedikit kemungkinan bahwa Jiu Yin Zhen Jing tertulis di 
+dinding itu, ia buru-buru maju untuk melihat lebih dekat. Apa yang dilihatnya adalah beberapa karakter yang diukir 
+dengan jarum yang bertuliskan, "Huang Laoxie, kau telah mematahkan kedua kakiku dan mengurungku di dalam gua ini selama 
+lima belas tahun. Seharusnya aku mematahkan kedua kakimu untuk melampiaskan amarahku. Tetapi setelah berpikir beberapa kali, 
+aku memutuskan untuk membiarkannya berlalu. Sebagai gantinya, aku memberimu setumpuk kotoran dan sepanci air kencing bau. 
+Tolong, tolong..." Karakter di bawah kata 'tolong' ditutupi oleh daun.
 
-Hong Qigong tertawa terbahak-bahak, “Manis sekali! Manis sekali!” dia berteriak. Huang Yaoshi sangat marah dan meneriakkan beberapa kata kutukan. Ouyang Feng sangat pandai menyembunyikan perasaannya, jadi dia hanya tersenyum.
+Huang Yaoshi dengan santai mengulurkan tangannya untuk mengangkat daun itu, tetapi daun itu diikat dengan tali. Tanpa 
+pikir panjang ia menarik tali itu, tapi mendadak terdengar suara ketukan di atasnya. Menyadari apa yang terjadi, 
+Huang Yaoshi buru-buru melompat ke kiri. Tepat di sebelahnya Ouyang Feng juga cepat, melihat Huang Yaoshi bergerak, 
+ia melompat ke kanan. Siapa sangka setelah serangkaian suara berdenting, seikat guci tanah liat jatuh dari kedua sisi. 
+Kedua orang itu basah kuyup terguyur air kencing Zhou Botong yang bau.
 
-Huang Rong berlari kembali ke rumah dan membawa baju ganti untuk ayahnya. Dia juga membawa salah satu jubah ayahnya untuk Ouyang Feng.
+Hong Qigong tertawa terbahak-bahak, "Manis sekali! Manis sekali!" serunya. Huang Yaoshi sangat marah dan mengutuk 
+berkali-kali. Ouyang Feng pandai menyembunyikan perasaannya, jadi ia hanya tersenyum.
 
-Huang Yaoshi memutuskan untuk melihat ke dalam gua sekali lagi, berhati-hati agar tidak tersandung jebakan lagi. Dia menurunkan daun itu dan melihat dua baris karakter yang sangat bagus, “… jangan tarik daunnya. Ada urin bau di atas untuk membuat Anda basah kuyup. Ini adalah kebenaran mutlak, seratus persen! Jangan pernah mengatakan bahwa saya tidak memperingatkan Anda.
+Huang Rong berlari kembali ke rumah dan membawa baju ganti untuk ayahnya. Ia juga membawa salah satu jubah ayahnya 
+untuk Ouyang Feng.
 
-Huang Yaoshi marah, tapi juga geli. Tiba-tiba dia teringat bahwa urinnya masih agak hangat; dia berbalik dan berjalan keluar gua. “Landak Tua tidak pergi terlalu lama; kita masih bisa menyusulnya.”
+Huang Yaoshi memutuskan untuk melihat ke dalam gua sekali lagi, berhati-hati agar tidak tersandung jebakan lagi. Ia 
+menurunkan daun itu dan melihat dua baris karakter yang sangat bagus, "... jangan tarik daunnya. Ada air kencing bau 
+di atas, bisa membuatmu basah kuyup. Ini kebenaran mutlak, seratus persen! Jangan pernah bilang aku tidak memperingatkanmu!"
 
-Guo Jing waspada, "Begitu keduanya bertemu, mereka pasti akan terlibat dalam pertempuran sengit," pikirnya. Tapi sebelum dia sempat menyuarakan pendapatnya, Huang Yaoshi sudah terbang ke timur.
+Huang Yaoshi marah, tapi juga geli. Tiba-tiba ia teringat bahwa kencing itu masih agak hangat, ia berbalik dan berjalan 
+keluar gua. "Lao Wantong belum pergi terlalu lama, kita masih bisa menyusulnya."
 
-Semua orang tahu jalur pulau itu misterius dan tidak ada yang berani ketinggalan; jadi mereka mengikuti dari dekat. Tidak terlalu jauh ke depan mereka bisa melihat Zhou Botong berjalan santai. Huang Yaoshi mengerahkan kekuatannya untuk berdiri dan terbang seperti anak panah meninggalkan busurnya dan dalam sekejap dia mendekati Zhou Botong. Dia mengulurkan tangannya untuk meraih leher Zhou Botong.
+Guo Jing waspada. "Begitu keduanya bertemu, mereka pasti akan bertarung sengit," pikirnya. Tapi sebelum ia sempat mengatakan 
+pendapatnya, Huang Yaoshi sudah terbang ke timur.
 
-Zhou Botong menghindar ke kiri. Membalikkan tubuhnya, dia berseru, “Wow! Ini Old Heretic Huang yang harum!”
+Semua orang tahu jalur pulau itu misterius dan tidak ada yang berani ketinggalan, jadi mereka mengikuti dari dekat. 
+Tidak terlalu jauh ke depan mereka bisa melihat Zhou Botong berjalan santai. Huang Yaoshi mengerahkan tenaganya untuk 
+berdiri dan terbang seperti anak panah meninggalkan busurnya, dalam sekejap ia mendekati Zhou Botong. Ia mengulurkan 
+tangannya untuk meraih leher Zhou Botong.
 
-Dalam tangkapan yang satu ini, Huang Yaoshi telah menggunakan keterampilan yang telah dia latih dengan susah payah selama beberapa dekade; itu cepat dan ganas. Dia marah karena kencing dan kotorannya, jadi dia menggunakan seratus persen kekuatannya dalam satu serangan itu. Siapa sangka Zhou Botong mampu menghindari serangannya dengan santai, seolah tidak membutuhkan banyak usaha sama sekali. Hati Huang Yaoshi menjadi dingin dan dia menghentikan serangannya. Dia menenangkan dirinya dan menatap Zhou Botong. Yang mengejutkan, tangan Zhou Botong diikat di depan dadanya; tapi dia tersenyum bahagia dan wajahnya menunjukkan kepuasan.
+Zhou Botong menghindar ke kiri. Membalikkan tubuhnya, ia berseru, "Wow! Ini Huang Laoxie yang harum!"
 
-Guo Jing bergegas maju dan berkata, “Kakak, Master Pulau Huang telah menjadi ayah mertuaku; sekarang kita milik keluarga yang sama.”
+Dalam tangkapan yang satu ini, Huang Yaoshi menggunakan kungfu yang telah dilatihnya dengan susah payah selama beberapa 
+dekade, serangan itu cepat dan dahsyat. Ia marah karena air kencing dan kotoran itu, jadi ia menggunakan seratus persen 
+tenaganya dalam satu serangan. Di luar dugaan Zhou Botong mampu menghindari serangannya dengan santai, seolah tidak 
+membutuhkan banyak usaha sama sekali. Hati Huang Yaoshi menjadi dingin dan ia menghentikan serangannya. Ia menenangkan 
+dirinya dan menatap Zhou Botong. Yang mengejutkan, tangan Zhou Botong diikat di depan dadanya, tapi ia tersenyum bahagia 
+dan wajahnya berseri-seri penuh kepuasan.
 
-Zhou Botong menghela nafas, “Ayah mertua apa? Mengapa Anda tidak mendengarkan saya? Old Heretic Huang jahat dan aneh; bagaimana bisa putrinya menjadi lebih baik? Anda akan menanggung akibatnya selama sisa hidup Anda. Saudaraku yang baik, izinkan saya memberi tahu Anda ini: Apa pun yang terjadi, Anda tidak dapat mengambil sebagai istri Anda putri dari seseorang yang suka buang air kecil setiap hari. Untung Anda belum membungkuk ke surga dan bumi untuk menikahinya; kamu masih bisa menyelinap pergi. Cepat lari sejauh mungkin, kalau tidak dia akan datang mencarimu…”
+Guo Jing bergegas maju dan berkata, "Dage, Huang Daozhu sudah jadi ayah mertuaku sekarang, kita sekeluarga."
 
-Dia masih mengoceh ketika Huang Rong melangkah maju dan tersenyum, "Kakak Zhou, lihat siapa yang datang di belakangmu?"
+Zhou Botong menghela nafas, "Ayah mertua apa? Kenapa kau tidak mendengarkanku? Huang Laoxie jahat dan aneh, bagaimana 
+putrinya bisa jadi lebih baik? Kau akan menanggung akibatnya selama sisa hidupmu. Saudaraku yang baik, ijinkan aku memberimu 
+pelajaran ini, apa pun yang terjadi kau jangan mengambil putri dari orang yang suka berendam di air kencing tiap hari 
+sebagai istrimu. Untung kau belum membungkuk ke Surga dan Bumi untuk menikahinya. Kau masih bisa melarikan diri. Cepat 
+lari sejauh mungkin, kalau tidak dia akan datang mencarimu..."
 
-Zhou Botong menoleh, tapi tentu saja dia tidak melihat siapa pun. Huang Rong mengangkat pakaian bau ayahnya dan melemparkannya ke punggungnya. Zhou Botong mendengar suara mendesis dan melangkah ke samping. Percikan! bungkusan pakaian itu jatuh ke tanah menyebarkan bau busuknya ke mana-mana.
+Ia masih mengoceh ketika Huang Rong melangkah maju dan tersenyum, "Kakak Zhou, lihat siapa yang datang di belakangmu?"
 
-Zhou Botong tertawa terbahak-bahak. “Old Heretic Huang,” katanya, “Meskipun kamu memenjarakanku selama lima belas tahun dan mematahkan kedua kakiku, aku hanya membiarkanmu menginjak kotoranku dan membasahimu dengan air kencingku. Tidakkah menurutmu itu perdagangan yang adil?”
+Zhou Botong menoleh, tapi tentu saja ia tidak melihat siapa pun. Huang Rong mengangkat pakaian bau ayahnya dan 
+melemparkannya ke punggungnya. Zhou Botong mendengar suara pelan dan melangkah ke samping. Bungkusan pakaian itu jatuh 
+ke tanah menyebarkan bau busuknya ke mana-mana.
 
-Huang Yaoshi merenung sejenak dan merasa Zhou Botong benar. Dia tidak memikirkannya lagi dan bertanya, "Mengapa kamu mengikat tanganmu seperti itu?"
+Zhou Botong tertawa terbahak-bahak. "Huang Laoxie," katanya, "Meskipun kau mengurungku lima belas tahun, dan mematahkan 
+kedua kakiku, aku hanya membiarkanmu menginjak kotoranku dan membasahimu dengan air kencingku. Masa menurutmu itu belum
+adil?"
 
-"Aku punya alasan, yang tidak bisa kuberitahukan padamu," kata Zhou Botong, berulang kali menggelengkan kepalanya dan terlihat serius.
+Huang Yaoshi merenung sejenak dan merasa Zhou Botong benar. Ia tidak memikirkannya lagi dan bertanya, "Mengapa kau 
+mengikat tanganmu seperti itu?"
 
-Sebenarnya ketika Zhou Botong terpaksa menanggung penderitaan di lubang itu, dia berpikir beberapa kali untuk keluar dan melawan Huang Yaoshi. Namun, dia menyadari bahwa dia masih bukan tandingan Huang Yaoshi. Selain itu, jika dia terbunuh atau terluka parah, siapa yang akan membela 'Panduan Sembilan Yin' yang dipercayakan kepadanya oleh saudara seperguruannya? Oleh karena itu, dia harus menelan harga dirinya dan menanggung semuanya dengan sabar. Kemudian Guo Jing datang ke tempat kejadian. Bersama-sama mereka memainkan pertarungan empat tangan sampai suatu hari dia memiliki ide untuk bertarung sebagai dua Zhou Botong melawan satu Huang Yaoshi. Dia yakin bahwa tidak peduli seberapa tinggi keterampilan Huang Yaoshi, dia akan mampu membalas dendam atas penderitaannya selama lima belas tahun.
+"Aku punya alasan, yang tidak bisa kuberitahukan kepadamu," kata Zhou Botong, berulang kali menggelengkan kepalanya 
+dan tampak serius.
+
+Sebenarnya ketika Zhou Botong terpaksa menanggung penderitaan di lubang itu, ia berpikir beberapa kali untuk keluar dan 
+melawan Huang Yaoshi. Tapi ia sadar bahwa ia bukan tandingan Huang Yaoshi. Selain itu, kalau ia tewas atau terluka parah, 
+siapa yang akan menjaga Jiu Yin Zhen Jing yang dipercayakan kepadanya oleh kakak seperguruannya? Oleh karena itu, ia harus 
+menelan harga dirinya dan menanggung semuanya dengan sabar. Kemudian Guo Jing datang ke tempat itu. Bersama-sama mereka 
+memainkan pertarungan empat tangan sampai suatu hari ia punya ide untuk bertarung sebagai dua Zhou Botong melawan satu 
+Huang Yaoshi. Ia yakin bahwa tidak peduli seberapa tinggi kungfu Huang Yaoshi, ia akan mampu membalas dendam atas 
+penderitaannya selama lima belas tahun.
 
 Setelah Guo Jing pergi, dia duduk di tanah dan segala macam kenangan kembali membanjiri pikirannya: puluhan tahun rasa syukur, dendam, cinta dan benci datang sampai dia merasa seperti tirai tebal menutupi pikirannya. Tiba-tiba dia mendengar dari kejauhan suara seruling, sitar dan peluit saling bertarung. Semangatnya diaduk; dia menjadi gelisah, ingin berlari keluar, dan kesulitan mengendalikan emosinya. Dia telah merenungkan serangkaian pertanyaannya sendiri untuk sementara waktu, Seni bela diri adik laki-laki saya masih jauh di bawah saya, tetapi mengapa suara seruling Old Heretic Huang tidak memengaruhinya sama sekali? Setelah berteman dengan Guo Jing selama beberapa hari, dia mulai memahami kepribadian Guo Jing. Hari itu, setelah berpikir sejenak, tiba-tiba dia sadar; "Itu benar! Itu benar!" dia berseru, “Dia masih muda, tidak mengerti hubungan antara pria dan wanita dan tidak tahu kesenangan dan sakit hati. Selain itu, ia berpikiran sederhana, tidak ambisius, memiliki kepribadian yang naif dan berhati murni. Saya, sebaliknya, sudah tua; tapi kenapa aku masih berpikir tentang balas dendam? Saya sangat berpikiran sempit. Ini benar-benar konyol!”
 
