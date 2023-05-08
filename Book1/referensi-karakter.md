@@ -879,3 +879,9 @@ sedang menjalankan tugasnya baik-baik, di ruang kerjanya.
 Keempat karakter tersebut bisa diterjemahkan menjadi 'Pintu Gerbang Ajaib dari Lima Elemen'.
 Ini adalah bagian dari teori Lima Elemen (五行) yang berkaitan dengan ajaran Tao.
 
+### <a name="she-xing-li-fan" id="she-xing-li-fan">She Xing Li Fan (蛇行狸翻)</a>
+
+Ini nama salah satu jurus dari [Kitab Sembilan Bulan](#jiu-yin-zhen-jing "Jiu Yin Zhen Jing"), secara literal bisa
+diterjemahkan menjadi 'Ular Merayap, Kucing Liar Berbalik'.
+
+

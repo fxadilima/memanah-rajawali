@@ -501,7 +501,11 @@ Guo Jing terkejut. "Ayah mertua!" serunya. Dia hendak berlari ke depan untuk mem
 
 Baru pada saat itulah Guo Jing menyadari bahwa Zhou Botong bergerak sesuai dengan 'Ular Melata, Kucing Liar Membalik' [dia xing li fan] dari 'Panduan Sembilan Yin'. Dia memperhatikan dengan penuh perhatian. Setiap kali dia melihat gerakan yang indah dia akan bersorak, "Bagus!"
 
-Huang Yaoshi semakin marah; tangannya terbang ke mana-mana, menyerupai kapak atau pisau yang menebas ke segala arah. Lengan panjang Zhou Botong dan sebagian jubahnya telah disayat oleh kekuatan tangan Huang Yaoshi. Sesaat kemudian janggut panjang dan rambut panjangnya juga dipotong. Meskipun dia tidak terluka, Zhou Botong tahu bahwa jika pertarungan berkepanjangan dia mungkin tidak akan seberuntung itu. Mungkin setengah langkah kemudian dia akan mati atau setidaknya terluka parah.
+Huang Yaoshi semakin marah; tangannya terbang ke mana-mana, menyerupai kapak atau pisau yang menebas ke segala arah. Lengan 
+jubah Zhou Botong dan sebagian bagian lain jubahnya tersayat oleh kekuatan tangan Huang Yaoshi. Sesaat kemudian jenggot 
+panjang dan rambut panjangnya juga dipotong. Meskipun ia tidak terluka, Zhou Botong tahu bahwa jika pertarungan 
+berkepanjangan ia mungkin tidak akan seberuntung itu. Sekitar setengah langkah kemudian ia akan mati, atau setidaknya 
+terluka parah.
 
 Pada saat itu tangan kiri Huang Yaoshi menyapu secara horizontal, sedangkan tangan kanannya menebas secara diagonal dan setiap telapak tangan berisi tiga variasi mematikan di dalamnya. Zhou Botong tahu bahwa tidak peduli seberapa cepat dia bergerak, akan sulit untuk menghindari serangan ini. Dia tidak punya pilihan lain selain mengerahkan kekuatannya di kedua tangan dan memutuskan talinya. Begitu tangannya bebas, tangan kirinya menangkis serangan itu, sementara tangan kanannya ke punggungnya sendiri dan mencakar, “Aiyo! Gatalnya tidak tertahankan, ”katanya.
 

@@ -435,3 +435,165 @@ pemahamannya tentang teori ilmu silat juga mendalam. Karena Jiu Yin Zhen Jing di
 telah dipelajarinya, kitab itu menjadi terkait dengan pengetahuan dasarnya sendiri. Ia tidak ingin mempelajari kungfu ini, 
 tetapi kungfu ini justru mendatanginya.
 
+Ia berteriak keras untuk melampiaskan kekesalannya, "Celaka! Ini benar-benar celaka! Ini disebut 'sekali hantu menghuni 
+tubuhmu, kau tidak bisa mengusirnya'. Aku ingin membuat lelucon besar dengan Guo Xiandi, tetapi ternyata kalau kita 
+_menghancurkan batu besar, puing-puingnya akan menimpa kaki kita sendiri_."
+
+Sampai lama sekali ia merasa tertekan dan terus membenturkan kepalanya. Setelah itu sebuah ide muncul di benaknya, ia 
+mengupas beberapa kulit pohon, membuat tali, lalu dengan giginya ia mengikat tangannya sendiri sambil bergumam dengan keras, 
+"Mulai sekarang, karena aku tidak bisa melupakan isi kitab itu sepenuhnya, aku tidak boleh melakukan kekerasan terhadap 
+siapa pun. Bahkan jika Huang Laoxie mengejarku, aku tidak bisa melawannya, karena itu akan melanggar pesan terakhir kakak 
+seperguruanku. Ah, Lao Wantong, La Wantong, kau menuai apa yang kau tabur!"
+
+Tentu saja Huang Yaoshi tidak bisa menebak alasannya. Ia hanya tahu Lao Wantong itu nakal dan aneh, jadi ia hanya berkata, 
+"Lao Wantong, ini Ouyang Xiong, yang aku yakin kau sudah kenal, ini..." Sebelum ia bisa menyelesaikannya, Zhou Botong sudah 
+berjalan mengelilingi mereka semua, mengendus-endus sana-sini, dan kemudian ia tertawa, "Ini pasti Pengemis Tua Hong Qigong. 
+Aku tahu dia orang baik. 'Jala surga tidak luput'! Kencingku hanya mengguyur dua orang, Sesat Timur dan Racun Barat. Ouyang 
+Feng, kau dan aku pernah bermusuhan dan sekarang aku membasahimu dengan air kencingku, kita impas sekarang, dan tidak ada 
+yang rugi.
+
+Ouyang Feng hanya tersenyum tetapi tidak mengatakan apa-apa. Ia mendekati Huang Yaoshi dan berbisik di telinganya, 
+"Yao Xiong, kungfu orang ini luar biasa, dia sudah melebihi kau dan aku. Kupikir lebih baik tidak memprovokasi dia."
+
+Huang Yaoshi berpikir, "Kita sudah dua puluh tahun tidak bertemu, kau tahu dari mana kungfuku lebih rendah dia?" Kepada 
+Zhou Botong ia berkata, "Botong, aku sudah berkali-kali minta kau untuk mengijinkan aku membakar Jiu Yin Zhen Jing 
+sebagai pengorbanan di depan papan peringatan mendiang istriku. Segera setelah kau serahkan kitab itu, aku akan membebaskanmu.
+Kau mau ke mana barusan tadi?"
+
+"Aku bosan tinggal di pulau ini," kata Zhou Botong, "Aku mau keluar untuk jalan-jalan."
+
+"Dan di mana kitabnya?" tanya Huang Yaoshi sambil mengulurkan tangannya.
+
+"Aku memberikan kitab itu padamu sebelumnya," kata Zhou Botong.
+
+"Jangan omong kosong," kata Huang Yaoshi, "Kapan kau memberikannya padaku?"
+
+Zhou Botong tersenyum, "Guo Jing menantumu, kan? Berarti dia milikmu, kan? Aku sudah menyampaikan Jiu Yin Zhen Jing dari 
+awal sampai akhir kepadanya, itu bukannya sama dengan memberikan kitabnya?"
+
+Guo Jing terkejut. Ia berseru, "Kakak, ini... ini... kau mengajariku Jiu Yin Zhen Jing?"
+
+Zhou Botong tertawa terbahak-bahak, "Menurutmu itu palsu?"
+
+Guo Jing tercengang dan ia merasa seperti orang bodoh. Zhou Botong sangat senang. Tepat untuk melihat momen seperti inilah 
+alasannya kenapa ia mau bersusah-payah untuk membuat Guo Jing menghafal Jiu Yin Zhen Jing, ia ingin melihat ekspresi Guo 
+Jing ketika mengetahui bahwa ia telah mempelajari kitab itu, terlepas dari penolakannya sebelumnya. Sekarang setelah tujuan 
+ini tercapai, ia sungguh-sungguh puas.
+
+"Jilid pertama selalu ada di tanganmu, tapi dari mana kau mendapatkan jilid kedua?" tanya Huang Yaoshi.
+
+"Bukankah menantumu yang baik mengirimkannya kepadaku secara pribadi?" kata Zhou Botong sambil tersenyum nakal.
+
+"Aku... aku tidak!" sahut Guo Jing terkejut.
+
+Huang Yaoshi sangat marah dan berpikir, "Bocah konyol Guo Jing ini berani menipuku, Mei Chaofeng yang buta dan malang masih 
+mati-matian mencari buku itu." Ia melotot marah ke arah Guo Jing, lalu menoleh ke arah Zhou Botong, "Aku ingin kitab aslinya."
+
+"Saudaraku," Zhou Botong memanggil Guo Jing, "Bantu aku mengambil buku itu dari sakuku." Guo Jing melangkah maju dan 
+meraba-raba ke dalam saku Zhou Botong, ia mengeluarkan sebuah buku setebal setengah inci. Zhou Botong mengulurkan tangannya 
+untuk menerima buku itu dan berkata kepada Huang Yaoshi, "Ini adalah jilid pertama dari manual, jilid kedua dilipat di 
+dalamnya. Kalau kau kau memang punya kemampuan, ambillah."
+
+"Maksudmu _kemampuan_ apa?" tanya Huang Yaoshi.
+
+Zhou Botong memegang buku itu erat-erat sambil menundukkan kepalanya dan berkata, "Sebentar, biar kupikir dulu..." Setelah 
+beberapa saat, ia tersenyum lebar dan berkata lagi, "Kemampuan menempel!"
+
+"Apa?" tanya Huang Yaoshi bingung.
+
+Zhou Botong mengangkat tangannya tinggi-tinggi, dan segera buku itu menjadi jutaan keping. Serangkaian potongan kertas 
+beterbangan dari tangannya seperti sekawanan kupu-kupu terbang ke segala arah, terbawa angin laut, melayang ke timur dan 
+berhamburan ke barat. Tidak mungkin melacak mereka.
+
+Huang Yaoshi terkejut dan sekaligus marah, ia tidak mengira bahwa tenaga dalam Zhou begitu dahsyat. Dalam waktu singkat 
+buku itu benar-benar hilang. Mengingat mendiang istrinya, Huang Yaoshi merasa sangat sakit hati. "Lao Wantong, kau 
+mempermainkanku! Jangan pernah berpikir untuk meninggalkan pulau ini hidup-hidup!" ia berteriak dengan marah. Terbang ke 
+depan telapak tangannya sangat dekat dengan wajah Zhou Botong.
+
+Zhou Botong menggerakkan tubuhnya sedikit, dan seperti pendulum ia berayun ke kiri dan ke kanan. Dengan suara berdesir, telapak tangan Huang Yaoshi menari-nari di udara, sangat dekat dengan tubuh Zhou Botong, tetapi tidak dapat menyentuhnya. 
+Itu adalah spesialisasi Huang Yaoshi, 
+[Ilmu Pedang Dewa Bunga Persik](referensi-karakter.md#taohua-shen-jian-zhang "Tao Hua Shen Jian Zhang (桃花神剑掌)"),
+tapi ia tidak menduga bahwa setelah sekitar dua puluh jurus, tampaknya teknik telapak tangan itu tidak berguna melawan 
+Zhou Botong.
+
+Huang Yaoshi bingung karena Zhou Botong tidak melancarkan serangan balik, sementara ia telah menggunakan seluruh kekuatannya 
+untuk memaksa Zhou Botong menahan serangannya. Ia tiba-tiba terkejut, "Masa aku, Huang Yaoshi, melawan seseorang yang kedua 
+tangannya terikat?"
+
+Melompat mundur tiga langkah, ia berseru, "Lao Wantong, aku sudah melakukan sesuatu yang tidak pantas padamu, tetapi kakimu 
+sudah sembuh. Cepat putuskan tali yang mengikat tanganmu dan biarkan aku melawan kungfu Jiu Yin Zhen Jing-mu."
+
+Zhou Botong tampak kecewa dan berulang kali menggelengkan kepalanya, "Aku tidak ingin membohongimu, tetapi aku punya 
+kesulitanku sendiri. Apa pun yang terjadi, aku tidak bisa melepas talinya."
+
+"Kalau begitu biar aku yang melepasnya untukmu," kata Huang Yaoshi, segera bergerak maju untuk menyentuh tangannya.
+
+"Aiyo! Tolong, tolong...!" seru Zhou Botong sambil berguling-guling di tanah.
+
+Guo Jing terkejut. "Ayah mertua!" serunya. Ia hendak berlari ke depan untuk memblokir Huang Yaoshi ketika Hong Qigong menahannya. "Jangan bodoh!" bisiknya. Guo Jing berhenti dan memperhatikan. Meskipun Zhou Botong berguling-guling di tanah, 
+ia sangat gesit. Huang Yaoshi meraih dan menendang tetapi bahkan tidak bisa menyentuh tubuhnya.
+
+"Perhatikan baik-baik caranya bergerak," bisik Hong Qigong lagi.
+
+Baru pada saat itulah Guo Jing menyadari bahwa Zhou Botong bergerak sesuai dengan gerakan 
+[She Xing Li Fan](referensi-karakter.md#she-xing-li-fan "(蛇行狸翻) Ular Merayap Kucing Liar Berbalik") 
+dari Jiu Yin Zhen Jing. Ia mengamatinya dengan penuh perhatian. Setiap kali ia melihat gerakan yang indah ia bersorak, 
+"Bagus!"
+
+Huang Yaoshi semakin marah; tangannya terbang ke mana-mana, seperti kapak atau pisau yang menebas ke segala arah. Lengan 
+jubah panjang Zhou Botong dan sebagian bagian lain jubahnya tersayat oleh kekuatan tangan Huang Yaoshi. Sesaat kemudian 
+jenggot panjang dan rambut panjangnya juga dipotong. Meskipun ia tidak terluka, Zhou Botong tahu bahwa jika pertarungan 
+berkepanjangan ia mungkin tidak akan seberuntung itu. Mungkin setengah langkah kemudian ia akan mati, atau setidaknya 
+terluka parah.
+
+Pada saat itu tangan kiri Huang Yaoshi menyapu secara horizontal, sedangkan tangan kanannya menebas secara diagonal dan 
+setiap telapak tangan berisi tiga variasi mematikan di dalamnya. Zhou Botong tahu bahwa tidak peduli seberapa cepat ia 
+bergerak, akan sulit untuk menghindari serangan ini. Ia tidak punya pilihan lain kecuali mengerahkan tenaga di kedua 
+tangan dan memutuskan talinya. Begitu tangannya bebas, tangan kirinya menangkis serangan itu, sementara tangan kanannya 
+ke punggungnya sendiri dan mencakar, "Aiyo! Gatalnya...!" katanya.
+
+Huang Yaoshi dalam hati terkejut melihat Zhou Botong begitu santai, bahkan terkesan main-main, saat mereka bertarung dengan 
+sengit. Huang Yaoshi mengirimkan tiga jurus yang lebih sengit dan ketiganya adalah yang terbaik.
+
+"Aku tidak bisa melawanmu dengan satu tangan," kata Zhou Botong, "Ah! Aku tidak tahan lagi. Tidak peduli apa yang terjadi, 
+aku tidak bisa mengecewakan kakak seperguruanku." Ia mengerahkan seluruh kekuatannya ke tangan kanannya dan menangkis 
+serangan itu, sementara tangan kirinya tergantung longgar di sampingnya. Tenaganya masih kalah dengan tenaga murni Huang 
+Yaoshi, jadi begitu kedua tangan bertabrakan, Zhou Botong terguncang dan terhuyung mundur beberapa langkah.
+
+Huang Yaoshi terbang ke depan dengan kedua telapak tangan mengelilingi tubuh Zhou Botong. "Pakai dua tangan! Dengan satu 
+tangan kau bukan tandinganku," serunya.
+
+"Aku tidak bisa," kata Zhou Botong, "Aku harus menggunakan satu tangan saja."
+
+Huang Yaoshi marah, "Baiklah, coba ini!" Kedua telapak tangannya menyerang ke depan dengan kekuatan penuh. Ledakan keras 
+terdengar dan Zhou Botong jatuh ke tanah. Ia duduk terdiam dengan kedua mata tertutup. Huang Yaoshi menahan tangannya dan 
+melihat Zhou Botong batuk dan mengeluarkan darah dari mulutnya, wajahnya seputih kertas.
+
+Semua orang mengira itu aneh, seandainya ia benar-benar bertarung dengan Huang Yaoshi, bahkan jika ia tidak bisa menang, ia 
+pasti tidak akan terlalu menderita. Mengapa ia bersikeras hanya menggunakan satu tangan?
+
+Zhou Botong berdiri perlahan dan berkata, "Lao Wantong sudah menderita akibat perbuatan sendiri. Meskipun aku tidak berniat 
+melakukannya, aku tiba-tiba mempelajari kungfu dari Jiu Yin Zhen Jing, dan melanggar wasiat kakak seperguruanku. Kalau aku 
+menggunakan kedua tanganku, Huang Laoxie, kau bukan tandinganku."
+
+Huang Yaoshi sadar bahwa apa yang dikatakannya adalah kebenaran, ia terdiam. Ia menyadari bahwa ia tidak punya alasan untuk 
+menahankan Zhou Botong di pulau itu selama lima belas tahun, dan ia juga tidak punya alasan untuk melukainya sekarang. Ia 
+mengambil kotak batu giok dari sakunya, membukanya dan mengeluarkan tiga pil berwarna merah darah, ia memberikan pil itu 
+kepada Zhou Botong dan berkata, "Botong, tidak ada obat di bawah langit yang melampaui pil merah Pulau Bunga Persik ini. 
+Minum satu sekarang, dan minum dua kali tujuh hari berikutnya berturut-turut, luka dalammu tidak akan jadi masalah lagi. Kau 
+bisa pergi dari pulau ini."
+
+Zhou Botong mengangguk, mengambil pil dan menelan satu, setelah mengatur pernapasannya beberapa saat, ia memuntahkan darah 
+beku. Ia berkata, "Huang Laoxie, pil merahmu sangat hebat, tidak heran kau dipanggil 'Yaoshi'[^yaoshi]. Eeh! Aneh! Aneh 
+sekali! Namaku 'Botong', saya ingin tahu apa artinya?" Setelah merenungkan pertanyaan itu sebentar, ia menggelengkan 
+kepalanya dan berkata, "Huang Laoxie, aku harus pergi sekarang. Boleh?"
+
+"Aku tidak berani menghentikanmu," jawab Huang Yaoshi, "Terserah kau mau tinggal atau pergi. Saudara Botong, mulai hari ini, 
+kalau kau ingin datang ke sini, aku akan menyambutmu dengan sepenuh hati. Sekarang biarkan aku mengantarmu ke perahu yang akan membawamu kembali ke Dataran Tengah."
+
+
+
+**Last Line** was 528 in Draft.
+
+
+
