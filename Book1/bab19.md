@@ -835,7 +835,7 @@ Zhou Botong menoleh kepada Guo Jing. "Saudaraku, kau mengerti ucapan Gurumu? Dia
 di depan ayah mertuamu. Kalau dia masih tidak mau memberikan putrinya, dan memukulimu tanpa alasan, maka kau boleh mencurinya 
 di malam hari," katanya. "Tapi kalau kau benar-benar ingin mencuri harta itu, kau tidak harus melakukannya sendiri, yang 
 perlu kau lakukan hanya memanggil, 
-'[Bao Bei Er](panggilan.md#bao-bei "Bao Bei Er (宝贝儿) = Sayangku"), ayo!' Dan dia akan keluar mengikutimu."
+'[Bao Bei Er](panggilan.md#bao-bei-er "Bao Bei Er (宝贝儿) = Sayangku"), ayo!' Dan dia akan keluar mengikutimu."
 
 
 **Last Line** was 661 in Draft.
