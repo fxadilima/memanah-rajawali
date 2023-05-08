@@ -540,7 +540,7 @@ Baru pada saat itulah Guo Jing menyadari bahwa Zhou Botong bergerak sesuai denga
 dari Jiu Yin Zhen Jing. Ia mengamatinya dengan penuh perhatian. Setiap kali ia melihat gerakan yang indah ia bersorak, 
 "Bagus!"
 
-Huang Yaoshi semakin marah; tangannya terbang ke mana-mana, seperti kapak atau pisau yang menebas ke segala arah. Lengan 
+Huang Yaoshi semakin marah, tangannya terbang ke mana-mana, seperti kapak atau pisau yang menebas ke segala arah. Lengan 
 jubah panjang Zhou Botong dan sebagian bagian lain jubahnya tersayat oleh kekuatan tangan Huang Yaoshi. Sesaat kemudian 
 jenggot panjang dan rambut panjangnya juga dipotong. Meskipun ia tidak terluka, Zhou Botong tahu bahwa jika pertarungan 
 berkepanjangan ia mungkin tidak akan seberuntung itu. Mungkin setengah langkah kemudian ia akan mati, atau setidaknya 
