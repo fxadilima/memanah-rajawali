@@ -402,7 +402,7 @@ Selain itu, dia berpikiran sederhana, tidak ambisius, punya sifat yang naif dan 
 sudah tua, tapi kenapa aku masih berpikir tentang balas dendam? Pikiranku sangat sempit! Ini benar-benar konyol!"
 
 Meskipun ia berasal dari Perguruan Quanzhen, ia tidak pernah menjadi Pendeta Tao, tapi tetap saja prinsip-prinsip Tao 
-tertanam dalam di hatinya, [kedamaian dan ketenangan](referensi-karakter.md#qing-jing-wu-wei "Qing Jing Wu Wei ()"),
+tertanam dalam di hatinya, [kedamaian dan ketenangan](referensi-karakter.md#qing-jing-wu-wei "Qing Jing Wu Wei (清静无畏)"),
 menjalani hidup sederhana dan menekan ambisi, semua ajaran Tao itu. Itu seperti bola lampu yang tiba-tiba menyala di 
 kepalanya. Ia menghela nafas panjang, berdiri dan berjalan keluar gua. Untuk pertama kalinya dalam beberapa tahun ia 
 menyadari bahwa langit begitu biru dan awan begitu putih. Hatinya menjadi jernih dan terang. Penderitaan yang dialaminya 

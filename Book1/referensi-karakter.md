@@ -885,3 +885,13 @@ Ini nama salah satu jurus dari [Kitab Sembilan Bulan](#jiu-yin-zhen-jing "Jiu Yi
 diterjemahkan menjadi 'Ular Merayap, Kucing Liar Berbalik'.
 
 
+### <a id="qingjing-wuwei" name="qingjing-wuwei">Qing Jing Wu Wei (清静无为)</dt>
+
+Dua karakter Wu Wei (tradisional:無爲 atau disederhanakan:无为) secara literal berarti 'Tidak melakukan apa-apa',
+sedangkan Qing Jing (清静) bermakna 'Ketenangan', juga bisa jadi dalam pengertian 'Tidak melakukan apa-apa', atau
+'tidak bicara', atau 'tidak bergerak'.
+
+Baik Qing Jing maupun Wu Wei adalah prinsip dari Taoisme.
+
+
+
