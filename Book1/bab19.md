@@ -589,8 +589,10 @@ sekali! Namaku 'Botong', saya ingin tahu apa artinya?" Setelah merenungkan perta
 kepalanya dan berkata, "Huang Laoxie, aku harus pergi sekarang. Boleh?"
 
 "Aku tidak berani menghentikanmu," jawab Huang Yaoshi, "Terserah kau mau tinggal atau pergi. Saudara Botong, mulai hari ini, 
-kalau kau ingin datang ke sini, aku akan menyambutmu dengan sepenuh hati. Sekarang biarkan aku mengantarmu ke perahu yang akan membawamu kembali ke Dataran Tengah."
+kalau kau ingin datang ke sini, aku akan menyambutmu dengan sepenuh hati. Sekarang biarkan aku mengantarmu ke perahu yang 
+akan membawamu kembali ke Dataran Tengah."
 
+[^yaoshi]: Yao Shi (药师) secara literal bisa diterjemahkan menjadi 'Ahli Obat'.
 
 
 **Last Line** was 528 in Draft.
