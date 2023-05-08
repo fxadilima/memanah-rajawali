@@ -837,8 +837,93 @@ di malam hari," katanya. "Tapi kalau kau benar-benar ingin mencuri harta itu, ka
 perlu kau lakukan hanya memanggil, 
 '[Bao Bei Er](panggilan.md#bao-bei-er "Bao Bei Er (宝贝儿) = Sayangku"), ayo!' Dan dia akan keluar mengikutimu."
 
+Mendengarkannya, Guo Jing tidak bisa menahan senyum. Ia melihat Zhou Botong mondar-mandir di kabin, ia tidak bisa diam 
+bahkan untuk sesaat. Tiba-tiba sebuah pikiran muncul di benaknya, "Dage, kau mau pergi ke tempat lain?" tanyanya.
 
-**Last Line** was 661 in Draft.
+"Tidak punya," jawab Zhou Botong. "Aku pergi ke mana hatiku menyuruhku. Aku tinggal di Pulau Persik terlalu lama, dan 
+aku merasa terkurung."
+
+"Aku punya permintaan," kata Guo Jing.
+
+Zhou Botong menggelengkan kepalanya. "Tidak, aku tidak mau pergi ke Pulau Bunga Persik untuk membantumu mencuri seorang 
+istri, aku tidak mau."
+
+Guo Jing tersipu, "Tidak, bukan itu," katanya, "Aku ingin minta tolong Kakak untuk mengunjungi Rumah Awan di Yixing, di tepi 
+Danau Tai."
+
+"Untuk apa?" tanya Zhou Botong.
+
+"Pemilik Rumah Awan itu, Lu Chengfeng, adalah pendekar hebat," jelas Guo Jing. "Dia murid Ayah mertua. Gara-gara Hei Feng 
+Shuang Sha, Ayah mertua mematahkan kakinya dan dia sekarang lumpuh. Kaki Dage sudah sembuh, jadi aku mau minta bantuan Dage 
+untuk mengajarinya teknik menyembuhkan kakinya sendiri."
+
+"Itu gampang," kata Zhou Botong. "Bahkan kalau Huang Laoxie mematahkan kakiku lagi, aku tahu bagaimana menyembuhkan diriku 
+sendiri. Kalau tidak percaya, silakan patahkan kakiku." Setelah mengatakan itu, ia duduk di kursi dan merentangkan kakinya 
+dengan ekspresi menantang.
+
+Guo Jing tersenyum, "Itu tidak perlu dicoba, aku tahu Kakak punya kemampuan ini," katanya.
+
+Saat mereka masih berbicara, tiba-tiba terdengar suara tabrakan yang keras. Pintu terbuka dan seorang pelaut bergegas masuk 
+dengan ekspresi ketakutan. Ia tidak bisa berbicara, jadi ia hanya menggerakkan tangan dengan panik. Mereka bertiga tahu ada 
+sesuatu yang sangat tidak beres, jadi mereka berlari keluar kabin.
+
+
+***
+
+Huang Rong ingin bicara dengan Guo Jing tetapi ditarik oleh ayahnya. Ia sangat kesal. Begitu mereka tiba di rumah, ia 
+langsung pergi ke kamarnya dan mengunci pintu sambil menangis sejadi-jadinya. Dalam kemarahan Huang Yaoshi telah mengusir 
+Guo Jing dari pulau itu, sekarang setelah amarahnya reda, ia menyesali keputusannya yang terburu-buru. Ia sadar dengan 
+berbuat begitu berarti ia mengirim Guo Jing ke kematiannya. Ia ingin menghibur putrinya, tapi tidak peduli seberapa keras 
+atau berapa lama ia mengetuk pintunya, Huang Rong hanya menutup telinga. Saat makan malam ia memanggilnya, tetapi ia tidak 
+muncul, ia lalu mengirim seorang pelayan membawakan makan malam Huang Rong, tetapi semua makanan itu dilemparkannya ke 
+lantai, dan bahkan memukul pelayan itu beberapa kali.
+
+"Ayah bilang kalau Jing Gege menginjakkan kaki di pulau ini lagi, ia akan membunuhnya. Aku ingin pergi dan menemukannya, 
+tetapi bagaimana aku bisa meninggalkan Ayah sendirian di sini? Dia pasti akan sedih." Huang Rong merenungkannya bolak-balik, 
+tetapi tidak dapat menemukan ide apa pun sampai perutnya sakit.
+
+Beberapa bulan yang lalu Huang Yaoshi memarahinya dan ia melarikan diri dari pulau, dengan pikiran kekanak-kanakan ia tidak 
+ingin kembali. Setelah itu, ketika ia bertemu ayahnya lagi, ia melihat bahwa jumlah uban di pelipisnya tiba-tiba bertambah. 
+Itu baru beberapa bulan, tapi ayahnya tampak sepuluh tahun lebih tua dari yang diingatnya. Ia merasa sangat menyesal, dan 
+berjanji dalam hatinya untuk tidak pernah meninggalkannya lagi. Ia tidak menyangka bahwa sekarang situasinya akan sesulit 
+ini. Ia berbaring di tempat tidurnya sepanjang hari sambil menangis. Ia berpikir, "Kalau ibu masih hidup, dia akan menjagaku, 
+masa dia akan membiarkan aku menderita seperti ini?"
+
+Sambil memikirkan ibunya, ia memutuskan untuk keluar dari kamar dan berjalan melewati lorong menuju pintu depan. Rumahnya di 
+Pulau Bunga Persik memiliki pintu depan yang selalu terbuka, siang dan malam, kecuali ada badai yang datang. Huang Rong pergi 
+ke halaman. Ada langit berbintang dan udara dipenuhi aroma bunga. "Jing Gege pasti sudah jauh sekarang, entah kapan kita akan 
+bertemu lagi," pikirnya. Ia menghela nafas panjang, menyeka air mata dari matanya dengan ujung lengan bajunya yang panjang, 
+dan berjalan menuju semak-semak bunga di ujung halaman mereka. Memasuki semak-semak dan menyapu daun ia tiba di makam ibunya.
+
+Keindahan kayu peti mati, berbagai tanaman dan anggrek langka serta berbagai bunga yang mekar di musim berbeda, semuanya 
+adalah pilihan pribadi Huang Yaoshi. Mereka bersinar di bawah sinar bulan dengan masing-masing memancarkan aroma uniknya 
+sendiri. Huang Rong mendorong batu masuk tiga kali ke kiri dan tiga kali ke kanan, kemudian mengerahkan kekuatannya ia 
+mendorongnya. Batu masuk perlahan bergerak ke samping, memperlihatkan terowongan panjang dan sempit berdinding batu. Ia 
+masuk, dan setelah melakukan tiga putaran, ia tiba di pintu rahasia lain. Di luar pintu ini adalah tempat peti mati 
+ditempatkan. Ruangan itu diterangi oleh lampu minyak di dalam wadah batu mulia, menerangi papan peringatan ibu Huang Rong.
+
+Sendirian di ruang bawah tanah kecil itu, dan melihat lukisan mendiang ibunya yang dibuat oleh tangan ayahnya sendiri, hati 
+Huang Rong dipenuhi dengan emosi yang naik turun. Ia berpikir, "Aku belum pernah melihat Ibu. Aku ingin tahu apakah, setelah 
+aku mati, akankah aku bertemu dengannya? Apakah dia benar-benar muda dan cantik seperti di gambar itu? Di mana dia sekarang? 
+Apakah dia di surga di atas, atau di bawah bumi, atau masih di ruangan ini? Aku akan tinggal di sini selamanya untuk 
+menemaninya."
+
+Di sepanjang dinding makam ini terdapat permata berharga, koleksi barang antik, lukisan dan kaligrafi dari seniman terkenal,
+semuanya sangat mahal. Setelah istrinya meninggal, Huang Yaoshi menjelajahi laut dan danau untuk mengumpulkan barang-barang 
+berharga tersebut. Apakah itu di dalam istana kekaisaran, di dalam rumah pejabat pemerintah yang kaya, atau di sarang 
+perampok yang tinggi di pegunungan, selama ia tahu ada harta karun, ia akan datang dan mencurinya atau mengambilnya dengan 
+paksa. Kungfunya tinggi dan ia memiliki mata yang tajam dan selera yang canggih, jadi ia berhasil mengumpulkan beberapa 
+harta yang ditumpuknya di dalam makam istrinya.
+
+Huang Rong dapat melihat mutiara yang cerah, batu giok yang indah, zamrud, dan batu kecubung yang berkilauan di bawah cahaya 
+api. Ia berpikir, "Permata berharga ini tidak punya perasaan, tapi akan bertahan selama jutaan tahun. Hari ini aku melihat 
+mereka di sini, tetapi di masa depan tubuhku akan berubah menjadi debu, dan mereka akan tetap ada di sini. Benarkah di antara 
+makhluk hidup, yang pintar dan cerdas tidak akan berumur panjang? Apakah karena sangat pintar sehingga ibuku meninggal waktu 
+baru berusia dua puluh tahun?"
+
+
+
+**Last Line** was 700 in Draft.
 
 
 
