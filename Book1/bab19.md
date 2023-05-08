@@ -730,16 +730,115 @@ Jiu Yin Zhen Jing kepada Zhou Botong?"
 Guo Jing, "Kalau dizi tahu..."
 
 "Apa maksudmu tidak tahu?" sela Zhou Botong. Dia selalu tidak tahu apa yang serius dan apa yang tidak. Semakin orang lain 
-kesal, semakin dia ingin mempermainkan mereka. Tanpa menunggu Guo Jing menjelaskan, ia berkata, "Kau sendiri yang bilang bahwa kau mengambil kitab itu dari Mei Chaofeng dan juga bilang kau beruntung karena Si Tua Huang Yaoshi tidak tahu. Kau 
+kesal, semakin dia ingin mempermainkan mereka. Tanpa menunggu Guo Jing menjelaskan, ia berkata, "Kau sendiri yang bilang 
+bahwa kau mengambil kitab itu dari Mei Chaofeng dan juga bilang kau beruntung karena Si Tua Huang Yaoshi tidak tahu. Kau 
 juga bilang bahwa setelah kau menguasai kitabnya, kau akan menjadi pendekar nomor satu di dunia."
 
 Guo Jing tertegun. "Kakak, aku... kapan aku bilang begitu?" katanya dengan suara bergetar.
 
 Mata Zhou Botong berbinar dan dengan suara tegas ia berkata, "Kau _memang_ bilang begitu."
 
+Fakta bahwa Guo Jing mampu menghafalkan buku itu diketahui oleh mereka semua yang hadirdi situ. Apakah ia tahu itu adalah 
+Jiu Yin Zhen Jing atau tidak, tidak ada yang peduli. Sekarang Zhou Botong sudah memastikannya, Huang Yaoshi sangat, sangat 
+marah. Ia tidak mengira bahwa Zhou Botong hanya bercanda. Ia lupa bahwa Zhou Botong kekanak-kanakan dan selalu suka membuat 
+lelucon, sedangkan Guo Jing naif dan tidak bisa berbohong. Ia sangat marah sehingga takut ia akan mencabik-cabik Guo Jing, 
+dan dengan demikian mencoreng reputasinya sendiri. Jadi sebaliknya, ia mengangkat tangannya untuk menghormati Zhou Botong, 
+Hong Qigong dan Ouyang Feng, lalu berkata, "Maafkan aku!" Ia menarik tangan Huang Rong, berbalik dan pergi.
+
+Huang Rong masih ingin berbicara sedikit dengan Guo Jing. "Jing Gege..." panggilnya, tetapi ia ditarik oleh ayahnya, dan 
+dalam sekejap mata mereka telah menjauh puluhan kaki dari situ, menghilang ke dalam hutan.
+
+Zhou Botong tertawa terbahak-bahak, tetapi tiba-tiba berhenti karena dadanya sakit. Akhirnya ia terkekeh dan berkata,
+"Huang Laoxie jatuh ke dalam perangkapku. Aku hanya omong kosong, dan dia menganggapnya serius. Lucu... lucu!"
+
+Hong Qigong terkejut. "Kalau begitu Jing'er benar-benar tidak tahu sebelumnya?" tanyanya.
+
+Zhou Botong tertawa, "Tentu saja dia tidak tahu! Dia pikir kungfu dari Jiu Yin Zhen Jing itu jahat, seandainya dia tahu, 
+dia tidak akan mau mempelajarinya. Xiandi, kau menghafal kitabnya dengan sangat baik, kan? Bahkan kalau kau ingin 
+melupakannya, kau tidak bisa, kan?" Ia memegangi perutnya sendiri dan tertawa terbahak-bahak lagi, dan tidak peduli jika 
+dadanya sakit, jadi ekspresinya benar-benar aneh.
+
+Hong Qigong menginjak kakinya. "Aih! Lao Wantong! Leluconmu ini betul-betul keterlaluan! Aku akan bicara dengan Yao Xiong." 
+Ia berlari ke dalam hutan, tetapi jalurnya membingungkan dan ia tidak tahu ke mana Huang Yaoshi pergi. Para pelayan yang 
+bisu-tuli itu, segera setelah tuannya pergi, mereka lari mengikutinya. Saat itu Hong Qigong tidak punya pemandu jalan, 
+jadi ia terpaksa kembali. Kemudian ia tiba-tiba teringat bahwa Ouyang Ke punya peta detail Pulau Bunga Persik. "Keponakan 
+Ouyang, boleh kupinjam peta Pulau Bunga Persik sebentar?" tanyanya mendesak.
+
+Ouyang Ke menggelengkan kepalanya, “Tanpa ijin Paman Huang, Xianzhi tidak berani membiarkan orang lain melihatnya. Paman 
+Hong tolong jangan salahkan Xianzhi."
+
+"Huh!" Hong Qigong mendengus. Dalam hati ia berkata, "Aku benar-benar bodoh, bagaimana aku bisa meminjam peta dari anak 
+keparat ini? Dia sungguh-sungguh berharap Huang Laoxie membenci muridku yang itu." Saat ia masih menatap hutan, tiba-tiba 
+ia melihat beberapa bayangan putih datang. Ternyata mereka adalah tiga puluh dua gadis penari berpakaian putih milik Ouyang 
+Feng.
+
+Saat mereka mendekati Ouyang Feng, mereka berlutut dan salah satu dari mereka berkata, "Huang Daozhu menyuruh kami kembali 
+kepada [Zhuang Zhu](referensi-karakter.md#zhuang-zhu "Zhuang Zhu (庄主), Tuan")."
+
+Ouyang Feng bahkan tidak melihat ke arah mereka, ia hanya melambaikan tangannya menyuruh mereka naik ke perahunya. Kepada 
+Hong Qigong dan Zhou Botong ia berkata, "Saya kuatir Yao Xiong mungkin memasang beberapa jebakan. Jangan takut, aku akan 
+mengikuti dari dekat di kapalku. Dalam keadaan darurat, kami bisa membantu kalian."
+
+Zhou Botong dengan marah berkata, "Siapa yang perlu bantuanmu? Aku mau lihat alat apa yang dipasang Huang Laoxie di kapalnya. 
+Kalau kau mengikuti kami, bahayanya tidak akan ada, lalu bagian serunya dimana? Kalau kau mengacau lagi, Lao Wantong akan 
+mengencingimu sekali lagi!"
+
+Ouyang Feng tertawa, "Baiklah! Kalau begitu, sampai kita bertemu lagi." Ia merangkapkan tangannya dan membawa keponakannya 
+ke atas kapal mereka.
+
+Guo Jing masih menatap kosong ke tempat Huang Rong menghilang, melamun. Zhou Botong tertawa, "Saudaraku, ayo kita naik ke 
+kapal. Masa kapal sial ini akan menelan kita bertiga hidup-hidup?" Tangan kirinya meraih lengan Hong Qigong dan tangan 
+kanannya menarik Guo Jing dan bersama-sama mereka naik ke kapal baru itu.
+
+Kapal itu datang dengan tujuh atau delapan pelaut yang menunggu untuk melayani mereka, semuanya bisu. Zhou Botong tertawa, 
+"Suatu hari nanti Si Jahat Huang Tua itu akan sangat marah, dan memotong lidah putrinya sendiri. Hanya dengan begitu aku 
+akan mengagumi dia karena punya nyali. Mendengar ini Guo Jing mau tidak mau menggigil. Zhou Botong melihatnya dan tertawa 
+terbahak-bahak, "Kau takut?" tanyanya, lalu memberi isyarat tangan kepada para pelaut untuk mulai berlayar. Para pelaut 
+mengangkat jangkar dan mengangkat layar, di hembusan angin selatan mereka menuju utara.
+
+"Ayo," kata Hong Qigong. "Mari kita lihat perahu ini, apa yang aneh di dalamnya." Tiga pria itu berjalan di perahu dari 
+haluan ke buritan, dari geladak ke dasar palka. Perahu itu dicat dengan cat yang cerah dan bening, dan palka berisi 
+persediaan makanan dan minuman... air, nasi putih, arak, daging, dan sayuran yang berlimpah. Tapi tidak ada yang luar biasa.
+
+"Huang Laoxie menipu kita!" kata Zhou Botong dengan penuh kebencian. "Mana hal aneh di kapal yang dia bilang itu? Dia 
+benar-benar pembohong!"
+
+Hong Qigong bagaimanapun juga masih ragu. Ia melompat ke tiang dan dengan kekuatannya mencoba mengguncang tiang dan layar, 
+tetapi sekali lagi, ia tidak menemukan sesuatu yang luar biasa. Ia mengangkat matanya dan melihat ke kejauhan, ia melihat 
+burung camar terbang, ombak bergulung dan cakrawala tempat laut bertemu dengan langit. Tiga layar perahu terangkat penuh 
+saat mereka menuju ke utara. Ia membuka kerahnya dan menikmati angin yang menyegarkan. Memutar kepalanya, ia melihat perahu 
+Ouyang Feng mengikuti kira-kira [dua li](referensi-unit.md#satuan-li "2 li kurang lebih 1 km") di belakang.
+
+Hong Qigong melompat turun dari tiang kapal dan memberi isyarat tangan kepada pelaut di kemudi, menyuruhnya mengubah arah 
+ke barat laut. Sesaat kemudian ia melihat lagi dan melihat perahu Ouyang Feng juga telah berubah arah ke barat laut.
+
+"Untuk apa dia mengikuti kita?" gumam Hong Qigong pelan. "Bisakah dia punya niat yang betul-betul baik? Waktu Racun Barat 
+punya niat baik, mungkin saat itu matahari terbit dari barat." Ia takut Zhou Botong tahu, dan marah. Ia tidak mengatakan 
+apa-apa, tetapi memberi isyarat kepada pelaut untuk mengubah arah ke timur.
+
+Perahu berbelok tajam sehingga layarnya hampir menyentuh air dan melambat. Kira-kira dalam waktu yang dibutuhkan untuk minum 
+secangkir teh, perahu Ouyang Feng juga berubah arah ke timur. "Kalau kau ingin membuat perhitungan di laut, tidak apa-apa 
+buat aku," pikir Hong Qigong.
+
+Ia meninggalkan geladak untuk memasuki kabin dan melihat Guo Jing tampak tertekan, ia diam dan tenggelam dalam pikiran. Hong 
+Qigong berkata, "[Tu'er](panggilan.md#tu-er "Tu'er (徒兒) = Muridku"), kau harus tahu bagaimana seorang pengemis minta 
+beras, kalau tuan rumah tidak memberi apa-apa, kau berkeliaran di pintunya selama tiga hari tiga malam, dan lihat apakah dia 
+masih menolak memberimu apa pun."
+
+Zhou Botong tertawa, "Bagaimana kalau tuan rumah punya anjing galak? Bagaimana kalau dia menyuruh anjingnya menggigitmu 
+karena kau tidak mau pergi? Kau mau apa?" tanyanya.
+
+Hong Qigong tertawa, "Kalau begitu dia adalah orang kaya yang tak berperasaan. Kalau kau datang lagi pada malam hari dan 
+mencuri barang miliknya, kau tidak melanggar hukum Surga."
+
+Zhou Botong menoleh kepada Guo Jing. "Saudaraku, kau mengerti ucapan Gurumu? Dia mengajarimu supaya berjuang segigih mungkin 
+di depan ayah mertuamu. Kalau dia masih tidak mau memberikan putrinya, dan memukulimu tanpa alasan, maka kau boleh mencurinya 
+di malam hari," katanya. "Tapi kalau kau benar-benar ingin mencuri harta itu, kau tidak harus melakukannya sendiri, yang 
+perlu kau lakukan hanya memanggil, 
+'[Bao Bei Er](panggilan.md#bao-bei "Bao Bei Er (宝贝儿) = Sayangku"), ayo!' Dan dia akan keluar mengikutimu."
 
 
-**Last Line** was 613 in Draft.
+**Last Line** was 661 in Draft.
 
 
 

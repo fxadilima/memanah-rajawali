@@ -41,3 +41,9 @@ Sistem ini berlaku mulai dari era Dinasti Song sampai dengan Dinasti Qing.
 
 Ini adalah satuan berat Tiongkok. 1 kati secara umum dibulatkan menjadi 600 gram.
 
+### <a name="satuan-li" id="satuan-li">Satuan Li (里)</a>
+
+Satuan ini juga disebut Shili (市里). Ini dikenal juga sebagai ukuran mil Tiongkok tradisional. Standard untuk satuan ini
+sangat bervariasi dari jaman ke jaman, tetapi secara umum bisa kita anggap sepertiga mil. Saat ini disederhanakan lagi
+menjadi 500 meter, atau setengah kilometer.
+ 

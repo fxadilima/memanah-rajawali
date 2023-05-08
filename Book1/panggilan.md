@@ -14,6 +14,12 @@ orang ketiga tunggal di hadapan gurunya, atau orang lain yang lebih tua dan dise
 Ini cara seorang pendeta Tao memanggil dirinya sendiri, yang arti literalnya kurang lebih
 adalah "Penganut Tao Yang Malang ini". Dalam dialek Hokkian panggilan ini adalah "Pinto".
 
+### <a name="pinseng" id="pinseng">Pinseng (贫僧)</a>
+
+Seperti [Pintao](#pintao), tetapi digunakan oleh seorang Biksu.
+Dalam dialek Hokkian, atau gaya bahasa Kho Ping Hoo/Gan KL panggilan ini adalah 'Pinceng'.
+
+
 ### <a name="daozhu" id="daozhu">Daozhu (岛主)</a>
 
 Pemilik Pulau atau Majikan Pulau. Contoh nyata dalam cerita ini adalah Huang Yaoshi, yang secara umum
@@ -39,7 +45,19 @@ karena artinya adalah 'kecil'.
 ### <a name="tu-er" id="tu-er">Tu'er (徒兒)</a>
 
 Secara literal berarti 'Murid', yang bisa dipakai dari sisi Sang guru maupun si murid, untuk memanggil diri sendiri
-sebagai orang ketiga tunggal. Ini kurang lebih sama seperti Dizi (弟子).
+sebagai orang ketiga tunggal. Ini kurang lebih sama seperti Dizi (弟子). Tetapi _dizi_ umumnya dipakai oleh si murid,
+sedangkan Tu'er bisa dipakai dua arah. 
 
+
+### <a name="zhuang-zhu" id="zhuang-zhu">Zhuang Zhu (庄主)</a>
+
+Panggilan ini ditujukan bagi seorang majikan dari wilayah besar, yang terdiri dari perumahan, desa-desa, tetapi 
+tidak secara langsung terkait dengan pemerintah pusat. Dalam istilah bahasa Inggris tempat semacam ini adalah 'Manor'.
+
+
+### <a name="bao-bei-er" id="bao-bei-er">Bao Bei Er (宝贝儿)</a>
+
+Secara literal istilah ini berarti "Hartaku yang berharga", tetapi kalau digunakan untuk memanggil seorang kekasih,
+maka ini setara dengan "Sayangku".
 
 
