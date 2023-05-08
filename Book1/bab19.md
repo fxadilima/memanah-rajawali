@@ -585,7 +585,7 @@ bisa pergi dari pulau ini."
 
 Zhou Botong mengangguk, mengambil pil dan menelan satu, setelah mengatur pernapasannya beberapa saat, ia memuntahkan darah 
 beku. Ia berkata, "Huang Laoxie, pil merahmu sangat hebat, tidak heran kau dipanggil 'Yaoshi'[^yaoshi]. Eeh! Aneh! Aneh 
-sekali! Namaku 'Botong', saya ingin tahu apa artinya?" Setelah merenungkan pertanyaan itu sebentar, ia menggelengkan 
+sekali! Namaku 'Botong', aku ingin tahu apa artinya?" Setelah merenungkan pertanyaan itu sebentar, ia menggelengkan 
 kepalanya dan berkata, "Huang Laoxie, aku harus pergi sekarang. Boleh?"
 
 "Aku tidak berani menghentikanmu," jawab Huang Yaoshi, "Terserah kau mau tinggal atau pergi. Saudara Botong, mulai hari ini, 
@@ -594,8 +594,152 @@ akan membawamu kembali ke Dataran Tengah."
 
 [^yaoshi]: Yao Shi (药师) secara literal bisa diterjemahkan menjadi 'Ahli Obat'.
 
+Guo Jing berjongkok untuk mengangkat Zhou Botong dan menggendongnya di punggung sambil mengikuti Huang Yaoshi berjalan ke pantai. Sesampainya di dermaga ia melihat enam atau tujuh perahu, baik besar maupun kecil.
 
-**Last Line** was 528 in Draft.
+"Yao Xiong," kata Ouyang Feng, "Kau tidak perlu mengirim perahu untuk membawa pulang Zhou Xiong. Dia bisa naik perahuku" 
+
+"Kalau begitu sesuai dengan keinginan Feng Xiong saja," kata Huang Yaoshi. Ia memberi isyarat tangan kepada seorang pelayan 
+yang tuli dan bisu dan pelayan itu pergi ke sebuah perahu besar di dekatnya. Ketika muncul kembali, ia membawa nampan penuh 
+dengan koin emas.
+
+"Botong," kata Huang Yaoshi. "Ambil uang ini, dan gunakan untuk bermain-main. Kungfumu lebih baik dari Huang Laoxie. Aku 
+sangat mengagumimu."
+
+Mata Zhou Botong bersinar dengan binar nakal. Ia melihat ke arah kapal besar Ouyang Feng dan melihat bendera putih di haluan. 
+Pada bendera itu tersulam gambar seekor ular yang tampak aneh dengan dua kepala dan kedua mulutnya terbuka memperlihatkan 
+lidah bercabang. Ia tidak senang sama sekali.
+
+Ouyang Feng mengambil peluit kayu dari sakunya dan meniup beberapa kali, tak lama kemudian terdengar suara-suara aneh dari 
+hutan di depan. Dua pelayan Pulau Bunga Persik bersama dengan beberapa orang penggembala ular Gunung Onta Putih keluar 
+dari hutan, diikuti oleh deretan ular yang merayap ke tangga dan masuk ke palka perahu.
+
+"Aku tidak mau naik perahu [Racun Barat](referensi-karakter.md#racun-barat "Xi Du (西毒)")!" teriak Zhou Botong. "Aku 
+takut ular!"
+
+Huang Yaoshi tersenyum tipis, "Tidak apa-apa juga, kau bisa naik perahu itu." Ia menunjuk ke sebuah perahu di dekatnya.
+Zhou Botong menggelengkan kepalanya, "Aku tidak mau perahu itu, saya ingin perahu _besar_ itu." Ia menunjuk ke sebuah
+perahu lain yang berukuran besar dan terlihat bagus.
+
+Wajah Huang Yaoshi sedikit berubah. "Botong, kapal itu rusak, belum diperbaiki. Kau tidak bisa menaikinya."
+
+Semua orang dapat melihat bahwa buritan perahu itu tinggi dan lambungnya dicat biru dan emas, sangat indah. Kelihatannya 
+baru dan kuat, kenapa katanya rusak?
+
+"Kenapa aku tidak boleh naik perahu itu?" tanya Zhou Botong. "Huang Laoxie, kenapa kau begitu pelit?"
+
+"Itu kapal yang sangat _sial_, itu sebabnya selalu diam di sini," kata Huang Yaoshi menjelaskan. "Sejak kapan aku pelit? 
+Kalau kau tidak percaya, aku akan membakar perahu itu biar kau bisa lihat." Setelah memberi isyarat tangan, empat pelayan 
+bisu dan tuli menyalakan beberapa obor dan bergegas ke perahu untuk membakarnya.
+
+Zhou Botong tiba-tiba duduk di tanah, mengayunkan tangan dan kakinya, menarik rambut dan jenggotnya, dan menangis dengan 
+keras. Melihatnya bertingkah seperti itu semua orang terkejut dan geli. Guo Jing satu-satunya yang benar-benar mengerti 
+temperamennya, maka ia hanya terpesona. Zhou Botong menarik jenggotnya dan berguling-guling di tanah, "Saya ingin naik 
+kapal baru. Saya ingin naik kapal baru." Huang Rong dengan cepat bergerak maju untuk menghentikan keempat pelayan itu.
+
+Hong Qigong tersenyum, "Yao Xiong," katanya, "Sepanjang hidupku, Pengemis Tua bernasib buruk. Biarkan aku menemani Lao 
+Wantong di kapal sial ini. Kita bisa menggunakan racun untuk memerangi racun. Mari kita lihat apakah kesialan Pengemis 
+Tua ini menang, atau apakah perahumu yang menang."
+
+"Qi Xiong, kupikir kau akan tinggal di pulau selama beberapa hari," kata Huang Yaoshi. "Mengapa terburu-buru pergi?"
+
+"Dalam beberapa hari ini pengemis besar dunia, pengemis menengah, dan pengemis kecil akan berkumpul di Yueyang di propinsi 
+Hunan. Mereka akan meminta Pengemis Tua untuk menunjuk ketua baru. Kalau Pengemis Tua menemui musibah dan kembali ke Surga 
+sebelum menunjuk penggantinya, siapa yang akan memimpin pengemis dunia? Itu sebabnya Pengemis Tua harus pergi, mau tidak mau. 
+Aku sangat menghargai kemurahan hatimu. Ketika putri dan menantumu menikah, aku akan kembali untuk mengganggu pernikahan."
+
+Huang Yaoshi menghela nafas, "Qi Xiong, kau benar-benar pria yang bersemangat, kau mendedikasikan hidupmu untuk bekerja 
+keras bagi orang lain, seperti kuda yang tidak pernah berhenti berpacu."
+
+Hong Qigong tertawa, "Pengemis Tua tidak pernah menunggang kuda dan kakiku tidak bisa dibandingkan dengan kuku kuda. Aiyo! 
+Ada yang salah! Kau secara tidak langsung memaki aku dengan mengatakan bahwa kakiku berkuku, itu artinya kau bilang bahwa 
+aku adalah seekor kuda!"
+
+Huang Rong tertawa, "Shifu, kau sendiri yang mengatakannya, ayahku tidak memarahimu."
+
+"Tentu saja, seorang Shifu akan selalu lebih rendah dari seorang ayah," kata Hong Qigong. "Karena itu aku akan mengawini 
+Nyonya Pengemis Tua dan kami akan punya beberapa orang bayi perempuan pengemis untuk kau jaga."
+
+Huang Rong bertepuk tangan, "Bagus sekali! Aku akan punya adik perempuan pengemis kecil untuk diajak bermain. Bukankah itu 
+menyenangkan?"
+
+Ouyang Ke mencuri pandang arahnya. Di bawah sinar matahari yang cerah ia tampak begitu cantik dengan pipinya yang merah 
+jambu seperti bunga musim semi dan berwarna-warni seperti awan berwarna kemerahan saat fajar. Ia sungguh merasa tergila-gila 
+kepadanya. Tetapi dari pihak Huang Rong, pikirannya hanya tertuju kepada Guo Jing, dan denyut nadinya bertambah cepat. 
+Tahu bahwa gadis itu hanya memperhatikan Guo Jing, kemarahannya meningkat dan ia bersumpah di dalam hati, "Suatu hari nanti 
+aku akan membunuh bocah tengik ini!"
+
+Hong Qigong mengulurkan tangannya untuk membantu Zhou Botong naik ke perahu sambil berkata, "Botong, aku akan menemanimu 
+di perahu baru ini. Huang Laoxie sangat aneh, dan kita tidak usah mempedulikannya."
+
+Zhou Botong sangat senang, "Pengemis Tua, kau orang yang sangat baik, bagaimana menurutmu kita menjadi saudara angkat?"
+
+Hong Qigong belum menjawab sebelum Guo Jing menyela, "Kakak Zhou, kau dan aku sudah menjadi saudara angkat jadi bagaimana 
+kau bisa mengambil guruku sebagai saudara angkatmu juga?"
+
+Zhou Botong tertawa, "Apa masalahnya? Kalau ayah mertuamu cukup baik, dan mengijinkan aku naik perahu baru ini, aku mungkin 
+akan sangat senang untuk menjadikannya sebagai saudara angkatku juga."
+
+"Bagaimana dengan aku?" Huang Rong tertawa.
+
+Zhou Botong menyipitkan matanya, "Aku tidak terlalu tertarik untuk mengangkat saudara dengan anak perempuan, kalau aku 
+terlalu sering melihat wanita cantik, mereka berubah menjadi sampah." Menggandeng lengan Hong Qigong, ia berjalan ke perahu.
+
+Huang Yaoshi dengan cepat menghalangi jalan mereka, merentangkan kedua tangannya dan berkata, 
+"Lao Huang[^istilah-lao] tidak berani mengambil keuntungan dari orang lain. Naik perahu ini akan membawa lebih banyak 
+sial daripada kebaikan. [Gewei](referensi-karakter.md#gewei "Kalian semua") tidak perlu membuktikan keberanian kalian, 
+kalian sudah sangat terkenal di Dataran Tengah."
+
+[^istilah-lao]: Lao (老) secara literal berarti 'Tua', dengan menambahkan istilah ini di depan namanya sendiri, ketika bicara dengan menempatkan diri sebagai orang ketiga tunggal, menjadikan kalimatnya agak lebih formal. Kebiasaan ini memang sudah menjadi tradisi.
+
+Hong Qigong tertawa terbahak-bahak, "Kau sudah berulang kali memperingatkan kami, bahkan kalau Pengemis Tua harus kembali 
+ke Surga karena mabuk laut, aku akan tetap menghargai persahabatan Yao Xiong." Meskipun ia mengatakan hal-hal itu dengan 
+bercanda, di dalam hatinya ia cukup waspada karena Huang Yaoshi sudah dua kali mencoba menghentikan mereka naik ke kapal. 
+Ia tahu ada yang tidak beres dengan kapal itu, tetapi Zhou Botong bersikeras untuk naik. Ia telah melihat dengan matanya 
+sendiri betapa keras kepalanya Zhou Botong. Jika ada yang tidak beres, Zhou Botong tidak mungkin menghadapi bahaya sendirian 
+dengan luka dalamnya. Itulah alasan ia memutuskan untuk pergi bersama Zhou Botong.
+
+Huang Yaoshi mengeluarkan suara 'huh' dan berkata, "Kalian berdua ahli kungfu. Aku yakin kalian akan mampu mengubah nasib 
+buruk menjadi baik. Lao Huang terlalu khawatir. Kau, bocah marga Guo, kau ikut dengan mereka."
+
+Guo Jing terkejut. Ketika ia menjadi menantu Huang Yaoshi, ia dipanggil "Jing'er", tetapi sekarang Huang Yaoshi tiba-tiba 
+mengubah panggilannya, apalagi ekspresinya begitu tegas. Sambil memandang Huang Yaoshi ia berkata, "Ayah mertua ..."
+
+"Siapa ayah mertuamu?" Huang Yaoshi memotongnya dengan suara kasar, "Kau bocah pembohong tamak! Kalau kau menginjakkan 
+kaki di Pulau Bunga Persik lagi, bahkan setengah langkah pun, jangan salahkan Lao Huang karena bertindak kejam!" Ia menggapai 
+ke belakang, meraih kerah seorang pelayan dan berteriak, "Ini adalah contoh untukmu!" Lidah hamba yang tuli dan bisu itu 
+telah dipotong, sehingga hanya suara gemericik rendah yang terdengar dari tenggorokannya saat tubuhnya terbang ke laut. Organ 
+dalamnya telah dihancurkan oleh telapak tangan Huang Yaoshi. Ia jatuh ke laut dan dalam sekejap menghilang tanpa jejak di 
+antara ombak.
+
+Pelayan bisu-tuli lainnya sangat ketakutan, mereka semua serempak berlutut. Mereka semua awalnya adalah penjahat, Huang 
+Yaoshi telah menyelidiki latar belakang mereka dengan hati-hati sebelum menangkap mereka satu per satu, dan membawa mereka 
+ke pulau itu. Ia memotong lidah mereka dan menusuk gendang telinga mereka, menjadikan mereka budaknya. Ia pernah berkata, 
+"Lao Huang bukan orang terhormat, jadi orang Jianghu memanggilku Si Sesat Timur. Secara alamiah aku tidak suka berteman 
+dengan orang lain, dan aku lebih suka orang jahat jadi pelayanku. Semakin jahat mereka, semakin aku menyukai mereka." 
+Melihat pelayan itu, meskipun ia pantas dihukum, dipukul dengan telapak tangannya dan dibuang ke laut tanpa alasan apapun, 
+membuat semua orang terguncang. Mereka hanya bisa menghela nafas dalam hati, "Huang Laoxie benar-benar jahat."
+
+Guo Jing ketakutan, ia juga berlutut di tanah.
+
+"Apa yang dia menyinggungmu?" tanya Hong Qigong.
+
+Huang Yaoshi tidak menjawab pertanyaannya, sebaliknya, ia dengan tegas bertanya kepada Guo Jing, "Kau memberikan jilid kedua 
+Jiu Yin Zhen Jing kepada Zhou Botong?"
+
+"Dizi memang memberikan sesuatu kepada Kakak Zhou, tetapi dizi benar-benar tidak tahu itu adalah Jiu Yin Zhen Jing," kata 
+Guo Jing, "Kalau dizi tahu..."
+
+"Apa maksudmu tidak tahu?" sela Zhou Botong. Dia selalu tidak tahu apa yang serius dan apa yang tidak. Semakin orang lain 
+kesal, semakin dia ingin mempermainkan mereka. Tanpa menunggu Guo Jing menjelaskan, ia berkata, "Kau sendiri yang bilang bahwa kau mengambil kitab itu dari Mei Chaofeng dan juga bilang kau beruntung karena Si Tua Huang Yaoshi tidak tahu. Kau 
+juga bilang bahwa setelah kau menguasai kitabnya, kau akan menjadi pendekar nomor satu di dunia."
+
+Guo Jing tertegun. "Kakak, aku... kapan aku bilang begitu?" katanya dengan suara bergetar.
+
+Mata Zhou Botong berbinar dan dengan suara tegas ia berkata, "Kau _memang_ bilang begitu."
+
+
+
+**Last Line** was 613 in Draft.
 
 
 

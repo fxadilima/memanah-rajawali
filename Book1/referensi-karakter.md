@@ -893,5 +893,8 @@ sedangkan Qing Jing (清静) bermakna 'Ketenangan', juga bisa jadi dalam pengert
 
 Baik Qing Jing maupun Wu Wei adalah prinsip dari Taoisme.
 
+### <a name="racun-barat" id="racun-barat">Racun Barat, Julukan Ouyang feng</a>
+
+Xi Du (西毒), secara literal berarti 'Racun dari Wilayah Barat'.
 
 
