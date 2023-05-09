@@ -476,6 +476,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     </dd>
     <dt id="yinzei">Yin Zei (淫贼)</dt>
     <dd>Penjahat Cabul</dd>
+    <dt id="you-nan">You Nan (有难)</dt>
+    <dd>Ada masalah</dd>
 </dl>
 
 
@@ -906,4 +908,29 @@ Karakter tradisional nama ini adalah 海龍王.
 
 Dalam mitologi Tiongkok kuno, karakter Long Wang (龙王) sendiri adalah Dewa Air dan Cuaca.
 
+### <a name="fei-yan-yin-suo" id="fei-yan-yin-suo">Fei Yan Yin Suo (飞燕银梭)</a>
+
+Kurang jelas makna istilah ini, secara literal arti per karakter adalah sbb:
+
+1. Fei (飞) = Terbang
+2. Yan (燕) = Walet
+3. Yin (银) = Perak
+4. Suo (梭) = Bolak-balik, pulang-pergi
+
+Dari narasi cerita pada saat istilah ini muncul, ini adalah nama senjata rahasia yang dipakai Ouyang Ke.
+
+### <a name="lian-hua-luo" id="lian-hua-luo">Lian Hua Luo (莲花落)</a>
+
+Nama syair atau lagu yang dinyanyikan para anggota Kai Pang ketika sedang mengemis. Bisa diterjemahkan
+menjadi 'Bunga Teratai Jatuh'.
+
+Lagu ini adalah kebanggaan Kai Pang.
+
+### <a name="jiu-yin-jia-jing" id="jiu-yin-jia-jing">Jiu Yin Jia Jing (九阴假经)</a>
+
+Nama ini adalah pelesetan dari [Jiu Yin Zhen Jing](#jiu-yin-zhen-jing "Kitab Sembilan Bulan"), hasil karangan
+Hong Qigong. Ouyang Feng memaksa Guo Jing menulis ulang kitab itu, dan Hong Qigong menyuruhnya menulis kitab palsu.
+Karakter Jia (假) artinya adalah 'Palsu', yang jelas terbalik dari Zhen (真), yang berarti 'Murni', 'Sejati', atau 'Asli'.
+
+Secara literal bisa diterjemahkan menjadi 'Kitab Senbilan Bukan Palsu'.
 

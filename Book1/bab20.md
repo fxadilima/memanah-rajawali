@@ -135,139 +135,298 @@ Ouyang Feng mencoba memaksanya untuk menulis kitab. Hong Qigong mengangguk tanpa
 "Begitu Racun Tua memutuskan sesuatu, ia tidak akan mudah melepaskannya. Sampai ia mendapatkan kitab itu, ia akan terus 
 mengganggu muridku."
 
-Guo Jing, memikirkan kematian Zhou Botong, menangis sedih. Hong Qigong juga berduka. Dia tahu perahu itu berlayar cepat ke barat dan dalam dua hari mereka akan mencapai daratan. Dia takut Ouyang Feng akan meracuni makanan mereka lagi, jadi dia pergi ke dapur dan menjarah beberapa piring dan banyak nasi. Setelah memakannya dengan Guo Jing, kepalanya mengangguk dan kemudian dia mendengkur.
+Guo Jing, memikirkan kematian Zhou Botong, menangis sedih. Hong Qigong juga berduka. Ia tahu perahu itu berlayar cepat ke 
+barat, dan dalam dua hari mereka akan mencapai daratan. Ia takut Ouyang Feng akan meracuni makanan mereka lagi, jadi ia 
+pergi ke dapur dan menjarah beberapa piring dan banyak nasi. Setelah memakannya dengan Guo Jing, kepalanya terangguk-angguk 
+dan kemudian ia mendengkur.
 
-Ouyang Feng dan keponakannya menunggu hingga sore keesokan harinya; setelah hampir enam belas jam berlalu, mereka tidak mendengar Hong Qigong atau muridnya membuat suara apapun. Ouyang Feng takut racunnya terlalu kuat dan telah membunuh mereka. Membunuh Hong Qigong bukanlah masalah besar, tetapi membunuh Guo Jing berarti 'Pedoman Sembilan Yin' akan hilang selamanya. Dia diam-diam mengintip melalui celah di pintu, hanya untuk melihat dua orang duduk dengan nyaman dan mengobrol dengan ramah. Suara Hong Qigong keras dan jelas. Ouyang Feng sangat marah, “Tampaknya Pengemis Tua itu waspada. Lagipula mereka tidak diracuni.” Koleksi racunnya sangat banyak, tetapi untuk meracuni Hong Qigong tanpa melukai Guo Jing, dia harus memikirkan rencana yang lebih baik.
+Ouyang Feng dan keponakannya menunggu hingga sore keesokan harinya, setelah hampir enam belas jam berlalu, mereka tidak 
+mendengar Hong Qigong atau muridnya membuat suara apapun. Ouyang Feng takut racunnya terlalu kuat dan telah membunuh mereka. 
+Membunuh Hong Qigong bukanlah masalah besar, tetapi membunuh Guo Jing berarti Jiu Yin Zhen Jing akan hilang selamanya. Ia 
+diam-diam mengintip melalui celah di pintu, hanya untuk melihat dua orang duduk dengan nyaman dan mengobrol dengan ramah. 
+Suara Hong Qigong keras dan jelas. Ouyang Feng sangat marah, "Tampaknya Pengemis Tua itu waspada. Dan tampaknya mereka tidak 
+keracunan." Koleksi racunnya sangat banyak, tetapi untuk meracuni Hong Qigong tanpa melukai Guo Jing, ia harus memikirkan 
+rencana yang lebih baik.
 
-Hong Qigong memberi tahu Guo Jing seluk beluk Klan Pengemis. Dia mengatakan bahwa meskipun mereka mengemis untuk mencari nafkah, setiap anggota sebenarnya memiliki tanggung jawab untuk menegakkan keadilan, membantu mereka yang kesusahan, dan mengikuti perbuatan baik pendahulu mereka dan bukan yang buruk. Fakta-fakta ini sebagian besar disembunyikan dari mata publik. Ia berbicara lebih jauh tentang tata cara pemilihan Pemimpin Klan Pengemis ketika tiba waktunya untuk mencari penerus. “Sayang sekali kamu tidak suka menjadi pengemis,” katanya, “Kalau tidak, kamu memiliki karakter yang sempurna untuk menjadi seorang pemimpin; tidak ada seorang pun di dalam klan yang lebih unggul dari Anda. Saya benar-benar ingin menganugerahkan 'Dog Beating Stick' [da gou bang] pada Anda.” Saat mereka masih mengobrol tiba-tiba terdengar suara gedoran dari luar, terdengar seperti kapak atau pahat yang membentur tembok.
+Hong Qigong memberi tahu Guo Jing seluk beluk Kai Pang. Ia mengatakan bahwa meskipun mereka mengemis untuk mencari nafkah, 
+setiap anggota sebenarnya memiliki tanggung jawab untuk menegakkan keadilan, membantu mereka yang kesusahan, dan mengikuti 
+perbuatan baik pendahulu mereka dan bukan yang buruk. Fakta-fakta ini sebagian besar disembunyikan dari mata publik. Ia 
+berbicara lebih jauh tentang tata cara pemilihan Ketua Kai Pang, ketika tiba waktunya untuk mencari penerus. "Sayang sekali 
+kau tidak suka menjadi pengemis," katanya. "Kalau tidak, kau punya karakter yang sempurna untuk menjadi seorang ketua, tidak 
+ada seorang pun di dalam Kai Pang yang lebih baik. Aku benar-benar ingin menganugerahkan 
+[Da Gou Pang](referensi-karakter.md#da-gou-bang "Tongkat Pemukul Anjing") kepadamu." Saat mereka masih mengobrol tiba-tiba 
+terdengar suara gedoran dari luar, terdengar seperti kapak atau pahat yang membentur tembok.
 
-Hong Qigong melompat kaget, “Tidak bagus! Ular bau itu akan menenggelamkan kapal,” teriaknya. Bergegas menuju pintu dia berteriak pada Guo Jing, "Cepat pergi ke sekoci kecil di belakang!" Dia baru saja selesai berteriak ketika, dengan suara keras, sebuah lubang besar muncul di sekat kayu, diikuti dengan suara mendesis yang keras; bukan air laut yang datang deras, tapi puluhan ular berbisa.
+Hong Qigong melompat kaget, "Celaka! Ular-ular bau itu akan menenggelamkan kapal," teriaknya. Bergegas menuju pintu ia 
+berteriak pada Guo Jing, "Cepat pergi ke sekoci kecil di belakang!" Ia baru saja selesai berteriak ketika dengan suara 
+keras sebuah lubang besar muncul di sekat kayu, diikuti dengan suara mendesis yang keras, bukan air laut yang datang 
+dengan deras, tetapi puluhan ular berbisa.
 
-"Jadi itu adalah serangan ular Racun Tua!" Hong Qigong mengejek. Tangan kanannya menyapu, menyebarkan puluhan jarum baja dan puluhan ular yang disematkan ke geladak kayu; dengan suara mendesis yang keras, tubuh mereka melingkar tetapi mereka tidak dapat bergerak maju lagi.
+"Jadi itu serangan ular Si Racun Tua!" ejek Hong Qigong. Tangan kanannya menyapu, menyebarkan puluhan jarum baja dan 
+puluhan ular terpaku ke geladak kayu, dengan suara mendesis yang keras, tubuh mereka melingkar tetapi mereka tidak dapat bergerak maju lagi.
 
-"Rong'er sangat bagus dalam teknik menghamburkan jarum ini, tapi dibandingkan dengan Master, dia masih kalah jauh," pikir Guo Jing.
+"Rong'er sangat bagus dalam teknik mennebarkan jarum ini, tapi dibandingkan dengan Shifu, dia masih kalah jauh," pikir 
+Guo Jing.
 
-Pada saat itu puluhan ular lagi masuk melalui lubang di dinding. Hong Qigong terus menembakkan jarum baja dan semakin banyak ular yang dipaku ke lantai. Suara peluit kayu terdengar di luar saat semakin banyak ular digiring ke dalam kabin.
+Pada saat itu puluhan ular lagi masuk melalui lubang di dinding. Hong Qigong terus menembakkan jarum baja dan semakin banyak
+ular yang dipaku ke lantai. Suara peluit kayu terdengar di luar, saat semakin banyak ular digiring ke dalam kabin.
 
-Hong Qigong menembakkan lebih banyak jarum, “Racun Tua dengan baik hati mengirimkan semua target ini kepadaku untuk melatih keterampilan seni bela diriku; ini benar-benar kesempatan langka, ”katanya. Tetapi ketika dia memasukkan tangannya ke dalam sakunya untuk mengambil lebih banyak jarum, dia terkejut menemukan hanya beberapa yang tersisa. Dalam hati ia was-was mengingat ular-ular itu terus berdatangan. Dia berpikir keras tentang apa yang harus dilakukan selanjutnya ketika suara keras tiba-tiba terdengar saat dinding di belakangnya runtuh dan sebuah telapak tangan dengan cepat bergerak ke arah punggungnya.
+Hong Qigong menembakkan lebih banyak jarum, "Racun Tua dengan baik hati mengirimkan semua sasaran ini kepadaku untuk latihan 
+kungfu, ini benar-benar kesempatan langka," katanya. Tetapi ketika ia memasukkan tangannya ke dalam sakunya untuk mengambil 
+lebih banyak jarum, ia terkejut menemukan hanya beberapa yang tersisa. Dalam hati ia was-was mengingat ular-ular itu terus 
+berdatangan. Ia berpikir keras tentang apa yang harus dilakukan selanjutnya ketika suara keras tiba-tiba terdengar saat 
+dinding di belakangnya runtuh dan sebuah telapak tangan dengan cepat bergerak ke arah punggungnya.
 
-Guo Jing sedang berdiri di samping tuannya ketika dia mendengar angin kencang dan kencang; dia berbalik dan menggunakan kedua tangan dia memblokir serangan diam-diam. Serangan yang masuk begitu kuat sehingga dia merasa perutnya terbalik dan dia hampir pingsan.
+Guo Jing sedang berdiri di samping gurunya ketika ia mendengar desiran angin kencang, ia berbalik dan menggunakan kedua 
+tangan memblokir serangan mendadak itu. Serangan yang masuk begitu kuat, sehingga ia merasa perutnya terbalik, dan ia 
+hampir pingsan.
 
-Setelah serangannya secara tak terduga diblokir, Ouyang Feng berteriak kaget. Dia mundur sedikit dan kemudian menebas secara horizontal dengan punggung tangannya.
+Setelah serangannya secara tak terduga diblokir, Ouyang Feng berteriak kaget. Ia mundur sedikit dan kemudian menebas 
+secara horizontal dengan punggung tangannya.
 
-Guo Jing tahu serangan ini akan sulit dilawan, jadi dengan telapak tangan kirinya dia menangkis serangan itu, sementara tangan kanannya melancarkan serangan balik ke sisi Ouyang Feng, memaksanya untuk mundur. Ouyang Feng tidak berani mengambil pukulan telapak tangan Guo Jing di sisinya, jadi dia merunduk sambil mengulurkan tangan dengan gerakan memotong ke arah tubuh bagian bawah Guo Jing.
+Guo Jing tahu serangan ini akan sulit dilawan, jadi dengan telapak tangan kirinya ia menangkis serangan itu, sementara 
+tangan kanannya melancarkan serangan balik ke sisi Ouyang Feng, memaksanya untuk mundur. Ouyang Feng tidak berani 
+mengambil pukulan telapak tangan Guo Jing di sisinya, jadi ia merunduk sambil mengulurkan tangan dengan gerakan memotong 
+ke arah tubuh bagian bawah Guo Jing.
 
-Guo Jing sadar bahwa situasinya sangat kritis. Ular akan terus berdatangan selama Ouyang Feng bisa mengendalikan pintu masuk; dia dan tuannya akan berada dalam bahaya besar. Dia menggertakkan giginya dan sekuat tenaga menggunakan satu tangan untuk menangkis serangan yang masuk sementara tangan lainnya mencoba memberikan serangan balik. Saat tangan kirinya bertahan, tangan kanannya menyerang; ketika tangan kanannya kosong tangan kirinya kokoh, mengikuti teknik 'Mutual Hands Combat' Zhou Botong.
+Guo Jing sadar bahwa situasinya sangat kritis. Ular akan terus berdatangan selama Ouyang Feng bisa mengendalikan pintu masuk, 
+ia dan gurunya akan berada dalam bahaya besar. Ia menggertakkan gigi, dan sekuat tenaga menggunakan satu tangan untuk 
+menangkis serangan yang masuk sementara tangan lainnya mencoba membalas serangan. Saat tangan kirinya bertahan, tangan 
+kanannya menyerang, ketika tangan kanannya kosong tangan kirinya kokoh, mengikuti teknik ajaran Zhou Botong, Shuang Shou Hubo.
 
-Ouyang Feng belum pernah melihat teknik 'Mutual Hands Combat' ini sebelumnya, jadi dia bingung untuk saat ini, memberi Guo Jing kesempatan untuk menggunakan beberapa jurus. Ketika membandingkan keterampilan seni bela diri yang sebenarnya, Ouyang Feng dua kali lebih unggul dari Guo Jing, tetapi teknik 'Mutual Hands Combat' ini sangat aneh baginya dan membuatnya terkejut. Guo Jing bisa menang untuk sementara waktu. Tapi Racun Barat Ouyang Feng telah menikmati gelarnya sebagai 'Hebat' selama puluhan tahun; dia adalah master seni bela diri yang hebat, jadi dia bingung hanya untuk waktu yang singkat dan segera memikirkan metode untuk menangani teknik aneh ini. "Ugh!" dengan geraman keras kedua telapak tangannya melesat ke depan.
+Ouyang Feng belum pernah melihat teknik Shuang Shou Hubo ini sebelumnya, jadi ia bingung untuk saat ini, memberi Guo Jing 
+kesempatan untuk menggunakan beberapa jurus. Kalau membandingkan kungfu yang sebenarnya, Ouyang Feng dua kali lebih unggul 
+dari Guo Jing, tetapi teknik Shuang Shou Hubo ini sangat aneh baginya dan membuatnya terkejut. Guo Jing bisa menang untuk 
+sementara waktu. Tapi Racun Barat Ouyang Feng telah menikmati gelarnya sebagai pendekar besar selama puluhan tahun, ia 
+ahli silat yang hebat, jadi ia bingung hanya untuk waktu yang singkat, dan segera memikirkan metode untuk menangani 
+teknik aneh ini. "Ugh!" dengan geraman keras kedua telapak tangannya melesat ke depan.
 
-Guo Jing tidak akan bisa memblokir serangan ini sendirian; dia terpaksa mundur, tapi di belakangnya terdengar segerombolan ular mendesis keras.
+Guo Jing tidak akan bisa memblokir serangan ini sendirian, ia terpaksa mundur, tapi di belakangnya terdengar segerombolan 
+ular mendesis keras.
 
-“Luar biasa … luar biasa!” Hong Qigong berteriak keras, “Racun tua, kamu bahkan tidak bisa mengalahkan muridku; bagaimana Anda bisa membanggakan diri Anda sebagai pahlawan yang hebat? Dengan 'Flying Dragon Soaring Through the Heavens' [fei long zai tian] dia melompati kepala Ouyang Feng dan Guo Jing, menuju Ouyang Ke. Dengan satu tendangan dia menjatuhkan Ouyang Ke. Hong Qigong kemudian menggunakan sikunya dan mengirim Ouyang Ke jungkir balik ke arah punggung Ouyang Feng. Ouyang Feng bersandar ke samping untuk menghindari keponakannya dan karena itu, Guo Jing lolos dari serangan ganasnya.
+"Luar biasa... luar biasa!" Hong Qigong berteriak keras, "Racun tua, kau bahkan tidak bisa mengalahkan muridku, bagaimana 
+kau bisa membanggakan dirimu sebagai pendekar hebat? Dengan menggunakan 
+[Fei Long Zai Tian](referensi-karakter.md#fei-long-zai-tian "Sang naga Terbang Di Langit") ia melompati kepala Ouyang Feng 
+dan Guo Jing, menuju Ouyang Ke. Dengan satu tendangan ia menjatuhkan Ouyang Ke. Hong Qigong kemudian menggunakan sikunya 
+dan mengirim Ouyang Ke jungkir balik ke arah punggung Ouyang Feng. Ouyang Feng memiringkan tubuhnya ke samping untuk 
+menghindari keponakannya, dan karena itu Guo Jing lolos dari serangan ganasnya.
 
-“Keterampilan seni bela diri Guru setara dengannya, sementara keponakannya di bawah saya dan dia terluka. Dengan dua lawan dua, kita pasti menang, pikir Guo Jing. Semangatnya bangkit dan dengan kekuatan baru tangan dan kakinya menyerang Ouyang Feng seperti badai yang dahsyat.
+"Kungfu Shifu seimbang dengan dia, sementara keponakannya di bawah aku dan sedang terluka. Dengan dua lawan dua, kita pasti 
+menang," pikir Guo Jing. Semangatnya bangkit, dan dengan kekuatan baru tangan dan kakinya menyerang Ouyang Feng seperti 
+badai yang dahsyat.
 
-Saat bertarung sengit dengan musuh, Hong Qigong tetap membuka matanya ke segala arah. Dia melihat lusinan ular mendekati punggung Guo Jing, siap menyerang. Begitu Guo Jing digigit, dia pasti akan mati. Hong Qigong berseru dengan cemas, "Jing'er, cepat keluar dari sini!" Dia meningkatkan intensitas serangannya terhadap Ouyang Feng, memaksanya menjauh dari Guo Jing.
+Saat bertarung sengit dengan musuh, Hong Qigong tetap membuka matanya ke segala arah. Ia melihat lusinan ular mendekati 
+punggung Guo Jing, siap menyerang. Begitu Guo Jing digigit, ia pasti akan mati. Hong Qigong berseru dengan cemas, "Jing'er, 
+cepat keluar dari sini!" Ia meningkatkan intensitas serangannya terhadap Ouyang Feng, memaksanya menjauh dari Guo Jing.
 
-Ouyang Feng menghadapi serangan dari depan dan belakang; dia merasakan ketegangan. Serangan Hong Qigong telah memaksanya untuk bersandar ke samping, sehingga memberi Guo Jing kesempatan untuk keluar dari kabin sementara Ouyang Feng dan Hong Qigong tetap dalam pertempuran sengit. Sementara itu ratusan ular merayap di geladak yang mengelilingi keduanya. “Berkelahi dengan hewan peliharaan sebagai pembantumu? Kamu tidak tahu malu!” Hong Qigong mengejek, tetapi di dalam hatinya dia gugup. Ular itu tak terhitung jumlahnya dan ada di mana-mana. Dengan tongkat pemukul anjing di tangan kanannya, dia meremukkan puluhan kepala ular. Menarik tangan Guo Jing, mereka menuju ke tiang kapal.
+Ouyang Feng menghadapi serangan dari depan dan belakang, ia merasakan ketegangan. Serangan Hong Qigong telah memaksanya 
+untuk bersandar ke samping, sehingga memberi Guo Jing kesempatan untuk keluar dari kabin sementara Ouyang Feng dan Hong 
+Qigong tetap dalam pertempuran sengit. Sementara itu ratusan ular merayap di geladak yang mengelilingi keduanya. "Berkelahi 
+dengan dibantu hewan peliharaanmu? Kau tidak tahu malu!" ajek Hong Qigong, tetapi di dalam hati ia gugup. Ular itu tak 
+terhitung jumlahnya dan ada di mana-mana. Dengan tongkat pemukul anjing di tangan kanannya, ia meremukkan puluhan kepala 
+ular. Menarik tangan Guo Jing, mereka menuju ke tiang kapal.
 
-Ouyang Feng dalam hati terkejut, “Ini tidak baik! Jika mereka berdua melompat ke tiang, mereka tidak akan bisa dijangkau untuk sementara waktu.” Dia terbang keluar untuk memblokir mereka.
+Ouyang Feng dalam hati terkejut, "Ini tidak bagus! Kalau mereka berdua melompat ke tiang, mereka tidak akan bisa dijangkau 
+untuk sementara waktu." Ia terbang keluar untuk memblokir mereka.
 
-Kedua telapak tangan Hong Qigong membuat gerakan memotong yang ganas menciptakan hembusan angin yang menderu. Tinju Ouyang Feng menyapu secara horizontal untuk menangkis. Guo Jing melangkah maju untuk membantu tuannya, tetapi Hong Qigong berseru, "Pergi saja ke tiang, cepat!"
+Kedua telapak tangan Hong Qigong membuat gerakan memotong yang ganas menciptakan hembusan angin yang menderu. Tinju Ouyang 
+Feng menyapu secara horizontal untuk menangkis. Guo Jing melangkah maju untuk membantu gurunya, tetapi Hong Qigong berseru, 
+"Pergi saja ke tiang, cepat!"
 
 "Aku ingin membunuh keponakannya untuk membalaskan dendam Kakak Zhou," jawab Guo Jing.
 
 "Ular-ular itu... ular-ular itu!" Hong Qigong segera memperingatkannya.
 
-Guo Jing melihat ular berbisa merayap di sekelilingnya, jadi dia tidak berani berlama-lama lagi. Dengan punggung tangannya dia meraih 'Flying Swallow Silver Shuttle' Ouyang Ke [fei yan yin suo], lalu, melompat puluhan kaki ke atas, tangan kirinya menggenggam tiang. Pada saat itu dia mendengar suara proyektil yang masuk, jadi dia menembakkan 'yin suo' dari tangannya dan, dengan dentang keras, kedua proyektil itu bertemu di udara; keduanya mengubah arah menuju sisi perahu dan jatuh ke laut. Guo Jing menggerakkan tangan dan kakinya dan dalam waktu singkat dia telah mencapai bagian tengah tiang.
+Guo Jing melihat ular berbisa merayap di sekelilingnya, jadi ia tidak berani berlama-lama lagi. Dengan punggung tangannya 
+ia meraih [Fei Yan Yin Suo](referensi-karakter.md#fei-yan-yin-suo "Jarum Perak") Ouyang Ke, lalu melompat puluhan kaki ke 
+atas, tangan kirinya menggenggam tiang. Pada saat itu ia mendengar suara sambaran senjata rahasia masuk, jadi ia menembakkan 
+jarum dari tangannya, dan dengan dentang keras, kedua senjata rahasia itu bertemu di udara, keduanya berubah arah menuju 
+ke sisi perahu dan jatuh ke laut. Guo Jing menggerakkan tangan dan kakinya, dan dalam waktu singkat ia telah mencapai 
+bagian tengah tiang.
 
-Ouyang Feng tahu Hong Qigong juga ingin naik tiang jadi dia mengintensifkan serangannya. Meskipun Hong Qigong mampu bertahan, dia tidak bisa bergerak menuju tiang.
+Ouyang Feng tahu Hong Qigong juga ingin naik ke tiang, jadi ia meningkatkan serangannya. Meskipun Hong Qigong mampu 
+bertahan, ia tidak bisa bergerak menuju ke tiang.
 
-Ketika Guo Jing melihat ular berkerumun di sekitar kaki tuannya, dia sangat cemas; dengan teriakan nyaring dia melingkarkan kakinya di sekitar tiang dan menggantung tubuhnya. Hong Qigong memahami niatnya; kaki kirinya menendang geladak, kaki kanannya melayang ke arah wajah Ouyang Feng sambil menjulurkan tongkat pemukul anjingnya ke arah Guo Jing. Guo Jing meraih ujung tongkatnya, menariknya ke atas, dan tubuh Hong Qigong terbang ke udara. Dengan tertawa keras tangan kiri Hong Qigong menangkap tiang di atas Guo Jing. Sekarang keduanya tinggi di udara memandang rendah lawan mereka dan menempati posisi superior.
+Ketika Guo Jing melihat ular berkerumun di sekitar kaki gurunya, ia sangat cemas, dengan teriakan nyaring ia melingkarkan 
+kakinya di sekitar tiang dan menggantung tubuhnya. Hong Qigong memahami niatnya, kaki kirinya menendang geladak, kaki 
+kanannya melayang ke arah wajah Ouyang Feng sambil menjulurkan tongkat pemukul anjingnya ke arah Guo Jing. Guo Jing meraih 
+ujung tongkatnya, menariknya ke atas, dan tubuh Hong Qigong terbang ke udara. Dengan tertawa keras tangan kiri Hong Qigong 
+menangkap tiang di atas Guo Jing. Sekarang keduanya tinggi di udara memandang rendah lawan mereka, dan berada di posisi
+unggul.
 
-Ouyang Feng tahu bahwa jika dia mencoba memanjat tiang, dia pasti akan dirugikan, jadi dia berteriak dengan keras, “Baiklah! Kami kalah kali ini. Putar kemudi ke timur!” Dengan belokan tajam, perahu berlayar ke timur.
+Ouyang Feng tahu bahwa jika ia mencoba memanjat tiang, ia pasti akan dirugikan, jadi ia berteriak dengan keras, "Baiklah! 
+Kami kalah kali ini. Putar kemudi ke timur!" Dengan belokan tajam, perahu berlayar ke timur.
 
-Dari atas geladak, Hong Qigong dan Guo Jing dapat melihat bahwa ular-ular itu sangat padat di geladak. Hong Qigong duduk dengan nyaman di tiang layar sambil menyanyikan 'Bunga Teratai Jatuh' [lian hua luo] dengan lantang, lagu yang dinyanyikan pengemis saat mengemis makanan. Wajahnya menunjukkan ketenangan, tetapi dia sebenarnya sangat cemas. "Berapa lama kita bisa bertahan di tiang ini?" dia bertanya-tanya, “Bahkan jika Racun Tua tidak menebangnya, kita masih tidak bisa turun jika dia tidak menghentikan ular-ular itu. Keduanya bisa minum anggur dan tidur, tapi yang bisa kita berdua lakukan di sini hanyalah makan angin dan buang air kecil. Itu dia!" Begitu dia ingat buang air kecil, dia berdiri, menurunkan celananya dan menyemprotkan air kencingnya ke ular. "Jing'er," teriaknya, "Biarkan bajingan itu meminum air kencingmu dan memuaskan dahaga mereka."
+Dari atas geladak, Hong Qigong dan Guo Jing dapat melihat bahwa ular-ular itu sangat padat di geladak. Hong Qigong duduk 
+dengan nyaman di tiang layar sambil menyanyikan 
+[Bunga Teratai Jatuh](referensi-karakter.md#lian-hua-luo "Lian Hua Luo (莲花落)") dengan lantang, lagu yang 
+dinyanyikan pengemis saat mengemis makanan. Wajahnya tampak tenang, tetapi ia sebenarnya sangat cemas. "Berapa lama kita 
+bisa bertahan di tiang ini?" ia bertanya-tanya dalam hati, "Bahkan jika Racun Tua tidak menebangnya, kita masih tidak bisa 
+turun jika ia tidak menyingkirkan ular-ular itu. Mereka berdua bisa minum arak dan tidur, tapi yang bisa kita berdua lakukan 
+di sini hanyalah makan angin dan buang air kecil. Itu dia!" Begitu ia ingat soal kencing, ia berdiri, menurunkan celananya 
+dan menyemprotkan air kencingnya ke ular. "Jing'er," teriaknya. "Biarkan bangsat-bangsat itu minum air kencingmu dan 
+memuaskan dahaga mereka."
 
-Guo Jing masih menikmati sisi kekanak-kanakannya; dia mengikuti instruksi tuannya sambil berteriak dengan gembira, “Tolong! Jadilah tamuku!” Baik guru maupun murid menyemprotkan urin mereka.
+Guo Jing masih menikmati sisi kekanak-kanakannya, ia mengikuti instruksi gurunya sambil berteriak dengan gembira, "Pasti! 
+Dengan senang hati!" Guru dan murid itu menyirami geladak dengan kencing mereka sambil tertawa.
 
-"Keluarkan ular-ular itu dari sini...cepat!" Ouyang Feng menggonggong sambil melompat mundur beberapa langkah. Dia bergerak sangat cepat sehingga urin Hong dan Guo Jing tidak menyentuh tubuhnya. Ouyang Ke, di sisi lain, terkejut mendengar panggilan cemas pamannya dan beberapa tetes urin memercik di wajah dan lehernya. Dia adalah orang yang rapi dan teliti, jadi tentu saja dia marah; lalu dia tiba-tiba teringat, "Ular kami takut kencing!"
+"Keluarkan ular-ular itu dari sini... cepat!" Ouyang Feng berteriak sambil melompat mundur beberapa langkah. Ia bergerak 
+sangat cepat sehingga kencing Hong dan Guo Jing tidak menyentuh tubuhnya. Ouyang Ke, di sisi lain, terkejut mendengar 
+seruan cemas pamannya, dan beberapa tetes air seni memercik di wajah dan lehernya. Ia adalah orang yang rapi dan teliti, 
+jadi tentu saja ia marah, lalu ia tiba-tiba teringat, "Ular kami takut bau air kencing!"
 
-Di tengah suara peluit kayu, ular-ular itu perlahan-lahan merayap pergi, tetapi lusinan ular yang paling dekat dengan tiang itu basah kuyup oleh air seni. Ular berbisa ini semuanya hibridisasi di lembah ular di Wilayah Barat tempat Gunung Unta Putih berada; toksisitas mereka sangat ekstrim. Ouyang Feng telah menggunakan keranjang bambu besar yang digantung di antara beberapa ratus pasang unta untuk mengangkut ribuan ular beludak ini ke Central Plains. Dia bermaksud menggunakannya sebagai senjata untuk mendominasi dunia Wulin, tetapi ular itu terpengaruh oleh kotoran manusia. Begitu mereka basah, mereka mulai menggeliat, melingkar dalam kebingungan dan saling menggigit; para penggembala ular tidak dapat mengendalikan mereka.
+Di tengah suara peluit kayu, ular-ular itu perlahan-lahan merayap pergi, tetapi lusinan ular yang paling dekat dengan tiang 
+itu basah kuyup oleh air seni. Ular berbisa ini semuanya keturunan campuran dari lembah ular di Wilayah Barat tempat Gunung 
+Onta Putih berada, toksisitas mereka sangat ekstrim. Ouyang Feng telah menggunakan keranjang bambu besar yang digantung di 
+antara beberapa ratus pasang onta untuk mengangkut ribuan ular beludak ini ke Dataran Tengah. Ia bermaksud menggunakannya 
+sebagai senjata untuk mendominasi dunia persilatan, tetapi ular itu terpengaruh oleh kotoran manusia. Begitu mereka basah, 
+mereka mulai menggeliat, melingkar dalam kebingungan dan saling menggigit, para penggembala ular tidak dapat mengendalikan 
+mereka lagi.
 
-Hong Qigong dan Guo Jing tertawa lama dan keras melihat situasi kacau yang mereka sebabkan. Guo Jing berpikir, “Jika Kakak Zhou melihat ini, aku yakin dia akan sangat senang. Ay! Seorang ahli seni bela diri utama pada zaman ini harus mati di laut. Bahkan dengan tingkat keterampilan seni bela diri mereka, Master Pulau Huang dan Racun Tua masih basah kuyup oleh air kencingnya; tetapi tuanku dan urinku bahkan tidak menyentuh Racun Tua itu.”
+Hong Qigong dan Guo Jing tertawa lama dan keras melihat situasi kacau yang mereka hasilkan. Guo Jing berpikir, "Kalau Kakak 
+Zhou melihat ini, aku yakin dia akan sangat senang. Ah! Seorang seniman kungfu sehebat itu harus mati di laut. Bahkan dengan 
+tingkat kungfu mereka, Huang Daozhu dan Racun Tua masih basah kuyup oleh air kencingnya, tetapi air kencing kami bahkan 
+tidak menyentuh Racun Tua itu."
 
-Sekitar empat jam kemudian, langit berangsur-angsur menjadi gelap. Awak kapal menyiapkan meja perjamuan di geladak; daging dan anggur mengalir bebas dan aroma harum melayang ke atas menyerang lubang hidung Hong Qigong dan Guo Jing. Ouyang Feng sangat lihai; berapa lama pelahap seperti Hong Qigong bisa menanggung siksaan seperti ini? Labu di punggung Hong Qigong dikosongkan beberapa saat kemudian.
+Sekitar empat jam kemudian, langit berangsur-angsur menjadi gelap. Awak kapal menyiapkan meja perjamuan di geladak, daging 
+dan arak mengalir bebas, aroma harum melayang ke atas menyerang lubang hidung Hong Qigong dan Guo Jing. Ouyang Feng sangat 
+lihai, berapa lama pelahap seperti Hong Qigong bisa menanggung siksaan seperti ini? Kantong arak di punggung Hong Qigong 
+kosong beberapa saat kemudian.
 
-Malam itu Hong Qigong dan Guo Jing bergiliran bertugas jaga malam. Di geladak di bawah mereka, kru menyalakan lusinan lentera, sementara segerombolan ular tetap berjaga di sekitar tiang kapal. Mereka benar-benar tidak memiliki kesempatan untuk menembus pertahanan yang tangguh ini, dan mereka pasti tidak bisa buang air kecil terus menerus.
+Malam itu Hong Qigong dan Guo Jing bergiliran bertugas jaga malam. Di geladak di bawah mereka, kru menyalakan lusinan 
+lentera, sementara segerombolan ular tetap berjaga di sekitar tiang kapal. Mereka benar-benar tidak memiliki kesempatan 
+untuk menembus pertahanan yang tangguh ini, dan mereka pasti tidak bisa buang air kecil terus menerus.
 
-Hong Qigong mengutuk nenek moyang Ouyang Feng selama delapan belas generasi, menciptakan setiap skandal yang dibuat-buat yang dapat dia pikirkan sambil menambahkan beberapa bumbu untuk membuat skandal itu menjadi lebih dramatis; tapi Ouyang Feng bahkan tidak keluar dari kabinnya. Hong Qigong mengutuk sampai rahangnya lelah dan akhirnya tertidur.
+Hong Qigong mengutuk nenek moyang Ouyang Feng selama delapan belas generasi, menciptakan setiap skandal yang dibuat-buat 
+yang dapat dipikirkannya sambil menambahkan beberapa bumbu untuk membuat skandal itu menjadi lebih dramatis, tapi Ouyang Feng 
+bahkan tidak keluar dari kabinnya. Hong Qigong mengutuk sampai rahangnya lelah dan akhirnya tertidur.
 
-Keesokan paginya Ouyang Feng mengirim seorang pelayan untuk berteriak keras di bawah tiang, “Hong Bangzhu, Guo Xiaoye [Pemimpin Klan Hong, Tuan Muda Guo], Tuan Ouyang telah menyiapkan jamuan anggur dan makanan yang luar biasa untuk Anda nikmati; silahkan turun dan menikmatinya.”
+Keesokan paginya Ouyang Feng mengirim seorang pelayan untuk berteriak keras di bawah tiang, "Hong Bangzhu, Guo Xiaoye, 
+Ouyang Zhuangzhu sudah menyiapkan jamuan arak dan santapan yang luar biasa untuk kalian nikmati, silakan turun dan 
+menikmatinya."
 
-"Kamu pergi dan undang Ouyang Feng untuk keluar dan kami akan memberinya air kencing kami!" Hong Qigong membalas.
+"Kau pergi dan undang Ouyang Feng untuk keluar dan kai akan memberinya air kencing kami!" balas Hong Qigong.
 
-Tidak lama kemudian meja perjamuan disiapkan di bawah tiang kapal. Makanan mengepul panas dan tampak seperti segar dari dapur. Mereka menempatkan dua kursi di setiap sisi meja; sepertinya mereka sedang menunggu Hong Qigong dan Guo Jing turun dan menikmati perjamuan mereka.
+Tidak lama kemudian meja perjamuan disiapkan di bawah tiang kapal. Makanan mengepul panas dan tampak seperti segar dari 
+dapur. Mereka menempatkan dua kursi di setiap sisi meja, sepertinya mereka sedang menunggu Hong Qigong dan Guo Jing turun 
+dan menikmati perjamuan mereka.
 
-Beberapa kali Hong Qigong ingin meluncur ke bawah tiang dan melahap makanan, tetapi dia tahu itu pasti diracuni; dia tidak punya pilihan selain menahan diri. Dia sangat kesal dan memulai serangkaian kutukan 'ibumu menyebalkan' dan 'kamu adalah anjing jantan dengan otak burung'.
+Beberapa kali Hong Qigong ingin meluncur ke bawah tiang dan melahap makanan, tetapi ia tahu itu pasti diracuni, ia tidak 
+punya pilihan selain menahan diri. Ia sangat kesal dan mulai menyebutkan serangkaian kutukan 'ibumu menyebalkan' dan 'kau 
+adalah anjing jantan dengan otak burung'.
 
-Pada hari ketiga keduanya sangat lapar dan haus sehingga kepala mereka mulai berputar. “Seandainya saja murid perempuanku ada di sini,” desah Hong Qigong, “Dia sangat pintar sehingga aku yakin dia akan menemukan sesuatu untuk melawan taktik Racun Tua. Yang bisa kita lakukan hanyalah menatap dan menelan ludah kita sendiri.” Guo Jing juga menghela nafas.
+Pada hari ketiga keduanya sangat lapar dan haus sehingga kepala mereka mulai berputar. "Seandainya saja murid perempuanku 
+ada di sini," desah Hong Qigong, "Dia sangat pintar, aku yakin dia akan menemukan sesuatu untuk melawan taktik Racun Tua. 
+Yang bisa kita lakukan hanyalah menatap dan menelan ludah kita sendiri." Guo Jing juga menghela nafas.
 
-Sekitar tengah hari saat matahari bersinar terang, Guo Jing tiba-tiba melihat dua titik putih di cakrawala. Dia mengira itu adalah sepasang awan putih, tetapi titik-titik itu bergerak terlalu cepat untuk awan. Mereka semakin dekat dan semakin besar dan semakin besar dan mengeluarkan teriakan keras. Itu adalah dua elang putih. Guo Jing sangat gembira; dia melengkungkan jari kirinya, memasukkannya ke dalam mulutnya, dan bersiul berulang kali.
+Sekitar tengah hari saat matahari bersinar terang, Guo Jing tiba-tiba melihat dua titik putih di cakrawala. Ia mengira itu 
+adalah sepasang awan putih, tetapi titik-titik itu bergerak terlalu cepat untuk awan. Mereka semakin dekat dan semakin besar 
+dan mengeluarkan teriakan keras. Itu ternyata dua ekor elang putih. Guo Jing sangat gembira, ia melengkungkan jari kirinya, 
+memasukkannya ke dalam mulutnya, lalu bersiul berulang kali.
 
-Elang berputar-putar di atas perahu beberapa kali sebelum menyelam dan hinggap di bahu Guo Jing. Mereka memang sepasang elang yang dibesarkan Guo Jing di Padang Rumput Mongolia. "Tuan, mungkinkah Rong'er sedang berlayar ke sini?" dia bertanya dengan gembira.
+Kedua elang itu berputar-putar di atas kapal beberapa kali sebelum menukik dan hinggap di bahu Guo Jing. Mereka memang 
+sepasang elang yang dibesarkan Guo Jing di Padang Rumput Mongolia. "Shifu, mungkinkah Rong'er sedang berlayar ke sini?" 
+ia bertanya dengan gembira.
 
-"Itu akan luar biasa!" Hong Qigong menjawab, “Sayang sekali elang ini terlalu kecil dan tidak bisa membawa kita pergi dari sini. Kami terjebak di sini, bingung apa yang harus dilakukan. Cepat katakan padanya untuk datang ke sini dan memikirkan sesuatu.”
+"Kalau begitu luar biasa!" jawab Hong Qigong. "Sayang sekali elang ini terlalu kecil dan tidak bisa membawa kita pergi 
+dari sini. Kita terjebak di sini, bingung apa yang harus dilakukan. Cepat katakan padanya untuk datang ke sini dan 
+memikirkan sesuatu."
 
-Guo Jing mengeluarkan belatinya dan memotong dua potongan persegi lima inci dari layar dan memotong dua karakter 'you nan' [lit. mengalami masalah] pada satu dan garis labu pada bagian lainnya. Kemudian dia mengikat potongan-potongan itu, satu di setiap kaki elang putih, dan berkata, "Terbang kembali dengan cepat dan suruh Nona Huang datang ke sini." Elang putih mengeluarkan suara kicau, merentangkan sayapnya, dan terbang dari bahu Guo Jing. Mereka mengitari perahu sekali lalu terbang ke arah barat.
+Guo Jing mengeluarkan belatinya dan memotong dua potongan persegi lima inci dari layar dan memotong dua karakter 
+[You Nan](referensi-karakter.md#you-nan "You Nan (有难) = Ada Masalah") pada satu bagian, dan mengiris sedikit kantong 
+arak Hng Qigong yang terbuat dari labu. Kemudian ia mengikat potongan-potongan itu, satu di setiap kaki elang putih, dan 
+berkata, "Cepat terbang kembali, dan suruh Nona Huang datang ke sini." Elang putih mengeluarkan suara kicauannya, 
+merentangkan sayapnya, dan terbang dari bahu Guo Jing. Mereka mengitari kapal itu sekali lalu terbang ke arah barat.
 
-Sekitar satu jam setelah elang putih pergi, Ouyang Feng kembali mencoba membujuk Hong Qigong dan Guo Jing untuk turun dari tiang dengan menyiapkan meja perjamuan lain, yang sarat dengan makanan dan anggur. Hong Qigong marah, “Pengemis Tua adalah pelahap dan Racun Tua menggunakan trik kotor ini untuk menyiksaku. Saya telah berlatih seni bela diri sepanjang hidup saya, tetapi saya harus mengakui bahwa kekuatan spiritual saya agak kurang. Jing'er, bagaimana menurutmu kita turun dan mengalahkan mereka dengan sangat baik?
+Sekitar satu jam setelah elang putih pergi, Ouyang Feng kembali mencoba membujuk Hong Qigong dan Guo Jing untuk turun dari 
+tiang dengan menyiapkan meja perjamuan lain, yang sarat dengan makanan dan arak. Hong Qigong marah, "Pengemis Tua sudah 
+jelas seorang pelahap, dan Racun Tua menggunakan trik kotor ini untuk menyiksaku. Aku sudah latihan ilmu silat di sepanjang 
+hidupku, tapi harus kuakui kekuatan spiritualku agak kurang. Jing'er, bagaimana menurutmu kita turun dan melawan mereka?" 
 
-“Elang putih pasti sudah menyampaikan pesan kita; Saya yakin situasinya akan segera berubah. Mohon bersabar dan tunggu sebentar lagi," jawab Guo Jing.
+"Elang putih pasti sudah menyampaikan pesan kita. Dizi yakin situasinya akan segera berubah. Mohon bersabar dan tunggu 
+sebentar lagi," jawab Guo Jing.
 
-Hong Qigong tersenyum. Beberapa saat kemudian dia bertanya, “Di antara aroma yang menjijikkan di dunia, menurut Anda apa yang paling buruk?”
+Hong Qigong tersenyum. Beberapa saat kemudian ia bertanya, "Di antara aroma yang menjijikkan di dunia, menurutmu apa yang 
+paling buruk?"
 
-"Aku tidak tahu. Apa itu?" Jawab Guo Jing.
+"Aku tidak tahu. Apa itu?" jawab Guo Jing.
 
-“Suatu kali saya berjalan jauh ke utara. Saya terjebak dalam badai salju yang lebat selama delapan hari tanpa makanan; bahkan seekor tupai pun tidak dapat ditemukan. Saya ingin makan kulit pohon, tetapi saya juga tidak dapat menemukannya. Saya secara acak menggali di tanah yang tertutup salju dan cukup beruntung menemukan lima makhluk hidup, sehingga saya dapat memperpanjang hidup saya di lain hari. Keesokan harinya saya menemukan serigala kuning dan itu bisa memuaskan rasa lapar saya.”
+"Suatu kali aku berjalan jauh ke utara. Aku terjebak dalam badai salju yang lebat selama delapan hari tanpa makanan, 
+bahkan seekor tupai pun tidak bisa ditemukan. Aku ingin makan kulit pohon, tetapi aku juga tidak bisa menemukannya. Aku 
+secara sembarangan menggali di tanah yang tertutup salju, dan cukup beruntung menemukan lima makhluk hidup, jadi aku bisa 
+memperpanjang hidupku. Besok paginya aku menemukan serigala kuning dan itu bisa mengganjal perutku."
 
-“Apakah kelima makhluk hidup itu?” tanya Guo Jing.
+"Apakah kelima makhluk hidup itu?" tanya Guo Jing.
 
-“Mereka adalah cacing tanah, cacing tanah yang gemuk dan berair. Saya baru saja menelannya hidup-hidup, dan tidak berani mengunyahnya, ”jawab Hong Qigong.
+"Mereka adalah cacing tanah, cacing tanah yang gemuk dan berair. Aku menelannya hidup-hidup, dan tidak berani 
+mengunyahnya," jawab Hong Qigong.
 
-Ketika Guo Jing mengingat bagaimana cacing tanah berlendir itu bergoyang-goyang, dia hampir muntah. Hong Qigong tertawa terbahak-bahak. Dia dengan sengaja berbicara tentang hal-hal paling kotor dan paling bau di dunia untuk melawan aroma yang berasal dari makanan dan anggur di bawahnya. Dia berbicara lagi dan mengutuk lagi, sebelum akhirnya berkata, “Jing'er, Pengemis Tua telah memakan cacing tanah, tetapi ada sesuatu yang lebih menjijikkan daripada mereka dan Pengemis Tua lebih suka memakan jari kakiku sendiri daripada memakannya. Apakah kamu tahu apa itu?”
+Ketika Guo Jing mengingat bagaimana cacing tanah berlendir itu bergoyang-goyang, ia hampir muntah. Hong Qigong tertawa terbahak-bahak. Ia sengaja bicara tentang hal-hal yang paling kotor dan paling bau di dunia untuk melawan aroma yang berasal 
+dari makanan dan arak di bawahnya. Ia bicara lagi dan mengutuk lagi, sebelum akhirnya berkata, "Jing'er, Pengemis Tua sudah 
+makan cacing tanah, tetapi ada sesuatu yang lebih menjijikkan daripada mereka, dan Pengemis Tua lebih suka makan jari kakiku 
+sendiri daripada memakannya. Kau tahu apa itu?"
 
-Guo Jing tersenyum, "Aku tahu… itu kotoran!" serunya.
+Guo Jing tersenyum, "Aku tahu... itu kotoran manusia!" serunya.
 
-Hong Qigong menggelengkan kepalanya, "Tidak, itu lebih kotor dari itu." Dia membiarkan Guo Jing membuat beberapa tebakan lagi sebelum tertawa terbahak-bahak, “Aku akan memberitahumu apa itu; hal yang paling kotor dan menjijikkan di dunia adalah Racun Barat Ouyang Feng!”
+Hong Qigong menggelengkan kepalanya, "Tidak, itu lebih kotor dari itu." Ia membiarkan Guo Jing membuat beberapa tebakan lagi 
+sebelum tertawa terbahak-bahak, "Aku akan memberitahumu apa itu, hal yang paling kotor dan menjijikkan di dunia adalah Racun 
+Barat Ouyang Feng!"
 
 "Benar ... itu benar!" Guo Jing juga tertawa terbahak-bahak.
 
-Setelah mereka menderita sepanjang sore, malam itu Ouyang Ke keluar dan berdiri di tengah kerumunan ular berbisa. Dia tersenyum dan berkata, "Paman Hong, Saudara Guo, paman saya ingin meminjam 'Petunjuk Sembilan Yin' hanya untuk melihatnya, tidak ada yang lain."
+Setelah mereka menderita sepanjang sore, malam itu Ouyang Ke keluar dan berdiri di tengah kerumunan ular berbisa. Ia 
+tersenyum dan berkata, "Paman Hong, Guo Xiong, pamanku ingin pinjam Jiu Yin Zhen Jing hanya untuk melihatnya, tidak ada 
+yang lain."
 
-Hong Qigong mengutuk pelan, "Bajingan itu .... dia memiliki niat baik!" Di tengah kemarahannya, sebuah ide tiba-tiba muncul di kepalanya; tetapi dia tetap memasang wajah lurus dan berteriak keras dan jelas, “Bajingan kecil, lelaki tua itu mengakui kekalahan atas rencana jahat pamanmu yang seperti anjing. Cepat siapkan makanan dan anggur dan kita akan bicara lagi besok.”
+Hong Qigong mengutuk pelan, "Bajingan itu.... masa dia punya niat sebaik itu!" Di tengah kemarahannya, sebuah ide tiba-tiba muncul di benaknya, tetapi ia tetap memasang wajah lurus dan berteriak keras dan jelas, "Bajingan kecil, orang tua ini 
+mengaku kalah atas rencana jahat pamanmu yang seperti anjing itu. Cepat siapkan makanan dan arak, dan kita akan bicara lagi 
+besok."
 
-Ouyang Ke sangat senang; dia tahu kata-kata Hong Qigong sekuat gunung dan dia pasti akan memenuhi janjinya. Dia memberi perintah untuk segera menarik ular itu. Hong Qigong dan Guo Jing menurunkan tiang dan masuk ke kabin; tempat para pelayan Ouyang Ke mengirimkan semua jenis makanan dan anggur. Segera setelah pintu ditutup, Hong Qigong segera meminum setengah teko anggur, mencabik-cabik setengah ayam dan mulai mengunyah.
+Ouyang Ke sangat senang, ia tahu kata-kata Hong Qigong sekuat gunung dan ia pasti akan memenuhi janjinya. Ia memberi perintah 
+untuk segera menarik ular itu. Hong Qigong dan Guo Jing menuruni tiang dan masuk ke kabin, tempat para pelayan Ouyang Ke 
+mengirimkan semua jenis makanan dan arak. Segera setelah pintu ditutup, Hong Qigong segera meminum setengah teko arak, 
+mencabik-cabik setengah ekor ayam dan mulai mengunyah.
 
-"Apakah makanan dan anggur ini bebas dari racun?" Guo Jing bertanya dengan suara rendah.
+"Apakah makanan dan arak ini bebas dari racun?" tanya Guo Jing dengan nada rendah.
 
-“Bocah bodoh,” kata Hong Qigong, “Otak burung itu ingin kamu menulis manualnya, dia belum akan menyakitimu. Cepat makan sebanyak yang Anda bisa; kita memiliki hal-hal untuk didiskusikan setelah itu. Guo Jing diam-diam setuju dan dalam satu nafas dia makan empat mangkuk besar nasi.
+"Anak bodoh," kata Hong Qigong. "Otak burung itu ingin supaya kau menulis kitab, dia tidak akan menyakitimu saat ini. Cepat 
+makan sebanyak yang kau bisa, kita punya banyak hal untuk dibicarakan setelah itu. Guo Jing diam-diam setuju dan dalam 
+sekejap ia makan empat mangkuk besar nasi.
 
-Setelah makan dan minum sepuasnya, Hong Qigong menggunakan ujung lengan bajunya untuk menyeka mulutnya yang berminyak, lalu berbisik di telinga Guo Jing, “Racun Tua menginginkan 'Panduan Sembilan Yin' [jiu yin zhen jing] darimu, jadi Anda akan menulis 'Panduan yang Diubah Sembilan Yin' [jiu yin jia jing] untuknya.” [Catatan: 'zhen' berarti asli dan 'jia' berarti palsu.]
+Setelah makan dan minum sepuasnya, Hong Qigong menggunakan ujung lengan bajunya untuk menyeka mulutnya yang berminyak, lalu 
+berbisik di telinga Guo Jing, "Racun Tua menginginkan Jiu Yin Zhen Jing, jadi kau bisa menulis 
+[Jiu Yin Jia Jing](referensi-karakter.md#jiu-yin-jia-jing "Kitab Palsu Sembilan Bulan") untuknya."
+Guo Jing bingung, "Jiu Yin Jia Jing?" tanyanya dengan suara rendah.
 
-Guo Jing bingung, "Sembilan Yin Mengubah Manual?" dia bertanya dengan suara rendah.
+Hong Qigong tersenyum, "Benar!" katanya. "Di seluruh dunia yang luas ini, kaulah satu-satunya yang tahu isi sebenarnya 
+dari Jiu Yin Zhen Jing. Apapun yang ingin kau tulis, tulis saja. Siapa yang bisa bilang bahwa apa yang kau tulis itu 
+bukan panduan yang sebenarnya? Kau bisa dengan sengaja mengubah dan mencampur kalimat, dan membuat dia memakai tulisan itu 
+untuk melatih dirinya. Aku yakin kalaupun dia berlatih seratus tahun, dia tidak akan menguasai satu kentut pun!"
 
-Hong Qigong tersenyum, "Benar!" dia berkata. “Di seluruh dunia yang luas ini, Anda adalah satu-satunya yang mengetahui 'Pedoman Sembilan Yin'. Apapun yang ingin ditulis, tulis saja. Siapa yang akan mengatakan bahwa apa yang Anda tulis bukanlah manual yang sebenarnya? Anda akan dengan sengaja mengubah dan mencampur kalimat dan membiarkan dia menggunakannya untuk melatih dirinya dalam seni bela diri itu. Saya yakin jika dia berlatih selama seratus tahun dia tidak akan menguasai satu kentut pun!”
+Guo Jing sangat senang dan berpikir, "Ini benar-benar tipuan yang cerdik, Racun Tua pasti akan tertipu." Tapi kemudian ia 
+teringat sesuatu, "Kungfu Ouyang Feng sangat dalam, dan dia juga licik dan waspada, kalau dizi hanya corat-coret omong 
+kosong, dia akan tahu juga akhirnya, lalu bagaimana?" tanyanya.
 
-Guo Jing sangat senang dan berpikir, “Ini benar-benar trik yang cerdik; Racun Tua pasti akan tertipu.” Tapi kemudian dia teringat sesuatu, “Seni bela diri Ouyang Feng sangat dalam dan dia juga licik dan waspada; jika murid hanya mencoret-coret omong kosong, dia akan mengetahuinya pada akhirnya, lalu apa?” Dia bertanya.
+"Kau harus menulis sesuatu yang tampak benar tetapi sebenarnya salah," jelas Hong Qigong. "Tulis tiga kalimat yang benar 
+lalu ubah yang keempat. Tambahkan atau kurangi beberapa angka, misalnya kalau kitab itu bilang kalau kau perlu melakukannya 
+delapan kali, ubah menjadi enam atau mungkin sepuluh. Secerdas apapun dia, tidak akan pernah tahu. Aku bersedia menghabiskan 
+tujuh hari tujuh malam tanpa makanan atau arak hanya untuk melihatnya berlatih dari kitab palsu." Berbicara sampai titik ini 
+ia tidak bisa menahan senyum.
 
-“Anda harus menulis sesuatu yang tampak benar tetapi sebenarnya salah,” jelas Hong Qigong, “Tulis tiga kalimat yang benar lalu ubah yang keempat. Tambahkan atau kurangi beberapa angka, misalnya, jika manual mengatakan Anda perlu melakukannya delapan kali, ubah menjadi enam atau mungkin sepuluh. Secerdas apapun dia, dia tidak akan pernah tahu. Saya bersedia menghabiskan tujuh hari tujuh malam tanpa makanan atau anggur hanya untuk melihatnya berlatih dari manual palsu.” Berbicara sampai titik ini dia tidak bisa menahan senyum.
+Guo Jing tertawa, "Kalau dia benar-benar berlatih sesuai dengan kitab yang diubah, dia tidak hanya akan membuang waktu dan 
+energinya, tetapi dia juga bisa menderita luka dalam," katanya.
 
-Guo Jing tertawa, "Jika dia benar-benar berlatih sesuai dengan manual yang diubah, dia tidak hanya akan membuang waktu dan energinya, tetapi dia juga bisa menderita luka dalam," katanya.
+"Sekarang cepat pikirkan dengan hati-hati bagaimana kau akan mengubah isi kitab itu. Kalau dia curiga, rencana kita akan 
+gagal," kata Hong Qigong sambil tersenyum, lalu ia menambahkan, "Isi jilid kedua dibaca dan ditulis ulang oleh istri Huang 
+Yaoshi, apalagi, bajingan kecil itu membacanya di Pulau Bunga Persik, dan karena itu kau tidak boleh mengubah bagian itu 
+terlalu banyak, cukup tambahkan beberapa kata yang salah di sana-sini. Aku yakin bajingan kecil itu tidak akan tahu bedanya."
 
-“Sekarang cepat pikirkan dengan hati-hati tentang bagaimana Anda akan mengubah manual; jika dia curiga, rencana kita akan digagalkan, ”kata Hong Qigong sambil tersenyum; lalu dia menambahkan, “Isi jilid kedua dibaca dan ditulis ulang oleh istri Huang Yaoshi; apalagi, bajingan kecil itu membacanya di Pulau Bunga Persik dan oleh karena itu Anda tidak dapat mengubah bagian itu terlalu banyak, cukup tambahkan beberapa kata yang salah di sana-sini. Saya yakin bajingan kecil itu tidak akan tahu bedanya.”
-
-Guo Jing diam-diam melafalkan manual di kepalanya, mencoba memikirkan kalimat mana yang bisa dia ubah dan di mana dia bisa memasukkan beberapa kalimat yang menyesatkan. Dia mengganti hold dengan move, di atas dengan di bawah, dan perubahan sederhana lainnya yang tidak mengharuskan dia menyusun ulang seluruh kalimat; singkatnya, dia mengikuti instruksi tuannya untuk membuat perubahan halus di mana-mana di manual. Misalnya, dia mengubah kalimat 'tangan dan pikiran menuju langit' menjadi 'kaki dan pantat menuju langit'; atau 'kaki kokoh di tanah' menjadi 'tangan yang bergerak ringan di tanah'. Pada budidaya energi internal dia mengubah 'konsentrasikan' qi 'di daerah kemaluan (dan tian)' menjadi 'konsentrasikan' qi 'di dada dan tenggorokan'.
+Guo Jing diam-diam menghafalkan isi kitab itu di kepalanya, mencoba memikirkan kalimat mana yang bisa diubahnya dan di mana 
+ia bisa memasukkan beberapa kalimat yang menyesatkan. Ia mengganti 'tahan' dengan 'gerakkan', 'di atas' dengan 'di bawah', 
+dan perubahan sederhana lainnya yang tidak mengharuskan ia menyusun ulang seluruh kalimat, singkatnya ia mengikuti instruksi 
+gurunya untuk membuat perubahan halus di mana-mana. Misalnya ia mengubah kalimat 'tangan dan pikiran menuju langit' menjadi 
+'kaki dan pantat menuju langit', atau 'kaki kokoh di tanah' menjadi 'tangan yang bergerak ringan di tanah'. Di bagian cara 
+melatih tenaga dalam ia mengubah 'kumpulkan qi di daerah kemaluan' menjadi 'kumpulkan qi di dada dan tenggorokan'.
 
 Sambil memikirkan semua perubahan ini, dia tidak dapat menahan diri untuk tidak menghela nafas berat dan berkata dalam hatinya, “Bermain lelucon praktis seperti ini adalah kesenangan terbesar Rong'er dan Kakak Zhou. Sayang sekali yang satu tidak ada dan yang lainnya sudah mati. Suatu hari nanti saya akan melihat Rong'er lagi, tetapi saya tidak akan pernah bisa menceritakan kisah ini kepada Kakak Zhou.
 
