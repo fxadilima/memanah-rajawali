@@ -7,12 +7,6 @@
 
 ***
 
-### WARNING
-
-These are still draft (plain copy from Google Translate), contain a lot of _more or less_ wrong grammar.
-
-***
-
 Hong Qigong dan Guo Jing menyaksikan Ouyang Feng dan keponakannya membawa Zhou Botong ke kabin di belakang, sementara mereka dibawa ke kabin lain untuk berganti pakaian. Empat gadis berpakaian putih melayani mereka. Hong Qigong tertawa, “Pengemis Tua belum beruntung menikmati perlakuan seperti ini,” katanya. Setelah menanggalkan semua pakaiannya, seorang gadis mengeringkannya dengan handuk bersih.
 
 Guo Jing merasakan darah mengalir di leher dan wajahnya dan dia tidak berani melepas pakaiannya. Hong Qigong tertawa, “Apa yang kamu takutkan? Mereka tidak akan memakanmu hidup-hidup!” dia berkata. Dua gadis mendekatinya untuk melepas sepatu botnya dan melonggarkan ikat pinggangnya. Guo Jing dengan cepat mengambil kembali sepatu bot dan pakaian atasnya, melompat ke tempat tidur dan sambil bersembunyi di balik selimut, mengganti pakaiannya. Hong Qigong tertawa terbahak-bahak dan keempat gadis itu juga terkikik.
