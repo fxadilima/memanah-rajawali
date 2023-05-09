@@ -99,27 +99,41 @@ lagi? Tidak akan terlambat kalau kita menunggu sampai kita berada di darat."
 
 "Kulihat kau sangat menyukai muridku, karena itu kau tidak akan melepaskan tangannya," tawa Hong Qigong.
 
-"Aku bertaruh dengan Old Urchin dan aku menang, bukan?" Ouyang Feng bertanya, “Kamu adalah saksi kami, bukan? Izinkan saya menanyakan ini kepada Anda: Old Urchin tidak menepati janjinya, bukan?
+"Aku taruhan dengan Lao Wantong, dan aku menang, kan?" tanya Ouyang Feng. "Kau adalah saksi kami, kan? Ijinkan aku bertanya, 
+Lao Wantong tidak menepati janjinya, kan?"
 
-Hong Qigong berulang kali menganggukkan kepalanya untuk menjawab pertanyaannya, “Itu benar. Di mana Old Urchin?”
+Hong Qigong berulang kali menganggukkan kepalanya untuk menjawab pertanyaannya, "Itu benar. Di mana Lao Wantong?"
 
-Guo Jing berduka, dia berteriak, "Kakak Zhou ... dia dipaksa untuk melompat ke laut dan mati!"
+Guo Jing sangat berduka, ia berteriak, "Kakak Zhou ... dia dipaksa melompat ke laut dan mati!"
 
-Hong Qigong terkejut; dengan Ouyang Ke masih dalam cengkeramannya, dia melompat keluar dari kabin. Dia melihat ke segala arah tetapi yang bisa dia lihat hanyalah ombak yang mengepul dan bukan sekilas tentang Zhou Botong.
+Hong Qigong terkejut, dengan Ouyang Ke masih berada dalam cengkeramannya, ia melompat keluar dari kabin. Ia melihat ke segala 
+arah tetapi yang bisa dilihatnya hanyalah ombak yang menderu dan tidak ada tanda-tanda kehadiran Zhou Botong.
 
-Ouyang Feng, yang masih mencengkeram Guo Jing, juga berjalan ke geladak. Melonggarkan cengkeramannya, dia berkata, “Keponakan Guo, keterampilanmu masih jauh dari memadai. Anda membiarkan seseorang meraih tangan Anda tanpa bisa berbuat apa-apa. Pergi dan belajarlah dari gurumu selama sepuluh tahun lagi, lalu kamu bisa menjelajahi Jianghu lagi.”
+Ouyang Feng, yang masih mencengkeram Guo Jing, juga berjalan ke geladak. Melonggarkan cengkeramannya, ia berkata, "Guo 
+Xianzhi, kungfumu masih jauh dari memadai. Kau membiarkan seseorang mencekal tanganmu tanpa bisa berbuat apa-apa. Pergi 
+dan belajarlah dari gurumu selama sepuluh tahun lagi, lalu kau bisa menjelajahi Jianghu lagi."
 
-Guo Jing mengkhawatirkan keselamatan Zhou Botong; dia mengabaikan komentar menghina dan memanjat tiang, melihat ke segala arah.
+Guo Jing menguatirkan keselamatan Zhou Botong, ia mengabaikan komentar menghina itu dan memanjat tiang, melihat ke segala 
+arah.
 
-Hong Qigong mengangkat Ouyang Ke dan melemparkannya ke arah Ouyang Feng. Dia berteriak, “Racun Tua, kamu memaksa Old Urchin mati; orang-orang Quanzhen akan berurusan denganmu. Seni bela diri Anda mungkin sangat dalam, tapi saya tidak percaya Anda akan selamat dari kekuatan gabungan Tujuh Quanzhen.
+Hong Qigong mengangkat Ouyang Ke dan melemparkannya ke arah Ouyang Feng. Ia berteriak, "Racun Tua, kau memaksa Lao Wantong 
+mati, orang-orang Quanzhen akan berurusan denganmu. Kungfumu mungkin sangat dalam, tapi aku tidak percaya kau akan selamat 
+dari kekuatan gabungan Tujuh Pendekar Quanzhen."
 
-Ouyang Ke tidak membiarkan tubuhnya menyentuh geladak; tangan kanannya mendorong geladak dan dia berjungkir balik ke posisi tegak sambil mengutuk dalam hati, “Pengemis bau! Pada saat ini besok Anda akan merangkak di depan saya, memohon saya untuk menyelamatkan hidup Anda.
+Ouyang Ke tidak membiarkan tubuhnya menyentuh geladak, tangan kanannya mendorong geladak dan ia berjungkir balik ke posisi 
+tegak sambil mengutuk dalam hati, "Pengemis bau! Besok kau akan merangkak di depanku, memohonku untuk menyelamatkan 
+hidupmu!"
 
-Mendengarkan ucapan Hong Qigong, Ouyang Feng hanya tersenyum tipis, "Saya khawatir Anda tidak akan bisa menyaksikannya saat itu terjadi."
+Mendengarkan ucapan Hong Qigong, Ouyang Feng hanya tersenyum tipis, "Aku kuatir kau tidak akan bisa menyaksikannya saat hal 
+itu terjadi."
 
-“Baiklah!” Hong Qigong berkata, “Sampai saatnya tiba, saya akan menggunakan tongkat pemukul anjing saya untuk memukul beberapa anjing basah.” Ouyang Feng mengangkat tangannya memberi hormat lalu memasuki kabin.
+"Baik!" kata Hong Qigong. "Sampai saatnya tiba, aku akan menggunakan tongkat pemukul anjingku untuk memukul beberapa anjing 
+basah." Ouyang Feng mengangkat tangannya memberi hormat lalu memasuki kabin.
 
-Setelah melihat-lihat sebentar tanpa melihat apa-apa, Guo Jing naik kembali ke geladak dan memberi tahu tuannya bagaimana Ouyang Feng mencoba memaksanya untuk menulis manual. Hong Qigong mengangguk tanpa berkata apa-apa saat dia diam-diam merenung, “Begitu Racun Tua memutuskan sesuatu, dia tidak akan mudah melepaskannya. Sampai dia mendapatkan manualnya, dia akan terus mengganggu muridku.”
+Setelah melihat-lihat sebentar tanpa melihat apa-apa, Guo Jing naik kembali ke geladak dan memberitahu gurunya bagaimana 
+Ouyang Feng mencoba memaksanya untuk menulis kitab. Hong Qigong mengangguk tanpa berkata apa-apa, diam-diam ia merenung, 
+"Begitu Racun Tua memutuskan sesuatu, ia tidak akan mudah melepaskannya. Sampai ia mendapatkan kitab itu, ia akan terus 
+mengganggu muridku."
 
 Guo Jing, memikirkan kematian Zhou Botong, menangis sedih. Hong Qigong juga berduka. Dia tahu perahu itu berlayar cepat ke barat dan dalam dua hari mereka akan mencapai daratan. Dia takut Ouyang Feng akan meracuni makanan mereka lagi, jadi dia pergi ke dapur dan menjarah beberapa piring dan banyak nasi. Setelah memakannya dengan Guo Jing, kepalanya mengangguk dan kemudian dia mendengkur.
 
