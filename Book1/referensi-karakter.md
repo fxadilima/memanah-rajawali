@@ -898,3 +898,12 @@ Baik Qing Jing maupun Wu Wei adalah prinsip dari Taoisme.
 Xi Du (西毒), secara literal berarti 'Racun dari Wilayah Barat'.
 
 
+### <a name="hai-long-wang" id="hai-long-wang">Hai Long Wang (海龙王)</a>
+
+Secara literal berarti 'Raja Naga Laut'.
+
+Karakter tradisional nama ini adalah 海龍王.
+
+Dalam mitologi Tiongkok kuno, karakter Long Wang (龙王) sendiri adalah Dewa Air dan Cuaca.
+
+

@@ -1261,8 +1261,8 @@ dengan perut putih ke atas, mengambang dan terombang-ambing di atas ombak.
 
 "Melihat begitu banyak perut putih membuat perutku mual, memikirkan banyak hiu yang terbunuh oleh racun Lao Du juga membuat 
 perutku sakit," kata Zhou Botong. "Racun Tua, kau harus berhati-hati, begitu 
-[Hai Long Wang](referensi-karakter.md#hai-long-wang "Raja Naga Laut") tahu, dia akan mengirim pasukan udang dan jenderal 
-kepitingnya untuk berurusan denganmu." Ouyang Feng hanya tersenyum tanpa berkata apa-apa.
+[Hai Long Wang](referensi-karakter.md#hai-long-wang "Hai Long Wang (海龙王) = Raja Naga Laut") tahu, dia akan mengirim 
+pasukan udang dan jendral kepitingnya untuk berurusan denganmu." Ouyang Feng hanya tersenyum tanpa berkata apa-apa.
 
 "Feng Xiong, ada sesuatu yang belum kupahami, kumohon kau sudi menjelaskannya," kata Hong Qigong.
 
