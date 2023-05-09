@@ -18,4 +18,10 @@ supaya bisa diakses dari bab manapun.
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1682803449/misc/dazhui_sk0cx5.png"
             alt="Titik akupuntur Da Zhui"/>
     </dd>
+    <dt id="zhi-yang">Titik Akupuntur Zhi Yang (至阳)</dt>
+    <dd>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1683642673/misc/GV-9-Zhiyang_tdbglk.jpg"
+            alt="titik Akupuntur Zhi Yang">
+    </dd>
 </dl>
+

@@ -3,63 +3,101 @@
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |
-| ![Ilustrasi Bab 20](https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg)  | _Tiang yang terbakar memisahkan dua orang. Ouyang Feng mengambil tongkat ularnya dan melompati tiang yang menyala. Hong Qigong segera mencabut tongkat bambu dari pinggangnya dan menangkis serangan itu. Mereka telah bertarung dengan ganas dengan tangan kosong sebelumnya, jadi bayangkan betapa sengitnya pertempuran sekarang karena keduanya menggunakan senjata._  |
+| ![Ilustrasi Bab 20](https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg)  | _Tiang yang terbakar memisahkan kedua orang itu. Ouyang Feng mengambil tongkat ularnya dan melompati tiang yang menyala. Hong Qigong segera mencabut tongkat bambu dari pinggangnya dan menangkis serangan itu. Mereka telah bertarung dengan ganas dengan tangan kosong sebelumnya, jadi bayangkan betapa sengitnya pertempuran sekarang karena keduanya menggunakan senjata._  |
 
 ***
 
-Hong Qigong dan Guo Jing menyaksikan Ouyang Feng dan keponakannya membawa Zhou Botong ke kabin di belakang, sementara mereka dibawa ke kabin lain untuk berganti pakaian. Empat gadis berpakaian putih melayani mereka. Hong Qigong tertawa, “Pengemis Tua belum beruntung menikmati perlakuan seperti ini,” katanya. Setelah menanggalkan semua pakaiannya, seorang gadis mengeringkannya dengan handuk bersih.
+Hong Qigong dan Guo Jing menyaksikan Ouyang Feng dan keponakannya membawa Zhou Botong ke kabin di belakang, sementara mereka 
+dibawa ke kabin lain untuk berganti pakaian. Empat gadis berpakaian putih melayani mereka. Hong Qigong tertawa, "Pengemis Tua 
+belum beruntung menikmati perlakuan seperti ini," katanya. Setelah menanggalkan semua pakaiannya, seorang gadis 
+mengeringkannya dengan handuk bersih.
 
-Guo Jing merasakan darah mengalir di leher dan wajahnya dan dia tidak berani melepas pakaiannya. Hong Qigong tertawa, “Apa yang kamu takutkan? Mereka tidak akan memakanmu hidup-hidup!” dia berkata. Dua gadis mendekatinya untuk melepas sepatu botnya dan melonggarkan ikat pinggangnya. Guo Jing dengan cepat mengambil kembali sepatu bot dan pakaian atasnya, melompat ke tempat tidur dan sambil bersembunyi di balik selimut, mengganti pakaiannya. Hong Qigong tertawa terbahak-bahak dan keempat gadis itu juga terkikik.
+Guo Jing merasakan darah mengalir di leher dan wajahnya, dan ia tidak berani melepas pakaiannya. Hong Qigong tertawa, "Kau 
+takut apa? Mereka tidak akan memakanmu hidup-hidup!" katanya. Dua gadis itu mendekatinya untuk melepas sepatu botnya dan 
+melonggarkan ikat pinggangnya. Guo Jing dengan cepat mengambil kembali sepatu bot dan pakaian atasnya, melompat ke tempat 
+tidur, dan sambil bersembunyi di balik selimut, mengganti pakaiannya. Hong Qigong tertawa terbahak-bahak dan keempat gadis 
+itu juga cekikikan.
 
-Setelah mereka selesai, dua gadis lainnya memasuki kabin membawa nampan berisi anggur, hidangan daging, sayuran, dan nasi putih, sambil berkata, “Tolong tuan-tuan, cepat makan apa yang telah kami siapkan.”
+Setelah mereka selesai, dua gadis lainnya memasuki kabin membawa nampan berisi arak, hidangan daging, sayuran, dan nasi 
+putih, sambil berkata, "Silakan tuan-tuan makan apa yang telah kami siapkan."
 
-Hong Qigong melambaikan tangannya, “Kalian semua, tolong keluar dari sini. Ketika Pengemis Tua melihat wanita cantik, saya tidak bisa memasukkan makanan ke dalam perut saya.” Gadis-gadis itu tersenyum dan menurut, menutup pintu saat mereka keluar.
+Hong Qigong melambaikan tangannya, "Kalian semua, tolong keluar dari sini. Kalau Pengemis Tua melihat wanita cantik, aku 
+tidak bisa menelan makanan." Gadis-gadis itu tersenyum dan menurut, menutup pintu saat mereka keluar.
 
-Hong Qigong mengangkat anggur dan piring ke hidungnya dan mengendusnya, “Jangan makan atau minum ini,” bisiknya, “Racun Tua sangat licik. Makan saja nasi putihnya.” Dia mengambil labu dari punggungnya, menarik sumbatnya dan mengambil dua suap anggur. Kemudian dia dengan cepat memakan tiga mangkuk besar nasi. Guo Jing mengikuti arahannya dan membuang piring lainnya di bawah papan geladak.
+Hong Qigong mengangkat arak dan piring ke hidungnya dan mengendusnya, "Jangan makan atau minum ini," bisiknya, "Racun Tua 
+sangat licik. Makan saja nasi putihnya." Ia mengambil kantong arak dari punggungnya, menarik sumbatnya dan minum dua teguk 
+arak. Kemudian dengan cepat ia memakan tiga mangkuk besar nasi. Guo Jing mengikuti arahannya dan membuang piring lainnya di 
+bawah papan geladak.
 
-"Aku ingin tahu apa yang mereka ingin Kakak Zhou lakukan?" Guo Jing bertanya dengan suara rendah.
+"Aku ingin tahu apa yang mereka inginkan dari Kakak Zhou?" tanya Guo Jing dengan suara rendah.
 
-"Tidak bisa menjadi sesuatu yang baik," jawab Hong Qigong, "Kali ini Old Urchin benar-benar membuat dirinya dalam masalah."
+"Bukan sesuatu yang baik," jawab Hong Qigong, "Kali ini Lao Wantong benar-benar tercebur ke dalam masalah."
 
-Pintu kabin tiba-tiba didorong terbuka dan seorang gadis berkata, “Tuan Zhou meminta Tuan Muda Guo untuk datang ke kabin belakang. Dia punya sesuatu untuk didiskusikan denganmu.” Guo Jing menatap tuannya dan berjalan keluar kabin mengikuti gadis itu. Mereka berjalan di sepanjang sisi pelabuhan kapal ke arah belakang. Gadis itu dengan ringan mengetuk pintu kabin dan setelah menunggu beberapa saat, mendorong pintu hingga terbuka, mengumumkan, "Tuan Muda Guo telah tiba."
+Pintu kabin tiba-tiba didorong terbuka dan seorang gadis berkata, "Zhou Daxia meminta Guo Gongzi datang ke kabin belakang. 
+Dia ingin berdiskusi dengan Gongzi." Guo Jing menatap gurunya dan berjalan keluar kabin mengikuti gadis itu. Mereka berjalan 
+di sepanjang sisi kapal ke arah belakang. Gadis itu dengan ringan mengetuk pintu kabin dan setelah menunggu beberapa saat, 
+mendorong pintu hingga terbuka, mengumumkan, "Guo Gongzi telah tiba."
 
-Guo Jing memasuki kabin dan pintu tertutup di belakangnya. Tidak ada seorang pun di dalam kabin. Guo Jing merasa gelisah, tapi kemudian sebuah pintu kecil di sebelah kirinya terbuka dan Ouyang Feng serta keponakannya masuk.
+Guo Jing memasuki kabin dan pintu tertutup di belakangnya. Tidak ada seorang pun di dalam kabin. Guo Jing merasa gelisah, 
+tapi kemudian sebuah pintu kecil di sebelah kirinya terbuka, dan Ouyang Feng serta keponakannya masuk.
 
 "Di mana Kakak Zhou?" tanya Guo Jing.
 
-Ouyang Feng menutup pintu dengan punggung tangannya lalu maju dua langkah dan meraih pergelangan tangan Guo Jing. Gerakannya sangat cepat; tidak dalam sejuta tahun Guo Jing akan menduga bahwa Ouyang Feng akan melakukan itu. Dia merasa pergelangan tangannya dicengkeram oleh penjepit; dia tidak bisa bergerak. Ouyang Ke menarik kipas lipat dari lengan bajunya dan meletakkannya di titik akupuntur vital di punggung Guo Jing. Guo Jing tercengang; dia tidak bisa menebak apa yang diinginkan paman dan keponakan darinya.
+Ouyang Feng menutup pintu dengan punggung tangannya lalu maju dua langkah dan meraih pergelangan tangan Guo Jing. Gerakannya 
+sangat cepat, dalam sejuta tahun pun Guo Jing tidak akan menduga bahwa Ouyang Feng akan melakukan itu. Ia merasa pergelangan 
+tangannya dicengkeram oleh penjepit, ia tidak bisa bergerak. Ouyang Ke menarik kipas lipat dari lengan bajunya dan 
+meletakkannya di titik akupuntur vital di punggung Guo Jing. Guo Jing tercengang, ia tidak bisa menebak apa yang diinginkan 
+paman dan keponakan itu darinya.
 
-“Landak Tua kalah taruhan denganku, tetapi ketika aku memintanya melakukan sesuatu untukku, dia menolak,” kata Ouyang Feng dengan dingin.
+"Lao Wantong kalah taruhan denganku, tetapi ketika aku memintanya melakukan sesuatu untukku, dia menolak," kata Ouyang Feng 
+dengan dingin.
 
 "Hmm?" Guo Jing bingung.
 
-“Saya mengatakan kepadanya untuk menulis ulang ‘Panduan Sembilan Yin’ dari memori untuk saya baca, tetapi dia tiba-tiba tidak menepati janjinya,” jelas Ouyang Feng.
+"Aku mengatakan kepadanya untuk menulis ulang Jiu Yin Zhen Jing untuk kubaca, tetapi dia tiba-tiba tidak menepati janjinya," 
+jelas Ouyang Feng.
 
-"Bagaimana Kakak Zhou bisa memberikan manualnya kepadamu?" Guo Jing berpikir; dan sekali lagi dia bertanya, “Di mana Kakak Zhou?”
+"Bagaimana Kakak Zhou bisa memberikan kitabnya kepadamu?" pikir Guo Jing, dan sekali lagi ia bertanya, "Di mana Kakak Zhou?"
 
-“Dialah yang mengatakan bahwa siapa pun yang tidak menepati janji harus melompat ke laut untuk dimakan hiu. Huh! Dia akhirnya mengambil keputusan dan melakukan apa yang dia katakan, ”kata Ouyang Feng dengan dingin.
+"Dialah yang mengatakan bahwa siapa pun yang tidak menepati janji harus melompat ke laut untuk dimakan hiu. Huh! Dia akhirnya 
+mengambil keputusan dan melakukan apa yang dikatakannya sendiri," kata Ouyang Feng dengan dingin.
 
-Guo Jing terkejut. "Dia ... dia ..." dia tergagap. Dia mencoba melepaskan tangannya dan berlari ke pintu, tetapi cengkeraman Ouyang Feng sangat erat, memaksa Guo Jing untuk berhenti. Ouyang Ke mendorong kipasnya sedikit lebih keras ke titik akupuntur 'Paling Positif' [zhi yang] Guo Jing.
+Guo Jing terkejut. "Dia ... dia ..." ia tergagap. Ia mencoba melepaskan tangannya dan berlari ke pintu, tetapi cengkeraman 
+Ouyang Feng sangat erat, memaksa Guo Jing untuk berhenti. Ouyang Ke mendorong kipasnya sedikit lebih keras ke titik akupuntur 
+[Zhi Yang](acupoints.md#zhi-yang "Kira-kira di tengah-tengah punggung. Klik untuk melihat gambar.") Guo Jing.
 
-Ouyang Feng menunjuk ke sebuah meja dengan setumpuk kertas, kuas, dan beberapa tinta di atasnya dan berkata, “Di seluruh dunia, Anda adalah satu-satunya yang mengetahui teks lengkap manual ini. Tuliskan untuk saya dengan cepat.
+Ouyang Feng menunjuk ke sebuah meja dengan setumpuk kertas, kuas, dan beberapa tinta di atasnya dan berkata, "Di seluruh 
+dunia, kau adalah satu-satunya yang tahu isi kitab ini selengkapnya. Cepat tuliskan."
 
-Guo Jing menggelengkan kepalanya. Ouyang Ke tersenyum dan berkata, “Makanan dan anggur yang kamu dan Pengemis Tua makan barusan telah diracuni. Jika Anda tidak meminum penawar Paman saya, Anda akan mati dalam waktu dua belas jam, seperti hiu yang Anda lihat sebelumnya. Jika Anda patuh, kami akan mengampuni Anda dan nyawa majikan Anda.”
+Guo Jing menggelengkan kepalanya. Ouyang Ke tersenyum dan berkata, "Makanan dan arak yang kalian makan barusan telah 
+diracuni. Jika kau tidak minum penawar racun dari Pamanku, kau akan mati dalam waktu dua belas jam, seperti hiu yang kau 
+lihat sebelumnya. Kalau kau patuh, kami akan mengampunimu dan gurumu."
 
-Guo Jing sangat terkejut, "Seandainya Guru tidak begitu waspada, kita pasti akan jatuh ke dalam perangkap mereka." Dia menatap Ouyang Feng dan berpikir, "Kamu adalah ahli seni bela diri yang hebat, namun kamu melakukan tindakan tercela seperti ini."
+Guo Jing sangat terkejut, "Seandainya Guru tidak begitu waspada, kita pasti akan jatuh ke dalam perangkap mereka." Ia 
+menatap Ouyang Feng dan berpikir, "Kau pendekar yang hebat, tapi kau melakukan tindakan tercela seperti ini."
 
-Menyaksikan Guo Jing menatapnya tanpa berkata apa-apa, Ouyang Feng berkata, “Lagipula kamu sudah menghafal manualnya. Anda tidak akan kehilangan apapun dengan menuliskannya. Apa yang kamu tunggu?"
+Menyaksikan Guo Jing menatapnya tanpa berkata apa-apa, Ouyang Feng berkata, "Lagipula kau sudah menghafal kitabnya. Kau 
+tidak akan kehilangan apapun dengan menuliskannya. Apa yang kau tunggu?"
 
-Guo Jing menggigil karena marah, “Kamu telah menyakiti saudara angkatku; sekarang ada kebencian sedalam samudra antara kau dan aku. Jika kau ingin membunuhku maka silakan saja. Tapi jika kamu pikir kamu bisa memaksaku, teruslah bermimpi!”
+Guo Jing menggigil karena marah, "Kau telah menyakiti saudara angkatku, sekarang ada kebencian sedalam samudra antara kau 
+dan aku. Jika kau ingin membunuhku maka silakan saja. Tapi jika kau pikir kau bisa memaksaku, teruslah bermimpi!"
 
-"Huh!" Ouyang Feng berkata, “Bagus, kamu punya nyali nak! Kamu tidak takut mati, tetapi apakah hidup tuanmu tidak berarti apa-apa bagimu?”
+"Huh!" Ouyang Feng berkata, "Bagus, kau punya nyali, Nak! Kau tidak takut mati, tetapi apakah hidup gurumu juga tidak 
+berarti apa-apa bagimu?"
 
-Sebelum Guo Jing sempat menjawab, tiba-tiba terdengar ledakan keras saat pintu kabin hancur dan pecahan kayu beterbangan ke mana-mana. Ouyang Feng menoleh untuk melihat Hong Qigong dengan beberapa tong air kayu di tangannya. Hong Qigong membuang air dari tong dan dua tiang transparan berwarna hijau tua terbang ke arah Ouyang Feng dan keponakannya. Ouyang Feng mengetahui keganasan serangan air ini; dia melompat ke kiri untuk menghindarinya sementara tangan kirinya masih memegang erat pergelangan tangan Guo Jing. Air menghantam dinding kabin dan memercik ke segala arah. Ouyang Ke berteriak dengan keras karena Hong Qigong telah memegang bagian belakang kepalanya.
+Sebelum Guo Jing sempat menjawab, tiba-tiba terdengar ledakan keras saat pintu kabin hancur dan pecahan kayu beterbangan 
+ke mana-mana. Ouyang Feng menoleh untuk melihat Hong Qigong dengan beberapa tong air kayu di tangannya. Hong Qigong 
+membuang air dari tong, dan dua tiang transparan berwarna hijau tua terbang ke arah Ouyang Feng dan keponakannya. Ouyang Feng 
+tahu kedahsyatan serangan air ini, ia melompat ke kiri untuk menghindarinya sementara tangan kirinya masih memegang erat 
+pergelangan tangan Guo Jing. Air menghantam dinding kabin dan memercik ke segala arah. Ouyang Ke berteriak dengan keras 
+karena Hong Qigong telah memegang bagian belakang kepalanya.
 
-Hong Qigong tertawa terbahak-bahak, "Racun Tua, kamu selalu ingin membunuhku dengan cara apa pun, untungnya Surga tidak mengizinkan itu terjadi!"
+Hong Qigong tertawa terbahak-bahak, "Racun Tua, kau selalu ingin membunuhku dengan cara apa pun, untungnya Surga tidak mengijinkan hal itu terjadi!"
 
-Ouyang Feng melihat keponakannya jatuh ke tangan Hong Qigong jadi dia tersenyum dan berkata, “Kakak Qi, apakah kamu akan menantangku lagi? Tidak akan terlambat jika kita menunggu sampai kita berada di darat.”
+Ouyang Feng melihat keponakannya jatuh ke tangan Hong Qigong, jadi ia tersenyum dan berkata, "Qi Xiong, kau akan menantangku 
+lagi? Tidak akan terlambat kalau kita menunggu sampai kita berada di darat."
 
-“Saya melihat Anda sangat menyukai murid saya sehingga Anda tidak akan melepaskan tangannya,” tawa Hong Qigong.
+"Kulihat kau sangat menyukai muridku, karena itu kau tidak akan melepaskan tangannya," tawa Hong Qigong.
 
 "Aku bertaruh dengan Old Urchin dan aku menang, bukan?" Ouyang Feng bertanya, “Kamu adalah saksi kami, bukan? Izinkan saya menanyakan ini kepada Anda: Old Urchin tidak menepati janjinya, bukan?
 
