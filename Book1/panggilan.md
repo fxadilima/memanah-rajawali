@@ -60,4 +60,13 @@ tidak secara langsung terkait dengan pemerintah pusat. Dalam istilah bahasa Ingg
 Secara literal istilah ini berarti "Hartaku yang berharga", tetapi kalau digunakan untuk memanggil seorang kekasih,
 maka ini setara dengan "Sayangku".
 
+### <a name="ye-ye" id="ye-ye">Ye Ye (爷爷)</a>
+
+Secara literal berarti 'Kakek'.
+
+
+### <a name="shizhu" id="shizhu">Shi Zhu (施主)</a>
+
+Arti literalnya adalah "Dermawan", atau orang yang menyumbangkan hartanya. Panggilan ini biasanya dipakai para
+Biksu untuk berbicara kepada orang lain.
 
