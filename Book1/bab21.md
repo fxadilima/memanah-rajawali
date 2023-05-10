@@ -7,3 +7,14 @@
 
 ***
 
+Ouyang Feng merasakan sekelilingnya menjadi lebih panas dan geladak kapal berguncang hebat, ia tahu perahu itu akan 
+tenggelam kapan saja. Tapi Hong Qigong menyerang lebih ganas dan tidak mengendurkan langkahnya, jika ia tidak menggunakan 
+keahlian khususnya sekarang, ia mungkin tidak akan keluar dari kontes ini hidup-hidup. Ia menarik kembali Tongkat Ularnya 
+dengan tangan kanan, dan menendang dengan kejam menggunakan kaki kanannya.
+
+Hong Qigong menggunakan batang bambunya untuk mengejar Tongkat Ular sambil menggunakan tangan kirinya untuk memblokir 
+tendangan yang masuk. Ouyang Feng tiba-tiba memutar lengannya dan meninju ke arah 
+Titik Akupuntur [Tai Yang](acupoints.md#tai-yang "Terletak di pelipis") sebelah kanan Hong Qigong. Tinju Ular ini 
+dilatih dengan keras oleh Ouyang Feng sendiri, dan dimaksudkan untuk digunakan selama pertandingan di Hua Shan yang kedua. 
+Ia belum menggunakan tinju seperti ular ini bahkan setelah bergebrak seribu pukulan dengan Hong Qigong di Pulau Bunga Persik.
+

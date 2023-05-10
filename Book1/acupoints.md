@@ -23,6 +23,13 @@ supaya bisa diakses dari bab manapun.
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1683642673/misc/GV-9-Zhiyang_tdbglk.jpg"
             alt="titik Akupuntur Zhi Yang">
     </dd>
+    <dt id="tai-yang">Titik Akupuntur Tai Yang (太阳)</dt>
+    <dd>
+        Tai Yang sendiri berarti 'Matahari'. Titik ini terletak di pelipis, secara vertikal berada di tengah-tengah
+        posisi alis dan ujung mata.<br/>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1683703380/misc/images_vicdtn.jpg"
+            alt="Titik akupuntur Taiyang">
+    </dd>
 </dl>
 
 
