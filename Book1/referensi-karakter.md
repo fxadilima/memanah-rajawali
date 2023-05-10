@@ -942,3 +942,48 @@ berikut nama ilmu yang dipakai dengan menggunakan tongkat tersebut.
 
 Ilmu Tongkat Pemukul Anjing adalah Da Gou Bang Fa (打狗棒法).
 
+
+## Daftar Ilmu Silat Kai Pang
+
+The 18 stances are:
+
+The Proud Dragon Repents (亢龍有悔)
+The Dragon Soars in the Sky (飛龍在天)
+The Dragon is Seen in the Fields (見龍在田)
+The Swan Descends Gracefully (鴻漸於陸)
+Use Not the Submerged Dragon (潛龍勿用)
+A Sudden Advent (突如其來)
+Crossing Great Rivers (利涉大川)
+Tremors that Shook the Land (震驚百里)
+Diving into the Abyss (或躍在淵)
+The Twin Dragons Fetch Water (雙龍取水)
+The Fish Frolics in the Depths (魚躍於淵)
+Timely Riding the Six Dragons (時乘六龍)
+Dark Clouds but No Rain (密雲不雨)
+With a Loss comes Confidence (損則有孚)
+The Dragon Fights in the Wilderness (龍戰於野)
+Treading on Ice (履霜冰至)
+The Ram Charges into the Fence (羝羊觸藩)
+The Divine Dragon Swishes its Tail (神龍擺尾)
+
+Dog Beating Staff Technique
+The Dog Beating Staff Technique (打狗棒法) has ten stances:
+
+A Fierce Dog Blocks the Path (惡狗攔路)
+Whack Two Dogs with a Staff (棒打雙犬)
+Oblique Hit on the Dog's Back (斜打狗背)
+Flip the Dog Upside-down (撥狗朝天)
+Retrieve the Staff from the Mastiff's Jaws (獒口奪仗)
+Whack the Dog's Head with a Staff (棒打狗頭)
+Reverse Jab the Dog's Bottom (反戳狗臀)
+Lift the Mad Dog with the Staff (棒挑癩犬)
+Squash the Dog's Back (壓扁狗背)
+No Dogs Under Heaven (天下無狗)
+
+### <a name="shuanglong-qushui" id="shuanglong-qushui">Shuang long Qu Shui (双龙取水)</a>
+
+Ini adalah salah satu dari 18 Jurus Penakluk Naga, secara literal bisa diterjemahkan menjadi
+'Naga Kembar Mengambil Air'.
+
+Kelihatannya istilah ini _bukan_ kutipan dari Yijing, tidak seperti nama-nama jurus lain.
+
