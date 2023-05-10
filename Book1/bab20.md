@@ -816,5 +816,7 @@ Guo Jing berdiri di haluan perahu kecil dan beberapa kali ingin melompat ke atas
 pendekar tangguh itu bertempur dengan jarak dekat. Ia menyadari keahliannya sendiri terlalu jauh di bawah mereka, dan akan 
 sangat sulit bahkan untuk mendekati mereka. Yang bisa dilakukannya hanya menatap kosong, tidak bisa melakukan apa-apa.
 
+[^paman-anjing]: Dalam struktur keluarga masyarakat Tionghoa, dikenal dua Paman, dari pihak ayah. Shushu (叔叔) adalah sebutan untuk adik laki-laki ayah, sedangkan kakak laki-lakinya dipanggil Bofu (伯父) atau Bobo (伯伯). Dalam konteks Indonesia, istilah yang lebih sering terdengar atau kita baca adalah 'Empek' atau 'Encek'. Sedangkan kalau paman ini datangnya dari pihak Sang Ibu, maka panggilan tersebut menjadi Jiujiu (舅舅). Di Indonesia lebih populer ditulis 'Ciu Ciu'. Ouyang Feng kemungkinan besar dipanggil Shushu oleh Ouyang Ke. Istilah plesetan dari Hong Qigong itu adalah Gou Shu (狗叔), yang berarti 'Paman Anjing', maksudnya bukan paman dari anjingnya Ouyang Ke, tetapi 'paman dari Ouyang Ke, yang mirip anjing', atau disamakan dengan anjing. Kata-kata tersebut sungguh sangat kasar.
+
 
 
