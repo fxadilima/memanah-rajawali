@@ -45,7 +45,7 @@ Tabel berikut berisi semua _link_ untuk gambar ilustrasi yang sudah berada di _C
 | Bab 19  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693129/sdyxz/originals/loch-19_wldhsq.jpg |
 | Bab 20  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg |
 | Bab 21  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693205/sdyxz/originals/loch-21_na37vf.jpg |
-| Bab 22  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693205/sdyxz/originals/loch-21_na37vf.jpg |
+| Bab 22  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693258/sdyxz/originals/loch-22_qgzx61.jpg |
 | Bab 23  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693287/sdyxz/originals/loch-23_tarlpe.jpg |
 | Bab 24  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693322/sdyxz/originals/loch-24_qca8fo.jpg |
 | Bab 25  | https://res.cloudinary.com/drzjshskk/image/upload/v1676693355/sdyxz/originals/loch-25_vonq0z.jpg |

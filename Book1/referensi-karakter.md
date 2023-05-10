@@ -932,7 +932,7 @@ Nama ini adalah pelesetan dari [Jiu Yin Zhen Jing](#jiu-yin-zhen-jing "Kitab Sem
 Hong Qigong. Ouyang Feng memaksa Guo Jing menulis ulang kitab itu, dan Hong Qigong menyuruhnya menulis kitab palsu.
 Karakter Jia (假) artinya adalah 'Palsu', yang jelas terbalik dari Zhen (真), yang berarti 'Murni', 'Sejati', atau 'Asli'.
 
-Secara literal bisa diterjemahkan menjadi 'Kitab Senbilan Bukan Palsu'.
+Secara literal bisa diterjemahkan menjadi 'Kitab Sembilan Bulan Palsu'.
 
 
 ### <a name="da-gou-bang" id="da-gou-bang">Da Gou Bang (打狗棒)</a>
