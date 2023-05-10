@@ -679,7 +679,7 @@ atau yang paling relevan barangkali **Forum** dan juga **Turnamen**.
 
 Kalau diteliti dari cerita Pendeta Ma Yu kepada Enam Orang Aneh dari Jiangnan, dan juga Guo Jing, ketika mereka
 sedang bersiap untuk menghadapi Mei Chaofeng di puncak tebing Mongolia, sebenarnya _event_ tersebut juga adalah
-ajang diskusi, tukar penndapat, dan debat, mengenai ilmu silat. Dan bukan hanya adu ilmu dalam arti adu fisik.
+ajang diskusi, tukar pendapat, dan debat, mengenai ilmu silat. Dan bukan hanya adu ilmu dalam arti adu fisik.
 
 
 ### <a name="dao-de-jing" id="dao-de-jing">Dao De Jing (道德经)</a>
@@ -947,6 +947,7 @@ Ilmu Tongkat Pemukul Anjing adalah Da Gou Bang Fa (打狗棒法).
 
 The 18 stances are:
 
+```
 The Proud Dragon Repents (亢龍有悔)
 The Dragon Soars in the Sky (飛龍在天)
 The Dragon is Seen in the Fields (見龍在田)
@@ -965,10 +966,12 @@ The Dragon Fights in the Wilderness (龍戰於野)
 Treading on Ice (履霜冰至)
 The Ram Charges into the Fence (羝羊觸藩)
 The Divine Dragon Swishes its Tail (神龍擺尾)
+```
 
 Dog Beating Staff Technique
 The Dog Beating Staff Technique (打狗棒法) has ten stances:
 
+```
 A Fierce Dog Blocks the Path (惡狗攔路)
 Whack Two Dogs with a Staff (棒打雙犬)
 Oblique Hit on the Dog's Back (斜打狗背)
@@ -979,6 +982,7 @@ Reverse Jab the Dog's Bottom (反戳狗臀)
 Lift the Mad Dog with the Staff (棒挑癩犬)
 Squash the Dog's Back (壓扁狗背)
 No Dogs Under Heaven (天下無狗)
+```
 
 ### <a name="shuanglong-qushui" id="shuanglong-qushui">Shuang Long Qu Shui (双龙取水)</a>
 
