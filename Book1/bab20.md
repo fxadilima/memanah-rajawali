@@ -737,7 +737,7 @@ melepaskan Huang Rong dan mengayunkan kepalanya ke belakang untuk menghindari se
 bersamaan, satu ke bawah, yang lain ke atas, keduanya mengarah ke kepala Ouyang Ke.
 
 Ouyang Ke menyadari perahu kecil ini bukanlah tempat terbaik untuk bertempur, sementara musuhnya menyerang dengan ganas. Ia 
-berdiri dan mengirim serangan dari [Ling She Quan](referensi-kaarakter.md#ling-she-quan "Tinju Ular"), tangannya menyapu 
+berdiri dan mengirim serangan dari [Ling She Quan](referensi-karakter.md#ling-she-quan "Tinju Ular"), tangannya menyapu 
 secara horizontal. Guo Jing mengulurkan tangan kirinya untuk menangkis, tapi tiba-tiba kepalan tangan Ouyang Ke melengkung 
 ke atas berubah menjadi telapak tangan yang menampar pipi Guo Jing dengan keras.
 
