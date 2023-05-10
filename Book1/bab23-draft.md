@@ -11,3 +11,9 @@ Hong Qigong, Zhou Botong, Huang Rong dan Guo Jing naik perahu kecil ke barat. Gu
 Huang Rong terus menerus mengganggu Zhou Botong dengan pertanyaan tentang menunggangi hiu di laut. Zhou Botong menemukan 
 cara menangkap hiu untuk menghibur Huang Rong.
 
+**DRAFT**
+
+Guo Jing melihat gurunya pucat, ia bertanya, "Shifu, apa yang kau pikirkan?" Hong Qigong tidak menjawab saat dia dengan suara serak menarik napas kecil lagi dan lagi. Serangan yang dia terima dari Ouyang Feng telah menembus sampai ke tulang. Meskipun titik akupuntur sudah dibuka, luka dalam sebenarnya telah memburuk. Huang Rong memberinya sembilan 'Sembilan Pil Embun Giok Bunga'. Meskipun rasa sakitnya agak berkurang, napasnya sama buruknya seperti sebelumnya. Old Urchin, dengan mengabaikan penderitaan orang lain, terus membuat keributan dan berteriak bahwa mereka harus menangkap hiu. Huang Rong tahu perilakunya tidak pantas dan mencoba memberi isyarat dengan matanya untuk diam dan tidak mengganggu Hong Qigong.
+
+Zhou Botong, sama sekali tidak mengerti, terus membuat keributan. Huang Rong mengerutkan kening dan berkata, "Kamu ingin menangkap hiu, tetapi kamu tidak punya umpan untuk menarik mereka, jadi apa yang kamu lakukan?"
+
