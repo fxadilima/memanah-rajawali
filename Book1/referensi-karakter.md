@@ -980,7 +980,7 @@ Lift the Mad Dog with the Staff (棒挑癩犬)
 Squash the Dog's Back (壓扁狗背)
 No Dogs Under Heaven (天下無狗)
 
-### <a name="shuanglong-qushui" id="shuanglong-qushui">Shuang long Qu Shui (双龙取水)</a>
+### <a name="shuanglong-qushui" id="shuanglong-qushui">Shuang Long Qu Shui (双龙取水)</a>
 
 Ini adalah salah satu dari 18 Jurus Penakluk Naga, secara literal bisa diterjemahkan menjadi
 'Naga Kembar Mengambil Air'.
