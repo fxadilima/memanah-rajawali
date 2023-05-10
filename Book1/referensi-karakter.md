@@ -934,3 +934,11 @@ Karakter Jia (假) artinya adalah 'Palsu', yang jelas terbalik dari Zhen (真), 
 
 Secara literal bisa diterjemahkan menjadi 'Kitab Senbilan Bukan Palsu'.
 
+
+### <a name="da-gou-bang" id="da-gou-bang">Da Gou Bang (打狗棒)</a>
+
+Tongkat Pemukul Anjing, ini nama tongkat yang menjadi lambang Ketua Kai Pang, yang dipegang oleh Hong Qigong,
+berikut nama ilmu yang dipakai dengan menggunakan tongkat tersebut.
+
+Ilmu Tongkat Pemukul Anjing adalah Da Gou Bang Fa (打狗棒法).
+

@@ -154,7 +154,7 @@ perbuatan baik pendahulu mereka dan bukan yang buruk. Fakta-fakta ini sebagian b
 berbicara lebih jauh tentang tata cara pemilihan Ketua Kai Pang, ketika tiba waktunya untuk mencari penerus. "Sayang sekali 
 kau tidak suka menjadi pengemis," katanya. "Kalau tidak, kau punya karakter yang sempurna untuk menjadi seorang ketua, tidak 
 ada seorang pun di dalam Kai Pang yang lebih baik. Aku benar-benar ingin menganugerahkan 
-[Da Gou Pang](referensi-karakter.md#da-gou-bang "Tongkat Pemukul Anjing") kepadamu." Saat mereka masih mengobrol tiba-tiba 
+[Da Gou Bang](referensi-karakter.md#da-gou-bang "Tongkat Pemukul Anjing") kepadamu." Saat mereka masih mengobrol tiba-tiba 
 terdengar suara gedoran dari luar, terdengar seperti kapak atau pahat yang membentur tembok.
 
 Hong Qigong melompat kaget, "Celaka! Ular-ular bau itu akan menenggelamkan kapal," teriaknya. Bergegas menuju pintu ia 
@@ -428,169 +428,393 @@ gurunya untuk membuat perubahan halus di mana-mana. Misalnya ia mengubah kalimat
 'kaki dan pantat menuju langit', atau 'kaki kokoh di tanah' menjadi 'tangan yang bergerak ringan di tanah'. Di bagian cara 
 melatih tenaga dalam ia mengubah 'kumpulkan qi di daerah kemaluan' menjadi 'kumpulkan qi di dada dan tenggorokan'.
 
-Sambil memikirkan semua perubahan ini, dia tidak dapat menahan diri untuk tidak menghela nafas berat dan berkata dalam hatinya, “Bermain lelucon praktis seperti ini adalah kesenangan terbesar Rong'er dan Kakak Zhou. Sayang sekali yang satu tidak ada dan yang lainnya sudah mati. Suatu hari nanti saya akan melihat Rong'er lagi, tetapi saya tidak akan pernah bisa menceritakan kisah ini kepada Kakak Zhou.
+Sambil memikirkan semua perubahan ini, ia menghela nafas berat dan berkata dalam hatinya, "Bermain-main dengan lelucon 
+praktis seperti ini adalah kesenangan terbesar Rong'er dan Kakak Zhou. Sayang sekali yang satu tidak ada dan yang lainnya 
+sudah mati. Suatu hari nanti aku akan melihat Rong'er lagi, tetapi aku tidak akan pernah bisa menceritakan urusan ini kepada 
+Kakak Zhou."
+
+Pagi-pagi keesokan harinya Hong Qigong memanggil Ouyang Ke, dan dengan bangga mengatakan, "Kungfu Pengemis Tua sudah unik.
+Aku tidak perlu tahu soal Jiu Yin Zhen Jing. Faktanya, bahkan kalau kau memegang buku itu di depan mukaku, aku bahkan tidak 
+akan meliriknya. Hanya beberapa otak burung yang kungfunya tidak berguna akan setengah mati cari akal untuk mencuri segala 
+macam emas dan perak murni[^permainan-kata-1]. Beritahu Paman Anjingmu[^paman-anjing] bahwa kitab itu akan ditulis khusus 
+untuk dia. Katakan padanya untuk menutup diri dan berlatih keras, setelah selesai, datanglah ke Pengemis Tua untuk menguji 
+kungfu barunya. Kitabnya tentu saja bagus, tapi aku bahkan tidak ingin melihatnya sekilaspun. Aku hanya ingin melihat, 
+apakah dengan bantuan kitab itu, dia akan mampu mengalahkan Pengemis Tua. Aku ingin melihat, apakah setelah dia dengan 
+susah payah berlatih kungfu dari kitab itu, dia akan bisa mengimbangi Pengemis Tua yang _biasa saja_ ini? Aku bilang dia 
+seperti melepas celananya hanya untuk kentut, itu sama sekali tidak ada gunanya!"
+
+[^permainan-kata-1]: Ini permainan kata dari Hong Qigong. Zhen Jing (真经) berarti 'Kitab Suci', Zhen Jin (真金) berarti emas murni, Zhen Yin (真银) berarti perak murni.
+
+Ouyang Feng sebenarnya berdiri di belakang pintu kabinnya, jadi ia mendengar semuanya, tapi ia senang bukannya marah. 
+"Bagus sekali Pengemis Tua sangat bangga, jadi dia tidak keberatan aku membaca kitab itu," pikirnya, "Kalau tidak, 
+bahkan kalau aku mengajaknya bertarung, mengancamnya dengan ular atau racun, atau membuatnya kelaparan sampai mati, 
+masih akan sulit untuk memaksanya."
+
+"Paman Hong, kau salah!" kata Ouyang Ke. "Kungfu pamanku sudah mencapai kesempurnaan. Dengan kemampuan Paman Hong, kau 
+bahkan tidak bisa menang setengah langkah pun, lalu mengapa Paman ingin mempelajari Jiu Yin Zhen Jing? Pamanku pernah 
+memberitahu Xianzhi bahwa dia yakin kehebatan Jiu Yin Zhen Jing itu terlalu dibesar-besarkan. Kalau tidak, ketika Wang 
+Chongyang memenangkan buku itu, mengapa dia tidak belajar apa pun dari situ, dan mendemonstrasikannya di depan semua orang? 
+Pamanku ingin melihatnya untuk menunjukkan kesalahan dan membuktikan bahwa kitab itu sebenarnya tipuan. Paman sendiri 
+bilang kalau itu akan sangat berguna bagi dunia persilatan."
+
+Hong Qigong tertawa terbahak-bahak, "Kau dengan bodohnya meniup peluitmu terlalu keras!" ejeknya. "Jing'er, lanjutkan 
+dan tulis kitab itu dari ingatanmu. Kalau Racun Tua bisa menunjukkan kesalahan apa pun di dalam Jiu Yin Zhen Jing, 
+Pengemis Tua akan memberinya [kowtow](referensi-karakter.md#kowtow "Bersujud sambil membenturkan kepala ke tanah")."
+
+Guo Jing setuju dan keluar. Ouyang Ke membawanya ke kabin besar di mana ada setumpuk kertas, beberapa batang kuas dan 
+tinta, dia bahkan menyiapkan tintanya sendiri, dan dengan hormat menunggu di satu sisi.
+
+Guo Jing tidak bersekolah dan tulisan tangannya jelek, ia sering harus memikirkan karakter yang harus ditulisnya, sehingga 
+ia bekerja sangat lambat. Lebih dari sekali ia tidak tahu cara menulis karakter tertentu, jadi ia harus meminta Ouyang Ke 
+untuk menuliskannya untuknya. Bekerja sampai siang hari itu ia baru saja menyelesaikan paruh pertama jilid pertama.
+
+Ouyang Feng tidak menunjukkan diri sama sekali, tetapi setiap kali Guo Jing selesai menulis satu halaman, Ouyang Ke akan 
+mengambil halaman itu dan memberikannya kepada pamannya. Ouyang Feng memandang tulisan itu dengan hati-hati. Beberapa 
+kalimat tidak masuk akal baginya, tetapi meskipun ceroboh, karakternya jelas. Ia pikir kalimat-kalimat itu pasti punya 
+makna yang sangat dalam di baliknya, ketika kembali ke barat ia akan perlahan-lahan mencerna semuanya. Ia percaya bahwa 
+dengan kecerdasan dan kemampuannya, ia akhirnya akan memahami kitab tersebut secara menyeluruh. Setelah belasan tahun 
+atau lebih, ia akan menguasai semua kungfu dari kitab itu. Ia tidak bisa menahan rasa gembira. Ia tahu Guo Jing bodoh, 
+ia juga memperhatikan tulisan tangan Guo Jing polos dan sederhana, hampir seperti anak kecil. Ia percaya bahwa orang 
+seperti dia tidak akan mampu mengarang kitab yang rumit seperti ini. Selain itu, keponakannya telah memberitahunya bahwa 
+untuk banyak karakter Guo Jing tahu bunyinya, tetapi tidak tahu cara menulisnya, jadi keponakannya harus mengajarinya 
+atau bahkan menuliskan karakternya sendiri. Ini adalah kitab yang sebenarnya, tak usah diragukan lagi. Bagaimana dia bisa 
+tahu bahwa anak bodoh ini bersekongkol dengan gurunya untuk dengan sengaja mengubah isi kitab itu untuk menipu dia? 
+Sedangkan untuk kalimat-kalimat yang membingungkan, ia menyalahkan ketidakmampuan Guo Jing untuk mengingat teks dengan 
+benar.
+
+Guo Jing tidak berhenti menulis meskipun langit telah menjadi gelap, dan ia telah menyelesaikan lebih dari setengah jilid 
+kedua. Ouyang Feng tidak mengijinkannya kembali ke kabinnya karena takut Hong Qigong akan meyakinkannya untuk berubah pikiran 
+dan mempersulitnya. Meskipun ia sudah memiliki sebagian besar isi kitab itu di tangannya, ia menginginkan kitab yang lengkap. 
+Oleh karena itu ia mengatur agar makanan dan arak mewah dibawa ke Guo Jing dan membiarkan Guo Jing terus menulis tanpa 
+gangguan.
+
+Hong Qigong menunggu sampai akhir jam ke-sebelas atau awal jam ke-dua belas[^patokan-jam], tetapi Guo Jing tidak kembali. 
+Ia merasa mual dan takut Ouyang Feng telah membongkar rencana mereka, dan muridnya yang bodoh itu mungkin akan menderita 
+siksaan paling parah. Ia menyelinap keluar dari kabinnya dan diam-diam berjalan menuju kabin utama. Ada dua penggembala ular 
+yang berjaga di depan kabin utama. Hong Qigong mengayunkan telapak tangan kirinya ke depan menciptakan hembusan angin yang 
+membuat tali layar bergerak. Kedua penggembala ular mendengar suara itu dan melihat sekeliling, sementara Hong Qigong 
+bergerak ke kanan. Gerakannya sangat cepat sehingga keduanya tidak melihat apa-apa, mereka mengira itu hantu atau sejenisnya. 
+Segera Hong Qigong berada di sisi kanan kabin utama.
+
+[^patokan-jam]: Akhir jam ke sebelas atau awal jam ke-dua belas adalah sekitar jam 9 malam.
+
+Hong Qigong bisa melihat cahaya redup keluar dari jendela kabin utama. Ia mengintip ke dalam dan melihat Guo Jing masih 
+berjongkok di meja, menulis. Dua gadis berpakaian putih berdiri di sampingnya, sibuk menyajikan teh atau menyalakan dupa 
+atau mengisi ulang kertas, atau menyiapkan lebih banyak tinta. Guo Jing dirawat dengan baik. Hong Qigong merasa lega. 
+Kemudian lubang hidungnya mencium aroma arak. Ia memusatkan pandangannya dan melihat di depan Guo Jing secawan arak tua 
+berwarna coklat kuning, warnanya hampir merah, aroma manis menyerang hidungnya tanpa ampun.
+
+Hong Qigong mengutuk dalam hati, "Racun Tua sangat pelit, karena muridku menulis untuk dia, maka dia menyajikan arak 
+terbaik, tetapi untuk Pengemis Tua dia hanya menyajikan arak murahan yang sangat biasa-biasa saja." Ia adalah pelahap 
+dan penikmat arak nomor satu di dunia, melihat betapa muridnya dijamu dengan arak yang luar biasa ini, bagaimana ia bisa 
+menahan diri? "Racun Tua pasti menyimpan arak yang bagus di palka kapal. Aku akan minum untuk kebahagiaannya, lalu 
+mengganti arak itu dengan air kencingku. Biarkan dia mencicipi arak air kencing antik Pengemis Tua ini. Dibandingkan 
+dengan apa yang dialami Pengemis Tua dan muridnya bersama hiu, Racun Tua minum air kencing dalam araknya tidak akan 
+terlalu buruk. Setidaknya dia tidak akan mati."
+
+Dengan pemikiran ini ia tidak bisa menahan senyum, mencuri arak dan makanan adalah keterampilan yang paling dibanggakannya. 
+Ia pernah menghabiskan tiga bulan penuh di dalam Istana Kekaisaran di Lin'an, bersembunyi di balok, di dapur Kekaisaran 
+dan mencicipi hampir setiap hidangan atau arak yang akan disajikan kepada Kaisar. Istana Kekaisaran dijaga ketat, namun 
+ia bisa datang dan pergi seperti tidak ada orang lain di sana. Mencuri makanan dan arak dari dapur kapal tentu tidak akan 
+sulit.
+
+Ia mencari tangga yang menuju ke bawah, dan setelah memastikan tidak ada yang melihat, ia dengan hati-hati turun, 
+mengandalkan penciumannya untuk menemukan di mana persediaan makanan berada. Meskipun palka itu gelap gulita, hidung 
+Hong Qigong bisa mencium bau makanan dari jarak satu mil. Ia perlahan berjalan di sepanjang dinding, menyalakan obor dan 
+melihat enam atau tujuh tong kayu tertumpuk di sudut. Hong Qigong sangat senang, ia memadamkan obor setelah mengambil 
+mangkuk pecah yang ditemukannya tergeletak di sekitar situ, dan memasukkannya ke dalam sakunya. Ia meraba-raba ke arah 
+tong dan mencoba mengangkat satu. Tutupnya sangat berat, itu bisa berisi apa saja.
+
+Dengan tangan kirinya ia mencari-cari sumbatnya, sedangkan tangan kanannya meletakkan mangkok di bawahnya. Ia hendak 
+mencabut sumbat ketika telinganya yang sensitif tiba-tiba mendengar langkah kaki. Sepertinya ada dua orang berjalan 
+menuju palka. Langkah mereka sangat ringan, jadi Hong Qigong tahu itu adalah Ouyang Feng dan keponakannya karena tidak 
+ada orang lain di kapal yang memiliki kemampuan seperti itu. Ia berpikir jika keduanya datang ke palka larut malam, 
+mereka pasti punya niat jahat, seperti meracuni makanan untuk menyakiti orang lain. Ia mengecilkan tubuhnya dan bersembunyi 
+meringkuk di antara tong. Ia mendengar pintu terbuka pelan, nyala api berkobar, dan dua orang masuk, mereka berhenti tepat 
+di depan tong. Jantung Hong Qigong berdetak kencang, "Masa mereka akan meracuni arak?" ia bertanya-tanya dalam hati, tapi 
+apa yang didengarnya selanjutnya membuat hatinya dingin.
+
+"Kau sudah menaruh minyak, kayu bakar, dan belerang di setiap kabin?" ia mendengar Ouyang Feng bertanya.
+
+Ouyang Ke tertawa, "Semuanya sudah siap, segera setelah kita menyalakan api, perahu ini akan berubah menjadi abu dan 
+Pengemis yang bau itu akan langsung mati hangus."
+
+"Mereka akan membakar kapalnya?" pikir Hong Qigong terkejut.
+
+"Kita harus menunggu agak lebih lama," kata Ouyang Feng. "Begitu anak bermarga Guo itu tertidur, kau pergi ke sekoci, 
+berhati-hatilahm jangan sampai membangunkan Pengemis Tua. Aku akan datang ke sini dan menyalakan api."
+
+"Apa yang akan kita lakukan dengan para pelayan dan penggembala ular?" tanya Ouyang Ke.
+
+"Pengemis bau itu adalah guru yang hebat di jaman ini, mengorbankan beberapa orang untuk menemani kematiannya, itu 
+layak untuk reputasinya," kata Ouyang Feng dengan dingin.
 
-Pagi-pagi keesokan harinya Hong Qigong menelepon Ouyang Ke dan dengan bangga mengatakan kepadanya, “Seni bela diri Pengemis Tua sudah unik; Saya tidak perlu tahu jenis seni 'Petunjuk Sembilan Yin'. Faktanya, bahkan jika Anda memegang manual di depan wajah saya, saya bahkan tidak akan meliriknya. Hanya beberapa otak burung yang seni bela dirinya tidak berguna akan mati untuk mencuri segala macam emas dan perak [permainan kata di sini: shen jing – kitab suci, shen jin – emas murni, shen yin – perak murni]. Beri tahu anjing-an-paman Anda bahwa manual itu akan ditulis hanya untuknya. Katakan padanya untuk menutup diri dan berlatih keras; setelah selesai, datanglah ke Pengemis Tua untuk menguji keterampilan barunya. Manualnya tentu saja bagus, tapi saya bahkan tidak ingin melihatnya sekilas. Saya ingin melihat, apakah dengan bantuan Manual, dia akan mampu mengalahkan Pengemis Tua. Saya ingin melihat, apakah setelah dia dengan susah payah berlatih seni bela diri dari manual, apakah dia bahkan akan setara dengan [ban jin ba liang] si Pengemis Tua? Saya akan mengatakan dia hanya melepas celananya untuk kentut; itu sama sekali tidak berguna!”
+Sementara mereka berbicara, tangan mereka tidak diam, mereka mencabut tong dan bau minyak mencapai hidung Hong Qigong. 
+Ternyata tong itu penuh dengan minyak sayur. Ouyang Feng dan keponakannya juga mengambil belerang dari tumpukan kotak 
+kayu, beberapa kayu bakar dan karung serutan kayu dari rak, lalu menyebarkannya di lantai.
 
-Ouyang Feng sebenarnya berdiri di belakang pintu kabinnya, jadi dia mendengar semuanya, tapi dia senang bukannya marah. “Bagus sekali Pengemis Tua sangat bangga karena dia tidak keberatan membiarkan saya memiliki manualnya,” pikirnya, “Jika tidak, bahkan jika saya melawannya, mengancamnya dengan ular atau racun, atau membuatnya kelaparan sampai mati, masih akan sulit untuk memaksanya.”
+Tidak lama kemudian mereka menyelesaikan pekerjaan mereka dan berbalik untuk pergi ketika Ouyang Ke tertawa dan berkata, 
+"Paman, dalam waktu kurang dari dua belas jam, si bocah Guo itu akan dikuburkan di laut, dan satu-satunya orang yang 
+tahu tentang Jiu Yin Zhen Jing akan menjadi Paman sendiri."
 
-“Paman Hong, kamu salah!” Ouyang Ke berkata, “Seni bela diri Paman saya telah mencapai kesempurnaan. Dengan kemampuan Paman Hong, Anda bahkan tidak bisa mendapatkan keuntungan setengah langkah pun; jadi mengapa Paman ingin mempelajari 'Petunjuk Sembilan Yin'? Paman saya pernah memberi tahu keponakan kecil bahwa dia yakin 'Pedoman Sembilan Yin' telah menikmati reputasi yang tidak pantas. Kalau tidak, ketika Wang Chongyang memenangkan buku itu, mengapa dia tidak belajar apa pun darinya dan mendemonstrasikannya di depan semua orang? Paman saya ingin melihatnya untuk menunjukkan kesalahan dan membuktikan bahwa manual itu sebenarnya tipuan. Bukankah Anda mengatakan bahwa itu akan sangat bermanfaat bagi dunia Wulin?
+"Tidak, akan ada dua. Aku akan meneruskannya kepadamu," jawab Ouyang Feng. Ouyang Ke sangat senang, ia menutup pintu 
+dengan punggung tangannya.
+
+Hong Qigong sangat marah dan sekaligus terkejut, ia berpikir, "Kalau tidak ada hantu atau roh yang mendesakku untuk 
+mencuri arak, bagaimana aku bisa tahu tentang rencana jahat kedua orang ini? Sewaktu kapal tiba-tiba terbakar, bagaimana 
+aku bisa lolos dari bencana?" Ketika ia tidak bisa mendengar langkah kaki keduanya lagi, dengan hati-hati ia menyelinap 
+keluar dan kembali ke kabinnya sendiri. Guo Jing sudah kembali dan sedang tidur nyenyak di tempat tidur. Ia akan 
+membangunkannya dan mendiskusikan apa yang akan mereka lakukan, ketika terdengar sedikit suara gemerisik di luar pintu. 
+Ia tahu itu pasti Ouyang Feng yang memeriksa apakah mereka tertidur lelap, jadi ia pura-pura berbicara dalam tidurnya, 
+"Arak enak! Arak enak! Aku mau sepuluh pot lagi!"
+
+Ouyang Feng kaget, awalnya mengira Pengemis Tua itu masih terjaga, dan sedang minum arak, tapi kemudian Hong Qigong berseru 
+dengan keras lagi, "Racun Tua, ayou kita bertarung untuk seribu kuda lagi..." Lalu cekikikan. "... Anak baik! Itu luar 
+biasa!" Berdiri di luar pintu, Ouyang Feng mendengarkan ia bicara omong kosong. Ia bingung sejenak, lalu menyadari bahwa 
+Hong Qigong sedang bicara dalam tidurnya. "Kematian Pengemis bau sudah dekat, tapi dia masih minum dan berkelahi dalam 
+mimpinya," pikirnya.
 
-Hong Qigong tertawa terbahak-bahak, "Kamu dengan bodohnya meniup klaksonmu terlalu keras!" dia mengejek. “Jing'er, lanjutkan dan tulis manual dari ingatanmu. Jika Racun Tua dapat menunjukkan kesalahan apa pun dalam 'Panduan Sembilan Yin', Pengemis Tua akan bersujud kepadanya."
+Saat mulut Hong Qigong bicara sembarangan, telinganya mendengarkan dengan penuh perhatian. Kungfu meringankan tubuh 
+Ouyang Feng luar biasa, tetapi Hong Qigong masih bisa mendengarnya berjalan menuju ke sisi kapal. Hong Qigong meletakkan 
+mulutnya di telinga Guo Jing dan dengan ringan mengguncang bahunya, "Jing'er!" bisiknya.
 
-Guo Jing setuju dan keluar. Ouyang Ke membawanya ke kabin besar di mana ada setumpuk kertas, beberapa batang tinta, dan kuas; dia bahkan menyiapkan tintanya sendiri dan dengan hormat menunggu di satu sisi.
+"Mmm!" gumam Guo Jing, ia bangun.
 
-Guo Jing tidak bersekolah dan tulisan tangannya jelek; dia sering harus memikirkan karakter yang harus dia tulis sehingga dia bekerja sangat lambat. Lebih dari sekali dia tidak tahu cara menulis karakter tertentu, jadi dia harus meminta Ouyang Ke untuk menulisnya untuknya. Bekerja sampai siang hari itu dia baru saja menyelesaikan paruh pertama jilid pertama.
+"Ikuti saja petunjukku dan jangan bertanya," kata Hong Qigong dengan mendesak. "Keluar dengan tenang dan pastikan tidak ada 
+yang memperhatikanmu."
 
-Ouyang Feng tidak menunjukkan dirinya sama sekali, tetapi setiap kali Guo Jing selesai menulis satu halaman, Ouyang Ke akan mengambil halaman itu dan memberikannya kepada pamannya. Ouyang Feng memandang mereka dengan hati-hati. Beberapa kalimat tidak masuk akal baginya, tetapi meskipun ceroboh, karakternya jelas. Dia pikir kalimat-kalimat itu pasti memiliki makna yang sangat dalam di baliknya; ketika dia kembali ke barat dia akan perlahan mencerna manualnya. Dia percaya bahwa dengan kecerdasan dan kemampuannya dia akhirnya akan memahami manual tersebut secara menyeluruh. Setelah belasan tahun atau lebih, dia akan menguasai semua seni bela diri di manual. Dia tidak bisa membantu tetapi merasa gembira. Dia tahu Guo Jing bodoh, dia juga memperhatikan tulisan tangan Guo Jing polos dan sederhana, hampir seperti anak kecil. Dia percaya bahwa orang seperti dia tidak akan mampu membuat manual yang rumit seperti ini. Selain itu, keponakannya telah memberitahunya bahwa untuk banyak karakter Guo Jing tahu bunyinya, tetapi tidak tahu cara menulisnya, jadi keponakannya harus mengajarinya atau menulis karakternya sendiri. Ini adalah manual sebenarnya tanpa keraguan. Bagaimana dia bisa tahu bahwa anak bodoh ini bersekongkol dengan tuannya untuk dengan sengaja mengubah manual untuk menipu dia? Adapun kalimat yang membingungkan, dia menyalahkan ketidakmampuan Guo Jing untuk mengingat teks dengan benar.
+Guo Jing berguling dan merangkak diam-diam menuju pintu. Hong Qigong diam-diam membuka pintu, dan menarik lengan baju Guo 
+Jing, mereka bergerak menuju sisi kanan. Ia takut mereka akan terdeteksi oleh Ouyang Feng, jadi alih-alih melompat, ia 
+memanjat pagar. Dengan tangan kirinya memegang pagar, tangan kanannya menarik Guo Jing, keduanya tergantung di sisi luar 
+kapal. Guo Jing menganggap itu aneh, tapi tidak berani bersuara. Hong Qigong perlahan melepaskan tangannya dari pagar dan diam-diam merangkak ke bawah sambil menatap Guo Jing karena takut perahu itu terlalu licin untuknya. Jika terjatuh, pasti 
+ia akan bersuara.
 
-Guo Jing tidak berhenti menulis meskipun langit telah menjadi gelap dan dia telah menyelesaikan lebih dari setengah jilid kedua. Ouyang Feng tidak mengizinkannya kembali ke kabinnya karena takut Hong Qigong akan meyakinkannya untuk berubah pikiran dan mempersulitnya. Meskipun dia sudah memiliki sebagian besar manual di tangannya, dia menginginkan manual yang lengkap. Oleh karena itu, dia mengatur agar makanan dan anggur mewah dibawa ke Guo Jing dan membiarkan Guo Jing terus menulis tanpa gangguan.
+Kapal itu dicat mulus, ditambah lagi basah dan mereka turun ke tempat kapal miring ke arah air. Kapal itu bergerak dalam 
+gelombang membuat perahu itu bergoyang, jadi turun bukanlah hal yang mudah. Untungnya Guo Jing telah dilatih oleh Ma Yu 
+untuk naik turun tebing setiap hari di padang rumput, ditambah lagi kungfunya telah meningkat pesat sekitar setahun terakhir 
+ini. Ia memasukkan jari-jarinya di antara papan kayu, atau memegang kepala paku, atau menemukan celah di suatu tempat, dan 
+perlahan tapi pasti bergerak ke bawah.
 
-Hong Qigong menunggu sampai akhir jam sebelas atau awal jam dua belas [sekitar jam 9 malam] tetapi Guo Jing tidak kembali. Dia merasa mual dan takut Ouyang Feng telah menemukan rencana mereka dan muridnya yang bisu mungkin akan menderita yang paling parah. Dia menyelinap keluar dari kabinnya dan diam-diam berjalan menuju kabin utama. Ada dua penggembala ular yang berjaga di depan kabin utama. Hong Qigong mengayunkan telapak tangan kirinya ke depan menciptakan embusan angin yang membuat tali layar bergerak. Kedua penggembala ular mendengar suara itu dan melihat sekeliling sementara Hong Qigong bergerak ke kanan. Gerakannya sangat cepat sehingga keduanya tidak melihat apa-apa; mereka mengira itu hantu atau semacamnya. Segera Hong Qigong berada di sisi kanan kabin utama.
+Setengah dari tubuh Hong Qigong sudah berada di dalam air. Ia bergerak menuju buritan dengan Guo Jing mengikuti dari 
+belakang. Sasarannya adalah sekoci kecil yang diikat dengan tali di belakang perahu. "Naik ke perahu itu!" ia memberitahu 
+Guo Jing. Ia melonggarkan cengkeramannya dan melepaskan tubuhnya dari perahu besar.
 
-Hong Qigong bisa melihat cahaya redup keluar dari jendela kabin utama. Dia mengintip ke dalam dan melihat Guo Jing masih berjongkok di meja, menulis. Dua gadis berpakaian putih berdiri di sampingnya, sibuk menyajikan teh atau menyalakan dupa atau mengisi ulang kertas atau menyiapkan lebih banyak tinta. Guo Jing dirawat dengan baik. Hong Qigong merasa lega. Kemudian lubang hidungnya menangkap aroma anggur. Dia memusatkan pandangannya padanya dan melihat di depan Guo Jing secangkir anggur tua berwarna coklat kuning, warnanya hampir merah; aroma manis menyerang hidungnya tanpa ampun.
+Perahu besar itu melaju cukup cepat, jadi hanya sedetik kemudian Hong Qigong sudah mencengkeram ujung perahu kecil itu. 
+Berayun dengan tangannya, tubuhnya jungkir balik dan mendarat di perahu kecil tanpa mengeluarkan suara. Setelah Guo Jing 
+mengikuti contohnya, ia berkata pelan, "Potong talinya." Guo Jing mengeluarkan belatinya dan sesaat kemudian perahu kecil 
+itu mengapung bebas di atas ombak lautan. Hong Qigong menarik dayung untuk menjauhkan mereka dari perahu besar. Sesaat 
+kemudian perahu besar itu menghilang ke dalam kegelapan.
 
-Hong Qigong mengutuk dalam hati, “Racun Tua itu sangat pelit; karena murid saya menulis untuknya, dia menyajikan anggur terbaik untuknya, tetapi kepada Pengemis Tua dia hanya menyajikan anggur murah yang sangat biasa-biasa saja.” Dia adalah pelahap dan penikmat anggur nomor satu di dunia; melihat muridnya dengan anggur yang luar biasa ini, bagaimana dia bisa menahan diri untuk tidak menginginkannya? “Racun Tua harus menyimpan anggur yang baik di palka kapal; Saya akan minum untuk kebahagiaannya, lalu mengganti anggur dengan air seni saya. Biarkan dia mencicipi anggur urin antik Pengemis Tua itu sendiri. Dibandingkan dengan apa yang dialami Pengemis Tua dan muridnya dengan hiu, Racun Tua meminum air seni dalam anggurnya tidak akan terlalu buruk. Setidaknya dia tidak akan mati karenanya.”
+Tiba-tiba api terlihat di buritan kapal besar yang berasal dari obor di tangan Ouyang Feng. Ouyang Feng terdengar berteriak 
+ketakutan karena sekoci kecil itu tidak terlihat. Ia terdengar kaget, marah, dan takut pada saat bersamaan. Hong Qigong 
+memusatkan qi-nya di wilayah dan tian dan tertawa panjang.
 
-Memiliki pemikiran ini dia tidak bisa menahan senyum; mencuri anggur dan makanan adalah keterampilan yang paling dia banggakan. Dia pernah menghabiskan tiga bulan penuh di dalam Istana Kekaisaran di Lin'an; dia bersembunyi di balok di dapur Kekaisaran dan mencicipi hampir setiap hidangan atau anggur yang akan disajikan kepada kaisar. Istana Kekaisaran dijaga ketat, namun dia bisa datang dan pergi seperti tidak ada orang lain di sana. Mencuri makanan dan anggur dari dapur kapal tentu tidak akan membuatnya kesulitan.
+Entah dari mana perahu lain muncul, dengan cepat menuju ke sisi kanan kapal besar itu. Hong Qigong bertanya-tanya, "Eh, 
+kapal siapa itu?" Sebelum ia selesai bicara, sepasang elang putih turun dari langit, mengitari layar utama kapal besar itu. 
+Seseorang berpakaian putih terlihat meninggalkan perahu, masuk dan melompat ke arah perahu besar. Di bawah cahaya bintang 
+yang terang orang bisa melihat kilau pita rambut emas di kepalanya. "Rong'er!" seru Guo Jing tersentak.
 
-Dia mencari tangga yang akan membawanya ke bawah dan, setelah memastikan tidak ada yang melihat, dia dengan hati-hati turun, mengandalkan hidungnya untuk menemukan di mana persediaan makanan berada. Meskipun palka itu gelap gulita, hidung Hong Qigong bisa mencium bau makanan dari jarak satu mil. Dia perlahan berjalan di sepanjang dinding, menyalakan obor dan melihat enam atau tujuh tong kayu menumpuk di sudut. Hong Qigong sangat senang; dia memadamkan obor setelah mengambil mangkuk pecah yang dia temukan tergeletak di sekitar dan memasukkannya ke dalam sakunya. Dia meraba-raba ke arah tong dan mencoba mengangkat satu. Larasnya sangat berat; itu bisa berisi apa saja.
+Orang yang melompat ke perahu besar itu memang Huang Rong. Tepat sebelum meninggalkan Pulau Bunga Persik, ia melihat kuda 
+merah kecil berlari kencang dari hutan, ia berpikir, "Kuda merah kecil ini tidak berguna di laut, tetapi kedua elang itu 
+benar-benar bisa membantuku menemukan Jing Gege." Jadi ia bersiul keras untuk memanggil kedua elang putih itu.
 
-Dengan tangan kirinya ia menemukan steker, sedangkan tangan kanannya meletakkan mangkok di bawahnya. Dia hendak mencabut steker ketika telinga sensitifnya tiba-tiba mendengar langkah kaki. Sepertinya ada dua orang berjalan menuju palka. Langkah mereka sangat ringan, jadi Hong Qigong tahu itu adalah Ouyang Feng dan keponakannya karena tidak ada orang lain di kapal yang memiliki kemampuan seperti itu. Dia berpikir jika keduanya datang ke palka larut malam, mereka pasti memiliki niat jahat, seperti meracuni makanan untuk menyakiti orang lain. Dia mengecilkan tubuhnya dan bersembunyi meringkuk di antara tong. Dia mendengar pintu terbuka pelan, nyala api berkobar, dan dua orang masuk; mereka berhenti tepat di depan tong. Jantung Hong Qigong berdetak kencang, "Apakah mereka akan meracuni anggur?" dia bertanya-tanya dalam hati; tapi apa yang dia dengar selanjutnya membuat hatinya dingin.
+Mata elang itu tajam dan bisa terbang sangat cepat. Di laut tak terbatas ini, mereka tiba-tiba menemukan Guo Jing di atas 
+kapal besar. Huang Rong terkejut, tetapi juga terkejut menemukan pesan 'dalam bahaya' yang telah diikat Guo Jing di kaki 
+elang, ia segera membiarkan elang terbang di langit dan mengarahkan perahu untuk mengikuti mereka. Akhirnya perahunya 
+menyusul perahu besar itu, tetapi ia agak terlambat, Hong Qigong dan Guo Jing sudah meninggalkan perahu besar itu.
 
-“Sudahkah Anda menempatkan minyak, kayu bakar, dan belerang di setiap kabin?” dia mendengar Ouyang Feng bertanya.
+Huang Rong tidak melupakan pesan 'dalam bahaya' yang didapatkannya sebelum itu, dan ia takut akan terlambat, segera setelah 
+elang berputar di atas perahu itu, ia memerintahkan krunya untuk berlayar di sampingnya. Begitu jarak dapat diatur, ia 
+melompat ke perahu besar dengan jarum baja kupu-kupu di tangannya, hanya untuk melihat Ouyang Ke mondar-mandir dengan gugup, 
+seperti semut di atas panci panas.
 
-Ouyang Ke tertawa, “Semuanya sudah siap; segera setelah kita menyalakan api, perahu ini akan berubah menjadi abu dan Pengemis yang bau akan langsung mati hangus.”
+"Di mana Guo Jing?" teriak Huang Rong. "Apa yang kau lakukan kepadanya?"
 
-"Mereka akan membakar kapalnya?" Hong Qigong terkejut.
+Ouyang Feng telah menyalakan api di palka dan berencana untuk melarikan diri menggunakan sekoci kecil, ketika ia tiba-tiba 
+melihat sekoci itu hilang. Keringat mengalir di dahinya seperti manik-manik atau mutiara ketika ia mendengar tawa Hong Qigong 
+yang keras dan panjang. Ia diam-diam mengutuk kebodohannya sendiri karena alih-alih merugikan orang lain, ia malah merugikan 
+dirinya sendiri, tentu saja ia sangat cemas. Kemudian Huang Rong tiba-tiba datang dengan sebuah perahu, dan ia bergegas 
+mengambil kesempatan ini, "Cepat rebut perahu itu!" serunya.
 
-“Kita harus menunggu sedikit lebih lama,” kata Ouyang Feng, “Begitu anak bernama Guo itu tertidur, kamu pergi ke sekoci; berhati-hatilah untuk tidak membangunkan Pengemis Tua. Saya akan datang ke sini dan menyalakan api.”
+Awak kapal Huang Rong adalah pelayan bisu-tuli dari Pulau Bunga Persik. Selama Huang Rong ada di kapal, mereka mengikuti 
+perintahnya karena takut, begitu Huang Rong meninggalkan perahu, mereka segera memutar perahu, mengangkat layar dan melarikan 
+diri secepat mungkin.
 
-"Apa yang akan kita lakukan dengan para pelayan dan penggembala ular?" Ouyang Ke bertanya.
+Tidak lama setelah Hong Qigong dan Guo Jing melihat Huang Rong melompat ke perahu besar, api di palka mulai mencapai geladak. 
+Guo Jing tidak menyadari apa yang telah terjadi, berseru dengan cemas, "Api... api!"
 
-“Pengemis bau adalah tuan yang hebat di zaman ini; layak atas reputasinya untuk mengorbankan beberapa orang untuk menemaninya dalam kematian, ”kata Ouyang Feng dengan dingin.
+"Itu benar," kata Hong Qigong. "Racun Tua membakar kapal untuk membakar kita berdua sampai mati."
 
-Sementara mereka berbicara, tangan mereka tidak diam; mereka mencabut tong dan bau minyak mencapai hidung Hong Qigong. Ternyata tong itu penuh dengan minyak sayur. Ouyang Feng dan keponakannya juga mengambil belerang dari tumpukan kotak kayu, beberapa kayu bakar dan karung serutan kayu dari rak, lalu menyebarkannya di lantai.
-
-Tidak lama kemudian mereka menyelesaikan pekerjaan mereka dan berbalik untuk pergi ketika Ouyang Ke tertawa dan berkata, “Paman, dalam waktu kurang dari dua belas jam anak Guo itu akan dikuburkan di laut dan satu-satunya orang yang mengetahui 'Petunjuk Sembilan Yin' akan menjadi kamu.”
-
-“Tidak, akan ada dua. Bukankah saya akan meneruskannya kepada Anda? Jawab Ouyang Feng. Ouyang Ke sangat senang; dia menutup pintu dengan punggung tangannya.
-
-Hong Qigong sangat marah dan terkejut pada saat yang sama, dia berpikir, “Jika tidak ada hantu atau roh yang mendesak saya untuk mencuri anggur, bagaimana saya bisa tahu tentang rencana berbahaya keduanya? Ketika kapal tiba-tiba terbakar, bagaimana saya bisa lolos dari bencana?” Ketika dia tidak bisa mendengar langkah kaki keduanya lagi, dia dengan hati-hati menyelinap keluar dan kembali ke kabinnya sendiri. Guo Jing sudah kembali dan sedang tidur nyenyak di tempat tidur. Dia akan membangunkannya dan mendiskusikan apa yang akan mereka lakukan ketika terdengar sedikit suara gemerisik di luar pintu. Dia tahu itu pasti Ouyang Feng yang memeriksa apakah mereka tertidur lelap, jadi dia berpura-pura berbicara dalam tidurnya, “Anggur yang enak! Anggur yang enak! Saya ingin sepuluh pot lagi!”
-
-Ouyang Feng kaget, awalnya mengira Pengemis Tua itu masih terjaga, minum anggur; tapi kemudian Hong Qigong memanggil dengan keras lagi, “Racun Tua, mari kita bertarung untuk seribu kuda lagi… (cekikikan)… Anak baik! Itu luar biasa!” Berdiri di luar pintu, Ouyang Feng mendengarkan dia berbicara omong kosong. Dia bingung sejenak, lalu menyadari bahwa Hong Qigong sedang berbicara dalam tidurnya. “Kematian Pengemis bau sudah dekat, namun dia masih minum dan berkelahi dalam mimpinya,” pikirnya.
-
-Saat mulut Hong Qigong berbicara omong kosong, telinganya mendengarkan dengan penuh perhatian. Kungfu ringan Ouyang Feng luar biasa, tetapi Hong Qigong masih bisa mendengarnya berjalan menuju sisi pelabuhan kapal. Hong Qigong meletakkan mulutnya di telinga Guo Jing dan dengan ringan mengguncang bahunya, "Jing'er!" dia berbisik.
-
-"Mmm!" Guo Jing bergumam saat dia bangun.
-
-"Ikuti saja petunjukku dan jangan bertanya," kata Hong Qigong dengan mendesak, "Keluar dengan tenang dan pastikan tidak ada yang memperhatikanmu."
-
-Guo Jing berguling dan merangkak diam-diam menuju pintu. Hong Qigong diam-diam membuka pintu dan, menarik lengan baju Guo Jing, mereka bergerak menuju sisi kanan. Dia takut mereka akan terdeteksi oleh Ouyang Feng, jadi alih-alih melompat, dia memanjat pagar. Dengan tangan kirinya memegang pagar, tangan kanannya menarik Guo Jing; keduanya tergantung di luar perahu. Guo Jing menganggap itu aneh, tapi tidak berani bersuara. Hong Qigong perlahan melepaskan tangannya dari rel dan diam-diam merangkak ke bawah sambil menatap Guo Jing karena takut perahu itu terlalu licin untuknya. Jika dia jatuh, dia pasti akan membuat keributan.
-
-Perahu itu dicat mulus, ditambah lagi basah dan mereka turun ke tempat perahu miring ke arah air. Perahu itu bergerak dalam gelombang membuat perahu itu bergoyang, jadi turun bukanlah hal yang mudah. Untungnya Guo Jing telah dilatih oleh Ma Yu untuk naik turun tebing setiap hari di padang rumput; ditambah lagi, keterampilannya telah meningkat pesat sekitar setahun terakhir ini. Dia akan memasukkan jari-jarinya di antara papan kayu atau memegang kepala paku atau menemukan celah di suatu tempat dan perlahan tapi pasti bergerak ke bawah.
-
-Setengah dari tubuh Hong Qigong sudah berada di dalam air. Dia bergerak menuju buritan dengan Guo Jing mengikuti dari belakang. Sasarannya adalah sekoci kecil yang diikat dengan tali di belakang perahu. "Naik ke kapal itu!" dia memberi tahu Guo Jing. Dia melonggarkan cengkeramannya dan melepaskan tubuhnya dari perahu besar.
-
-Perahu besar itu melaju cukup cepat, jadi hanya sedetik kemudian Hong Qigong mencengkeram ujung perahu kecil itu. Berayun dengan tangannya tubuhnya jungkir balik dan mendarat di perahu kecil tanpa mengeluarkan suara. Setelah Guo Jing mengikuti teladannya, dia diam-diam berkata, "Potong talinya." Guo Jing mengeluarkan belatinya dan sesaat kemudian perahu kecil itu mengapung bebas di atas ombak lautan. Hong Qigong menarik dayung untuk menjauhkan mereka dari perahu besar. Sesaat kemudian perahu besar itu menghilang ke dalam kegelapan.
-
-Tiba-tiba api terlihat di buritan kapal besar yang berasal dari obor di tangan Ouyang Feng. Ouyang Feng terdengar berteriak ketakutan karena sekoci kecil itu tidak terlihat. Dia terdengar kaget, marah, dan takut pada saat bersamaan. Hong Qigong memusatkan 'qi'-nya di wilayah 'dan tian' dan tertawa panjang.
-
-Entah dari mana perahu lain muncul, dengan cepat menuju ke sisi kanan perahu besar itu. Hong Qigong bertanya-tanya, "Eh, kapal siapa itu?" Sebelum dia selesai berbicara, sepasang elang putih turun dari langit, mengitari layar utama kapal besar itu. Seseorang berpakaian putih terlihat meninggalkan perahu yang masuk dan melompat ke arah perahu besar. Di bawah cahaya bintang yang terang orang bisa melihat kilau pita rambut emas di kepalanya. "Rong'er!" Guo Jing tersentak.
-
-Orang yang melompat ke perahu besar itu memang Huang Rong. Tepat sebelum meninggalkan Pulau Bunga Persik, dia melihat kuda merah kecil berlari kencang dari hutan, dia berpikir, "Kuda merah kecil ini tidak berguna di laut, tetapi kedua elang itu benar-benar dapat membantuku menemukan Jing ge ge." Jadi dia bersiul keras untuk memanggil elang putih kepadanya.
-
-Mata elang tajam dan bisa terbang sangat cepat. Di laut tak terbatas ini, mereka tiba-tiba menemukan Guo Jing di atas kapal besar. Huang Rong terkejut, tetapi juga terkejut menemukan pesan 'dalam bahaya' yang telah diikat Guo Jing di kaki elang; dia segera membiarkan elang terbang di langit dan mengarahkan perahu untuk mengikuti mereka. Akhirnya perahunya menyusul perahu besar itu, tetapi dia sedikit terlambat, Hong Qigong dan Guo Jing sudah meninggalkan perahu besar itu.
-
-Huang Rong tidak melupakan pesan 'dalam bahaya' yang dia dapatkan sebelumnya dan dia takut dia akan terlambat; segera setelah elang berputar di atas perahu ini, dia memerintahkan krunya untuk berlayar di sampingnya. Begitu jarak dapat diatur, dia melompat ke perahu besar dengan proyektil baja kupu-kupu di tangannya, hanya untuk melihat Ouyang Ke mondar-mandir dengan gugup, seperti semut di atas panci panas.
-
-"Di mana Guo Jing?" Huang Rong berteriak, "Apa yang kamu lakukan padanya?"
-
-Ouyang Feng telah menyalakan api di palka dan berencana untuk melarikan diri menggunakan sekoci kecil ketika dia tiba-tiba melihat sekoci itu hilang. Keringat mengalir di dahinya seperti manik-manik atau mutiara ketika dia mendengar tawa Hong Qigong yang keras dan panjang. Dia diam-diam mengutuk kebodohannya sendiri karena alih-alih merugikan orang lain, dia malah merugikan dirinya sendiri; tentu saja dia sangat cemas. Kemudian Huang Rong tiba-tiba datang dengan sebuah perahu dan dia bergegas mengambil kesempatan ini, “Cepat rebut perahu itu!” dia berteriak.
-
-Awak kapal Huang Rong adalah pelayan bisu tuli dari pulau itu. Selama Huang Rong ada di kapal, mereka mengikuti perintahnya karena takut; begitu Huang Rong meninggalkan perahu, mereka segera memutar perahu, mengangkat layar dan melarikan diri secepat mungkin.
-
-Tidak lama setelah Hong Qigong dan Guo Jing melihat Huang Rong melompat ke perahu besar, api di palka mulai mencapai geladak. Guo Jing, tidak menyadari apa yang telah terjadi, berseru dengan cemas, "Api… api!"
-
-“Itu benar,” kata Hong Qigong, “Racun Tua membakar kapal untuk membakar kami berdua sampai mati.”
-
-Guo Jing memiliki ekspresi kosong di wajahnya saat dia dengan bersemangat berkata, "Kita harus menyelamatkan Rong'er!"
-
-"Ayo kembali ke kapal!" kata Hongqigong. Dengan sekuat tenaga Guo Jing menarik dayung. Perahu besar itu pun berubah arah untuk mendekati sekoci kecil itu. Dek itu penuh dengan penggembala ular laki-laki dan pelayan wanita berlarian dengan panik, berteriak minta tolong. Hong Qigong harus meninggikan suaranya agar terdengar, “Rong’er! Jing'er dan aku di sini! Berenanglah dengan cepat!”
-
-Ombak yang dahsyat bergulung di laut, malam gelap, jadi waktu yang sangat berbahaya untuk berenang. Tapi Hong Qigong tahu keterampilan air Huang Rong sangat bagus dan itu juga saat yang kritis, jadi dia terpaksa mengambil risiko ini.
-
-Ketika Huang Rong mendengar suara tuannya, dia sangat senang. Tidak lagi memperhatikan Ouyang Feng dan keponakannya, dia bergegas ke sisi perahu dan melompat ke air di bawah. Tiba-tiba dia merasa ada sesuatu yang menahannya. Huang Rong menoleh dengan sangat terkejut melihat pergelangan tangan kanannya di tangan Ouyang Feng. "Biarkan aku pergi!" dia berteriak, mengarahkan kepalan tangan kirinya ke wajah Ouyang Feng; hasilnya, kedua pergelangan tangannya ada di tangan Ouyang Feng.
-
-Ouyang Feng melihat perahu yang membawa Huang Rong sudah jauh, terlalu jauh untuk mereka kejar dan perahu besar tempat mereka berada sudah terbakar. Tiang utama terbakar dan akan jatuh dan hal-hal di geladak sangat kacau; perahu akan tenggelam kapan saja. Satu-satunya harapannya sekarang adalah sekoci kecil dalam kendali Hong Qigong; jadi dia berteriak keras, “Pengemis Bau! Nona Huang ada di tanganku; apakah kamu melihatnya?” Dia mengangkat Huang Rong tinggi-tinggi di udara.
-
-Saat itu laut menjadi merah terang dari api di atas kapal. Hong Qigong dan Guo Jing bisa melihatnya dengan jelas. Hong Qigong sangat marah, “Lagi-lagi dia menggunakan trik kotor untuk mendapatkan kapal ini. Huh! Saya akan mendapatkan Rong'er kembali.
-
-Guo Jing melihat perahunya hampir terbakar di rel, "Aku juga ikut!" dia berkata.
-
-"TIDAK! Anda tinggal dan jaga perahu ini; jangan biarkan Racun Tua mengambilnya, ”kata Hong Qigong.
-
-"Baiklah!" Guo Jing berkata dan mengerahkan kekuatannya untuk menarik dayung. Saat itu perahu besar itu tidak bergerak di permukaan laut, sehingga dengan beberapa tarikan mereka sudah mendekati perahu besar itu.
-
-Hong Qigong menendang perahu kecil itu dan tubuhnya terbang menuju perahu besar itu. Sambil merentangkan tangan kirinya ia mencengkeram pagar perahu dengan jari-jarinya yang kuat lalu melontarkan tubuhnya ke atas dan berjungkir balik ke geladak.
-
-Ouyang Feng masih memegang pergelangan tangan Huang Rong; "Pengemis Bau, apa yang kamu inginkan?" katanya sambil tersenyum ganas.
-
-Hong Qigong mengutuknya diam-diam, "Ayo ... mari kita bertarung seribu jurus lagi." 'Desir ... desir ... desir!' Dia mengirim tiga serangan telapak tangan ke wajah Ouyang Feng. Ouyang Feng cerdas; dia mendorong tubuh Huang Rong ke depan sebagai perisai, memaksa Hong Qigong menarik kembali serangannya. Ouyang Feng telah menyegel titik akupuntur Huang Rong, jadi dia lumpuh.
-
-Hong Qigong berteriak keras, “Racun Tua, kamu tidak tahu malu! Buka segelnya dengan cepat dan biarkan dia pergi; Anda dan saya akan bertarung di sini untuk menentukan kemenangan atau kekalahan.
-
-Bagaimana mungkin Ouyang Feng melepaskan tawanannya dengan begitu mudah? Kemudian dia melihat keponakannya terus didorong mundur oleh api; dia melemparkan Huang Rong ke arahnya dan berseru, "Pergilah ke perahu kecil!"
-
-Ouyang Ke menangkap Huang Rong dan melihat ke bawah untuk melihat Guo Jing menunggu di perahu kecil di bawah. Dia pikir perahu kecil itu terlalu kecil. Jika dia melompat ke bawah membawa seseorang, dia mungkin menyebabkan perahunya terbalik, jadi dia menemukan tali yang tebal. Setelah mengikatnya ke tiang, dia menggunakan tangan kanannya untuk meluncur ke perahu kecil sambil memegang Huang Rong dengan tangan kirinya.
-
-Guo Jing lega melihat Huang Rong di perahu kecil, tetapi dia tidak tahu bahwa titik akupuntur Huang Rong telah disegel. Perhatiannya terfokus pada tuannya dan Ouyang Feng yang bertempur sengit di geladak yang menyala-nyala. Dia sangat khawatir tentang keselamatan tuannya sehingga pandangannya tertuju pada pertarungan dan dia lupa berbicara dengan Huang Rong.
-
-Baik Hong Qigong dan Ouyang Feng menunjukkan keunggulan mereka dalam seni bela diri sambil melompat-lompat untuk menghindari kayu dan tali yang jatuh. Mereka saling menyerang dan menyerang balik. Hong Qigong memiliki sedikit keuntungan karena tubuhnya masih basah karena berenang ke perahu kecil tadi, sementara pakaian dan rambut Ouyang Feng terbakar di sana-sini.
-
-Seni bela diri keduanya setara untuk memulai dan sedikit keuntungan sudah cukup bagi Hong Qigong untuk menang. Ouyang Feng terpaksa mundur sedikit demi sedikit sampai punggungnya sangat dekat dengan kabin dan pakaian serta janggutnya mulai terbakar. Dia ingin melompat ke laut, tetapi Hong Qigong tidak memberinya kelonggaran. Jika dia mencoba melompat dan mengalihkan perhatiannya dari pertarungan, dia mungkin terluka parah atau bahkan lebih buruk lagi, terbunuh. Ouyang Feng menjadi sangat cemas dan sepertinya kekalahan sudah dekat.
-
-Hong Qigong juga menyadari bahwa dia pasti akan menang kali ini dan itu meningkatkan kepercayaan dirinya. Tetapi kemudian pikiran lain muncul di benaknya, “Jika saya memaksanya masuk ke dalam api dan mati, itu tidak akan membuat rencana saya baik. Dia telah memperoleh 'Panduan yang Diubah Sembilan Yin' dari Jing'er dan dia tidak akan mati dengan puas sampai dia mempraktikkan pedoman itu. Mengapa saya tidak melepaskannya kali ini? Setelah itu dia tertawa dan berkata, "Racun Tua, aku melepaskanmu kali ini, cepat lompat ke perahu."
-
-Ouyang Feng memandangnya dengan aneh, lalu memutar tubuhnya dia melompat ke laut. Hong Qigong hendak mengikuti ketika Ouyang Feng tiba-tiba terbang kembali. "Tunggu! Sekarang tubuhku juga basah, kami berada di tanah yang rata. Mari kita bertarung lagi untuk menentukan kemenangan atau kekalahan.” Sambil memegang pagar perahu, dia mengayunkan tubuhnya ke atas dan mendarat di geladak.
-
-"Luar biasa! Luar biasa!" Hong Qigong berkata, "Saya mengalami pertarungan yang sangat memuaskan hari ini!" Dia mengirim tinjunya ke depan, dan keduanya terlibat dalam pertempuran sengit sekali lagi.
-
-"Rong'er, apakah kamu melihat betapa ganasnya Racun Tua itu?" tanya Guo Jing. Titik akupuntur Huang Rong masih disegel, jadi tentu saja dia tidak bisa menjawab. “Apakah menurutmu aku harus pergi ke sana dan membantu Guru? Kapalnya akan tenggelam," kata Guo Jing. Masih belum ada jawaban dari Huang Rong. Guo Jing menoleh untuk melihat Ouyang Ke memeluk Huang Rong; dia menjadi marah dan berteriak, “Lepaskan tanganmu darinya!”
-
-Setelah susah payah, Ouyang Ke akhirnya bisa menyentuh tangan Huang Rong; bagaimana dia bisa melepaskannya dengan mudah? Sambil tersenyum dia berkata, "Jika kamu bergerak, aku akan menghajar otaknya dengan telapak tanganku."
-
-Guo Jing bahkan tidak berpikir; dia menyapu dayung di tangannya secara horizontal. Ouyang Ke merunduk untuk menghindari serangan ini, tetapi Guo Jing mengirim telapak tangannya dengan suara siulan ke arah kepalanya. Ouyang Ke terpaksa melepaskan Huang Rong dan mengayunkan kepalanya ke belakang untuk menghindari serangan ini. Tinju Guo Jing bergerak bersamaan, satu ke bawah, yang lain ke atas, keduanya mengarah ke kepala Ouyang Ke.
-
-Ouyang Ke menyadari perahu kecil ini bukanlah tempat terbaik untuk bertempur sementara musuhnya menyerang dengan ganas. Dia berdiri dan mengirim kuda-kuda dari 'teknik Tinju Ular Roh' [ling she quan], tangannya menyapu secara horizontal. Guo Jing mengulurkan tangan kirinya untuk menangkis, tapi tiba-tiba kepalan tangan Ouyang Ke melengkung ke atas berubah menjadi telapak tangan yang menampar pipi Guo Jing dengan keras.
-
-Pukulan ini sangat keras dan kepala Guo Jing berputar karenanya; tetapi dia menyadari bahayanya dan dia membuka matanya untuk melihat serangan kedua datang. Gerakan Ouyang Ke menyerupai labu anggur dengan dua tikungan. Guo Jing menghindari serangan ini dengan melemparkan kepalanya ke belakang sambil mengarahkan lengan kanannya ke depan untuk melakukan serangan balik. Karena kepalanya bergerak mundur, serangannya tidak efektif. Untungnya dia telah mempelajari 'teknik Tempur Saling Tangan' dari Zhou Botong, sehingga tangan kiri dan kanannya dapat bergerak secara independen satu sama lain. Kali ini tangan kirinya mengikuti tangan kanannya dengan sikap berbeda menuju lawannya. Karena tangan Ouyang Ke masih menuju ke arah Guo Jing, lengan Guo Jing melingkari tangannya. Lengan kanan Ouyang Ke kebetulan tersangkut di antara tangan Guo Jing dan saat tangan kiri menarik ke dalam dan tangan kanan mendorong ke luar. Dengan retakan, salah satu tulang lengan Ouyang Ke patah.
-
-Sebenarnya ilmu bela diri Ouyang Ke tidak jauh di bawah Ma Yu, Wang Chuyi atau Sha Tongtian. Tidak peduli teknik apa yang dia gunakan, dia harus bisa mengalahkan Guo Jing dalam pertarungan yang adil. Karena teknik Guo Jing lebih aneh daripada teknik lain yang pernah dia lihat sebelumnya, dia menderita di bawah tangan Guo Jing dua kali. Ouyang Ke jatuh ke dek kapal kecil.
-
-Guo Jing tidak melanjutkan serangannya pada lawannya; sebaliknya dia dengan cepat mengambil tubuh Huang Rong yang menyerah dan membuka segel titik akupunturnya. Beruntung baginya ketika Ouyang Feng menyegel titik akupunturnya, dia tidak menggunakan terlalu banyak energi; dia berusaha menghemat energinya karena dia telah mengantisipasi serangan Hong Qigong. Jika tidak, Guo Jing tidak akan bisa membuka segel titik akupuntur Racun Barat.
-
-Huang Rong tersadar, "Cepat bantu Shifu!" dia memanggil.
-
-Guo Jing mengangkat kepalanya untuk melihat tuannya dan Ouyang Feng terlibat dalam pertarungan jarak dekat dan tampak seperti sedang menari di tengah kobaran api. Suara angin yang ditimbulkan oleh gerakan mereka bercampur dengan suara retakan dan puing-puing yang berjatuhan di atasnya. Tiba-tiba terdengar suara retakan keras saat punggung perahu patah; buritan perlahan tenggelam ke laut dan menghilang di air yang gelap. Busurnya lebih ringan, tapi perlahan tenggelam juga. Guo Jing mengambil dayungnya dan mulai mendayung untuk mendekatkan perahu kecil itu dengan maksud membantu tuannya.
-
-Kaki Hong Qigong pertama kali menyentuh air. Pakaiannya sudah kering karena api, sedangkan pakaian Ouyang Feng masih basah karena melompat ke laut tadi. Kali ini Racun Barat telah mengungguli Pengemis Utara. Hong Qigong tidak ingin menyerah begitu saja, jadi dia bertarung dengan sekuat tenaga. Pada saat itu tiang utama patah dan jatuh. Keduanya buru-buru melompat mundur sehingga dipisahkan oleh tiang yang terbakar.
-
-Ouyang Feng mengambil tongkat ularnya dan melompati tiang yang terbakar. Hong Qigong segera mencabut tongkat bambu dari pinggangnya dan menangkis serangan itu. Mereka telah bertarung dengan ganas dengan tangan kosong sebelumnya, jadi bayangkan betapa sengitnya pertempuran sekarang karena keduanya menggunakan senjata.
-
-Guo Jing memegang dayung di tangannya, siap untuk melompat ke atas kapal. Dia sangat peduli dengan keselamatan tuannya, namun melihat teknik senjata yang luar biasa dari keduanya dia terbawa suasana, mendecakkan lidahnya dan memuji mereka tanpa henti.
-
-Ada pepatah di kalangan praktisi seni bela diri, "Seratus hari untuk menguasai pedang, seribu hari untuk menguasai tombak, sepuluh ribu hari untuk menguasai pedang," menunjukkan bahwa teknik pedang adalah yang paling sulit dipelajari. Namun, ketika seniman bela diri mencapai kesempurnaan, masing-masing akan mengembangkan keterampilan uniknya sendiri dan perbedaan antara berbagai senjata akan menjadi sangat kecil. Dua puluh tahun yang lalu selama Pertemuan Pedang Gunung Hua baik Hong Qigong dan Ouyang Feng sudah sangat mengagumi seni bela diri satu sama lain. Bahkan dengan menggunakan pedang, sangat sulit bagi yang satu untuk mengalahkan yang lain. Sekarang tidak ada yang menggunakan pedang lagi.
-
-Hong Qigong memegang tongkat bambu yang dibawanya kemanapun dia pergi sebagai simbol otoritas posisinya sebagai Pemimpin Klan Pengemis. Bambu itu lentur tetapi sulit patah. Dibandingkan dengan pedang, itu sekitar satu kaki lebih panjang. Keahliannya dalam seni bela diri luar biasa; dia mampu memberikan kekuatan yang luar biasa pada senjata fleksibel di tangannya, meningkatkan kekuatannya secara luar biasa.
-
-Staf ular Ouyang Feng juga unik karena dia menggabungkan teknik gada, tongkat, dan tombak; gerakannya rumit. Kepala staf diukir dalam bentuk kepala manusia; mulutnya menyeringai ganas, tampak sangat menakutkan. Dua baris gigi tajam di dalam mulutnya tertutup racun. Kepala itu menari-nari seperti hantu yang siap menyerang korbannya. Selain itu, ada tombol tersembunyi di tongkat yang jika ditekan akan menembakkan racun ke arah musuh. Jika itu belum cukup, lebih ganas lagi kedua ular yang melilit tongkat itu. Mereka hidup dan mampu melakukan gerakan yang tidak terduga dan sangat sulit untuk dilawan.
-
-Keduanya bertukar telapak tangan dan senjata, menampilkan keahlian unik masing-masing. Ouyang Feng memiliki sedikit keunggulan dalam hal persenjataan, tetapi Hong Qigong adalah pemimpin pengemis di mana-mana dan pengemis ahli dalam menangkap ular. Tongkat bambunya menari di tengah gerakan tongkat ular dan menangkis setiap gerakan yang menghadangnya. Dia juga memanfaatkan setiap celah dalam serangan lawannya dan menyerang titik vital tongkat ular itu. Ouyang Feng menggerakkan tongkatnya dengan sangat cepat, sehingga menyulitkan lawannya untuk membidik dengan akurat; dia tahu Hong Qigong bermaksud membunuh ular di tongkatnya. Dia tidak mengaktifkan tombol rahasia pada stafnya karena takut reputasinya akan hancur.
-
-Hong Qigong masih memiliki keahlian unik milik Klan Pengemis, yaitu 'teknik Tongkat Pemukul Anjing' [da gou bang], perubahannya halus namun luar biasa. Itu adalah teknik tongkat yang sangat canggih. Namun, Hong Qigong tidak ingin menggunakan keahlian khusus ini kecuali dalam situasi darurat. Dia berencana untuk menggunakannya pada Pertemuan Pedang kedua di Gunung Hua pada tahun berikutnya dan dia tidak ingin membiarkan calon pesaing ini memiliki keuntungan dengan melihat gerakannya sebelumnya.
-
-Guo Jing berdiri di haluan perahu kecil dan beberapa kali ingin melompat ke atas kapal untuk membantu tuannya; tapi kedua kombatan itu bertempur dengan jarak dekat. Dia menyadari keahliannya sendiri terlalu jauh di bawah mereka dan akan sangat sulit bahkan untuk mendekati mereka. Yang bisa dia lakukan hanyalah menatap kosong, tidak bisa melakukan apa-apa.
+Guo Jing menatap kosong, dengan bersemangat ia berkata, "Kita harus menyelamatkan Rong'er!"
+
+"Ayo kembali ke kapal!" kata Hong Qigong. Dengan sekuat tenaga Guo Jing mendayung. Kapal besar itu pun berubah arah untuk 
+mendekati sekoci kecil itu. Dek itu penuh dengan penggembala ular laki-laki dan pelayan wanita berlarian dengan panik, 
+berteriak minta tolong. Hong Qigong harus meninggikan suaranya agar terdengar, "Rong'er! Jing'er dan aku di sini! 
+Kalian ke sini secepat mungkin!"
+
+Ombak yang dahsyat bergulung di laut, malam gelap, jadi waktu yang sangat berbahaya untuk berenang. Tapi Hong Qigong tahu 
+kemampuan Huang Rong sangat bagus di dalam air, dan itu juga saat yang kritis, jadi ia terpaksa mengambil risiko ini.
+
+Ketika Huang Rong mendengar suara gurunya, ia sangat senang. Tidak lagi memperhatikan Ouyang Feng dan keponakannya, ia 
+bergegas ke sisi perahu dan melompat ke air. Tiba-tiba ia merasa ada sesuatu yang menahannya. Huang Rong menoleh dengan 
+sangat terkejut melihat pergelangan tangan kanannya dicekal tangan Ouyang Feng. "Lepaskan aku!" ia berteriak, mengarahkan 
+kepalan tangan kirinya ke wajah Ouyang Feng, hasilnya kedua pergelangan tangannya ada di tangan Ouyang Feng.
+
+Ouyang Feng melihat perahu yang dibawa Huang Rong sudah jauh, terlalu jauh untuk mereka kejar, dan kapal besar tempat mereka 
+berada sudah terbakar. Tiang utama terbakar dan akan jatuh, dan segala hal di geladak sangat kacau, kapal itu akan tenggelam 
+kapan saja. Satu-satunya harapannya sekarang adalah sekoci kecil dalam kendali Hong Qigong, jadi ia berteriak keras, 
+"Pengemis Bau! Nona Huang ada di tanganku, kau melihatnya?" Ia mengangkat Huang Rong tinggi-tinggi di udara.
+
+Saat itu laut menjadi merah terang dari api di atas kapal. Hong Qigong dan Guo Jing bisa melihatnya dengan jelas. Hong Qigong 
+sangat marah, "Lagi-lagi dia menggunakan trik kotor untuk mendapatkan kapal ini. Huh! Aku akan merebut Rong'er kembali."
+
+Guo Jing melihat kapal itu hampir terbakar sampai ke pagar, "Aku juga ikut!" katanya.
+
+"Jangan! Kau _harus_ tinggal dan jaga perahu ini, jangan biarkan Racun Tua mengambilnya," kata Hong Qigong.
+
+"Baiklah!" kata Guo Jing, dan mengerahkan tenaganya untuk menarik dayung. Saat itu kapal besar itu tidak bergerak di 
+permukaan laut, sehingga dengan beberapa tarikan mereka sudah berhasil mendekatinya.
+
+Hong Qigong menendang perahu kecil itu, dan tubuhnya terbang menuju ke kapal besar itu. Sambil merentangkan tangan kirinya 
+ia mencengkeram pagar kapal dengan jari-jarinya yang kuat, lalu melontarkan tubuhnya ke atas dan berjungkir balik ke geladak.
+
+Ouyang Feng masih memegang pergelangan tangan Huang Rong, "Pengemis Bau, apa yang kau inginkan?" katanya sambil tersenyum licik.
+
+Hong Qigong mengutuknya diam-diam, "Ayo... mari kita bertarung seribu jurus lagi." Ia mengirim tiga serangan telapak tangan 
+ke wajah Ouyang Feng. Ouyang Feng cerdas, ia mendorong tubuh Huang Rong ke depan sebagai tameng, memaksa Hong Qigong menarik 
+kembali serangannya. Ouyang Feng telah menotok titik akupuntur Huang Rong, jadi ia tidak bisa bergerak.
+
+Hong Qigong berteriak keras, "Racun Tua, kau tidak tahu malu! Cepat buka totokannya, dan lepaskan dia! Kau dan aku akan 
+bertarung di sini untuk menentukan siapa yang terbaik di antara kita."
+
+Bagaimana mungkin Ouyang Feng melepaskan tawanannya dengan begitu mudah? Lalu ia melihat keponakannya terus didorong mundur 
+oleh api, ia melemparkan Huang Rong ke arahnya dan berseru, "Pergilah ke sekoci itu!"
+
+Ouyang Ke menangkap Huang Rong dan melihat ke bawah untuk melihat Guo Jing menunggu di perahu kecil di bawahnya. Ia pikir 
+perahu itu terlalu kecil. Kalau ia melompat ke bawah sambil membawa seseorang, ia mungkin menyebabkan perahunya terbalik, 
+jadi ia mencari tali yang tebal. Setelah mengikatnya ke tiang, ia menggunakan tangan kanannya untuk meluncur ke perahu kecil 
+sambil memegang Huang Rong dengan tangan kirinya.
+
+Guo Jing lega melihat Huang Rong di perahu kecil, tetapi ia tidak tahu bahwa titik akupuntur Huang Rong ditotok. Perhatiannya 
+terfokus kepada gurunya dan Ouyang Feng yang bertempur sengit di geladak yang menyala-nyala. Ia sangat kuatir tentang 
+keselamatan gurunya, sehingga pandangannya tertuju pada pertarungan, dan ia lupa berbicara dengan Huang Rong.
+
+Baik Hong Qigong dan Ouyang Feng menunjukkan keunggulan kungfu mereka sambil melompat-lompat untuk menghindari kayu dan tali 
+yang jatuh. Mereka saling balas menyerang. Hong Qigong punya sedikit keuntungan karena tubuhnya masih basah setelah berenang 
+ke perahu kecil tadi, sementara pakaian dan rambut Ouyang Feng terbakar di sana-sini.
+
+Kungfu keduanya setara, dan sedikit keuntungan sudah cukup bagi Hong Qigong untuk menang. Ouyang Feng terpaksa mundur sedikit 
+demi sedikit sampai punggungnya sangat dekat dengan kabin, dan pakaian serta janggutnya mulai terbakar. Ia ingin melompat ke 
+laut, tetapi Hong Qigong tidak memberinya kelonggaran. Jika ia mencoba melompat dan mengalihkan perhatiannya dari 
+pertarungan, ia mungkin terluka parah atau bahkan lebih buruk lagi, tewas terbunuh. Ouyang Feng jadi sangat cemas dan 
+sepertinya kekalahan sudah dekat.
+
+Hong Qigong juga menyadari bahwa ia pasti akan menang kali ini, dan itu meningkatkan kepercayaan dirinya. Tetapi kemudian 
+pikiran lain muncul di benaknya, "Kalau aku memaksanya masuk ke dalam api dan mati, itu tidak akan membuat rencanaku jadi 
+lebih baik. Dia sudah mendapatkan Jiu Yin Jia Jing dari Jing'er, dan dia tidak akan mati dengan puas sampai dia mempraktekkan 
+isi kitab itu. Kenapa aku tidak melepaskannya kali ini? Setelah itu ia tertawa dan berkata, "Racun Tua, aku melepaskanmu kali 
+ini, cepat lompat ke perahu."
+
+Ouyang Feng memandangnya dengan aneh, lalu sambil memutar tubuhnya ia melompat ke laut. Hong Qigong hendak mengikuti ketika 
+Ouyang Feng tiba-tiba terbang kembali. "Tunggu! Sekarang tubuhku juga basah, kita jadi seimbang. Ayo kita bertarung lagi 
+untuk menentukan siapa yang menang atau kalah." Sambil memegang pagar kapal, ia mengayunkan tubuhnya ke atas dan mendarat di 
+geladak.
+
+"Luar biasa! Luar biasa!" kata Hong Qigong. "Aku mengalami pertarungan yang sangat memuaskan hari ini!" Ia mengirim tinjunya 
+ke depan, dan keduanya terlibat dalam pertempuran sengit sekali lagi.
+
+"Rong'er, kau lihat betapa ganasnya Racun Tua itu?" tanya Guo Jing. Huang Rong masih tertotok, jadi tentu saja ia tidak bisa 
+menjawab. "Menurutmu aku harus pergi ke sana dan membantu Shifu? Kapalnya akan tenggelam," kata Guo Jing. Masih belum ada 
+jawaban dari Huang Rong. Guo Jing menoleh untuk melihat Ouyang Ke memeluk Huang Rong, ia menjadi marah dan berteriak, 
+"Lepaskan tanganmu!"
+
+Setelah susah payah, Ouyang Ke akhirnya bisa menyentuh tangan Huang Rong, bagaimana ia bisa melepaskannya begitu saja. Sambil 
+tersenyum ia berkata, "Kalau kau bergerak, aku akan menghajar otaknya."
+
+Guo Jing bahkan tidak berpikir, ia menyapu dayung di tangannya secara horizontal. Ouyang Ke merunduk untuk menghindari 
+serangan ini, tetapi Guo Jing mengirim telapak tangannya dengan suara siulan ke arah kepalanya. Ouyang Ke terpaksa 
+melepaskan Huang Rong dan mengayunkan kepalanya ke belakang untuk menghindari serangan ini. Tinju Guo Jing bergerak 
+bersamaan, satu ke bawah, yang lain ke atas, keduanya mengarah ke kepala Ouyang Ke.
+
+Ouyang Ke menyadari perahu kecil ini bukanlah tempat terbaik untuk bertempur, sementara musuhnya menyerang dengan ganas. Ia 
+berdiri dan mengirim serangan dari [Ling She Quan](referensi-kaarakter.md#ling-she-quan "Tinju Ular"), tangannya menyapu 
+secara horizontal. Guo Jing mengulurkan tangan kirinya untuk menangkis, tapi tiba-tiba kepalan tangan Ouyang Ke melengkung 
+ke atas berubah menjadi telapak tangan yang menampar pipi Guo Jing dengan keras.
+
+Pukulan ini sangat keras, dan kepala Guo Jing berputar karenanya, tetapi ia menyadari bahayanya, dan ia membuka matanya untuk 
+melihat serangan kedua datang. Gerakan Ouyang Ke mirip dengan kantong arak dengan dua tikungan. Guo Jing menghindari serangan 
+ini dengan menggerakkan kepalanya ke belakang sambil mengarahkan lengan kanannya ke depan untuk melakukan serangan balik. 
+Karena kepalanya bergerak mundur, serangannya tidak efektif. Untungnya ia telah mempelajari Shuang Shou Hubo dari Zhou 
+Botong, sehingga tangan kiri dan kanannya dapat bergerak secara independen. Kali ini tangan kirinya mengikuti tangan kanannya 
+dengan jurus berbeda menuju ke arah lawannya. Karena tangan Ouyang Ke masih menuju ke arah Guo Jing, lengan Guo Jing 
+melingkari tangannya. Lengan kanan Ouyang Ke kebetulan tersangkut di antara tangan Guo Jing, dan saat tangan kiri menarik 
+ke dalam, dan tangan kanan mendorong ke luar. Dengan suara retakan keras, salah satu tulang lengan Ouyang Ke patah.
+
+Sebenarnya ilmu bela diri Ouyang Ke tidak jauh di bawah Ma Yu, Wang Chuyi atau Sha Tongtian. Tidak peduli teknik apa yang 
+digunakannya, ia harus bisa mengalahkan Guo Jing dalam pertarungan yang adil. Karena teknik Guo Jing lebih aneh daripada 
+teknik lain yang pernah dia lihat sebelumnya, ia menderita di bawah tangan Guo Jing dua kali. Ouyang Ke jatuh ke dek perahu 
+kecil.
+
+Guo Jing tidak melanjutkan serangannya pada lawannya, sebaliknya ia dengan cepat meraih tubuh Huang Rong yang pasrah, dan 
+membuka totokannya. Beruntung baginya ketika Ouyang Feng menotoknya, ia tidak menggunakan terlalu banyak tenaga, ia berusaha 
+menghemat energinya karena telah mengantisipasi serangan Hong Qigong. Jika tidak, Guo Jing tidak akan bisa membuka totokan 
+Racun Barat.
+
+Huang Rong tersadar, "Cepat bantu Shifu!" serunya.
+
+Guo Jing mengangkat kepalanya untuk melihat gurunya dan Ouyang Feng terlibat dalam pertarungan jarak dekat dan tampak seperti 
+sedang menari di tengah kobaran api. Suara angin yang ditimbulkan oleh gerakan mereka bercampur dengan suara retakan dan 
+puing-puing yang berjatuhan di atasnya. Tiba-tiba terdengar suara retakan keras saat punggung perahu patah, buritan perlahan 
+tenggelam ke laut dan menghilang di air yang gelap. Busurnya lebih ringan, tapi perlahan tenggelam juga. Guo Jing mengambil 
+dayungnya dan mulai mendayung untuk mendekatkan perahu kecil itu dengan maksud membantu gurunya.
+
+Kaki Hong Qigong pertama kali menyentuh air. Pakaiannya sudah kering karena api, sedangkan pakaian Ouyang Feng masih basah 
+karena melompat ke laut tadi. Kali ini Racun Barat mengungguli Pengemis Utara. Hong Qigong tidak ingin menyerah begitu saja, 
+jadi ia bertarung dengan sekuat tenaga. Pada saat itu tiang utama patah dan jatuh. Keduanya buru-buru melompat mundur 
+sehingga dipisahkan oleh tiang yang terbakar.
+
+Ouyang Feng mengambil tongkat ularnya dan melompati tiang yang terbakar. Hong Qigong segera mencabut tongkat bambu dari 
+pinggangnya dan menangkis serangan itu. Mereka telah bertarung dengan ganas dengan tangan kosong sebelumnya, jadi bayangkan 
+betapa sengitnya pertempuran sekarang karena keduanya menggunakan senjata.
+
+Guo Jing memegang dayung di tangannya, siap untuk melompat ke atas kapal. Dia sangat kuatir akan keselamatan gurunya, namun 
+melihat permainan senjata yang luar biasa dari keduanya ia terbawa suasana, mendecakkan lidahnya dan memuji mereka tanpa 
+henti.
+
+Ada pepatah di kalangan praktisi seni bela diri, "Seratus hari untuk menguasai golok, seribu hari untuk menguasai tombak, 
+sepuluh ribu hari untuk menguasai pedang," menunjukkan bahwa teknik pedang adalah yang paling sulit dipelajari. Namun ketika 
+seorang pesilat mencapai kesempurnaan, masing-masing akan mengembangkan keterampilan uniknya sendiri dan perbedaan antara 
+berbagai senjata akan menjadi sangat kecil. Dua puluh tahun yang lalu selama Pertemuan di Hua Shan, baik Hong Qigong dan 
+Ouyang Feng sudah saling mengagumi kungfu lawan. Bahkan dengan menggunakan pedang, sangat sulit bagi yang satu untuk 
+mengalahkan yang lain. Sekarang tidak ada yang menggunakan pedang lagi.
+
+Hong Qigong memegang tongkat bambu yang dibawanya kemanapun ia pergi sebagai simbol otoritas posisinya sebagai Ketua Kai 
+Pang. Bambu itu lentur tetapi sulit dipatahkan. Dibandingkan dengan pedang, senjata itu sekitar satu kaki lebih panjang. 
+Kungfunya luar biasa, ia mampu menyalurkan tenaga dalamnya yang luar biasa pada senjata fleksibel di tangannya, 
+yang mana meningkatkan ketajaman serangannya secara drastis.
+
+Tongkat ular Ouyang Feng juga unik, karena ia menggabungkan teknik gada, tongkat, dan tombak dalam tongkat itu, gerakannya 
+rumit. Di kepala tongkat itu terdapat ukiran berbentuk kepala manusia, mulutnya menyeringai ganas, tampak sangat menakutkan. 
+Dua baris gigi tajam di dalam mulutnya tertutup racun. Kepala itu menari-nari seperti hantu yang siap menyerang korbannya. 
+Selain itu, ada tombol tersembunyi di tongkat, yang jika ditekan akan menembakkan racun ke arah musuh. Itu belum cukup, 
+lebih ganas lagi kedua ular yang melilit tongkat itu. Mereka hidup, dan mampu melakukan gerakan yang tak terduga dan sangat 
+sulit untuk dilawan.
+
+Keduanya mengadu telapak tangan dan senjata, menampilkan keahlian unik masing-masing. Ouyang Feng sedikit lebih unggul dalam 
+hal persenjataan, tetapi Hong Qigong adalah pemimpin pengemis di mana-mana, dan pengemis adalah ahli dalam menangkap ular. 
+Tongkat bambunya menari di tengah gerakan tongkat ular dan menangkis setiap gerakan yang menghadangnya. Ia juga memanfaatkan 
+setiap celah dalam serangan lawannya dan menyerang titik vital tongkat ular itu. Ouyang Feng menggerakkan tongkatnya dengan 
+sangat cepat, sehingga menyulitkan lawannya untuk membidik dengan akurat, ia tahu Hong Qigong bermaksud membunuh ular yang 
+merayap di tongkatnya. Ia tidak mengaktifkan tombol rahasia pada tongkatnya karena takut reputasinya akan hancur.
+
+Hong Qigong masih memiliki keahlian unik milik Kai Pang, yaitu Tongkat Penggebuk Anjing, perubahannya halus namun luar biasa. 
+Itu adalah ilmu tongkat yang sangat canggih. Namun Hong Qigong tidak ingin menggunakan keahlian khusus ini kecuali dalam 
+situasi darurat. Ia berencana untuk menggunakannya pada pertandingan kedua di Hua Shan, pada tahun berikutnya, dan ia tidak 
+ingin membiarkan calon lawannya ini punya keuntungan dengan melihat gerakannya sebelumnya.
+
+Guo Jing berdiri di haluan perahu kecil dan beberapa kali ingin melompat ke atas kapal untuk membantu gurunya, tapi kedua 
+pendekar tangguh itu bertempur dengan jarak dekat. Ia menyadari keahliannya sendiri terlalu jauh di bawah mereka, dan akan 
+sangat sulit bahkan untuk mendekati mereka. Yang bisa dilakukannya hanya menatap kosong, tidak bisa melakukan apa-apa.
 
 
 
