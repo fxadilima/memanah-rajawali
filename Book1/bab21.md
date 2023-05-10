@@ -384,7 +384,7 @@ oleh pendiri kita, jadi kau harus mengikutinya sampai tuntas. Ketika Ketua menge
 
 Huang Rong menjadi tertekan dan kuatir, ia berpikir, "Kita berada di pulau terpencil ini, dan aku tidak tahu bagaimana kita 
 bisa kembali ke Dataran Tengah. Apalagi Jing Gege sudah mati, dan aku tidak ingin terus hidup. Sekarang Shifu tiba-tiba 
-ingin aku menjadi apa yang disebut [Bangzhu](panggilan.md#bang-zhu "Ketua") dan memerintah semua pengemis di kolong langit, bagaimana aku bisa melakukannya?" Tetapi ketika ia melihat kondisi gurunya, ia tidak ingin membuatnya kuatir lebih jauh, 
+ingin aku menjadi apa yang disebut [Bangzhu](referensi-karakter.md#bang-zhu "Ketua") dan memerintah semua pengemis di kolong langit, bagaimana aku bisa melakukannya?" Tetapi ketika ia melihat kondisi gurunya, ia tidak ingin membuatnya kuatir lebih jauh, 
 dan hanya bisa menyetujui apapun yang diusulkannya.
 
 Hong Qigong berkata, "Pada hari kelima belas bulan ketujuh tahun ini, keempat Tetua kita akan mengadakan pertemuan di 
