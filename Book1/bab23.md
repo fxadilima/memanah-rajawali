@@ -1,5 +1,12 @@
-# Masalah Di Istana
+# Bab 23
+## Masalah Di Istana
 
 [![Di Danau Barat](images.danauu-barat.jpg)](https://youtube.com/clip/UgkxwctwZ8BHw5nmmg-6R44mTRPmbAh9YQlx)
 
+
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 23](https://res.cloudinary.com/drzjshskk/image/upload/v1676693287/sdyxz/originals/loch-23_tarlpe.jpg)  | _Sementara mereka berbicara, mereka tiba di Jembatan Rusak di tepi Danau Barat. Karena saat itu musim panas yang mereka lihat adalah teratai di bawah jembatan. Huang Rong melihat toko arak kecil yang rapi di tepi danau. "Ayo minum secawan arak dan nikmati teratai," katanya. "Bagus sekali," kata Guo Jing setuju._  |
+
+***
 
