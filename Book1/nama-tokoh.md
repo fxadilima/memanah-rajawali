@@ -39,4 +39,9 @@ sampai saat ini masih berdiri. Alirannya lebih populer dengan sebutan Longmen at
 Wang Chuyi adalah murid kelima dari Pendeta Wang Chongyang.
 
 
+### <a name="yu-huang" id="yu-huang">Yu Huang (玉皇)</a>
+
+Bisa diterjemahkan menjadi 'Kaisar Giok'. Tokoh ini adalah bagian dari mitologi Tiongkok kuno. Ia seringkali disebut
+dengan Yu Huang Shangdi (玉皇上帝), atau Yu Huang Dadi (玉皇大帝), seperti yang disinggung oleh Zhu Cong dalam Bab 2,
+ketika menyindir Wanyan Honglie.
 
