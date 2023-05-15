@@ -358,7 +358,109 @@ Hong Qigong menenangkan dirinya... lalu membuka tangannya dan melancarkan serang
 melihat tubuh gurunya terhuyung-huyung ke depan seperti sedang jatuh. Guo Jing bergegas maju untuk membantu, tapi Hong Qigong 
 sudah memantapkan dirinya. Napasnya berat, tetapi ia berkata, "Aku baik-baik saja."
 
+Sesaat kemudian ia melancarkan serangan telapak tangan kiri. Guo Jing melihatnya terhuyung-huyung, kakinya tersandung dan 
+ia tampak sangat kelelahan. Guo Jing menahan keinginan untuk bergegas maju dan membantu gurunya. Siapa sangka semakin banyak 
+Hong Qigong berlatih, ia jadi semakin kuat. Awalnya ia harus menarik napas setelah melancarkan setiap jurus, tetapi kemudian 
+ia bisa meluncurkan beberapa jurus secara berurutan. Langkahnya juga semakin mantap. Itu adalah peningkatan yang luar biasa. 
+Hong Qigong meluncurkan seluruh rangkaian Delapan Belas Jurus Penaklukan Naga, diikuti dengan rangkaian 
+[Jurus Penakluk Harimau](referensi-karakter.md#fu-hu-quan "Fu Hu Quan (伏虎拳)").
 
+Guo Jing menunggu sampai ia selesai, lalu berteriak gembira, "Shifu sudah sembuh!"
 
-**Last line was 214 in the draft**
+"Bantu aku kembali," kata Hong Qigong.
+
+Guo Jing melingkarkan lengannya di pinggang gurunya dan melompat ke panggung. Kegembiraannya tak terkatakan, ia bergumam 
+berulang kali, "Bagus sekali... bagus sekali!"
+
+Hong Qigong menghela nafas dan berkata, "Tidak begitu bagus, kungfu ini hanya bagus untuk ditonton, tetapi sebenarnya tidak 
+berguna." Guo Jing tidak mengerti dan Hong Qigong menjelaskan, "Setelah mengalami cedera, yang kulakukan hanya istirahat, 
+mencoba memulihkan diri. Tidak pernah terpikir olehku bahwa kungfuku adalah tipe eksternal, semakin aku bergerak semakin 
+baik. Sayang sekali aku terlambat menyadarinya, sekarang nyawaku akan terselamatkan, tetapi kungfuku akan sangat sulit 
+dipulihkan."
+
+Guo Jing ingin memberikan kata-kata penghiburan, tetapi ia tidak tahu harus berkata apa. Setelah beberapa saat ia hanya 
+berkata, "Dizi akan turun dan menebang beberapa pohon lagi."
+
+"Jing'er," kata Hong Qigong tiba-tiba. "Kurasa aku punya ide untuk mengintimidasi Racun Tua. Mari kita lihat apa kau setuju."
+Kemudian ia menjelaskan idenya. Guo Jing sangat senang, "Bagus sekali! Bagus sekali!" serunya, dan segera melompat turun dari 
+pohon untuk melakukan persiapan.
+
+Pagi-pagi keesokan harinya, Ouyang Feng datang ke pohon itu. Ia menghitung batang kayu yang ditebang Guo Jing dan hanya 
+menemukan sembilan puluh batang. Ia dengan dingin tertawa dan berteriak, "Bajingan kecil[^za-zhong]! Cepat turun ke sini! 
+Di mana sepuluh lainnya?"
+
+Huang Rong menghabiskan sepanjang malam di sisi Ouyang Ke, merawat luka-lukanya. Mendengarkan rintihannya yang menyedihkan, 
+ia merasa kasihan padanya. Pagi itu saat Ouyang Feng meninggalkan gua, ia mengikuti di belakang. Mendengar teriakan kerasnya, 
+ia mengkhawatirkan Guo Jing.
+
+Ouyang Feng menunggu sebentar, tetapi tidak ada yang terdengar dari pohon di atas, kecuali hembusan angin yang datang dari 
+bukit yang jauh. Kedengarannya seperti seseorang sedang berlatih kungfu. Ia buru-buru mengikuti sumber suara. Ketika ia 
+mengitari lereng bukit, apa yang dilihatnya mengejutkannya. Hong Qigong sedang bertanding dengan Guo Jing, telapak tangan 
+dan tendangan terbang ke arah satu sama lain... mereka terlibat dalam pertarungan jarak dekat.
+
+Huang Rong melihat bahwa gurunya tidak hanya bisa berjalan tanpa bantuan, tetapi tampaknya kungfunya juga pulih... ia 
+terkejut. Ia mendengar gurunya berteriak, "Jing'er, hati-hati dengan langkah selanjutnya!" dan ia meluncurkan telapak tangan.
+
+Guo Jing mengangkat telapak tangannya untuk menangkis, tetapi sebelum telapak tangan mereka bertemu, tubuhnya terbang ke 
+belakang dan 'brakk!' ia menabrak pohon pinus. Pohon itu tidak terlalu besar, berdiameter sekitar mangkuk nasi, 'kreekk!' 
+dan pohon itu tersentak oleh kekuatan dorongan Hong Qigong dan jatuh ke tanah.
+
+Serangan ini tampak biasa saja, tapi cukup untuk mengejutkan Ouyang Feng. Huang Rong memuji, "Shifu, itu 
+[Pi Kong Zhang](referensi-karakter.md#pi-kong-zhang "Ilmu Membelah dengan Tangan Kosong") yang hebat!"
+
+"Jing'er, lindungi tubuhmu dengan baik, jangan biarkan kekuatan telapak tanganku melukaimu!" seru Hong Qigong.
+
+"Dizi mengerti," jawab Guo Jing. Ia baru saja menutup mulutnya saat telapak tangan Hong Qigong tiba. 'Brakk!' lagi-lagi Guo 
+Jing diterbangkan, lagi-lagi menabrak pohon. Telapak tangan demi telapak tangan datang satu demi satu, dalam waktu singkat 
+Hong Qigong telah menggunakan Pi Kong Zhang untuk menerbangkan Guo Jing dan merobohkan sepuluh pohon besar.
+
+"Kita sudah punya sepuluh pohon!" seru Huang Rong.
+
+Guo Jing terengah-engah. "Dizi kelelahan," katanya.
+
+Hong Qigong memegang telapak tangannya dan tertawa, "Jiu Yin Zhen Jing ini sungguh luar biasa. Cederaku berat, dan aku 
+bahkan tidak bisa mengerahkan tenaga apa pun, tapi ternyata aku berhasil hanya dengan latihan sehari."
+
+Ouyang Feng curiga, ia membungkuk untuk memeriksa batang pohon yang patah dan apa yang dilihatnya mengejutkannya. Selain 
+jantung batangnya, lingkar luarnya sangat halus, bahkan lebih halus daripada jika batangnya digergaji. Ia berpikir, 
+"Mungkinkah kungfu dalam kitab ini begitu luar biasa? Sepertinya kungfu Pengemis Tua sudah pulih sepenuhnya. Bagaimana aku 
+bisa melawan mereka jika ketiganya mengeroyokku? Aku beruntung sejauh ini, sebaiknya aku mulai melatih diriku sendiri dengan 
+kungsu dari kitab itu." Ia melirik ke arah ketiganya, dan kemudian terbang kembali ke gua dengan tergesa-gesa. Ia segera 
+mengambil buku yang ditulis Guo Jing, membuka lembaran demi lembaran kertas minyak dari bungkusan itu dan langsung 
+membenamkan kepalanya ke dalam buku, dengan rajin mempelajarinya.
+
+Hong Qigong dan Guo Jing menunggu sampai mereka tidak bisa melihat Ouyang Feng lagi sebelum keduanya tertawa terbahak-bahak. 
+Huang Rong sangat senang, "Shifu, buku ini benar-benar luar biasa," katanya.
+
+Hong Qigong tertawa tanpa memberinya tanggapan. Guo Jing bergegas ke arahnya dan berkata, "Rong'er, kami hanya pura-pura." 
+Kemudian ia menceritakan semua yang mereka pikirkan dan lakukan. Ternyata Guo Jing telah menggunakan pisaunya untuk memotong 
+batang pohon, membiarkan bagian tengahnya tetap utuh. Telapak tangan Hong Qigong sebenarnya tidak memiliki kekuatan sama 
+sekali, dan setiap kali Guo Jing dipukul, ia menggunakan kekuatannya sendiri untuk terbang mundur dan menabrak pohon, 
+mematahkannya. Ouyang Feng tidak tahu bahwa dengan teknik Tinju Kosong, belati itu mampu memotong jauh ke dalam batang 
+pohon. Tentu saja ia tidak curiga bahwa potongan itu dibuat oleh pisau.
+
+Huang Rong tertawa terbahak-bahak, tetapi setelah mendengar cerita Guo Jing, ia terdiam cukup lama dengan kerutan yang dalam di wajahnya. Hong Qigong tersenyum dan berkata, "Pengemis Tua sekali lagi mampu berjalan di atas kakiku sendiri, itu 
+benar-benar berkat dari Surga. Aku tidak peduli itu kungfu sejati atau palsu. Rong'er, kau takut Racun Barat tahu soal 
+tipuan ini, kan?" Huangrong mengangguk. "Racun Tua punya pengamatan yang bagus," Hong Qigong melanjutkan, "Bagaimana kita 
+bisa membodohinya dengan mudah? Tetapi hidup ini penuh dengan ketidakpastian, saat ini tidak ada gunanya menguatirkan apa 
+pun. Dengarkan aku, Jing'er membacakan isi kitab untukku. Ada bagian yang disebut 
+[Mengubah Otot Menempa Tulang](referensi-karakter.md#yi-jin-duan-gu-pian "Yi Jin Duan Gu Pian (易筋锻骨篇)") atau semacam 
+itu. Kupikir itu sangat menarik. Karena kita tidak punya hal lain untuk dilakukan, mengapa kita tidak latihan?"
+
+Kata-kata ini diucapkan secara sambil lalu, tapi Huang Rong menyadari situasi darurat. Apa yang dikatakan guru mereka sangat 
+masuk akal, oleh karena itu ia berkata, "Baiklah, Shifu, tolong ajari kami."
+
+Hong Qigong meminta Guo Jing untuk melafalkan 'Mengubah Tulang Penempaan Otot' dua kali, lalu, berdasarkan itu, dia mengajari keduanya cara mempraktikkannya. Dia pergi berburu dan memancing sendiri serta menyalakan api dan memasak makanan mereka. Beberapa kali Guo Jing dan Huang Rong menawarkan bantuan, tetapi dia selalu mengusir mereka.
+
+Tujuh hari berlalu dengan cepat dan Guo Jing dan Huang Rong membuat beberapa kemajuan dalam hal kultivasi energi mereka. Di dalam guanya, Ouyang Feng juga dengan susah payah mempelajari buku panduannya dan berusaha keras untuk melakukannya. Menjelang malam hari kedelapan Hong Qigong tersenyum dan berkata, "Rong'er ... bagaimana kambing liar panggang tuanmu?"
+
+Huang Rong tersenyum tetapi tidak mengatakan apa-apa, dia hanya menggelengkan kepalanya. Hong Qigong tertawa, “Saya juga tidak bisa memakannya sendiri. Kalian berdua telah menyelesaikan bagian pertama dari pelajaran kalian; hari ini Anda harus mengistirahatkan otot dan tulang Anda, jika tidak 'qi' Anda akan terhambat dan Anda akan mengalami cedera. Ok Rong'er, Anda menyiapkan makanan kami malam ini; Jing'er dan aku akan pergi dan membuat rakit."
+
+Guo Jing dan Huang Rong terheran-heran, "Membuat rakit?"
+
+“Itu benar,” kata Hong Qigong, “Apakah kamu ingin tinggal bersama Racun Tua di pulau terpencil ini selamanya?”
+
+Guo Jing dan Huang Rong sangat senang; mereka berdua menyuarakan persetujuan mereka dan segera mulai bekerja.
+
+**Last line was 272 in the draft**
 

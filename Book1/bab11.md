@@ -316,19 +316,6 @@ itu berisi obat, ia sudah mengendusnya sejak lama, dan dengan senang mengantongi
 dengan serangan kedua ke arah Guo Jing. Guo Jing berhasil bergumul keluar dari cengkeramannya
 pada dadanya dan berlari cepat ke arah Mei Chaofeng, sambil berteriak, "Hei, cepat selamatkan aku!"
 
-<div class="w3-panel w3-red w-card-4">
-    <h3>Catatan</h3>
-    <p>
-    Dalam terjemahan bahasa Inggris, saya menemukan penulisan nama Liang Ziweng berubah menjadi
-    <strong>Liang Ziweng</strong> dalam bab-bab selanjutnya. Karena nama Liang itu terasa lebih masuk akal
-    ditulis sebagai Liang Ziweng, maka sebaiknya kita menggunakan nama ini di sepanjang novel. Setelah selesai
-    menerjemahkan keseluruhan novel, kesalahan tersebut baru akan saya perbaiki untuk bab-bab sebelumnya.
-    </p>
-    <p>
-    Inkonsistensi ini berasal dari terjemahan bahasa Inggris.
-    </p>
-</div>
-
 Mei Chaofeng berpikir, "Masih banyak hal yang belum kupahami tentang pelajaran tenaga dalam
 misterius itu." Masih terengah-engah, ia berkata dengan suara keras, "Sini, cepat angkat kakiku, 
 jangan takut sama kelelawar tua itu!"

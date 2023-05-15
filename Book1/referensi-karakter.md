@@ -1039,3 +1039,23 @@ Ini adalah salah satu dari 18 Jurus Penakluk Naga, secara literal bisa diterjema
 
 Kelihatannya istilah ini _bukan_ kutipan dari Yijing, tidak seperti nama-nama jurus lain.
 
+
+### <a name="fu-hu-quan" id="fu-hu-quan">Fu Hu Quan (伏虎拳)</a>
+
+Ini adalah salah satu pepatah Tiongkok kuno Xianglong Fuhu (降龙伏虎), 'Menundukkan Naga dan menaklukkan Harimau'.
+Maknanya adalah 'Menaklukkan Sang Penguasa'. Tidak tepat kalau diterjemahkan menjadi 'Tinju Harimau Mendekam' dan
+sejenisnya.
+
+Lebih tepat kalau diterjenahkan menjadi 'Jurus Penakluk Harimau'.
+
+
+### <a name="pi-kong-zhang" id="pi-kong-zhang">Pi Kong Zhang (劈空掌)</a>
+
+Karakter Pi (劈) artinya adalah membelah. Secara keseluruhan istilah ini bisa diterjemahkan menjadi 'Ilmu Membelah
+dengan Tangan Kosong'.
+
+### <a name="yi-jin-duan-gu-pian" id="yi-jin-duan-gu-pian">Yi Jin Duan Gu Pian (易筋锻骨篇)</a>
+
+Secara literal bisa diterjemahkan 'Mengubah Otot Menempa Potongan Tulang'.
+
+
