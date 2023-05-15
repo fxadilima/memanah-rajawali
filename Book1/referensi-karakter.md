@@ -1059,3 +1059,16 @@ dengan Tangan Kosong'.
 Secara literal bisa diterjemahkan 'Mengubah Otot Menempa Potongan Tulang'.
 
 
+### <a name="yi-yang-zhi" id="yi-yang-zhi">Yi Yang Zhi (一陽指)</a>
+
+Dalam dialek Hokkian atau gaya bahasa Kho Ping Hoo/Gan KL, ilmu ini bernama It Yang Chi.
+Maknanya secara umum adalah Totokan Satu Jari Tenaga Matahari, karena Yang (陽) adalah matahari, atau bisa jadi
+bermakna 'Panas' atau simbol Pria dalam Yin-Yang (Im-Yang).
+
+Ini adalah ilmu khas keluarga Duan dari Kekaisaran Dali (Tayli). Dalam cerita ini semula hanya dikuasai oleh
+Kaisar Selatan, yaitu Kaisar Duan Zhixing, yang akhirnya menjadi Biksu dengan gelar Yideng Dashi. (It Teng Taysu).
+
+Ilmu ini akhirnya juga dikuasai oleh Pendeta Wang Chongyang setelah Duan Zhixing mengajarkannya.
+
+
+

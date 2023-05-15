@@ -389,6 +389,9 @@ Pagi-pagi keesokan harinya, Ouyang Feng datang ke pohon itu. Ia menghitung batan
 menemukan sembilan puluh batang. Ia dengan dingin tertawa dan berteriak, "Bajingan kecil[^za-zhong]! Cepat turun ke sini! 
 Di mana sepuluh lainnya?"
 
+[^za-zhong]: Za Zhong (杂种), kata-kata makian. Bisa diartikan 'Jahanam', 'Keparat', 'Haram Jadah', 'Bajingan', atau 'Bangsat'.
+
+
 Huang Rong menghabiskan sepanjang malam di sisi Ouyang Ke, merawat luka-lukanya. Mendengarkan rintihannya yang menyedihkan, 
 ia merasa kasihan padanya. Pagi itu saat Ouyang Feng meninggalkan gua, ia mengikuti di belakang. Mendengar teriakan kerasnya, 
 ia mengkhawatirkan Guo Jing.
@@ -469,23 +472,171 @@ Guo Jing dan Huang Rong terheran-heran, "Membuat rakit?"
 
 Guo Jing dan Huang Rong sangat senang, mereka berdua menyuarakan persetujuan mereka dan segera mulai bekerja.
 
-Seratus batang kayu yang ditebang Guo Jing ditumpuk rapi di satu sisi. Mereka memotong kulit pohon, menganyamnya menjadi tali dan mengikat batang kayu menjadi satu untuk membuat rakit. Ketika Guo Jing menggunakan kekuatannya untuk menarik tali itu, tali itu putus. Dia pikir tali itu tidak dibuat cukup kuat. Dia mencoba menarik tali lain, tetapi begitu dia mengerahkan sedikit kekuatan, tali itu juga mudah putus. Guo Jing bingung; dia menatap kosong ke tali dan tidak tahu harus berbuat apa.
+Seratus batang kayu yang ditebang Guo Jing ditumpuk rapi di satu sisi. Mereka memotong kulit pohon, menganyamnya menjadi tali 
+dan mengikat batang kayu menjadi satu untuk membuat rakit. Ketika Guo Jing menggunakan kekuatannya untuk menarik tali itu, 
+tali itu putus. Ia pikir tali itu tidak cukup kuat. Ia mencoba menarik tali lain, tetapi begitu ia mengerahkan sedikit 
+tenaga, tali itu juga putus dengan mudahnya. Guo Jing bingung, ia menatap kosong ke tali dan tidak tahu harus berbuat apa.
 
-Dari sisi lain bukit Huang Rong berlari sambil berteriak dengan seekor kambing liar di tangannya. Saat pergi berburu kambing, dia membawa beberapa kerikil untuk menggiring kambing; siapa sangka hanya dengan beberapa lompatan dia sudah menyusul kambing itu. Dia memutar dan meraih kambing liar. Gerakan tubuhnya sangat cepat sehingga dia bahkan mengejutkan dirinya sendiri.
+Dari sisi lain bukit Huang Rong berlari sambil berteriak dengan seekor kambing liar di tangannya. Saat pergi berburu kambing, 
+ia membawa beberapa kerikil untuk menggiring kambing, siapa sangka hanya dengan beberapa lompatan ia sudah menyusul kambing 
+itu. Ia memutar tubuhnya dan meraih kambing liar. Gerakan tubuhnya sangat cepat sehingga mengejutkan dirinya sendiri.
 
-Hong Qigong tersenyum, “Jadi ‘Pedoman Sembilan Yin’ benar-benar merupakan pedoman yang luar biasa; tidak heran banyak pahlawan dan pejuang bersedia mempertaruhkan hidup mereka untuk itu. ”
+Hong Qigong tersenyum, "Jadi Jiu Yin Zhen Jing benar-benar pedoman yang luar biasa, tidak heran banyak pendekar dan pejuang 
+bersedia mempertaruhkan hidup mereka untuk itu."
 
-Huang Rong sangat senang, "Tuan, apakah menurut Anda kita bisa mengalahkan Racun Tua sekarang?" dia bertanya.
+Huang Rong sangat senang, "Shifu, menurutmu kita bisa mengalahkan Racun Tua sekarang?" tanyanya.
 
-Hong Qigong menggelengkan kepalanya, “Belum, kamu masih jauh dari itu,” jawabnya, “Kamu harus berlatih selama delapan sampai sepuluh tahun lagi. Posisi Kataknya bukanlah masalah kecil; tidak ada seni bela diri yang dapat mematahkannya kecuali Jari Soliter Yang milik Wang Chongyang.
+Hong Qigong menggelengkan kepalanya, "Belum, kalian masih jauh dari itu," jawabnya. "Kalian harus berlatih selama delapan 
+sampai sepuluh tahun lagi. Jurus Kodoknya bukan masalah kecil, tidak ada kungfu yang dapat mematahkannya kecuali 
+[Yi Yang Zhi](referensi-karakter.md#yi-yang-zhi "Totokan Satu Jari Yang") milik Wang Chongyang."
 
-Huang Rong cemberut dan berkata, "Maka meskipun kita berlatih selama delapan sampai sepuluh tahun lagi, kita mungkin masih belum bisa mengalahkannya."
+Huang Rong cemberut dan berkata, "Maka meskipun kita berlatih selama delapan sampai sepuluh tahun lagi, kita mungkin masih 
+belum bisa mengalahkannya."
 
-“Sulit dikatakan,” kata Hong Qigong, “Mungkin seni bela diri dalam buku itu lebih ganas dari yang saya kira.”
+"Sulit dikatakan," kata Hong Qigong, "Mungkin juga kungfu dalam buku itu jauh lebih dahsyat dari yang kukira."
 
-"Rong'er, harap bersabar," kata Guo Jing, "Tidak ada salahnya mempelajari keterampilan baru."
+"Rong'er, harap bersabar," kata Guo Jing, "Tidak ada salahnya mempelajari ilmu baru."
 
-Beberapa hari lagi berlalu dan Guo Jing dan Huang Rong menyelesaikan bagian kedua dari 'Mengubah Otot Menempa Tulang'. Rakit juga sudah siap. Mereka bertiga menganyam layar dari kulit pohon dan mereka juga menyiapkan air tawar dan makanan di atas rakit. Selama ini Ouyang Feng bertindak acuh tak acuh terhadap apa yang mereka lakukan; dia hanya melihat aktivitas mereka dengan tatapan dingin.
+Beberapa hari lagi berlalu, Guo Jing dan Huang Rong menyelesaikan bagian kedua dari Mengubah Otot Menempa Tulang. Rakit juga 
+sudah siap. Mereka bertiga menganyam layar dari kulit pohon dan mereka juga menyiapkan air tawar dan makanan di atas rakit. 
+Selama ini Ouyang Feng bertindak acuh tak acuh terhadap apa yang mereka lakukan, ia hanya melihat aktivitas mereka dengan 
+tatapan dingin.
 
-**Last line was 290 in the draft**
+Suatu malam semuanya sudah siap, mereka berencana untuk berlayar keesokan harinya. Tepat sebelum tidur malam itu, Huang Rong 
+bertanya, "Apa kita harus berpamitan kepada mereka?"
+
+"Tidak hanya itu, kita harus membuat perjanjian sepuluh tahun dengan mereka," jawab Guo Jing. "Mereka menindas kita dengan 
+buruk, masa kita bisa melupakannya begitu saja?"
+
+Huang Rong bertepuk tangan dan berkata, "Tentu saja! Aku berdoa supaya Surga memberkati kedua pencuri itu, sehingga mereka 
+dapat kembali ke daratan, dan juga memberi Racun Tua itu hidup sepuluh tahun lagi, atau mungkin memulihkan kungfu Shifu 
+secepatnya, sehingga dalam satu atau dua tahun kita bisa memburunya. Itu akan lebih baik."
+
+Keesokan harinya sebelum fajar menyingsing, Hong Qigong terbangun, ia samar-samar mendengar suara dari pantai. Ia dengan 
+cepat memanggil, "Jing'er, kau mendengar suara itu dari pantai?"
+
+Guo Jing segera bangkit dan melompat turun dari pohon. Begitu ia melihat apa yang terjadi di pantai, ia tidak bisa berhenti 
+mengutuk, ia segera bergegas maju mengejar. Pada saat ini Huang Rong juga terbangun dan berlari mengejarnya sambil berseru, 
+"Jing ge ge, ada apa?"
+
+Guo Jing berteriak dari kejauhan, "Para pencuri jahat itu mencuri rakit kita." Mendengar ini, Huang Rong kaget.
+
+Pada saat mereka sampai di pantai, Ouyang Feng telah membawa keponakannya ke rakit, mengangkat layar dan sudah beberapa 
+[zhang](referensi-unit.md#satuan-zhang "1 zhang = 3,3m atau 11 kaki") dari daratan. Guo Jing sangat marah dan hendak 
+melompat ke laut untuk mengejar, tetapi Huang Rong menarik lengan bajunya dan berkata, "Mereka sudah terlalu jauh."
+
+Ouyang Feng tertawa terbahak-bahak, "Terima kasih banyak untuk rakitnya!" teriaknya.
+
+Menghentakkan kakinya dengan amarah, Guo Jing dengan marah menendang pohon cendana merah di dekatnya. Huang Rong tiba-tiba 
+mendapat ide, "Aku mengerti!" serunya. Ia mengambil sebuah batu besar dan meletakkannya di dahan pohon. Ia ingin menggunakan 
+pohon itu sebagai ketapel. "Tarik pohon ini," katanya, "dan kita akan melempar batunya."
+
+Guo Jing sangat senang. Ia menguatkan kakinya di pangkal pohon dan menarik batangnya ke belakang dengan sekuat tenaga. Pohon 
+cendana itu kuat tetapi lentur, melengkung hampir sepenuhnya ke tanah tetapi tidak patah. Guo Jing melepaskannya dan dengan 
+suara mendesing, batu besar itu terbang ke laut dan jatuh di dekat sisi rakit, menciptakan percikan besar yang sangat tinggi.
+
+"Sayang sekali!" seru Huang Rong. Ia mengambil batu lain, membidik dengan hati-hati dan melepaskannya. Kali ini batu 
+menghantam rakit dengan telak, tetapi konstruksi rakit itu terlalu bagus dan tidak hancur. Keduanya meluncurkan tiga batu 
+lagi, tetapi semuanya jatuh ke air.
+
+Melihat semua batu mereka meleset dari target, Huang Rong punya ide gila. "Cepat, gunakan aku sebagai batu!" serunya. Guo 
+Jing terkejut, tidak jelas apa maksudnya. Huang Rong menjelaskan, "Lemparkan aku ke laut, Aku akan berurusan dengan mereka."
+
+Guo Jing tahu ia perenang yang baik, ilmu meringankan tubuhnya juga sangat baik, ia tidak melihat bahaya dalam hal itu. 
+Ia mengambil pisaunya dan meletakkannya di tangannya. "Hati-hati," katanya. Ia menarik pohon itu sekali lagi. Huang Rong 
+duduk dengan mantap di dahan dan berseru, "Lepas!"
+
+Guo Jing melepaskan cengkeramannya dan tubuh Huang Rong terbang ke udara. Ia jungkir balik dua kali di udara dan terjun ke 
+air beberapa zhang dari rakit. Itu adalah pemandangan yang indah untuk dilihat. Ouyang Feng dan keponakannya terpesona dan 
+mereka tidak tahu apa yang akan dilakukannya.
+
+Huang Rong menyelam jauh ke dalam air. Ia tidak muncul, tetapi malah berenang di bawah air menuju ke rakit. Begitu ia 
+melihat bayangan hitam di atas kepala, ia tahu ia telah tiba di dasar rakit. Ouyang Feng secara acak memukul air dengan 
+dayung, tetapi ia tidak bisa memukulnya.
+
+Huang Rong mengangkat belati, siap untuk memutuskan tali yang mengikat rakit kayu, lalu tiba-tiba muncul ide cemerlang 
+di benaknya. Ia mengurangi tenaga tangannya hanya untuk memotong sebagian tali, meninggalkan sepertiga utuh, dengan cara itu 
+rakit tidak akan rusak sampai gelombang besar laut lepas menghantamnya. Ia berbalik dan berenang pergi, muncul di permukaan 
+sekitar selusin zhang jauhnya, ia terengah-engah, berpura-pura tidak bisa menangkap rakit. Ouyang Feng tertawa terbahak-bahak 
+dan mengangkat layarnya. Tidak lama kemudian rakit sudah jauh.
+
+Sambil menunggu ia tiba kembali di pantai, Hong Qigong dan Guo Jing terus mengutuk, tapi kemudian mereka melihat ekspresi 
+sombong Huang Rong dan bingung. Setelah mendengar apa yang terjadi, mereka sangat senang. "Meskipun sudah kita mengirim kedua 
+orang jahat itu ke dasar laut, kita harus mulai bekerja lagi," kata Huang Rong.
+
+Ketiganya makan dengan semangat tinggi, kemudian mereka memotong kayu dan membuat rakit lagi. Beberapa hari kemudian mereka 
+sudah siap, dan ketika angin tenggara bertiup, mereka mengangkat layar kulit pohon dan meninggalkan pulau menuju ke barat. 
+Huang Rong menatap ke arah pulau yang semakin kecil, ia menghela nafas dan berkata, "Nyawa kita hampir hilang di pulau itu, 
+tapi meninggalkannya hari ini, hatiku jadi sedih."
+
+"Kita selalu bisa mengunjungi pulau itu lagi kapan-kapan," kata Guo Jing.
+
+Huang Rong bertepuk tangan dan berkata, "Bagus! Kita harus kembali. Kalau waktunya tiba, kau tidak bisa menarik kembali 
+ucapanmu. Tapi pertama-tama, mari beri nama yang bagus untuk pulau kecil ini. Guru, bagaimana menurutmu?"
+
+"Kamu menghancurkan kaki bajingan kecil itu dengan batu besar di pulau itu," kata Hong Qigong. "Mari kita sebut Pulau 
+Penghancur Hantu[^ya-gui-dao]. Bagaimana?"
+
+[^ya-gui-dao]: Pulau Penghancur Hantu = Ya Gui Dao ().
+
+Huang Rong menggelengkan kepalanya. "Itu tidak terlalu elegan."
+
+"Jika kau ingin keanggunan, mengapa tanya kepada Pengemis Tua?" kata Hong Qigong sambil tertawa. "Kalau kau tanya, karena 
+Racun Tua _makan_ kencingku di pulau itu, aku akan menyebutnya Pulau Makan Kencing[^chi-sui-dao]."
+
+[^chi-sui-dao]: Makan adalah Chi (吃), sedangkan 'kencing' atau air seni sebenarnya adalah 'niao' (尿), dan pulau tentunya adalah Dao (岛). Tetapi terjemahan bahasa Inggris oleh fans menyebutnya 'chi sui dao', yang gagal saya pahami, kecuali kalau karakter kedua adalah Shui (水), yang berarti 'air', tetapi ini tidak berarti air seni.
+
+Huang Rong tersenyum dengan gerakan tangan negatif, ia menyandarkan kepalanya ke satu sisi untuk berpikir. Ia melihat 
+sekelompok awan merah di cakrawala, seperti sekelompok permata yang melayang dengan megahnya di atas pulau. "Sebut saja 
+Pulau Awan Merah Terang[^ming-xia-dao]!" serunya.
+
+"Tidak bagus, tidak bagus!" balas Hong Qigong. "Itu terlalu elegan."
+
+Guo Jing mendengarkan guru dan murid itu berdebat, ia tersenyum dan tidak mengatakan apa-apa. Ia tidak peduli apakah pulau 
+itu punya nama yang elegan atau yang vulgar, tetapi jauh di lubuk hatinya ia berpikir 'ya gui' atau 'chi sui' lebih menarik 
+daripada 'ming xia'.
+
+[^ming-xia-dao]: Sekali lagi, terjemahan bahasa Inggris menyebutkan Ming Xia Dao, tetapi saya tidak menemukan karakter Xia yang sesuai untuk konteks ini, kecuali kalau yang dimaksud adalah Xiao (霄), yang bisa bermakna 'langit/awan/Surga'. Dengan demikian Ming Xiao Dao 明霄岛, artinya adalah Pulau Langit Cerah.
+
+Dibawa oleh angin yang bertiup, mereka berlayar selama dua hari dan angin tidak mengubah arahnya. Menjelang malam hari ketiga 
+Hong Qigong dan Huang Rong tertidur, sementara Guo Jing menjaga kemudi untuk malam itu. Di tengah angin laut dan ombak yang 
+bergulung tiba-tiba, ia mendengar seseorang berteriak, "Tolong, tolong!" dua kali. Suara itu terdengar seperti simbal yang 
+beradu dan terdengar jelas di tengah hembusan angin dan ombak.
+
+Hong Qigong duduk dan berkata dengan suara rendah, "Itu Racun Tua." Mereka mendengar teriakan itu sekali lagi, dan Huang Rong 
+meraih lengan Hong Qigong, "Itu hantu... itu hantu!" katanya dengan suara gemetar. Saat itu akhir bulan keenam dan malam 
+gelap tanpa bulan, hanya ada beberapa bintang yang tersebar berjauhan di malam yang gelap. Lautnya gelap gulita dan teriakan 
+di tengah malam akan membuat siapa saja ketakutan.
+
+"Apa itu Lao Du?" seru Hong Qigong. Tenaga dalamnya hilang, jadi suaranya tidak terdengar terlalu jauh. Guo Jing mengumpulkan 
+qi di dan tian, dan berseru, "Apa itu Paman Ouyang?"
+
+Dari kejauhan mereka mendengar Ouyang Feng menjawab, "Ini aku, Ouyang Feng. Tolong!"
+
+Huang Rong masih ketakutan, "Entah orang atau hantu, ayocepat kita pergi, cepat!"
+
+“Bantu dia,” Hong Qigong tiba-tiba berkata.
+
+"Tidak tidak!" Huang Rong dengan cepat menjawab, "Saya takut."
+
+“Itu bukan hantu,” kata Hong Qigong.
+
+“Bahkan jika itu laki-laki, kita tetap tidak perlu membantu,” kata Huang Rong.
+
+“Membantu orang lain dalam kesulitan adalah salah satu aturan Klan Pengemis kami,” kata Hong Qigong, “Kamu dan aku adalah dua generasi Pemimpin Klan; kita tidak bisa meninggalkan kebiasaan terhormat yang diwariskan dari para pemimpin generasi sebelumnya.”
+
+“Kebiasaan Klan Pengemis tidak benar,” bantah Huang Rong, “Ouyang Feng jelas bajingan; ketika dia menjadi hantu, dia akan menjadi hantu bajingan. Tidak masalah apakah itu laki-laki atau hantu, kita tidak boleh membantu.”
+
+“Itu adalah peraturan Klan; kami tidak dapat mengubahnya, ”kata Hong Qigong.
+
+Dalam hatinya Huang Rong sangat marah. Mereka mendengar suara Ouyang Feng di kejauhan lagi, "Kakak Qi [Qi Xiong], apakah kamu benar-benar 'melihat kematian, tetapi tidak membantu' [jian si bu jiu]?"
+
+Huang Rong berkata, “Saya mengerti! Jing ge ge, tunggu sampai kamu bisa melihat Ouyang Feng dengan jelas, lalu serang dia sampai mati dengan tongkatmu. Anda bukan anggota Klan Pengemis; Anda tidak harus mematuhi aturan yang tidak masuk akal ini.
+
+Hong Qigong marah, "Apakah mengambil keuntungan dari kondisi genting orang lain adalah cara pejuang yang saleh?"
+
+Huang Rong tidak punya pilihan. Dia menyaksikan tanpa daya saat Guo Jing mengarahkan rakit ke arah suara itu. Dalam kegelapan malam yang pekat, mereka samar-samar melihat dua pria di dalam air yang diguncang ombak; di sebelah kepala mereka ada batang kayu. Tampaknya setelah rakit mereka putus, Ouyang Feng dan keponakannya berpegangan pada batang kayu sampai sekarang.
+
+
+**Last line was 374 in the draft**
 
