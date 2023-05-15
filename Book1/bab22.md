@@ -450,17 +450,42 @@ itu. Kupikir itu sangat menarik. Karena kita tidak punya hal lain untuk dilakuka
 Kata-kata ini diucapkan secara sambil lalu, tapi Huang Rong menyadari situasi darurat. Apa yang dikatakan guru mereka sangat 
 masuk akal, oleh karena itu ia berkata, "Baiklah, Shifu, tolong ajari kami."
 
-Hong Qigong meminta Guo Jing untuk melafalkan 'Mengubah Tulang Penempaan Otot' dua kali, lalu, berdasarkan itu, dia mengajari keduanya cara mempraktikkannya. Dia pergi berburu dan memancing sendiri serta menyalakan api dan memasak makanan mereka. Beberapa kali Guo Jing dan Huang Rong menawarkan bantuan, tetapi dia selalu mengusir mereka.
+Hong Qigong meminta Guo Jing untuk melafalkan Mengubah Otot Menempa Tulang dua kali, lalu berdasarkan itu ia mengajari 
+keduanya cara mempraktikkannya. Ia pergi berburu dan memancing sendiri serta menyalakan api dan memasak makanan mereka. 
+Beberapa kali Guo Jing dan Huang Rong menawarkan bantuan, tetapi ia selalu mengusir mereka.
 
-Tujuh hari berlalu dengan cepat dan Guo Jing dan Huang Rong membuat beberapa kemajuan dalam hal kultivasi energi mereka. Di dalam guanya, Ouyang Feng juga dengan susah payah mempelajari buku panduannya dan berusaha keras untuk melakukannya. Menjelang malam hari kedelapan Hong Qigong tersenyum dan berkata, "Rong'er ... bagaimana kambing liar panggang tuanmu?"
+Tujuh hari berlalu dengan cepat. Tenaga dalam Guo Jing dan Huang Rong mengalami banyak kemajuan. Di dalam guanya, Ouyang Feng 
+juga dengan susah payah mempelajari buku panduannya, dan berusaha keras untuk memahaminya. Menjelang malam hari kedelapan 
+Hong Qigong tersenyum dan berkata, "Rong'er... bagaimana kambing liar panggang gurumu?"
 
-Huang Rong tersenyum tetapi tidak mengatakan apa-apa, dia hanya menggelengkan kepalanya. Hong Qigong tertawa, “Saya juga tidak bisa memakannya sendiri. Kalian berdua telah menyelesaikan bagian pertama dari pelajaran kalian; hari ini Anda harus mengistirahatkan otot dan tulang Anda, jika tidak 'qi' Anda akan terhambat dan Anda akan mengalami cedera. Ok Rong'er, Anda menyiapkan makanan kami malam ini; Jing'er dan aku akan pergi dan membuat rakit."
+Huang Rong tersenyum tetapi tidak mengatakan apa-apa, ia hanya menggelengkan kepalanya. Hong Qigong tertawa, "Aku juga 
+tidak bisa memakannya sendiri. Kalian berdua sudah menyelesaikan bagian pertama dari pelajaran kalian, hari ini kalian harus 
+mengistirahatkan otot dan tulang kalian, kalau tidak 'qi' kalian akan terhambat, dan kalian bisa cedera. Baiklah, Rong'er, 
+kau menyiapkan makanan kita malam ini, Jing'er dan aku akan pergi dan membuat rakit."
 
 Guo Jing dan Huang Rong terheran-heran, "Membuat rakit?"
 
-“Itu benar,” kata Hong Qigong, “Apakah kamu ingin tinggal bersama Racun Tua di pulau terpencil ini selamanya?”
+"Benar," kata Hong Qigong. "Masa kau ingin tinggal bersama Racun Tua di pulau terpencil ini selamanya?"
 
-Guo Jing dan Huang Rong sangat senang; mereka berdua menyuarakan persetujuan mereka dan segera mulai bekerja.
+Guo Jing dan Huang Rong sangat senang, mereka berdua menyuarakan persetujuan mereka dan segera mulai bekerja.
 
-**Last line was 272 in the draft**
+Seratus batang kayu yang ditebang Guo Jing ditumpuk rapi di satu sisi. Mereka memotong kulit pohon, menganyamnya menjadi tali dan mengikat batang kayu menjadi satu untuk membuat rakit. Ketika Guo Jing menggunakan kekuatannya untuk menarik tali itu, tali itu putus. Dia pikir tali itu tidak dibuat cukup kuat. Dia mencoba menarik tali lain, tetapi begitu dia mengerahkan sedikit kekuatan, tali itu juga mudah putus. Guo Jing bingung; dia menatap kosong ke tali dan tidak tahu harus berbuat apa.
+
+Dari sisi lain bukit Huang Rong berlari sambil berteriak dengan seekor kambing liar di tangannya. Saat pergi berburu kambing, dia membawa beberapa kerikil untuk menggiring kambing; siapa sangka hanya dengan beberapa lompatan dia sudah menyusul kambing itu. Dia memutar dan meraih kambing liar. Gerakan tubuhnya sangat cepat sehingga dia bahkan mengejutkan dirinya sendiri.
+
+Hong Qigong tersenyum, “Jadi ‘Pedoman Sembilan Yin’ benar-benar merupakan pedoman yang luar biasa; tidak heran banyak pahlawan dan pejuang bersedia mempertaruhkan hidup mereka untuk itu. ”
+
+Huang Rong sangat senang, "Tuan, apakah menurut Anda kita bisa mengalahkan Racun Tua sekarang?" dia bertanya.
+
+Hong Qigong menggelengkan kepalanya, “Belum, kamu masih jauh dari itu,” jawabnya, “Kamu harus berlatih selama delapan sampai sepuluh tahun lagi. Posisi Kataknya bukanlah masalah kecil; tidak ada seni bela diri yang dapat mematahkannya kecuali Jari Soliter Yang milik Wang Chongyang.
+
+Huang Rong cemberut dan berkata, "Maka meskipun kita berlatih selama delapan sampai sepuluh tahun lagi, kita mungkin masih belum bisa mengalahkannya."
+
+“Sulit dikatakan,” kata Hong Qigong, “Mungkin seni bela diri dalam buku itu lebih ganas dari yang saya kira.”
+
+"Rong'er, harap bersabar," kata Guo Jing, "Tidak ada salahnya mempelajari keterampilan baru."
+
+Beberapa hari lagi berlalu dan Guo Jing dan Huang Rong menyelesaikan bagian kedua dari 'Mengubah Otot Menempa Tulang'. Rakit juga sudah siap. Mereka bertiga menganyam layar dari kulit pohon dan mereka juga menyiapkan air tawar dan makanan di atas rakit. Selama ini Ouyang Feng bertindak acuh tak acuh terhadap apa yang mereka lakukan; dia hanya melihat aktivitas mereka dengan tatapan dingin.
+
+**Last line was 290 in the draft**
 
