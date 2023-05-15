@@ -820,7 +820,7 @@ yaitu 'jika kosong'. Sedangkan You shi zhi yong bisa kita artikan "Ada 'shi' yan
 Secara keseluruhan artinya adalah "Membangun rumah membentuk ruang, jika kosong, maka ada ruang yang bisa dipakai".
 
 Zhou Botong menyederhanakan, dan sekaligus memaknai kutipan ini menjadi "Rumah Kosong Dihuni Orang". Tepatnya adalah,
-_justru ruang kosong itulah yang bermanfaat_, alias _bisa digunakan.
+_justru ruang kosong itulah yang bermanfaat_, alias _bisa_ digunakan.
 
 
 ### <a name="shuang-shou-hubo" id="shuang-shou-hubo">Shuang Shou Hu Bo (simplified: 双手互搏, traditional: 雙手互搏)</a>

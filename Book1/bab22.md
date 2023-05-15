@@ -305,7 +305,7 @@ terlalu jelas. Dizi akan memainkannya supaya Shifu bisa lihat, tolong beritahu a
 yang sangat bagus, aku tidak perlu melihatnya untuk memahaminya."
 
 Guo Jing menjelaskan dari jurus pertama, 
-[Mangkuk Kosong Diisi Nasi](referensi-karakter.md#kong-wan-chen-fan "kong wan cheng fan (空碗盛饭)"), hingga jurus kedua, 
+[Mangkuk Kosong Diisi Nasi](referensi-karakter.md#kong-wan-cheng-fan "kong wan cheng fan (空碗盛饭)"), hingga jurus kedua, 
 [Rumah Kosong Dihuni Orang](referensi-karakter.md#kong-wu-zhu-ren "kong wu zhu ren (空屋主人)"), dan semua variasi 
 didalamnya, termasuk cara mengirim keluar kekuatan, ke Hong Qigong.
 
