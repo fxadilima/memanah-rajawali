@@ -565,7 +565,11 @@ Kalau sebuah cerita silat menyinggung soal Dan Tian, umumnya yang dimaksud adala
 
 ### <a name="laozi" id="laozi">Lao Zi (老子)</a>
 
-Laozi adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi menulis Tao Te Ching sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah Barat.
+Laozi adalah seorang filsuf legendaris dari Tiongkok yang dilahirkan sekitar abad ke-6 sebelum masehi. Tak ada catatan 
+lengkap mengenai kelahirannya. Ia pernah melayani di bagian arsip Kerajaan Zhou, di Wangcheng, yang di era lebih modern akan 
+menjadi Luoyang. Ia pernah bertemu, dan membuat Konfusius sangat terkesan pada perjumpaan pertama. Menurut tradisi, Laozi 
+menulis Dao De Jing, atau Tao Te Ching, sebelum mengundurkan diri dan menghilang untuk hidup bebas di alam liar, di wilayah 
+Barat.
 
 
 ### <a name="bi-hai-chao-sheng-qu" id="bi-hai-chao-sheng-qu">Bi Hai Chao Sheng Qu (碧海潮生曲)</a>
@@ -773,6 +777,50 @@ Memang terdengar (dan terbaca) agak aneh, tetapi itulah makna sebenarnya. Ilmu t
 ajaran Tao di dalam Kitab Dao De Jing, ayat ke-11, yang menceritakan tentang 'Kekosongan', itulah sebabnya nama 'Kong'
 tetap dipakai. Jadi bukan seperti kesan yang kita dapat ketika membaca tulisan 'Tinju Kosong' atau 'Jurus Kosong'. Tidak
 begitu jelas mengapa harus ditambahkan karakter Ming di situ.
+
+> 埏埴以为器，当其无，有器之用。
+> 凿户牖以为室，当其无，有室之用。
+
+Kedua baris di atas berbunyi sebagai berikut:
+
+```
+Shān zhí yǐwéi qì, dāng qí wú, yǒu qì zhī yòng.
+Záo hùyǒu yǐwéi shì, dāng qí wú, yǒu shì zhī yòng.
+```
+
+Dalam Bab 22, Guo Jing menjabarkan sebagian isi Tinju Kosong itu kepada Hong Qigong, dan ada serangkaian kalimat yang
+mengandung 16 karakter ajaran Zhou Botong, dengan tujuan supaya Guo Jing lebih mudah memahami maknanya. Ia mengatakan bahwa
+keenam belas karakter tersebut punya maknanya sendiri-sendiri, karema itu kita juga harus memahaminya dari sudut pandang
+tersebut.
+
+song 松 = longgar/loose
+dong 动 = bergerak/beraksi/tertindak/menyentuh/mengaduk
+chong 虫 = cacing
+menglong 朦胧 = kabur/blur
+
+
+#### <a name="kong-wan-cheng-fan" id="kong-wan-cheng-fan">Kong Wan Cheng Fan (空碗盛饭)</a>
+
+Ini sebetulnya adalah kutipan dari Dao De Jing baris ke-11 di atas, yaitu Shan zhi yiwei qi, dang qi wu, 
+you qi zhi yong (埏埴以为器，当其无，有器之用). Barangkali agak mengherankan, karakter Shan (埏) berdiri sendiri
+ternyata berarti 'Mencampur air dengan tanah liat'. Bagian pertama dari tiga frase di atas sama sekali tidak 
+mengandung kata yang bisa diartikan secara spesifik sebagai 'mangkuk' atau 'pot', tetapi hanya 'alat'. Campuran air
+dan tanah liat adalah bahan untuk membuat perabot tembikar atau porselen. Frase kedua berarti 'jika kosong'. Sedangkan
+frase terakhir You qi zhi yong (有器之用) artinya adalah 'bisa digunakan'.
+
+Kong Wan Cheng Fan bermakna 'Mangkuk untuk mengisi nasi'. Zhou Botong mengambil prinsip dari kutipan di atas,
+yaitu 'Campurkan air dengan tanah untuk membuat mangkuk'. Mangkuk bagian tengahnya kosong, dan _justru_ bagian _kosong_
+itulah yang berguna, karena dengan kekosongannya kita bisa memakainya untuk menampung nasi.
+
+#### <a name="kong-wu-zhu-ren" id="kong-wu-zhu-ren">Kong Wu Zhu Ren (空屋主人)</a>
+
+Masih baris ke-11 dari Dao De Jing, yaitu Zao huyou yiwei shi, dang qi wu, you shì zhi yong (凿户牖以为室，当其无，有室之用).
+Frase pertama bisa kita terjemahkan secara bebas menjadi 'Membangun rumah membuat ruang'. Frase kedua masih sama,
+yaitu 'jika kosong'. Sedangkan You shi zhi yong bisa kita artikan "Ada 'shi' yang bisa dipakai". Shi (室) adalah ruang.
+Secara keseluruhan artinya adalah "Membangun rumah membentuk ruang, jika kosong, maka ada ruang yang bisa dipakai".
+
+Zhou Botong menyederhanakan, dan sekaligus memaknai kutipan ini menjadi "Rumah Kosong Dihuni Orang". Tepatnya adalah,
+_justru ruang kosong itulah yang bermanfaat_, alias _bisa digunakan.
 
 
 ### <a name="shuang-shou-hubo" id="shuang-shou-hubo">Shuang Shou Hu Bo (simplified: 双手互搏, traditional: 雙手互搏)</a>

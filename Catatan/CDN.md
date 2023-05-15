@@ -84,6 +84,8 @@ cloudinary.imageTag('sdyxz/originals/loch-03_pk9ptl.jpg', {effect: "hue:30"}).to
 
 ### Ending Dari Trilogi
 
+Dari Yi Tian Du Long Ji (倚天屠龙记) versi 2019.
+
 [Ending To Liong To](https://youtube.com/clip/UgkxZbrKYhxLeTZV8ktJTEDdHsl9ZIrt0q1Z)
 
 

@@ -1,4 +1,4 @@
-### <a name="dao-de-jing" id="dao-de-jing">Dao De Jing (道德经)</a>
+# <a name="dao-de-jing" id="dao-de-jing">Dao De Jing (道德经)</a>
 
 Kitab yang berasal dari era sekitar 400 tahun Sebelum Masehi ini adalah panduan klasik bagi penganut Taoisme,
 yang secara tradisional dianggap ditulis oleh [Laozi](#laozi), Orang Bijak di jaman Dinasti Zhou yang selalu
