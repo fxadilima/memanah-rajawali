@@ -1071,4 +1071,8 @@ Kaisar Selatan, yaitu Kaisar Duan Zhixing, yang akhirnya menjadi Biksu dengan ge
 Ilmu ini akhirnya juga dikuasai oleh Pendeta Wang Chongyang setelah Duan Zhixing mengajarkannya.
 
 
+### <a name="jian-si-bu-jiu" id="jian-si-bu-jiu">Jian Si Bu Jiu (见死不救)</a>
+
+Ini adalah pepatah kuno Tiongkok yang berarti 'Mengabaikan orang yang sedang dalam bahaya'.
+
 

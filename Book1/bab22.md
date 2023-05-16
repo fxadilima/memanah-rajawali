@@ -613,30 +613,145 @@ qi di dan tian, dan berseru, "Apa itu Paman Ouyang?"
 
 Dari kejauhan mereka mendengar Ouyang Feng menjawab, "Ini aku, Ouyang Feng. Tolong!"
 
-Huang Rong masih ketakutan, "Entah orang atau hantu, ayocepat kita pergi, cepat!"
+Huang Rong masih ketakutan, "Entah orang atau hantu, ayo cepat kita pergi, cepat!"
 
-“Bantu dia,” Hong Qigong tiba-tiba berkata.
+"Bantu dia," kata Hong Qigong tiba-tiba.
 
-"Tidak tidak!" Huang Rong dengan cepat menjawab, "Saya takut."
+"Tidak, tidak!" jawab Huang Rong dengan cepat. "Dizi takut."
 
-“Itu bukan hantu,” kata Hong Qigong.
+"Itu bukan hantu," kata Hong Qigong.
 
-“Bahkan jika itu laki-laki, kita tetap tidak perlu membantu,” kata Huang Rong.
+"Kalaupun itu orang, kita tetap tidak perlu membantu," kata Huang Rong.
 
-“Membantu orang lain dalam kesulitan adalah salah satu aturan Klan Pengemis kami,” kata Hong Qigong, “Kamu dan aku adalah dua generasi Pemimpin Klan; kita tidak bisa meninggalkan kebiasaan terhormat yang diwariskan dari para pemimpin generasi sebelumnya.”
+"Membantu orang lain dalam kesulitan adalah salah satu aturan Kai Pang kita," kata Hong Qigong, "Kau dan aku adalah dua 
+generasi Ketua Kai Pang, kita tidak bisa meninggalkan kebiasaan terhormat yang diwariskan dari para pemimpin generasi 
+sebelumnya."
 
-“Kebiasaan Klan Pengemis tidak benar,” bantah Huang Rong, “Ouyang Feng jelas bajingan; ketika dia menjadi hantu, dia akan menjadi hantu bajingan. Tidak masalah apakah itu laki-laki atau hantu, kita tidak boleh membantu.”
+"Kebiasaan Kai Pang tidak benar," bantah Huang Rong. "Ouyang Feng jelas bajingan, waktu dia menjadi hantu, dia akan jadi 
+hantu bajingan. Tidak masalah itu orang atau hantu, kita tidak boleh membantu."
 
-“Itu adalah peraturan Klan; kami tidak dapat mengubahnya, ”kata Hong Qigong.
+"Itu adalah peraturan Kai Pang, kita tidak boleh mengubahnya!" tegas Hong Qigong.
 
-Dalam hatinya Huang Rong sangat marah. Mereka mendengar suara Ouyang Feng di kejauhan lagi, "Kakak Qi [Qi Xiong], apakah kamu benar-benar 'melihat kematian, tetapi tidak membantu' [jian si bu jiu]?"
+Dalam hatinya Huang Rong sangat marah. Mereka mendengar suara Ouyang Feng di kejauhan lagi, "Qi Xiong, kau benar-benar 
+[jian si bu jiu](referensi-karakter.md#jian-si-bu-jiu "Melihat orang mau mati, tetapi tidak membantu.")?"
 
-Huang Rong berkata, “Saya mengerti! Jing ge ge, tunggu sampai kamu bisa melihat Ouyang Feng dengan jelas, lalu serang dia sampai mati dengan tongkatmu. Anda bukan anggota Klan Pengemis; Anda tidak harus mematuhi aturan yang tidak masuk akal ini.
+Huang Rong berkata, "Aku mengerti! Jing Gege, tunggu sampai kau bisa melihat Ouyang Feng dengan jelas, lalu serang dia 
+sampai mati dengan tongkatmu. Kau bukan anggota Kai Pang, kau tidak harus mematuhi aturan yang tidak masuk akal ini."
 
-Hong Qigong marah, "Apakah mengambil keuntungan dari kondisi genting orang lain adalah cara pejuang yang saleh?"
+Hong Qigong marah, "Kau kira _mengambil keuntungan dari kondisi genting orang lain_ itu cara pendekar yang benar?"
 
-Huang Rong tidak punya pilihan. Dia menyaksikan tanpa daya saat Guo Jing mengarahkan rakit ke arah suara itu. Dalam kegelapan malam yang pekat, mereka samar-samar melihat dua pria di dalam air yang diguncang ombak; di sebelah kepala mereka ada batang kayu. Tampaknya setelah rakit mereka putus, Ouyang Feng dan keponakannya berpegangan pada batang kayu sampai sekarang.
+Huang Rong tidak punya pilihan. Ia menyaksikan tanpa daya saat Guo Jing mengarahkan rakit ke arah suara itu. Dalam kegelapan 
+malam yang pekat, mereka samar-samar melihat dua orang di dalam air yang diguncang ombak, di sebelah kepala mereka ada batang 
+kayu. Tampaknya setelah rakit mereka hancur, Ouyang Feng dan keponakannya berpegangan pada batang kayu itu sampai sekarang.
 
+"Biar dia bersumpah dulu untuk tidak menyakiti orang lain, maka kita akan menyelamatkannya," kata Huang Rong.
 
-**Last line was 374 in the draft**
+Hong Qigong menghela nafas, "Kau tidak tahu karakter Racun Tua, dia lebih baik mati daripada menyerah. Dia tidak akan 
+membuat janji seperti itu. Jing'er, selamatkan mereka."
+
+Guo Jing membungkuk dan meraih kerah Ouyang Ke dan mengangkatnya ke atas rakit. Hong Qigong sangat ingin membantu dan ia 
+lupa kungfunya hilang. Ia mengulurkan tangannya dan Ouyang Feng mengambilnya. Ia ingin meminjam kekuatan dan melompat ke 
+rakit, tetapi karena tarikannya Hong Qigong tiba-tiba jatuh ke laut dengan cipratan air yang keras. Guo Jing dan Huang Rong 
+terkejut, mereka segera melompat ke laut dan menyelamatkan Hong Qigong. Huang Rong dengan sengir memarahi Ouyang Feng, 
+"Guruku baik hati dan ingin menyelamatkanmu, bagaimana kau bisa menyeretnya ke laut seperti itu?"
+
+Ouyang Feng sekarang tahu Hong Qigong telah kehilangan kungfunya, kalau tidak, bagaimana tarikannya yang sederhana bisa 
+membuat seorang ahli silat jatuh ke laut? Tapi ia telah tenggelam di dalam air selama beberapa hari, dan sangat lelah. 
+Ia tidak berani melihat mereka, ia menundukkan kepalanya dan berkata, "Aku... aku tidak bermaksud begitu. Qi Xiong, tolong 
+jangan salahkan saudaramu."
+
+Hong Qigong tertawa terbahak-bahak, "Omonganmu enak didengar. Tapi sekarang kungfu Pengemis Tua yang sebenarnya sudah 
+kau ketahui," katanya.
+
+"Nona yang baik," kata Ouyang Feng. "Kau masih punya makanan untuk kami? Kami belum makan beberapa hari."
+
+Huang Rong menjawab, "Kami hanya punya sedikit makanan dan air yang cukup untuk tiga orang. Aku bisa memberimu sedikit, 
+tapi kami makan apa?"
+
+"Baiklah," kata Ouyang Feng. "Tolong beri sedikit makanan untuk keponakanku kalau begitu, kakinya terluka parah dan dia 
+tidak akan bertahan hidup tanpa makanan."
+
+"Kalau begitu mari kita buat kesepakatan," kata Huang Rong. "Ular berbisamu melukai guruku, dia belum pulih. Beri dia 
+penawarnya."
+
+Ouyang Feng merogoh sakunya dan mengeluarkan dua botol, menyerahkannya kepada Huang Rong dan berkata, "Nona, tolong lihat, 
+botolnya terendam air dan penawarnya hilang!"
+
+Huang Rong mengambil botol-botol itu, mengocoknya, dan mengendusnya. Botol itu benar-benar terisi air laut. "Kalau begitu, 
+beritahu kami ramuan untuk penawarnya, segera setelah kita sampai di darat, kita bisa menyiapkan sendiri."
+
+"Aku ingin menipumu, aku bisa memberitahu beberapa bahan dan kau tidak akan tahu apakah itu asli atau palsu, tapi bagaimana 
+bisa Ouyang Feng menjadi orang seperti itu?" Kemudian ia berkata, "Ijinkan aku mengatakan yang sebenarnya, ular-ularku adalah 
+yang paling beracun di dunia, tidak ada yang bisa menandingi sifat mematikan mereka. Kalau orang digigit, meskipun kau tidak 
+langsung mati karena kehebatan kungfumu, dalam waktu enam puluh empat hari setengah dari tubuhmu akan lumpuh dan kau akan 
+menjadi cacat selama sisa hidupmu. Aku tidak masalah memberimu ramuan penawarnya, tetapi tidak hanya ramuannya sulit 
+ditemukan, tetapi juga membutuhkan pemrosesan selama tiga musim dingin dan musim panas berturut-turut. Pada saat penawarnya 
+siap, aku kuatir itu akan sangat terlambat. Aku sudah mengatakan yang sebenarnya, kalau kau masih ingin mengambil nyawaku, 
+itu sepenuhnya terserah kau."
+
+Huang Rong dan Guo Jing mendengarkannya dan diam-diam mengaguminya, mereka berpikir, "Walaupun orang ini jahat dan kejam, 
+dalam masalah hidup dan mati dia tidak kehilangan kehormatannya sebagai guru besar dari perguruannya."
+
+"Rong'Er," kata Hong Qigong. "Dia mengatakan yang sebenarnya. Hidup mati seseorang ditentukan oleh takdir. Pengemis Tua tidak 
+perlu takut. Beri mereka sesuatu untuk dimakan."
+
+Dalam hati Huang Rong hancur dan ia tahu gurunya tidak akan pulih dari lukanya. Ia tanpa bicara mengambil kaki kambing liar 
+panggang dan melemparkannya ke arah Ouyang Feng. Ouyang Feng pertama-tama merobek daging untuk keponakannya sebelum ia 
+menggigit dan mengunyah dagingnya.
+
+Huang Rong berkata dengan dingin, "Paman Ouyang, kau telah melukai guruku, pada pertandingan kedua di Hua Shan kau akan 
+menjadi pemenang di antara para pendekar. Biarkan aku menjadi orang pertama yang memberi selamat kepadamu."
+
+"Itu belum tentu benar," jawab Ouyang Feng. "Setidaknya ada satu orang lagi di dunia luas ini yang dapat menyembuhkan luka 
+Qi Xiong."
+
+Guo Jing dan Huang Rong melompat kaget sehingga rakit itu miring ke satu sisi. Mereka berdua bertanya serempak, "Benarkah?"
+
+Sambil menggigit kaki kambing, Ouyang Feng berkata, "Tetapi sangat sulit untuk meminta bantuan orang ini. Gurumu juga tahu tentang itu."
+
+Mata keduanya beralih ke guru mereka. Hong Qigong tersenyum, "Kau tahu ini sulit... kenapa kau menyebutkannya?"
+
+Huang Rong menarik lengan baju gurunya, meminta penjelasan, "Guru, beritahu kami. Walaupun sulit, kita tetap harus berusaha. 
+Aku akan minta ayahku untuk membantu, pasti dia akan menemukan jalan." Ouyang Feng mendengus pelan. "Ada apa?" kata Huang 
+Rong. Ouyang Feng tidak menjawab.
+
+Hong Qigong berkata, "Dia menertawakanmu karena mengira ayahmu sangat kuat. Menemukan orang itu bukanlah masalah kecil, jadi 
+bagaimana ayahmu bisa meyakinkan orang itu untuk membantu?"
+
+Huang Rong heran, "Orang itu! Siapa orang itu?"
+
+Hong Qigong melanjutkan, "Tak usah bicara tentang kungfu tingkat tinggi orang itu. Kalaupun dia sangat lemah, sehingga tidak 
+bisa membunuh seekor ayam pun, Pengemis Tua tidak akan pernah menyakiti seseorang untuk menguntungkan diriku sendiri."
+
+Huang Rong dengan ragu berkata, "Kungfu tingkat tinggi? Ah! Aku tahu. Dia adalah Kaisar Selatan, Kaisar Duan. Shifu, ayo 
+kita minta dia untuk menyembuhkan lukamu, masa itu merugikan orang lain untuk menguntungkan dirimu sendiri?"
+
+"Tidurlah dan jangan tanya lagi! Aku melarangmu mengungkit masalah ini lagi. Paham?" kata Hong Qigong. Huang Rong tidak 
+berani mengatakan lebih banyak. Ia takut Ouyang Feng akan mencuri makanan mereka, jadi ia bersandar di keranjang makanan 
+dan tidur.
+
+Bangun pagi-pagi keesokan harinya, Huang Rong menatap Ouyang Feng dan keponakannya, ia melompat ketakutan karena kulit 
+mereka sangat pucat dan tubuh mereka bengkak karena berada di air laut beberapa hari terakhir ini.
+
+Rakit berlayar sampai kira-kira jam sembilan, ketika mereka melihat garis gelap di kejauhan. Ternyata daratan. Guo Jing 
+orang pertama yang melompat dan berteriak kegirangan. Dalam waktu yang dibutuhkan untuk makan semangkuk nasi mereka bisa 
+melihat lebih jelas, itu memang daratan. Laut tenang dan matahari bersinar terang, menghanguskan orang-orang ini dan membuat 
+mereka sengsara. Ouyang Feng tiba-tiba berdiri, ia mengulurkan tangannya dan meraih Guo Jing dan Huang Rong. Dengan ujung 
+kakinya ia juga menendang dan menotok titik akupuntur Hong Qigong.
+
+Keduanya terkejut dan titik akupuntur vital mereka disegel; setengah dari tubuh mereka langsung mati rasa. Terkejut mereka bertanya, "Apa yang kamu lakukan?" Ouyang Feng menyeringai jahat, tapi tidak mengatakan apapun.
+
+Hong Qigong menghela nafas, “Racun Tua sangat sombong; dia tidak mau menerima belas kasihan orang lain. Kami telah menyelamatkan hidupnya; jika dia tidak membunuh penyelamatnya, bagaimana hatinya bisa damai? Ay, saya hanya bisa menyalahkan hati saya yang baik hati karena telah menyelamatkan orang-orang ini di tengah malam dan melupakan fakta ini. Sekarang saya telah membahayakan nyawa kedua anak yang lelah ini.”
+
+“Kamu mengetahuinya dengan sangat baik,” kata Ouyang Feng, “Juga ‘Pedoman Sembilan Yin’ ada di tanganku; jika saya meninggalkan salinan di benak anak laki-laki bernama Guo ini, saya hanya akan mengundang kesialan yang tak terelakkan pada diri saya sendiri.
+
+Mendengar dia menyebutkan 'Panduan Sembilan Yin' hati Hong Qigong tergerak; dengan suara lantang ia melafalkan, “Nu er qi liu, ha gua er, ning xie qi qia, ping dao er…”
+
+Ouyang Feng terkejut; dia mengenali kalimat itu sebagai salah satu dari ratusan kalimat sulit yang dia tidak tahu artinya. Mendengarkan Hong Qigong melafalkannya, dia percaya Hong Qigong mengerti artinya dan dia berpikir, “Ada banyak kalimat aneh di manual, pasti ada kunci untuk membuka rahasia mereka. Jika saya membunuh ketiganya, saya khawatir tidak ada orang lain di dunia ini yang memahaminya dan kepemilikan manual saya akan sia-sia. Oleh karena itu, dia bertanya, “Apa artinya?”
+
+Hong Qigong menjawab, "Hun hua cha cha, xue gen xu bat u, mi er mi er ..." Meskipun dia telah mendengarkan Guo Jing melafalkan kalimat aneh dari manual, bagaimana dia bisa menghafal semuanya? Dia hanya berbicara omong kosong, tetapi wajahnya menunjukkan rasa hormat yang dalam.
+
+Ouyang Feng sebenarnya menganggap kalimat itu memiliki arti yang sangat mendalam; dia memusatkan perhatiannya dan berpikir dalam-dalam. Hong Qigong berteriak, "Jing'er, sekarang!"
+
+**Last line was 444 in the draft**
 
