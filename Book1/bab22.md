@@ -577,7 +577,7 @@ ucapanmu. Tapi pertama-tama, mari beri nama yang bagus untuk pulau kecil ini. Gu
 "Kamu menghancurkan kaki bajingan kecil itu dengan batu besar di pulau itu," kata Hong Qigong. "Mari kita sebut Pulau 
 Penghancur Hantu[^ya-gui-dao]. Bagaimana?"
 
-[^ya-gui-dao]: Pulau Penghancur Hantu = Ya Gui Dao ().
+[^ya-gui-dao]: Pulau Penghancur Hantu = Ya Gui Dao (压鬼岛). Ya (压) bisa bermakna menangkap/menekan/menindas atau menimpa sampai hancur.
 
 Huang Rong menggelengkan kepalanya. "Itu tidak terlalu elegan."
 
