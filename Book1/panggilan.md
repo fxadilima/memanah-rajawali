@@ -100,3 +100,13 @@ pendiri Dinasti Yuan. Permaisuri Kubilai Khan, Chabbi, diketahui adalah seorang 
 
 Julukan Peng Lianhu, yang bisa diartikan 'Jagal Bertangan Seribu'.
 
+### <a id="dashi" name="dashi">Da Shi (大师)</a>
+
+Panggilan umum bagi para Biksu. Arti literal per karakter adalah:
+
+- Da (大) = Besar.
+- Shi (师) = Guru.
+
+Dengan demikian istilah ini sebetulnya berarti 'Guru Besar'.
+
+

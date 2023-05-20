@@ -1384,20 +1384,252 @@ membantunya ke kabin belakang untuk beristirahat.
 
 [^pepatah-1]: Tanglang Bu Chan Huang Que Zai Hou (螳螂捕蝉黄雀在后). Secara literal kira-kira adalah 'Sang Belalang menangkap jangkrik, tetapi Si Burung Kepondang ada di belakangnya'. Huang Que (黄雀) adalah Burung Kepodang kuduk-hitam. Pepatah ini secara umum bermakna 'Mengejar keuntungan tipis dan mengabaikan bahaya besar'.
 
-Saat mereka makan dan minum dengan meriah, wajah Ouyang Feng tiba-tiba berubah. Cangkir itu berhenti di mulutnya dan dia tidak minum. Semua orang terkejut; tidak ada yang tahu apa yang telah menyinggung perasaannya. Wanyan Honglie hendak bertanya ketika Ouyang Feng berkata, “Dengar!”
+Saat mereka makan dan minum dengan meriah, wajah Ouyang Feng tiba-tiba berubah. Cawan arak berhenti di mulutnya dan ia tidak 
+minum. Semua orang terkejut, tidak ada yang tahu apa yang telah menyinggung perasaannya. Wanyan Honglie hendak bertanya 
+ketika Ouyang Feng berkata, "Dengar!"
 
-Semua orang memiringkan kepala untuk mendengarkan, tetapi selain angin dan ombak laut, mereka tidak mendengar apapun. Sesaat kemudian Ouyang Feng bertanya lagi, “Apakah kamu mendengarnya kali ini? Itu suara seruling.” Semua orang mendengarkan dengan penuh perhatian dengan penuh perhatian dan sekarang mereka dapat mendengar, di antara suara ombak, suara samar seruling bambu, terkadang pecah, terkadang terus menerus. Tidak ada yang akan mendengarnya jika Ouyang Feng tidak menunjukkannya.
+Semua orang memiringkan kepala untuk mendengarkan, tetapi selain angin dan ombak laut, mereka tidak mendengar apapun. Sesaat 
+kemudian Ouyang Feng bertanya lagi, "Kalian sudah dengar sekarang? Itu suara seruling." Semua orang mendengarkan dengan 
+penuh perhatian, dan sekarang mereka bisa mendengar, di antara suara ombak suara samar seruling bambu, terkadang pecah, 
+terkadang terus menerus. Tidak ada yang akan mendengarnya jika Ouyang Feng tidak menunjukkannya.
 
-Ouyang Feng berjalan ke haluan; di sana dia mengeluarkan peluit panjang dan suaranya menyebar jauh. Sekarang semua orang telah tiba di haluan. Mereka melihat di kejauhan sebuah perahu ringan dengan tiga layar hijau, membelah ombak dan datang dengan cepat menuju perahu mereka. Mereka heran dalam hati, “Apakah suara seruling berasal dari perahu itu? Itu sangat jauh… bagaimana suaranya bisa sampai ke sini?”
+Ouyang Feng berjalan ke haluan, di sana ia mengeluarkan peluit panjang dan suaranya menyebar jauh. Sekarang semua orang 
+telah tiba di haluan. Mereka melihat di kejauhan sebuah perahu ringan dengan tiga layar hijau, membelah ombak dan datang 
+dengan cepat menuju ke arah mereka. Mereka heran dalam hati, "Ada suara seruling berasal dari perahu itu? Itu sangat jauh... 
+bagaimana suaranya bisa sampai ke sini?"
 
-Ouyang Feng memerintahkan para pelaut untuk memutar kemudi untuk mencegat kapal cepat itu. Dua perahu secara bertahap mendekat satu sama lain. Di haluan kapal cepat itu berdiri seorang laki-laki berjubah panjang berwarna hijau tua dan di tangannya memang ada seruling. Dia memanggil dengan keras, "Kakak Feng, apakah kamu melihat putriku?"
+Ouyang Feng memerintahkan para pelaut untuk memutar kemudi untuk mencegat perahu cepat itu. Dua kapal itu secara bertahap 
+saling mendekat. Di haluan kapal cepat itu berdiri seorang laki-laki berjubah panjang berwarna hijau tua, dan di tangannya 
+memang ada seruling. Ia memanggil dengan keras, "Feng Xiong, kau melihat putriku?"
 
-“Putrimu memiliki temperamen yang sangat kuat, beraninya aku memprovokasi dia?” Jawab Ouyang Feng.
+"Putrimu punya temperamen keras, masa aku berani memprovokasi dia?" jawab Ouyang Feng.
 
-Dua perahu terpisah beberapa zhang dan tidak ada yang melihat pria itu menggerakkan tubuhnya dan melompat, namun mereka melihat bayangan kabur dan pria itu sudah berdiri di geladak kapal besar.
+Dua perahu terpisah beberapa zhang dan tidak ada yang melihat orang itu menggerakkan tubuhnya dan melompat, namun mereka melihat bayangan kabur, dan orang itu sudah berdiri di geladak kapal besar.
 
-Saat Wanyan Honglie melihat keahliannya yang luar biasa dan keinginannya untuk merekrut prajurit muncul; dia melangkah maju untuk menyambut tamu itu, berkata, “Siapa nama belakang Anda, Tuan? Saya sangat beruntung menerima kunjungan Anda.” Mempertimbangkan posisinya yang tinggi sebagai pangeran Jin Agung, dia menjadi sangat rendah hati. Setelah melihat dia mengenakan kostum pejabat Jin, pria itu hanya memberinya tatapan kosong, tampaknya tidak memperhatikannya.
+Saat Wanyan Honglie melihat keahliannya yang luar biasa dan keinginannya untuk merekrut prajurit muncul, ia melangkah maju 
+untuk menyambut tamu itu, berkata, "Siapa nama Xiansheng? Aku sangat beruntung menerima kunjungan Xiansheng." 
+Mempertimbangkan posisinya yang tinggi sebagai Pangeran Jin Agung, ia jadi terlihat sangat rendah hati. Setelah melihat ia 
+mengenakan kostum pejabat Jin, orang itu hanya memberinya tatapan kosong, tampaknya tidak memperhatikannya.
 
+Melihat sang pangeran tidak mendapatkan perhatian yang pantas, Ouyang Feng berkata, "Yao Xiong, ijinkan aku memperkenalkan 
+Pangeran Keenam dari Jin Agung, Pangeran Zhao." Kepada Wanyan Honglie ia berkata, "Ini adalah Huang Daozhu dari Tao Hua Dao, kungfunya nomor satu di dunia, pengetahuannya tak tertandingi."
 
-**Last line was 726 in the draft**
+Peng Lianhu dan yang lainnya sangat terkejut, sehingga mereka tanpa sadar mundur beberapa langkah. Mereka tahu sejak awal 
+bahwa ayah Huang Rong adalah iblis yang sangat ganas, dan Sepasang Iblis Angin Hitam yang adalah murid murtadnya mampu 
+mengguncang Jianghu dengan kekuatan mereka. Wajah orang-orang di dunia persilatan akan berubah warna setiap kali nama mereka 
+disebutkan. Jika murid-muridnya saja sudah begitu dahsyatnya, apalagi guru mereka? Ia pasti muncul di sini untuk membuat 
+masalah, pikir mereka. Semua orang ingat bahwa mereka telah menyinggung putrinya. Oleh karena itu, hati setiap orang 
+dipenuhi rasa takut dan tidak ada yang berani bersuara.
+
+Saat putrinya melarikan diri, Huang Yaoshi tahu ia pasti sedang mencari Guo Jing. Awalnya ia marah dan mengabaikannya. Namun 
+beberapa hari kemudian ia menjadi kuatir, ia takut putrinya akan menemukan Guo Jing di kapal khusus yang dibuatnya, dan 
+mereka akan tenggelam ke dasar laut bersama. Ia kuatir setengah mati untuk putrinya, jadi ia memutuskan untuk pergi ke laut 
+dan mencarinya.
+
+Mengetahui mereka kembali ke daratan, ia memutuskan untuk pergi ke arah barat. Tapi mencari perahu di laut yang tak terbatas 
+benar-benar lebih mudah diucapkan daripada dilakukan. Meskipun Huang Yaoshi memiliki kecerdasan yang luar biasa, setelah 
+mencari bolak-balik ia tidak menemukan jejaknya. Pada hari ini, didukung oleh tenaga dalamnya yang kuat, ia memainkan 
+serulingnya di haluan perahunya, dengan harapan putrinya akan mendengar dan menanggapi. Tanpa diduga ternyata Ouyang Feng 
+yang menganggapinya.
+
+Huang Yaoshi, Peng Lianhu dan yang lainnya tidak saling mengenal. Mendengar Ouyang Feng mengatakan bahwa orang ini adalah 
+Pangeran Kekaisaran Jin, ia tidak ingin tinggal lebih lama lagi, ia merangkapkan tangan di dadanya dan berkata kepada Ouyang 
+Feng, "Aku harus melanjutkan perjalananku mencari putriku. Aku minta maaf karena tidak bisa menemanimu lebih lama." Kemudian 
+ia berbalik untuk pergi.
+
+Lingzhi Shangren sebelumnya telah dibuat marah oleh Ouyang Feng dan Zhou Botong, dan sekarang orang lain yang sangat arogan 
+dan tidak sopan telah bergabung. Ia mendengar apa yang dikatakan Ouyang Feng, tetapi ia berpikir, "Masa ada begitu banyak 
+orang yang sangat hebat di dunia ini? Kemungkinan besar orang-orang ini punya beberapa macam ilmu sihir, dan menipu orang 
+lain dengan kemampuan iblis mereka. Biarkan aku mencoba, dan mungkin aku bisa menipu dia juga." Melihat Huang Yaoshi hendak 
+pergi, ia berkata dengan suara nyaring, "Apakah kau mencari wanita muda berusia lima belas atau enam belas tahun?"
+
+Huang Yaoshi berhenti dan berbalik dengan muka senang, "Ya, 
+[Dashi](panggilan.md#dashi "Dashi (大师) = Panggilan umum untuk para biksu") melihatnya?"
+
+Lingzhi Shangren dengan dingin menjawab, "Aku memang melihat seorang wanita muda, tetapi yang kulihat adalah yang mati, 
+bukan yang hidup."
+
+Hati Huang Yaoshi menjadi dingin, "Apa?" tanyanya cepat, suaranya bergetar.
+
+Lingzhi menjawab, "Sekitar tiga hari yang lalu, aku melihat tubuh seorang gadis muda mengambang di permukaan laut. Dia 
+mengenakan pakaian putih dan sebuah cincin emas di rambutnya, awalnya wajahnya pasti sangat cantik. Ah! Sayang sekali, 
+sayang sekali! Sayang sekali tubuhnya bengkak oleh air laut." Ia secara akurat menggambarkan pakaian dan perhiasan Huang 
+Rong.
+
+Pikiran Huang Yaoshi sangat kacau, tubuhnya bergetar dan wajahnya menjadi pucat. Sesaat kemudian ia bertanya, "Kau 
+mengatakan hal yang sebenarnya?"
+
+Semua orang dengan jelas melihat Huang Rong menaiki perahu kecil beberapa menit yang lalu, sekarang mereka mendengar Lingzhi 
+menipu orang ini dan menikmati kemalangan orang lain. Bahkan saat mereka melihat wajah berduka Huang Yaoshi, tidak ada yang 
+bersuara.
+
+Lingzhi dengan dingin melanjutkan, "Di samping tubuh wanita muda itu, aku melihat tiga mayat lainnya, satu adalah seorang 
+pemuda dengan alis tebal dan mata besar, yang lainnya adalah seorang pengemis tua dengan labu arak merah di punggungnya, 
+dan yang terakhir adalah seorang lelaki tua berambut putih. Ia menggambarkan Guo Jing, Hong Qigong dan Zhou Botong.
+
+Mencapai titik ini, keraguan Huang Yaoshi benar-benar hilang. Ia menyipitkan mata ke arah Ouyang Feng, berpikir, "Kau tahu 
+tentang putriku, jadi mengapa kau tidak memberitahu aku lebih awal?"
+
+Ouyang Feng memperhatikan tatapannya dan menyadari kesedihannya telah mencapai puncaknya, sehingga ia mulai punya niat 
+membunuh. Meskipun ia sendiri tidak akan rugi apa-apa, kekuatan yang datang tidak akan mudah dilawan. Ia cepat-cepat 
+berkata, "Aku baru naik kapal ini hari ini, dan ini pertama kalinya aku bertemu orang-orang ini. Waktu biksu ini melihat 
+beberapa mayat mengambang, putrimu belum tentu ada di antara mereka." Sambil mendesah, ia melanjutkan, "Putri kesayanganmu 
+itu anak yang baik, sangat disesalkan kalau dia benar-benar meninggal di usia yang begitu muda. Kalau keponakanku tahu, dia 
+akan mati karena patah hati." Ucapan ini mengalihkan kesalahan dari pundaknya, tetapi jelas tidak menyinggung kedua belah 
+pihak.
+
+Setelah mendengarkan Ouyang Feng, Huang Yaoshi sangat terkejut, hatinya tenggelam dalam sekejap. Ia tipe orang yang suka 
+melampiaskan amarahnya kepada orang lain, kalau tidak ketika Hei Feng Shuang Sha mencuri kitabnya, ia tentu tidak akan 
+mematahkan kaki Lu Chengfeng dan murid-muridnya yang tidak bersalah, dan mengusir mereka dari pulaunya? Dadanya terasa 
+sedingin es, tapi darahnya mendidih, seperti ketika istri tercintanya meninggal beberapa tahun lalu. Tangannya gemetar dan 
+wajahnya berubah dari seputih salju menjadi merah tua secara bergantian.
+
+Semua orang memandangnya dalam diam, dan hati mereka dipenuhi ketakutan yang tak terkatakan. Bahkan Ouyang Feng merasa 
+cemas, ia diam-diam memusatkan tenaga dalamnya, seluruh tubuhnya waspada, siap untuk menerima serangan apa pun. Seluruh 
+kapal sangat sunyi. Tiba-tiba Huang Yaoshi tertawa panjang, terdengar seperti raungan naga yang tidak pernah berakhir.
+
+Perkembangan terbaru ini mengejutkan semua orang dan mereka terkejut. Mereka melihatnya menghadap ke langit, tertawa liar 
+dan semakin keras. Tawanya membuat udara terasa dingin, mereka yang mendengarkannya merasa semakin sengsara. Lambat laun 
+tawa itu berubah menjadi tangisan, tangisan yang sangat sedih. Orang-orang tidak tahan lagi, mereka merasa seperti berbagi 
+kesedihannya dan akan meneteskan air mata juga.
+
+Ouyang Feng adalah satu-satunya orang yang mengetahui temperamennya dengan baik, dan tahu bahwa ia biasa bernyanyi dan 
+menangis tanpa alasan tertentu, maka ia tidak terpengaruh. Tetapi mendengarkannya menangis dengan sangat sedih, ia lalu 
+berpikir, "Kalau dia terus menangis seperti ini, Huang Laoxie pasti akan melukai dirinya sendiri. Di hari-hari sebelumnya 
+Ruan Ji berduka atas kematian ibunya dan dengan demikian memuntahkan banyak darah. Huang Laoxie bisa mengalami nasib yang 
+sama seperti orang dari masa lalu. Sayang sitar besiku hilang saat kapalku tenggelam, kalau tidak aku bisa memainkannya dan 
+membuat tangisannya lebih menarik. Orang ini memiliki karakter yang tidak biasa, begitu melepaskan emosinya yang tidak 
+terkendali, kemungkinan besar dia akan menderita luka dalam yang serius. Pada saat pertandingan yang kedua di Hua Shan, aku 
+pasti akan merindukan lawan yang layak dan tangguh seperti dia. Ah! Sungguh kerugian besar! Sayang sekali, sayang sekali!"
+
+Setelah menangis sebentar, Huang Yaoshi mengangkat seruling gioknya dan memukul pagar perahu sambil bernyanyi, "Mengapa 
+Tuhan membuat hidup seseorang begitu singkat? Mengapa ada yang meninggal ketika semua rambut di kepalanya memutih, sedangkan 
+yang lain meninggal karena bencana atau melahirkan anak. Malapetaka sebelumnya belum juga berlalu, ketika musibah baru telah 
+datang. Pagi baru saja merekah, tapi sore sudah datang, embun datang bersama fajar dan langsung menguap. Yang meninggal 
+tidak bisa dikejar, emosi tiba-tiba gagal. Surga yang tinggi tidak punya anak tangga, kepada siapa aku harus mencurahkan 
+keluhanku?"
+
+Dengan suara 'kreekk!', seruling batu giok itu pecah menjadi dua. Tanpa menoleh, Huang Yaoshi berjalan ke haluan. Lingzhi 
+Shangren berlari ke depan untuk menghalanginya dan dengan dingin berkata, "Kau menangis dan tertawa seperti orang gila, 
+menurutmu apa yang kau lakukan?"
+
+"Shangren, jangan..." seru Wanyan Honglie, tetapi sebelum ia selesai bicara, tangan kanan Huang Yaoshi terulur dan 
+mencengkeram leher Lingzhi Shangren. Memutarnya di udara sampai kakinya menghadap ke atas, Huang Yaoshi melemparkannya ke 
+bawah dan kepala botaknya yang gemuk menembus geladak hingga ke bahunya.
+
+Tampaknya dalam kungfu yang dilatih Lingzhi, lehernya adalah titik terlemahnya. Begitu ia bergerak, seorang ahli silat yang 
+hebat seperti Ouyang Feng, Zhou Botong dan Huang Yaoshi dapat segera melihat kelemahan ini, dan menyerang titik terlemahnya.
+
+Huang Yaoshi terus bernyanyi, "Langit abadi, bumi tidak berubah, berapa lama manusia akan hidup? Masa lalu, masa depan, 
+semuanya berlalu tanpa disadari, ada waktu untuk segala sesuatu." Bayangan hijau gelap melintas, dan ia sudah pindah ke 
+perahunya sendiri, memutar kemudi dan berlayar pergi.
+
+Orang-orang di kapal akan menyelamatkan Lingzhi Shangren yang tetap tidak bergerak, mereka tidak tahu apakah ia masih hidup 
+atau sudah mati. Kemudian tiba-tiba mereka mendengar suara mendengus, palka geladak terbuka dan keluarlah seorang pemuda. 
+Ia tampan, dengan bibir merah dan gigi putih, dan wajah seperti giok mahkota, itu adalah putra Wanyan Honglie, Yang Kang, 
+yang sebelumnya bernama Wanyan Kang.
+
+Setelah berselisih dengan Mu Nianci, ia terus mengingat kata-kata Wanyan Honglie, 'kekayaan dan kehormatan tak terbatas', 
+segera setelah menghubungi kantor pemerintah Jin di utara untuk mendapatkan informasi tentang dia. Tidak lama kemudian, ia 
+menemukan ayahnya dan menemaninya ke selatan. Ketika Guo Jing dan Huang Rong naik, ia melihat mereka sekilas dan segera 
+bersembunyi di dalam kabin, tidak berani keluar. Ia hanya mengintip melalui celah di pintu kabin dan dari sana ia dengan 
+jelas melihat semua yang terjadi di geladak. Ketika orang-orang sedang makan dan minum, ia takut Ouyang Feng adalah kaki 
+tangan Guo Jing. Ia bersembunyi di palka kapal dan menguping percakapan di meja perjamuan, mencoba mencari tahu niat 
+sebenarnya dari Ouyang Feng. Hanya setelah Huang Yaoshi pergi, ia akhirnya menyimpulkankan bahwa ia tidak perlu kuatir, 
+jadi ia membuka penutup palka dan keluar.
+
+Jatuhnya Lingzhi Shangren benar-benar parah. Untungnya karena latihan kerasnya, kepalanya kuat. Ia membuat lubang di 
+geladak, tapi kepalanya tidak terluka, dan ia juga hanya sedikit pusing. Ia menenangkan diri dan mendorong dengan kedua 
+tangan di geladak untuk mengangkat tubuhnya dan berdiri.
+
+Orang-orang melihat ke lubang bundar di geladak dan kemudian saling memandang dengan takjub. Mereka pikir itu lucu, tetapi 
+merasa tidak pantas untuk tertawa, jadi mereka menjaga wajah mereka tetap lurus, tetapi terlihat sangat canggung.
+
+Wanyan Honglie memecah kesunyian dengan berkata, "Kang'er, temui Ouyang Xiansheng."
+
+Yang Kang segera berlutut di depan Ouyang Feng, dan bersujud kepadanya empat kali. Ini adalah kehormatan yang sangat besar, 
+mengejutkan semua orang. Di Istana Zhao, Yang Kang sangat mengagumi Lingzhi Shangren, tetapi hari ini ia telah melihat 
+Ouyang Feng, Zhou Botong dan Huang Yaoshi, satu per satu mencengkeram lehernya dan melemparkannya bolak-balik seperti bayi. 
+Baru pada saat itulah ia menyadari bahwa ada langit di atas langit, dan ada manusia di atas manusia lain. Ia mengingat nasib 
+buruknya ketika disekap di Rumah Awan, di Danau Tai, saat ia takut dan kehilangan keberanian untuk melawan Guo Jing dan 
+Huang Rong di aula leluhur Liu di Baoying... semua karena keahliannya lebih rendah dari yang lain. Sekarang ada seseorang 
+dengan kungfu yang sangat tinggi di depannya, dan ia ingin menjadikannya sebagai gurunya. Setelah memberi hormat kepada 
+Ouyang Feng, ia menoleh ke Wanyan Honglie dan berkata, "Ayah, putramu ingin mengangkat orang ini sebagai guru."
+
+Wanyan Honglie sangat senang, dengan cepat ia melangkah maju, dan membungkuk hormat pada Ouyang Feng sambil berkata, "Anakku 
+suka belajar kungfu, hanya saja dia belum bertemu dengan guru yang cocok. Kalau Xiansheng tidak menolak permintaan ini, dan 
+bersedia memberikan petunjuk, Xiao Wang dan putranya akan berterima kasih selamanya."
+
+Semua orang lain berpikir bahwa menjadi guru pangeran muda adalah keinginan mereka semua, tak terduga Ouyang Feng hanya 
+membalas sapaan itu dan berkata, "Selalu ada aturan di perguruan Orang Tua ini, bahwa pengetahuan kami akan diberikan hanya 
+kepada seorang murid, dan tidak kepada orang lain. Orang Tua ini sudah mengambil keponakanku sendiri sebagai murid. Aku 
+tidak bisa mengambil yang lain. Untuk ini aku mohon maaf kepada Pangeran."
+
+Melihat bahwa Ouyang Feng tidak mengabulkan permintaannya, Wanyan Honglie tidak mempermasalahkannya. Ia memerintahkan anak 
+buahnya untuk menyiapkan lebih banyak makanan dan arak. Yang Kang, di sisi lain, cukup kecewa.
+
+Ouyang Feng tersenyum dan berkata, "Aku tidak layak menjadi guru pangeran muda, tetapi tidak akan sulit bagi Orang Tua ini 
+untuk memberimu beberapa petunjuk tentang ilmu silat. Kita akan membicarakannya lagi nanti."
+
+Yang Kang telah melihat banyak selir Ouyang Ke, dan mereka menerima ajaran ilmu silat dari dia, tetapi karena mereka bukan 
+muridnya, ilmu mereka bukan sesuatu yang luar biasa. Mendengar ucapan Ouyang Feng, ia sama sekali tidak antusias, tetapi 
+mulutnya terpaksa mengucapkan beberapa kata terima kasih. Ia tidak menyadari bahwa kemampuan Ouyang Feng tidak dapat 
+dibandingkan dengan keponakannya, menerima satu atau dua instruksi tentang ilmu silat dari seorang ahli sekaliber Ouyang 
+Feng akan memberinya cukup bekal guna meningkatkan kekuatan dan prestasinya di antara para pendekar dunia persilatan.
+
+Ouyang Feng memperhatikan ekspresinya dan menyadari niatnya untuk memberikan instruksi tidak diterima dengan baik, ia tidak 
+pernah mengangkat masalah ini lagi.
+
+Selama perjamuan mereka bicara tentang kesombongan dan kekasaran Huang Yaoshi, mereka memuji Lingzhi Shangren karena telah 
+membodohinya dengan sangat baik. Hou Tonghai berkata, "Ilmu silat orang itu sangat tinggi, dan ternyata gadis tengik itu 
+adalah putrinya, tidak heran caranya licik." Sambil mengatakannya, ia mengalihkan perhatiannya ke kepala botak Lingzhi 
+Shangren. Setelah menatap sebentar ia lalu mengalihkan pandangannya ke arah leher gemuk Lingzhi, dan kemudian menggunakan 
+tangan kanannya untuk mencengkeram lehernya sendiri. "Hei, hei," ejeknya sambil bertanya, "Shige, teknik apa yang dipakai 
+ketiga orang itu untuk mencekal?"
+
+"Jangan omong kosong!" tegur Sha Tongtian.
+
+Lingzhi Shangren tidak bisa menahan emosinya lagi, ia mengulurkan tangan kirinya untuk memegang tiga bisul di dahi Hou 
+Tonghai. Hou Tonghai dengan cepat mengecilkan tubuhnya dan meluncur di bawah meja. Semua orang tertawa dan bersorak.
+
+Hou Tonghai muncul kembali di kursinya dan berkata kepada Ouyang Feng, "Ouyang Xiansheng, kungfumu memang sangat tinggi! 
+Bagaimana kalau kau mengajari aku cara memegang leher gemuk seseorang?" Ouyang Feng tersenyum tetapi tidak menjawab. Lingzhi 
+Shangren memelototi Hou Tonghai.
+
+Hou Tonghai menoleh dan bertanya lagi, "Shige, Huang Yaoshi menangis dan menyanyi, sebetulnya dia bilang apa?"
+
+Sha Tongtian memelototinya, tidak tahu bagaimana menjawabnya. "Siapa yang peduli dengan ocehan orang gila?" katanya.
+
+Yang Kang menjelaskan, "Dia menyanyikan sebuah syair yang ditulis oleh Cao Zijian dari periode Tiga Kerajaan[^cao-zhi]. 
+Cao Zijian menyusun dua bait ratapan karena kematian putrinya. Dalam puisi itu dia mengatakan bagaimana beberapa orang hidup 
+sampai rambut di kepala mereka benar-benar putih, sementara beberapa anak meninggal sebelum waktunya. Dia mempertanyakan 
+mengapa Tuhan begitu tidak adil? Dia membenci kenyataan bahwa Surga begitu tinggi dan tanpa tangga, sehingga dia tidak bisa 
+naik ke tahta Tuhan untuk meneriakkan keluhannya. Dia akhirnya mengatakan bahwa kesedihannya begitu dalam, sehingga hari dia 
+akan mengikutinya ke kuburan tidak akan lama lagi."
+
+[^cao-zhi]: Cao Zhi (曹植) adalah putra kedua dari Cao Cao (曹操), dan adalah adik kandung Cao Pi (曹丕) yang akhirnya mendirikan Dinasti Wei untuk menggantikan Dinasti Han. Dalam masyarakat Tionghoa jalam dulu, seorang anak yang baru lahir akan diberikan sebuah nama, di samping nama keluarganya. Bagi Cao Zhi nama ini adalah Zhi (植). Di samping itu. setelah anak tersebut beranjak dewasa, ia akan diberikan sebuah nama panggilan lagi, yang akan disandangnya seumur hidup. Bagi Cao Zhi nama ini adalah Zijian (子建), sedangkan bagi Cao Pi adalah Zihuan (子桓). Cara Yang Kang menyebutkan namanya, Cao Zijian, memang bisa dibenarkan, meskipun dalam literatur maupun drama kita lebih sering membaca atau mendengar nama Cao Pi dan Cao Zhi. Beberapa drama _memang_ menggambarkan cara Cao Cao memanggil anaknya dengan sebutan Zihuan dan Zijian setelah keduanya dewasa. Cao Zhi adalah anak Cao Cao yang mewarisi kepandaian Cao Cao di dalam sastra.
+
+Para prajurit segera memberinya pujian, dan berkata, "Xiao Wangye benar-benar seorang sarjana dan berpendidikan tinggi. Kami 
+orang-orang kasar, bagaimana kami bisa tahu?"
+
+Hati Huang Yaoshi dipenuhi dengan kesedihan dan kemarahan. Ia mengarahkan jarinya ke langit dan memarahi Surga, mengutuk 
+hantu dan menyalahkan dewa karena memperlakukannya dengan tidak adil, atas semua kesedihan dan nasibnya yang tidak adil. 
+Ia mengarahkan perahunya menuju daratan. Begitu berada di darat, amarahnya berkobar lagi. Ia melihat ke langit dan 
+berteriak, "Siapa yang membunuh Rong'er-ku? Siapa yang membunuh Rong'er-ku?"
+
+Tiba-tiba sebuah pikiran muncul di benaknya, "Bocah itu bermarga Guo itu. Benar, itu pasti dia! Kalau bukan karena dia, 
+mengapa Rong'er naik ke kapal itu? Tapi bocah itu mati di samping Rong'er, kepada siapa aku harus melampiaskan kemarahanku?"
+
+Begitu ia memikirkan hal ini, ia teringat kepada guru Guo Jing, 
+[Jiangnan Qi Guai](referensi-karakter.md#jiangnan-qi-guai "Tujuh Orang Aneh dari Jiangnan"). "Keenam orang itu adalah yang 
+paling bersalah karena membunuh Rong'er-ku! Kalau mereka tidak mengajari bocah Guo itu, bagaimana dia bisa bertemu dengan 
+Rong'er? Aku tidak akan tenang sampai aku memotong tangan dan kaki mereka satu per satu."
+
+Saat amarahnya meningkat, kesedihannya agak berkurang. Ia tiba di sebuah kota kecil dan berhenti untuk makan, sambil masih 
+memikirkan secara mendalam tentang bagaimana ia akan mengejar Enam Orang Aneh dari Jiangnan. "Kungfu mereka tidak tinggi, 
+tapi reputasi mereka tidak rendah. Mungkin mereka punya sesuatu yang membedakan mereka di atas orang lain, atau mungkin 
+mereka hanya menggunakan akal bulus. Kalau aku pergi ke kampung mereka dan bertanya, kemungkinan besar aku tidak akan 
+menemukan mereka. Aku harus pergi di tengah malam dan masuk ke rumah mereka. Kemudian aku akan menghabisi mereka dan 
+keluarga mereka, tua dan muda." Kemudian ia melangkah lebar, berjalan ke utara menuju Jiaxing.
+
 
