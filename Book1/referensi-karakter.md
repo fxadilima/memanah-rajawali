@@ -434,7 +434,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Adik atau kakak ipar (perempuan).</dd>
     <dt id="furen">Fu Ren (夫人)</dt>
     <dd>Setara dengan 'Nyonya', misalnya, Huang Furen berarti Ny. Huang. Yang Furen berarti Ny. Yang</dd>
-    <dt id="ruan-we-jia">Ruan Wei Jia (软猬甲)</dt>
+    <dt id="ruan-wei-jia">Ruan Wei Jia (软猬甲)</dt>
     <dd>Rompi Kulit Landak yang lembut, hasil karya Huang Yaoshi.</dd>
     <dt id="nu-wantong">Nu Wantong (女顽童)</dt>
     <dd>
@@ -478,6 +478,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Penjahat Cabul</dd>
     <dt id="you-nan">You Nan (有难)</dt>
     <dd>Ada masalah</dd>
+    <dt id="kasaya">Kasaya atau Jiasha (袈裟)</dt>
+    <dd>Jubah yang dikenakan oleh para Biksu/Biksuni.</dd>
 </dl>
 
 
@@ -1074,5 +1076,4 @@ Ilmu ini akhirnya juga dikuasai oleh Pendeta Wang Chongyang setelah Duan Zhixing
 ### <a name="jian-si-bu-jiu" id="jian-si-bu-jiu">Jian Si Bu Jiu (见死不救)</a>
 
 Ini adalah pepatah kuno Tiongkok yang berarti 'Mengabaikan orang yang sedang dalam bahaya'.
-
 

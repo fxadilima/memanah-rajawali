@@ -739,19 +739,175 @@ melihat lebih jelas, itu memang daratan. Laut tenang dan matahari bersinar teran
 mereka sengsara. Ouyang Feng tiba-tiba berdiri, ia mengulurkan tangannya dan meraih Guo Jing dan Huang Rong. Dengan ujung 
 kakinya ia juga menendang dan menotok titik akupuntur Hong Qigong.
 
-Keduanya terkejut dan titik akupuntur vital mereka disegel; setengah dari tubuh mereka langsung mati rasa. Terkejut mereka bertanya, "Apa yang kamu lakukan?" Ouyang Feng menyeringai jahat, tapi tidak mengatakan apapun.
+Keduanya terkejut setelah tahu mereka tertotok, setengah dari tubuh mereka langsung mati rasa. Terkejut mereka bertanya, "Apa 
+yang kau lakukan?" Ouyang Feng menyeringai jahat, tapi tidak mengatakan apapun.
 
-Hong Qigong menghela nafas, “Racun Tua sangat sombong; dia tidak mau menerima belas kasihan orang lain. Kami telah menyelamatkan hidupnya; jika dia tidak membunuh penyelamatnya, bagaimana hatinya bisa damai? Ay, saya hanya bisa menyalahkan hati saya yang baik hati karena telah menyelamatkan orang-orang ini di tengah malam dan melupakan fakta ini. Sekarang saya telah membahayakan nyawa kedua anak yang lelah ini.”
+Hong Qigong menghela nafas, "Racun Tua sangat sombong, dia tidak mau menerima belas kasihan orang lain. Kita menyelamatkan 
+hidupnya, kalau tidak membunuh penyelamatnya, bagaimana hatinya bisa damai? Ah, salahku sendiri sok baik hati. Sekarang aku 
+jadi membahayakan nyawa kedua anak yang lelah ini."
 
-“Kamu mengetahuinya dengan sangat baik,” kata Ouyang Feng, “Juga ‘Pedoman Sembilan Yin’ ada di tanganku; jika saya meninggalkan salinan di benak anak laki-laki bernama Guo ini, saya hanya akan mengundang kesialan yang tak terelakkan pada diri saya sendiri.
+"Kau sudah tahu," kata Ouyang Feng, "Jiu Yin Zhen Jing ada di tanganku, kalau aku membiarkan bocah marga Guo ini hidup, 
+nantinya dia hanya akan menjadi penghalang besar buat aku."
 
-Mendengar dia menyebutkan 'Panduan Sembilan Yin' hati Hong Qigong tergerak; dengan suara lantang ia melafalkan, “Nu er qi liu, ha gua er, ning xie qi qia, ping dao er…”
+Mendengar ia menyebutkan Jiu Yin Zhen Jing hati Hong Qigong tergerak, dengan suara lantang ia melafalkan, "Nu er qi liu, ha gua er, ning xie qi qia, ping dao er..."
 
-Ouyang Feng terkejut; dia mengenali kalimat itu sebagai salah satu dari ratusan kalimat sulit yang dia tidak tahu artinya. Mendengarkan Hong Qigong melafalkannya, dia percaya Hong Qigong mengerti artinya dan dia berpikir, “Ada banyak kalimat aneh di manual, pasti ada kunci untuk membuka rahasia mereka. Jika saya membunuh ketiganya, saya khawatir tidak ada orang lain di dunia ini yang memahaminya dan kepemilikan manual saya akan sia-sia. Oleh karena itu, dia bertanya, “Apa artinya?”
+Ouyang Feng terkejut, ia mengenali kalimat itu sebagai salah satu dari ratusan kalimat sulit yang ia tidak tahu artinya. 
+Mendengarkan Hong Qigong melafalkannya, ia percaya Hong Qigong mengerti artinya, dan ia berpikir, "Ada banyak kalimat aneh 
+di kitab itu, pasti ada kunci untuk membuka rahasia mereka. Kalau mereka bertiga kubunuh, rasanya akan sia-sia saja kitab 
+itu ada di tanganku. Oleh karena itu ia bertanya, "Apa artinya?"
 
-Hong Qigong menjawab, "Hun hua cha cha, xue gen xu bat u, mi er mi er ..." Meskipun dia telah mendengarkan Guo Jing melafalkan kalimat aneh dari manual, bagaimana dia bisa menghafal semuanya? Dia hanya berbicara omong kosong, tetapi wajahnya menunjukkan rasa hormat yang dalam.
+Hong Qigong menjawab, "Hun hua cha cha, xue gen xu bat u, mi er mi er..." Meskipun ia telah mendengarkan Guo Jing melafalkan 
+kalimat aneh dari kitab itu, bagaimana ia bisa menghafal semuanya? Ia hanya omong kosong, tetapi wajahnya menunjukkan rasa 
+hormat yang dalam.
 
-Ouyang Feng sebenarnya menganggap kalimat itu memiliki arti yang sangat mendalam; dia memusatkan perhatiannya dan berpikir dalam-dalam. Hong Qigong berteriak, "Jing'er, sekarang!"
+Ouyang Feng sungguh-sungguh menganggap kalimat itu punya makna yang sangat mendalam, ia memusatkan perhatiannya dan berpikir 
+dalam-dalam. Hong Qigong berteriak, "Jing'er, sekarang!"
 
-**Last line was 444 in the draft**
+Guo Jing menarik kembali tangan kirinya dan mengulurkan telapak tangan kanannya sementara kaki kirinya terbang ke depan secara bersamaan. Sebenarnya ketika Ouyang Feng mengirimkan tendangannya dan melancarkan serangan mendadak, titik vitalnya dicengkeram dan dia tidak bisa bergerak. Ketika Hong Qigong berbicara omong kosong dan membingungkan Ouyang Feng, itu menyebabkan dia kehilangan konsentrasi dan sedikit melonggarkan cengkeramannya. Guo Jing mengambil kesempatan ini untuk membebaskan dirinya dan melancarkan serangan balik. Guo Jing telah melatih 'Mengubah Tulang Penempaan Otot' ke tahap kedua; meskipun dia tidak mempelajari teknik tinju atau tendangan baru, kekuatan aslinya sebenarnya meningkat setidaknya dua puluh persen. Satu tarikan, satu telapak tangan, dan satu tendangan ini dilakukan tanpa gerakan luar biasa, tetapi kekuatan dalam serangannya ternyata sangat kuat.
 
+Ouyang Feng terkejut dan karena rakitnya sempit, tidak ada ruang untuk mundur; dia terpaksa mengangkat tangannya untuk menangkis serangan itu, tetapi cengkeramannya pada Huang Rong tidak mengendur.
+
+Tinju dan telapak tangan Guo Jing keluar satu demi satu, menyerang musuhnya seperti badai dahsyat. Dia sangat sadar bahwa, di atas rakit sempit ini, jika dia membiarkan Ouyang Feng menyerang dengan Posisi Kodoknya, maka mereka bertiga akan mati tanpa kuburan. Serangkaian serangan ini memaksa Ouyang Feng mundur setengah langkah.
+
+Huang Rong memiringkan tubuhnya sedikit ke samping, memposisikan bahunya untuk membentur tubuh Ouyang Feng. Ouyang Feng geli 
+dan berpikir, "Nona kecil ini ingin menabrakku, memangnya dia punya tenaga seberapa kuat? Jangan salahkan aku kalau 
+membenturkanmu ke laut." Ia baru saja menyelesaikan pemikiran ini ketika bahu Huang Rong tiba. Ouyang Feng tidak menghindar 
+atau mencoba menangkis, tampak tidak memperhatikan, lalu ia tiba-tiba merasa dadanya sakit seperti tertusuk benda tajam. Rasa 
+sakit itu seketika menyadarkannya bahwa gadis itu mengenakan 
+[Ruan Wei Jia](referensi-karakter.md#ruan-wei-jia "Rompi Kulit Landak"). Saat ini ia sudah berada di tepi rakit, jadi ia 
+tidak bisa mundur bahkan setengah langkah pun. Rompi itu penuh dengan duri tajam yang tidak bisa ditanganinya. Ia buru-buru 
+mengirimkan tenaga dalamnya dan melemparkan Huang Rong ke salah satu sisi.
+
+Huang Rong tidak punya ruang untuk menginjakkan kaki, dan ia akan jatuh ke dalam air. Guo Jing meraih punggungnya, 
+sementara tangan kirinya masih menyerang musuhnya. Huang Rong mengeluarkan belatinya dan bergegas maju untuk menyerang.
+
+Ouyang Feng berdiri di tepi rakit dengan cipratan air laut terasa di kakinya, tidak peduli seberapa keras Guo Jing dan Huang 
+Rong menyerang, mereka tidak dapat memaksanya masuk ke dalam air.
+
+Hong Qigong dan Ouyang Ke tidak bisa bergerak, jadi keduanya tak berdaya menyaksikan pertarungan sengit itu. Jantung mereka 
+berdebar kencang saat mereka menyaksikan pertarungan yang seimbang ini di mana batas antara hidup dan mati sesempit sehelai 
+rambut. Mereka berdua dengan getir berharap bisa membantu pihak mereka masing-masing.
+
+Kungfu Ouyang Feng jauh di atas kekuatan gabungan Guo Jing dan Huang Rong, tetapi karena ia telah tenggelam dalam air 
+selama beberapa hari, hampir setengah dari kekuatannya hilang. Meskipun kungfu Huang Rong tidak terlalu tinggi, ia mengenakan 
+Rompi Kulit Landak, dan tangannya memegang belati tajam. Senjata ofensif dan defensif ini cukup memusingkan Ouyang Feng. 
+Tidak hanya itu, Delapan Belas Jurus Penakluk Naga, tujuh puluh dua jurus Tinju Kosong, Shuang Shou Hubo, serta Mengubah Otot 
+Menempa Tulang yang baru dipelajari Guo Jing dari Jiu Yin Zhen Jing, membuatnya menjadi seorang lawan yang tangguh. Ketiganya 
+terlibat pertarungan jarak dekat di atas rakit!
+
+Setelah beberapa saat, telapak tangan Ouyang Feng mulai menjadi lebih kuat, Guo Jing dan Huang Rong mulai jatuh di bawah 
+angin. Hong Qigong sangat cemas menyaksikan pertempuran sengit ini. Di tengah bayang-bayang telapak tangan Ouyang Feng yang 
+menari, kaki kirinya ditendang keluar dengan hembusan angin kencang. Huang Rong tidak berani menghalanginya dan terpaksa 
+jungkir balik dan jatuh ke air.
+
+Tiba-tiba harus menghadapi musuh yang kuat sendirian, Guo Jing merasakan ketegangan. Untungnya setelah jatuh ke air di sisi 
+kiri rakit, Huang Rong berenang di bawah dasar rakit, naik di sisi kanan, dan mengayunkan belati ke arah dada Ouyang Feng. 
+Sekarang Ouyang Feng harus menghadapi musuh dari dua sisi.
+
+Sambil bertarung dengan berani, Huang Rong memikirkan rencana untuk mengatasi situasi ini, "Kalau terus-terusan seperti ini, 
+dengan ilmu silat kita yang lebih rendah, akhirnya kita akan jatuh ke tangannya. Satu-satunya cara untuk mengalahkannya 
+adalah di bawah air." Begitu pikiran ini terlintas di benaknya, ia mengayunkan belatinya dan memotong tali layar dan layarnya 
+langsung jatuh, rakit kini terbawa ombak dan tak lagi bergerak maju. Huang Rong mundur dua langkah, melilitkan tali beberapa 
+kali di sekitar tubuh Hong Qigong, kemudian beberapa putaran pada batang kayu dari rakit dan membuat dua simpul yang rapat.
+
+Dengan keluarnya Huang Rong dari pertempuran, Guo Jing tidak akan mampu menahan musuh lebih lama lagi. Ia berhasil 
+memblokir tiga jurus berturut-turut, tetapi jurus keempat memaksanya mundur. Ouyang Feng tidak ingin melepaskannya dan 
+telapak tangannya terus menerus menyerang. Guo Jing terpaksa mundur lagi dan menggunakan gerakan 
+Ikan Melompat dari Dalam[^yu-yue-yu-yuan], ia berhasil memblokir serangan itu. Untuk jurus selanjutnya ia terpaksa mundur 
+lagi, dan kaki kirinya menginjak udara kosong. Pada saat kritis ini ia tidak gugup, kaki kanannya langsung terbang ke depan 
+menghadang musuhnya agar tidak menyerang lebih jauh. Tanpa kaki di atas rakit, ia pun jatuh ke dalam air.
+
+[^yu-yue-yu-yuan]: Yu Yue Yu Yuan (鱼跃鱼渊), 
+
+Rakit itu bergoyang keras dan Huang Rong pun memanfaatkan kesempatan ini untuk melompat ke laut. Keduanya mendorong dan 
+menarik rakit, mencoba membalikkannya. Mereka tahu Ouyang Ke akan tenggelam, dan selain itu di dalam air Ouyang Feng 
+bukanlah tandingan mereka. Hong Qigong diikat ke rakit dan keduanya mengambil risiko berurusan dengan Racun Barat 
+terlebih dahulu sebelum mencoba menyelamatkan guru mereka.
+
+Ouyang Feng sudah menebak niat mereka dengan tepat, ia mengangkat kakinya di atas kepala Hong Qigong dan berteriak keras, 
+"Kalian berdua dengar! Kalau kalian menggoyangkan rakit sekali lagi, aku akan langsung menendang!"
+
+Huang Rong mengerti bahwa rencana pertamanya telah digagalkan, jadi ia melanjutkan dengan rencana keduanya, ia menarik napas 
+dalam-dalam, terjun ke bawah rakit dan mulai memotong tali dengan belatinya. Ia tahu mereka tidak terlalu jauh dari daratan, 
+setelah menenggelamkan Ouyang Feng dan keponakannya, ia berpikir mereka bisa menaiki kayu gelondongan dan sampai ke pantai 
+tanpa terlalu banyak kesulitan.
+
+"Krekk, kreekk...!" rakit kayu pecah menjadi dua bagian. Ouyang Ke di bagian kiri, sedangkan Ouyang Feng dan Hong Qigong di 
+bagian kanan. Dalam hati Ouyang Feng merasa cemas, ia dengan cepat mengulurkan tangannya untuk meraih keponakannya, lalu ia 
+membungkuk melihat ke dalam air, siap menyerang Huang Rong jika ia memotong tali lagi.
+
+Dari bawah air, Huang Rong dapat melihat bayangan Ouyang Feng dengan jelas. Mengetahui serangan berikutnya akan sangat ganas, 
+ia tidak berani memotong tali lagi. Kedua belah pihak menemui jalan buntu untuk waktu yang lama. Huang Rong berenang beberapa 
+zhang menjauh, menarik napas dalam-dalam lagi, lalu menyelam kembali ke bawah, menunggu kesempatan untuk melancarkan 
+serangannya.
+
+Dengan perhatian terkonsentrasi, kedua belah pihak menunggu kesempatan. Untuk sesaat bagian laut di sekitar mereka menjadi 
+sangat tenang, matahari bersinar terang di atas kepala mereka. Lautan tampak begitu damai, tetapi di atas setengah rakit ini, 
+dengan satu di atas dan satu di bawah, ada niat yang sangat maut.
+
+Huang Rong berpikir, "Kalau setengah rakit ini dipotong menjadi dua, ombak pasti akan membalikkannya." Sementara Ouyang Feng 
+berpikir, "Begitu dia mengangkat kepala, aku akan menampar airnya. Getarannya seharusnya cukup untuk membuyarkan otaknya. 
+Setelah gadis kecil ini tersingkir, bangsat kecil bermarga Guo itu seharusnya bukan masalah bagiku." Kedua orang itu menunggu 
+tanpa berkedip, keduanya ingin menyerang.
+
+Tiba-tiba Ouyang Ke menunjuk ke kiri dan berseru, "Kalap... kapal!"
+
+Hong Qigong dan Guo Jing menoleh dan melihat sebuah kapal besar dengan kepala naga dan layarnya terangkat penuh, kapal itu 
+bergerak mendekat, menunggang angin dan memecah ombak. Sesaat kemudian Ouyang Ke melihat seseorang berdiri di haluan, ia 
+bertubuh besar dan mengenakan 
+[kasaya merah](referensi-karakter.md#kasaya "pakaian yang dikenakan oleh biksu Buddha") dan tampak seperti Biksu Lingzi. 
+Saat perahu semakin dekat, ia bisa melihat dengan lebih jelas, itu memang Biksu Lingzi. Ia segera memberi tahu pamannya.
+
+Ouyang Feng memusatkan tenaganya di Dan Tian, dan dengan lantang berseru, "Teman-teman, kesini, ayo cepat!"
+
+Di bawah air, Huang Rong tidak tahu apa yang sedang terjadi, tapi Guo Jing tahu mereka dalam masalah yang lebih besar. Ia 
+berenang di bawah air dan menarik lengan Huang Rong, memberi isyarat padanya bahwa lebih banyak musuh akan datang. Huang Rong 
+tidak begitu jelas tentang maksudnya, tetapi ia sadar ada sesuatu yang tidak beres. Ia memberi isyarat kembali ke Guo Jing 
+untuk memblokir telapak tangan Ouyang Feng saat ia memutuskan talinya.
+
+Guo Jing tahu keahliannya sendiri lebih rendah dari musuhnya kalau soal pukulan jarak jauh, tapi sekarang ia berada di bawah 
+air, dan musuh di atas, perbedaannya menjadi berkurang. Ia tahu memblokir telapak tangan Ouyang Feng berarti membahayakan 
+nyawanya sendiri, tetapi itu adalah saat yang kritis dan ia tidak punya alternatif lain. Oleh karena itu ia mengerahkan 
+seluruh kekuatannya ke telapak tangannya, dan tiba-tiba menyapu ke atas.
+
+"Uh!" Ouyang Feng mendengus saat telapak tangannya menyentuh air, sementara telapak tangan Guo Jing muncul dari bawah. Dua 
+kekuatan bertabrakan di permukaan laut, menciptakan percikan besar. Rakit terangkat beberapa kaki ke atas dan, 'brak, 
+brakk!', setengah rakit pecah menjadi dua bagian, sepertinya Huang Rong berhasil memotong tali tepat pada waktunya.
+
+Sementara itu kapal besar itu hanya berjarak beberapa lusin zhang dari rakit. Setelah memotong talinya, Huang Rong langsung 
+menyelam lebih dalam ke bawah air. Ia bermaksud muncul mendadak untuk menikam Ouyang Feng, ketika melihat Guo Jing tidak 
+bergerak dan perlahan tenggelam. Ia terkejut, dengan cepat berenang mendekat dan meraih lengannya. Ia berenang menjauh 
+beberapa zhang sebelum muncul ke permukaan. Mata Guo Jing tertutup rapat, wajahnya biru dan bibirnya tidak berwarna, ia tidak 
+sadarkan diri.
+
+Kapal besar menurunkan sekoci dengan beberapa pelaut menarik dayung, mereka membawa Ouyang Feng, keponakannya, serta 
+Hong Qigong. Huang Rong memanggil tiga kali, "Jing Gege!" tapi Guo Jing tidak bangun. Ia berpikir bahwa meskipun kapalnya 
+penuh dengan musuh, mereka tak punya pilihan lain, ia memegangi kepala Guo Jing dan berenang menuju perahu kecil itu.
+
+Para pelaut menarik Guo Jing ke atas kapal dan mengulurkan tangan mereka untuk menariknya masuk. Tangan kiri Huang Rong 
+menekan tepi perahu dan ia melompat dari air seperti ikan terbang, ke dalam perahu, menakuti para pelaut.
+
+Ketika telapak tangannya bertabrakan dengan Ouyang Feng, Guo Jing merasakan kekuatan yang luar biasa menembus tubuhnya dan 
+ia langsung pingsan. Ia terbangun dan tahu bahwa sedang bersandar di dada Huang Rong, menyadari bahwa mereka berada di atas 
+sekoci. Ia memusatkan pernapasannya dan menemukan bahwa ia tidak mengalami luka dalam. Ia mengangkat alisnya dan tersenyum 
+kepada Huang Rong.
+
+Huang Rong membalas senyumnya, kecemasan dan ketakutannya hilang dalam sekejap. Ia akhirnya ounya kesempatan untuk melihat 
+jenis kapal apa yang datang untuk menyelamatkan mereka. Begitu melihat ke atas, ia mengeluh dalam hati, ia melihat tujuh 
+atau delapan pria, tinggi dan pendek, sedang berdiri di haluan. Mereka adalah para pesilat yang sama dengan beberapa bulan 
+sebelumnya di Istana Zhao, di Yanjing. Yang pendek dan gemuk dengan mata cerah adalah 
+[Qian Shou Ren Tu](panggilan.md#qian-shou-ren-tu "Jagal Bertangan Seribu") Peng Lianhu, yang botak dengan kepala berkilau 
+adalah [Gui Men Long Wang](panggilan.md#gui-men-long-wang "Gerbang Hantu") Sha Tongtian. Orang yang punya tiga bisul di 
+kepalanya mencuat seperti tanduk adalah 
+[San Tou Jiao](panggilan.md#san-tou-jiao "Naga Berkepala Tiga") Hou Tonghai, sedangkan yang berwajah kemerahan dan berambut 
+putih adalah 
+[Can Xian Lao Guai](panggilan.md#can-xian-lao-guai "Dewa Ginseng") Liang Ziweng. Dan terakhir, yang memakai kasaya merah 
+sudah jelas adalah biksu Tibet 
+[Da Shou Yin](panggilan.md#da-shou-yin "Telapak Tangan Raksasa, Da Shou Yin (大手印)") Lingzhi Shangren. Ada beberapa orang lain yang ia tidak kenal. Ia berpikir, "Kungfu Jing Gege dan aku sendiri baru-baru ini meningkat di luar dugaan. Kalau harus 
+bertarung melawan Peng Lianhu dan yang lainnya satu lawan satu, aku mungkin tidak akan menang, tapi Jing Gege pasti akan 
+menang. Tapi Racun Tua berdiri di dekatnya, ditambah orang-orang lain ini. Akan sangat sulit bagi kita untuk menghindari 
+bahaya hari ini."
+
+**Last line was 504 in the draft**
+
+G-585147

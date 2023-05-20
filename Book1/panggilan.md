@@ -70,3 +70,33 @@ Secara literal berarti 'Kakek'.
 Arti literalnya adalah "Dermawan", atau orang yang menyumbangkan hartanya. Panggilan ini biasanya dipakai para
 Biksu untuk berbicara kepada orang lain.
 
+### <a name="gui-men-long-wang" id="gui-men-long-wang">Gui Men Long Wang (鬼门龙王)</a>
+
+Julukan Sha Tongtian, yang bisa diterjemahan menjadi Raja Naga dari Gerbang Iblis.
+
+### <a name="san-tou-jiao" id="san-tou-jiao">San Tou Jiao (三头蛟)</a>
+
+Julukan adik seperguruan Sha Tongtian, Hou Tonghai, yang berarti 'Naga Berkepala Tiga'.
+
+### <a name="can-xian-lao-guai" id="can-xian-lao-guai">Can Xian Lao Guai (参仙老怪)</a>
+
+Julukan Liang Ziweng, yang seharusnya diterjemahkan menjadi 'Dewa Ginseng yang Tua dan Aneh', tetapi mengingat
+sisi estetika dalam penulisan karakter atau julukan para tokoh dunia persilatan, julukan ini kita sederhanakan
+menjadi 'Dewa Ginseng'.
+
+Karakter Xian (仙) adalah 'Immortal', dalam konteks ini bisa diartikan 'Dewa', sedangkan 'Lao Guai' adalah 'Orang tua Aneh'.
+
+### <a name="da-shou-yin" id="da-shou-yin">Da Shou Yin (大手印)</a>
+
+Ini adalah julukan bagi Linzhi Shangren (灵智上人), Biksu Tibet yang menjadi tamu kehormatan Wangyan Honglie. Sebenarnya
+Shangren (上人) sendiri _juga_ adalah sebuah gelar, tetapi itu adalah gelar dalam struktur keagamaan Buddha, sedangkan
+Da Shou Yin adalah julukannya dalam dunia persilatan.
+
+Sebagai catatan, posisi yang diduduki Lingzhi Shangren adalah _precursor_ bagi Dalai Lama di dunia modern. Para Biksu Tibet
+mendapat banyak kemudahan setelah Kubilai Khan, cucu dari Genghis Khan berkuasa sebagai Khan Aung, dan sekaligus Kaisar
+pendiri Dinasti Yuan. Permaisuri Kubilai Khan, Chabbi, diketahui adalah seorang pemeluk agama Buddha Tibet yang sangat taat.
+
+### <a name="qian-shou-ren-tu" id="qian-shou-ren-tu">Qian Shou Ren Tu (千手人屠)</a>
+
+Julukan Peng Lianhu, yang bisa diartikan 'Jagal Bertangan Seribu'.
+
