@@ -483,6 +483,14 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Jubah yang dikenakan oleh para Biksu/Biksuni.</dd>
     <dt id="qin-na">Qin Na (擒拿)</dt>
     <dd>Teknik untuk menangkap dan merebut.</dd>
+    <dt id="jiangnan-qi-guai">Jiangnan Qi Guai (江南七怪)</dt>
+    <dd>Tujuh Orang Aneh dari Jiangnan, para guru Guo Jing sejak kecil.</dd>
+    <dt id="xiao-wang">Xiao Wang (小王)</dt>
+    <dd>
+        Secara literal istilah ini berarti 'Raja Kecil', tetapi maksud yang sebenarnya adalah untuk merendahkan diri di 
+        hadapan orang lain, bukan dalam arti 'Raja Muda'. Contohnya, Wanyan Honglie memanggil dirinya sendiri dengan sebutan 
+        ini ketika berbicara dengan seseorang yang ingin direkrutnya.
+    </dd>
 </dl>
 
 
