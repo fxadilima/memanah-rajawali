@@ -553,7 +553,7 @@ kepada Saudara Qi apa yang dia inginkan."
 Hong Qigong tertawa. 
 "[Racun Tua](referensi-karakter.md#empat-lao "Lao Du (老毒) = Racun Tua, panggilan akrab Ouyang Feng di antara mereka berempat."), 
 masalah ini bukan urusanmu. Kau sedang usil. Kau sebaiknya menyiapkan perutmu untuk minum 
-[Xi Jiu](referensi-karakter.md#xi-jiu "Xi Jiu (喜酒), istilah yang digunakan untuk anggur yang disajikan di pesta pernikahan.")."
+[Xi Jiu](referensi-karakter.md#xi-jiu "Xi Jiu (喜酒), istilah yang digunakan untuk arak yang disajikan di pesta pernikahan.")."
 
 "Minum xi jiu?" Ouyang Feng bertanya-tanya.
 
@@ -1284,7 +1284,7 @@ Langkah Hong Qigong terhenti, "Apa?" Ia mengangkat alisnya. "Kau ingin melawanku
 "Kau tidak mengerti teori 'Gerbang Aneh Lima Elemen'[^lima-elemen]," jawab Huang Yaoshi, "Jangan pernah berpikir untuk 
 meninggalkan pulau ini hidup-hidup tanpa seijinku."
 
-[^lima-elemen]: Ini berkaitan erat dengan Taoisme, terutama sekali yang berhubungan dengan [Ba Gua](referensi-karakter.md#ba-gua "Ba Gua/Pakuq/Patkwa = Delapan Trigram"). Kalau Anda pernah memainkan game semacam _Maze_, maka intinya kurang lebih adalah sama. Tetapi tentunya apa yang disusun Huang Yaoshi di Pulau Persik jauh lebih rumit dari game modern, karena semuanya berdasarkan Ba Gua dan ajaran dasar Taoisme.
+[^lima-elemen]: Ini berkaitan erat dengan Taoisme, terutama sekali yang berhubungan dengan [Ba Gua](referensi-karakter.md#ba-gua "Ba Gua/Pakua/Patkwa = Delapan Trigram"). Kalau Anda pernah memainkan game semacam _Maze_, maka intinya kurang lebih adalah sama. Tetapi tentunya apa yang disusun Huang Yaoshi di Pulau Persik jauh lebih rumit dari game modern, karena semuanya berdasarkan Ba Gua dan ajaran dasar Taoisme.
 
 Hong Qigong marah, "Aku akan membakar pohon dan semak bungamu yang bau!"
 

@@ -16,7 +16,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
 <dl>
     <dt id="lingzhi-shangren">Lingzhi Shang Ren (靈智上人)</dt>
     <dd>
-        Lingzhi (靈智) adalah seorang biksu Tibet yang adalah pemimpin tertinggi dalam sekte agama Budha Tibet
+        Lingzhi (靈智) adalah seorang biksu Tibet, yang adalah pemimpin tertinggi dalam sekte agama Budha Tibet
         pada saat itu. Jabatan tersebut adalah cikal-bakal jabatan Dalai Lama yang sekarang.
         Gelar Shangren (上人) di belakang namanya bisa diartikan "Master" atau "Pemimpin Tertinggi", karena
         karakter Shang (上) di sini bermakna "Superior". Sedangkan Ren (人) berarti "Manusia" atau "Orang".

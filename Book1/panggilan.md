@@ -88,12 +88,12 @@ Karakter Xian (仙) adalah 'Immortal', dalam konteks ini bisa diartikan 'Dewa', 
 
 ### <a name="da-shou-yin" id="da-shou-yin">Da Shou Yin (大手印)</a>
 
-Ini adalah julukan bagi Linzhi Shangren (灵智上人), Biksu Tibet yang menjadi tamu kehormatan Wangyan Honglie. Sebenarnya
+Ini adalah julukan bagi Lingzhi Shangren (灵智上人), Biksu Tibet yang menjadi tamu kehormatan Wangyan Honglie. Sebenarnya
 Shangren (上人) sendiri _juga_ adalah sebuah gelar, tetapi itu adalah gelar dalam struktur keagamaan Buddha, sedangkan
 Da Shou Yin adalah julukannya dalam dunia persilatan.
 
 Sebagai catatan, posisi yang diduduki Lingzhi Shangren adalah _precursor_ bagi Dalai Lama di dunia modern. Para Biksu Tibet
-mendapat banyak kemudahan setelah Kubilai Khan, cucu dari Genghis Khan berkuasa sebagai Khan Aung, dan sekaligus Kaisar
+mendapat banyak kemudahan setelah Kubilai Khan, cucu dari Genghis Khan berkuasa sebagai Khan Agung, dan sekaligus Kaisar
 pendiri Dinasti Yuan. Permaisuri Kubilai Khan, Chabbi, diketahui adalah seorang pemeluk agama Buddha Tibet yang sangat taat.
 
 ### <a name="qian-shou-ren-tu" id="qian-shou-ren-tu">Qian Shou Ren Tu (千手人屠)</a>

@@ -141,7 +141,7 @@ Lu Chengfeng memberikan sejumlah uang bagi setiap tamunya sebagai bekal untuk me
 Setelah meninggalkan Rumah Awan, Guo Jing berkata kepada guru-gurunya, "Muridmu dan Adik Yang akan pergi ke Utara
 untuk membunuh Wanyan Honglie. Aku minta nasihat dari para Shifu sekalian."
 
-"[Perayaan Pertengahan Musim Gugur](referensi-karakter.md#zhongqiu-jie "Zhong Qiu Jie (中秋节), perayaan tradisional masyarakat Tionghoa, yang di Indonesia lebih dikenal sebagai Tiong Ciu, dan ditandai dengan berbagi Kue Bulan atau Tiong Ciu Pia.") masih beberapa minggu lagi, sementara kami tidak punya sesuatu yang mendesak untuk dilakukan. Kupikir kami 
+"[Perayaan Pertengahan Musim Gugur](referensi-karakter.md#zhongqiu-jie "Zhong Qiu Jie (中秋节), perayaan tradisional masyarakat Tionghoa, yang di Indonesia lebih dikenal sebagai Tiong Chiu Chie, dan ditandai dengan berbagi Kue Bulan atau Tiong Chiu Pia.") masih beberapa minggu lagi, sementara kami tidak punya sesuatu yang mendesak untuk dilakukan. Kupikir kami 
 sebaiknya menemanimu untuk mengurus masalah penting ini," kata Ke Zhen'E. Zhu Cong dan yang lainnya setuju.
 
 "Jasa kalian kepada muridmu ini sudah setinggi gunung. Kungfu Wanyan Honglie biasa-biasa saja. Dengan bantuan 

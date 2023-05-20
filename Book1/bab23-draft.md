@@ -1,5 +1,5 @@
 # Bab 23
-## Masalah Di Istana
+## Masalah Besar Di Istana
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |
