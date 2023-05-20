@@ -481,6 +481,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>Ada masalah</dd>
     <dt id="kasaya">Kasaya atau Jiasha (袈裟)</dt>
     <dd>Jubah yang dikenakan oleh para Biksu/Biksuni.</dd>
+    <dt id="qin-na">Qin Na (擒拿)</dt>
+    <dd>Teknik untuk menangkap dan merebut.</dd>
 </dl>
 
 

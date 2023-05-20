@@ -1029,7 +1029,7 @@ begitu ada kesempatan.
 
 Sekarang ia tidak berani lagi meremehkan lawannya, dan segera meluncurkan serangan ini. Ia mengerahkan seluruh kemampuan 
 yang dimilikinya untuk menyerang Guo Jing. Teknik tinju itu aneh, Guo Jing belum pernah melihat yang seperti ini sebelumnya. 
-Ia berpikir, "Dalam teknik 
+Ia berpikir, "Di dalam 
 [Tao Hua Shen Jian Zhang](referensi-karakter.md#taohua-shen-jian-zhang "Ilmu Pedang Dewa Pulau Persik") milik Rong'er ada 
 banyak gerakan tipuan, dari lima serangan hanya satu yang nyata, atau terkadang satu dari delapan. Tapi sepertinya jurus 
 kakek tua ini semuanya adalah serangan kosong. Aku ingin tahu teknik aneh macam apa ini?" Tetapi ia ingat nasihat Hong 
@@ -1321,6 +1321,83 @@ kuat yang menyerang telapak dan pergelangan tangannya. Ia tahu jika ia tidak men
 akan segera patah. Pada saat kritis ini ia dengan cepat menarik tangan kanannya, sementara tangan kirinya meluncurkan 
 [Po Jia Zhui](referensi-karakter.md#po-jia-zhui "Po Jia Zhui (破甲锥) = Kerucut Penembus Baja").
 
+Apa yang terjadi adalah ketika Lingzhi Shangren terlempar bolak-balik antara Ouyang Feng dan Zhou Botong, darahnya mengalir 
+deras, kepalanya pusing sementara hatinya terbakar oleh amarah. Ia mendengar Zhou Botong memanggil orang lain untuk 
+menerima tubuhnya, yang ia tahu adalah orang itu pasti musuh, jadi saat masih di udara ia sudah mengerahkan tenaganya dalam 
+kemarahan. Segera setelah tangan Sha Tongtian menyentuh lehernya, Da Shou Yin milik Lingzhi Shangren menebasnya.
 
-**Last line was 692 in the draft**
+Dalam hal kekuatan, keduanya cukup setara, Sha Tongtian memiliki keuntungan berdiri tegak, tetapi Lingzhi Shangren telah 
+mempersiapkan serangannya sebelumnya, dan dengan demikian membuatnya lengah. Dua kekuatan yang sama bertabrakan, Sha 
+Tongtian terdorong mundur tiga langkah, tetapi Lingzhi Shangren, yang juga terguncang oleh benturan itu, jatuh tersungkur 
+di geladak. Ia segera berdiri dan melihat bahwa orang yang dikira sedang menyerangnya ternyata adalah Sha Tongtian, ia 
+berpikir, "Bahkan kau, bajingan tengik, _juga_ ingin mengambil keuntungan dari aku!" Dengan raungan keras ia menerkam ke 
+depan.
+
+Peng Lianhu tahu ia salah memahami situasinya, dan buru-buru melangkah di antara dua orang itu sambil berseru, "Shangren, 
+tolong jangan marah, Sha Xiong hanya berniat baik."
+
+Sementara itu perahu kecil telah diturunkan. Zhou Botong meraih tongkat di dalam mulut hiu, ia mengangkat dan melemparkan 
+hiu besar itu ke laut sambil mengerahkan tenaganya, dan mematahkan tongkat itu menjadi dua bagian. Saat tercebur ke laut, 
+hiu merasa tongkat di mulutnya telah patah dan sangat senang. Ia menyelam jauh ke dalam air untuk berburu ikan.
+
+Huang Rong tersenyum, "Jing Gege, nanti kita berdua dan Kakak Zhou bisa naik hiu bersama, dan kita bisa berlomba." Guo Jing 
+tidak menjawab, tetapi Zhou Botong bertepuk tangan dan bersorak. Ia berkata, "Kita bisa minta Pengemis Tua menjadi wasit 
+kita."
+
+Setelah melihat Zhou Botong dan yang lainnya pergi dengan perahu kecil, Wanyan Honglie mulai berpikir. Dengan kungfunya, 
+Ouyang Feng akan memberikan bantuan yang berharga dalam rencananya untuk mencuri buku itu. Ia meraih tangan Lingzhi Shangren 
+dan berjalan menuju Ouyang Feng. "Semua orang di sini adalah teman baik, dan aku harap Xiansheng tidak tersinggung. Aku 
+yakin Shangren tidak serius. Aku berharap kalian berdua memberi muka kepada Xiao Wang dan menganggap semuanya sebagai 
+lelucon," katanya.
+
+Ouyang Feng tersenyum dan mengulurkan tangannya. Sebaliknya Lingzhi Shangren masih kesal. Ia berpikir, "Kau hanya 
+menggunakan teknik 
+[qin na](referensi-karakter.md#qin-na "Qin Na (擒拿) = Menangkap dan Merebut") dan membuatku lengah. Aku berlatih dengan 
+susah payah selama puluhan tahun untuk mengembangkan Da Shou Yin, menurutmu aku lebih rendah darimu?" Kemudian ia juga 
+mengulurkan tangannya sambil mengirimkan tenaga ke telapak tangannya dengan maksud mencengkeram keras telapak tangan Ouyang 
+Feng. Saat ia hendak mengerahkan kekuatannya, ia tiba-tiba melompat menjauh. Ia merasa seolah-olah sedang menyentuh baja 
+panas membara, dan tangannya sangat kesakitan sehingga ia buru-buru menariknya. Ouyang Feng tidak ingin melanjutkan masalah 
+ini, jadi ia hanya tersenyum tipis. Lingzhi Shangren memeriksa tangannya, dan tidak melihat sesuatu yang aneh, ia berpikir, 
+"Sialan, bajingan tua ini pasti punya semacam ilmu setan."
+
+Ouyang Feng memperhatikan Liang Ziweng masih terbaring di geladak, tidak bergerak. Ia datang untuk memeriksanya. Ouyang Feng 
+tahu bahwa Liang Ziweng didorong ke laut oleh Guo Jing dan dicegat oleh Zhou Botong, yang menotok jalan darahnya dan 
+melemparkannya kembali ke perahu. Ia membuka totokan Liang Ziweng, sejak itu Ouyang Feng menjadi pemimpin kelompok ahli
+silat ini.
+
+Wanyan Honglie segera memesan perjamuan untuk menyambut Ouyang Feng dan keponakannya. Sambil meminum arak, Wanyan Honglie 
+menjelaskan kepada Ouyang Feng rencananya untuk pergi ke Lin'an dan mencuri buku warisan Wumu, sekaligus meminta 
+kesediaannya untuk membantu. Ouyang Feng sebenarnya telah mendengar tentang masalah ini dari keponakannya, tetapi kali ini 
+hatinya tergerak. Tiba-tiba sebuah pikiran muncul di benaknya, "Menurutmu, orang seperti apa aku, Ouyang Feng ini? Masa aku 
+harus tunduk di hadapanmu? Tapi kudengar tidak hanya kemampuan militer Yue Fei yang hebat, kungfunya juga luar biasa. Aku 
+juga dengar kungfu Keluarga Yue telah hilang dari dunia persilatan. Barangkali dalam buku warisannya ada buku pedoman silat 
+selain strategi kemiliteran. Aku akan setuju untuk membantunya mendapatkan buku itu, dan kalau aku mau... masa aku tidak
+bisa mendapatkannya?"
+
+Ini persoalan "kau curang dan aku licik..." semua orang punya kepentingan sendiri. Wanyan Honglie dengan sepenuh hati 
+ingin buku itu membantunya mengalahkan Kekaisaran Song. Ada pepatah mengatakan bahwa 'Si Belalang menipu jangkrik, tanpa 
+menyadari bahaya di belakangnya'[^pepatah-1]. Ouyang Feng punya ide berbeda di atas idenya. Oleh karena itu, sementara 
+yang seorang menumpuk kata-kata sanjungan, mulut yang lain penuh dengan kepatuhan. Selain itu, Liang Ziweng melakukan yang 
+terbaik untuk menjadi tuan rumah, dan meja perjamuan dipenuhi dengan arak. Para tamu dan tuan rumah bersenang-senang. Hanya 
+Ouyang Ke yang masih kesakitan karena lukanya tidak minum apapun, hanya makan beberapa piring. Kemudian minta para pelayan 
+membantunya ke kabin belakang untuk beristirahat.
+
+[^pepatah-1]: Tanglang Bu Chan Huang Que Zai Hou (螳螂捕蝉黄雀在后). Secara literal kira-kira adalah 'Sang Belalang menangkap jangkrik, tetapi Si Burung Kepondang ada di belakangnya'. Huang Que (黄雀) adalah Burung Kepodang kuduk-hitam. Pepatah ini secara umum bermakna 'Mengejar keuntungan tipis dan mengabaikan bahaya besar'.
+
+Saat mereka makan dan minum dengan meriah, wajah Ouyang Feng tiba-tiba berubah. Cangkir itu berhenti di mulutnya dan dia tidak minum. Semua orang terkejut; tidak ada yang tahu apa yang telah menyinggung perasaannya. Wanyan Honglie hendak bertanya ketika Ouyang Feng berkata, “Dengar!”
+
+Semua orang memiringkan kepala untuk mendengarkan, tetapi selain angin dan ombak laut, mereka tidak mendengar apapun. Sesaat kemudian Ouyang Feng bertanya lagi, “Apakah kamu mendengarnya kali ini? Itu suara seruling.” Semua orang mendengarkan dengan penuh perhatian dengan penuh perhatian dan sekarang mereka dapat mendengar, di antara suara ombak, suara samar seruling bambu, terkadang pecah, terkadang terus menerus. Tidak ada yang akan mendengarnya jika Ouyang Feng tidak menunjukkannya.
+
+Ouyang Feng berjalan ke haluan; di sana dia mengeluarkan peluit panjang dan suaranya menyebar jauh. Sekarang semua orang telah tiba di haluan. Mereka melihat di kejauhan sebuah perahu ringan dengan tiga layar hijau, membelah ombak dan datang dengan cepat menuju perahu mereka. Mereka heran dalam hati, “Apakah suara seruling berasal dari perahu itu? Itu sangat jauh… bagaimana suaranya bisa sampai ke sini?”
+
+Ouyang Feng memerintahkan para pelaut untuk memutar kemudi untuk mencegat kapal cepat itu. Dua perahu secara bertahap mendekat satu sama lain. Di haluan kapal cepat itu berdiri seorang laki-laki berjubah panjang berwarna hijau tua dan di tangannya memang ada seruling. Dia memanggil dengan keras, "Kakak Feng, apakah kamu melihat putriku?"
+
+“Putrimu memiliki temperamen yang sangat kuat, beraninya aku memprovokasi dia?” Jawab Ouyang Feng.
+
+Dua perahu terpisah beberapa zhang dan tidak ada yang melihat pria itu menggerakkan tubuhnya dan melompat, namun mereka melihat bayangan kabur dan pria itu sudah berdiri di geladak kapal besar.
+
+Saat Wanyan Honglie melihat keahliannya yang luar biasa dan keinginannya untuk merekrut prajurit muncul; dia melangkah maju untuk menyambut tamu itu, berkata, “Siapa nama belakang Anda, Tuan? Saya sangat beruntung menerima kunjungan Anda.” Mempertimbangkan posisinya yang tinggi sebagai pangeran Jin Agung, dia menjadi sangat rendah hati. Setelah melihat dia mengenakan kostum pejabat Jin, pria itu hanya memberinya tatapan kosong, tampaknya tidak memperhatikannya.
+
+
+**Last line was 726 in the draft**
 
