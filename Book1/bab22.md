@@ -1030,13 +1030,14 @@ begitu ada kesempatan.
 Sekarang ia tidak berani lagi meremehkan lawannya, dan segera meluncurkan serangan ini. Ia mengerahkan seluruh kemampuan 
 yang dimilikinya untuk menyerang Guo Jing. Teknik tinju itu aneh, Guo Jing belum pernah melihat yang seperti ini sebelumnya. 
 Ia berpikir, "Dalam teknik 
-[Tao Hua Shen Jian Zhang](referensi-karakter.md#taohua-shen-jian-zhang) milik Rong'er ada banyak gerakan tipuan, dari lima 
-serangan hanya satu yang nyata, atau terkadang satu dari delapan. Tapi sepertinya jurus kakek tua ini semuanya adalah 
-serangan kosong. Aku ingin tahu teknik aneh macam apa ini?" Tetapi ia ingat nasihat Hong Qigong, bahwa terlepas dari teknik 
-yang digunakan lawannya, yang perlu dilakukannya hanyalah tetap menggunakan Delapan Belas Jurus Penakluk Naga.
+[Tao Hua Shen Jian Zhang](referensi-karakter.md#taohua-shen-jian-zhang "Ilmu Pedang Dewa Pulau Persik") milik Rong'er ada 
+banyak gerakan tipuan, dari lima serangan hanya satu yang nyata, atau terkadang satu dari delapan. Tapi sepertinya jurus 
+kakek tua ini semuanya adalah serangan kosong. Aku ingin tahu teknik aneh macam apa ini?" Tetapi ia ingat nasihat Hong 
+Qigong, bahwa terlepas dari teknik yang digunakan lawannya, yang perlu dilakukannya hanyalah tetap menggunakan Delapan Belas 
+Jurus Penakluk Naga.
 
 Setelah menyaksikan kedua pria itu bertarung sebentar, semua orang mulai menggelengkan kepala dalam diam sambil berpikir, 
-"Si Tua Liang Tua bisa dianggap sebagai ahli silat yang hebat, mengapa saat melawan bocah bau kencur ini dia terus bergerak 
+"Si Tua Liang bisa dianggap sebagai ahli silat yang hebat, mengapa saat melawan bocah bau kencur ini dia terus bergerak 
 dan tidak berani menyerang secara langsung?"
 
 Beberapa langkah kemudian kekuatan telapak tangan Guo Jing mulai memaksanya mundur selangkah demi selangkah, sepertinya ia 
