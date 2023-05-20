@@ -1082,3 +1082,10 @@ Ini adalah pepatah kuno Tiongkok yang berarti 'Mengabaikan orang yang sedang dal
 
 Ilmu totokan yang dikuasai oleh Ouyang Feng dan Huang Yaoshi. Nama ini bisa diterjemahkan menjadi 'Totokan Penembus Tulang'.
 
+
+### <a name="po-jia-zhui" id="po-jia-zhui">Po Jia Zhui (破甲锥)</a>
+
+Ini sebuah gerakan yang dilakukan oleh Sha Tongtian di Bab 22, mungkin bisa diterjemahkan menjadi 'Kerucut Penembus Baja'.
+
+
+

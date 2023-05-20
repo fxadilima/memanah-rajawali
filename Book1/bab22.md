@@ -1142,6 +1142,184 @@ kata-kataku, jadi kami berdua bertaruh. Saudara Zhou, bukankah yang kukatakan be
 
 [^zhongqiu-jie]: Zhong Jiu Jie (中秋节), atau lebih populer dengan sebutan Tiong Chiu Chue di Indonesia, adalah perayaan tradisional masyarakat Tionghoa, yang biasa ditandai dengan saling berbagi kue bulan (Tiong Chiu Pia).
 
+Zhou Botong mengangguk berulang kali, "Itu benar sekali. Tapi kau perlu menjelaskan kepada semua orang apa sebenarnya yang 
+kita pertaruhkan," katanya.
 
-**Last line was 608 in the draft**
+"Benar!" kata Ouyang Feng. "Aku mengatakan bahwa jika aku kalah, aku akan melakukan apa pun yang kau inginkan. Jika aku 
+tidak mau melakukannya, maka aku harus terjun ke laut dan menjadi makanan ikan. Kau mengatakan hal yang sama, apakah itu 
+benar?"
+
+Zhou Botong menganggukkan kepalanya lagi, "Benar, benar, itu benar sekali, lalu apa yang terjadi?"
+
+"Apa maksudmu 'apa yang terjadi'? Kau kalah!" kata Ouyang Feng.
+
+Kali ini Zhou Botong menggelengkan kepalanya berulang kali, "Tidak benar, tidak benar!" katanya, "Kau yang kalah, bukan aku."
+
+Ouyang Feng marah, "Pria sejati bisa membedakan antara benar dan salah, bagaimana kau bisa menyangkal kata-katamu sendiri? 
+Kalau aku kalah, kok kau rela terjun ke laut untuk bunuh diri?"
+
+Zhou Botong menghela nafas, "Itu benar. Aku awalnya mengatakan bahwa keberuntungan Lao Wantong buruk jadi aku kalah, tapi 
+siapa sangka Surga mengirimkan sesuatu yang bisa dianggap kebetulan. Baru pada saat itulah aku tahu bahwa Racun Tua justru 
+kalah dan Lao Wantong benar-benar menang!"
+
+Ouyang Feng, Hong Qigong, dan Huang Rong bertanya bersama, "Kebetulan apa?"
+
+Zhou Botong membungkuk dengan tangan kirinya, meraih sebatang tongkat yang tertancap di dalam mulut hiu, mengangkat hiu itu 
+dan berkata, "Aku bertemu hewan tungganganku ini. Racun Tua, lihatlah, keponakanmu yang hebat itu yang memasukkan tongkat ini ke dalam mulutnya, kan?"
+
+Memang Ouyang Ke yang mengarang rencana jahat ini untuk memasukkan tongkat ke dalam mulut hiu, agar tidak bisa makan dan 
+akhirnya mati kelaparan. Ouyang Feng melihat hal itu dengan matanya sendiri. Ia melihat seekor hiu besar dengan tongkat kayu 
+di mulutnya, dan ia juga melihat luka yang disebabkan oleh kail di mulut hiu itu. Tanpa diragukan lagi, ini adalah hiu yang 
+sama yang mereka kembalikan ke laut hari itu. "Terus?" katanya.
+
+Zhou Botong bertepuk tangan dan tertawa, “Itu berarti kau kalah! Taruhan kita adalah kau akan membunuh _semua_ hiu, tapi 
+orang baik ini dianugerahi keberuntungan oleh keponakanmu. Hiu _ini_ tidak bisa makan hiu yang mati, karena itu _juga_ 
+tidak bisa makan racunnya. Ini satu-satunya hiu yang masih hidup. Bagaimana kau bisa bilang Lao Wantong kalah? Ia tertawa 
+terbahak-bahak. Wajah Ouyang Feng berubah, ia tidak bisa mengatakan apa-apa.
+
+Guo Jing dengan senang hati bertanya, "Kakak, di mana kau beberapa hari ini? Aku sangat sedih memikirkanmu."
+
+Zhou Botong tertawa, "Aku bermain-main. Tidak lama setelah aku melompat ke laut, aku melihat sobat ini terengah-engah di 
+permukaan dan sepertinya kesakitan. Kubilang, 'Hiu, Hiu, sepertinya hari ini kau dan aku berbagi nasib yang sama!' Lalu 
+aku tiba-tiba melompat ke punggungnya. Dia mati-matian masuk ke dalam air dan aku harus menahan napas dengan kedua tangan 
+memegang lehernya erat-erat dan kakiku kadang-kadang menendang perutnya. Dengan susah payah ia kembali ke permukaan. Tanpa 
+memberiku kesempatan untuk mengambil dua teguk udara, sahabatku ini menyelam lagi ke bawah. Kami berdua bertarung selama 
+setengah hari, sebelum akhirnya dia patuh dan mau menuruti perintahku. Aku ingin dia pergi ke timur dan dia pergi ke timur, 
+aku ingin dia pergi ke utara dan dia tidak berani pergi ke selatan." Saat berbicara ia dengan lembut menepuk kepala hiu itu, 
+terlihat sangat senang.
+
+Dari mereka yang hadir, hanya Huang Rong yang mengagumi dan iri kepadanya. Matanya bersinar dan ia bertanya, "Aku bermain di 
+laut selama bertahun-tahun, kenapa aku tidak memikirkan tipuan seperti ini? Aku sangat bodoh!"
+
+"Lihatlah mulutnya penuh gigi, semuanya setajam pisau," kata Zhou Botong. "Kalau tidak ada tongkat di mulutnya, kau berani 
+menungganginya?"
+
+"Kamu menghabiskan beberapa hari terakhir dengan menunggangi punggung ikan ini?" tanya Huang Rong.
+
+"Tentu saja," jawab Zhou Botong, "Kami berdua sama-sama bisa menangkap ikan. Begitu kami melihat ikan, kami mengejarnya 
+dan aku mengirimkan kepalan tangan atau telapak tangan untuk membunuhnya. Dari sepuluh ikan, aku hanya makan satu dan kawanku ini memakan sembilan."
+
+Huang Rong meraba perut hiu dan bertanya, "Kau membuang ikan mati ke dalam perutnya? Tidak perlu giginya untuk makan?”
+
+"Dia pemakan yang baik," jawab Zhou Botong, "Pernah kami berdua mengejar sotong yang sangat besar..."
+
+Dua orang, satu tua, yang lain muda, sedang berdiskusi dengan bersemangat, sama sekali mengabaikan semua orang di kapal. 
+Ouyang Feng mengeluh dalam hati, dan diam-diam memikirkan beberapa cara untuk menghadapi situasi ini. Zhou Botong tiba-tiba 
+menoleh padanya dan berkata, "Hei, Racun Tua, kau mengaku kalah?"
+
+Ouyang Feng adalah orang yang sebelumnya bicara, bagaimana dia bisa menelan kata-katanya sendiri di depan banyak orang ini? 
+Ia berkewajiban untuk mengatakan, "Jadi bagaimana jika saya kalah? Kau pikir ada hal yang tidak bisa kulakukan?"
+
+"Hmm," kata Zhou Botong. "Aku pasti memikirkan hal yang sulit untuk kau lakukan. Baiklah, kau baru saja memaku aku dengan 
+bilang kentut. Aku ingin kau segera kentut, dan membiarkan semua orang menciumnya."
+
+Mendengar Zhou Botong meminta Ouyang Feng untuk buang angin tanpa alasan sama sekali, Huang Rong merasa kesal. Menghembuskan 
+angin sesuka hati tentu saja tidak mudah bagi kebanyakan orang, tetapi dengan tenaga dalamnya yang kuat, tidak sulit untuk 
+mengedarkan pernapasan ke seluruh bagian tubuh, maka hal itu jadi sangat sepele untuk dilakukan. Ia takut pada kelicikan 
+Ouyang Feng, pada tongkat ular berbisanya, dan takut ia akan mengambil kesempatan ini untuk mengumpulkan angin dengan 
+ringan, lalu menyatukannya di belakangnya tanpa terlalu banyak kesulitan. Jadi ia buru-buru berkata, "Tidak bagus, tidak 
+bagus! Pertama kau _harus_ menyuruhnya membuka totokan Shifu, lalu kita bisa bicara lagi."
+
+"Lihat!" kata Zhou Botong. "Xiao Guniang ini juga takut dengan bau kentutmu. Baik, aku akan membebaskanmu kali ini. Lagipula 
+aku tidak akan memintamu melakukan hal yang sulit, cepat merawat luka si Pengemis Tua. Keahlian Pengemis Tua tidak kalah 
+dari keahlianmu, jika bukan karena kelicikanmu, tidak mungkin kau bisa melukainya. Setelah dia sembuh, kalian berdua bisa 
+bertarung lagi. Pada saat itu biar Lao Wantong yang jadi wasitnya."
+
+Ouyang Feng tahu cedera Hong Qigong tidak bisa disembuhkan, jadi ia tidak takut akan pembalasan di masa depan. Tapi ia 
+takut Zhou Botong akan mengajukan permintaan yang lebih sulit dan aneh. Di bawah pengawasan banyak orang ia merasa sangat 
+canggung, ia tidak mau menurut, tapi ia terlalu bangga untuk tidak melakukannya. Tanpa berkata apa-apa ia membungkuk, 
+mengerahkan kekuatan ke telapak tangannya dan membuka totokan di tubuh Hong Qigong. Huang Rong dan Guo Jing bergegas maju 
+untuk membantu guru mereka berdiri.
+
+Zhou Botong mengalihkan pandangannya ke orang lain di geladak, ia berkata, "Lao Wantong paling takut mencium bau kencing 
+domba yang kalian makan. Cepat turunkan sekoci, dan kirimkan kami berempat ke darat."
+
+Sejak melihat pertarungan antara Zhou Botong dan Huang Yaoshi, Ouyang Feng tahu bahwa kungfu orang ini sangat aneh. Jika 
+karena alasan apa pun mereka harus bertarung, ia yakin tidak akan kalah, tetapi mencetak kemenangan juga tidak dijamin. Ia 
+memutuskan untuk menanggung hal apapun dengan sabar untuk saat ini. Ia ingin menunggu sampai ia menguasai Jiu Yin Zhen Jing, 
+kemudian ia akan datang dan membuat perhitungan dengan Zhou Botong. Selain itu, ia punya alasan karena kalah taruhan tadi. 
+Kalau semua itu sudah dibereskan, akan lebih baik untuk membuang urusan runyam ini sejauh mungkin, jadi ia mengambil 
+keputusan dan berkata, "Baiklah, keberuntunganmu memang bagus! Karena kau menang taruhan, biar kuberikan segala yang kau 
+inginkan." Menoleh ke arah Wanyan Honglie, ia berkata, "Pangeran, tolong turunkan perahu untuk membawa keempat orang ini ke 
+darat."
+
+Wanyan Honglie ragu-ragu sambil berpikir, "Takutnya begitu mereka sampai di darat, keempat orang ini akan membocorkan misi 
+rahasiaku ke selatan."
+
+Selama ini Lingzhi Shangren mengawasi semuanya dengan tatapannya yang dingin. Sebelumnya ia telah melihat penampilan Ouyang 
+Feng yang tidak terawat dan hatinya penuh dengan penghinaan. Ia berpikir bahwa 'ayam setengah tenggelam dalam sup' ini tidak 
+berani menentang bahkan setengah kata dari apa pun yang disuruh Zhou Botong, sepertinya ia reputasinya hanya omong kosong. 
+Kalaupun kungfunya bagus, ia belum tentu lebih baik dari orang-orang lain di kapal ini. Menyadari sedikit keraguan Wanyan 
+Honglie, ia bergerak maju dua langkah dan berkata, "Jika kita berada di atas rakit, kita harus menuruti keinginan Ouyang 
+Xiansheng, orang lain mana berani terlalu banyak bicara? Tapi kita berada di kapal ini, dan kita harus mendengarkan 
+perintah Pangeran."
+
+Mendengarkan ini, hati semua orang tergerak dan mereka mengalihkan pandangan mereka kepada Ouyang Feng untuk melihat apa 
+yang akan dilakukannya. Ouyang Feng dengan dingin memandang Lingzhi dari atas ke bawah, mengukurnya. Ia mengangkat wajahnya 
+ke langit dan dengan masam berkata, "Apa Shangren dengan sengaja ingin mempersulit orang tua ini?"
+
+Lingzhi Shangren menjawab, "Aku tidak berani. Biksu rendahan ini tinggal di pinggiran Tibet, tanpa teman dan bodoh. Hari ini 
+adalah pertama kalinya aku mendengar nama Ouyang Xianshen yang terhormat. Aku tidak perlu berhubungan sama sekali dengan
+Xiansheng..."
+
+Sebelum ia sempat menyelesaikan kalimatnya, Ouyang Feng telah bergerak maju selangkah, tangan kirinya dengan cepat membuat 
+gerakan tipuan, sementara tangan kanannya dengan mudah mencekal Lingzhi Shangren. Dengan hanya sedikit usaha, ia memegang 
+biarawan itu secara terbalik. Semua itu terjadi begitu cepat, sehingga yang lainnya hanya melihat gerakan kasaya merah 
+Lingzhi Shangren berkibar-kibar di udara. Tidak ada yang melihat dengan jelas teknik apa yang digunakan Ouyang Feng.
+
+Lingzhi Shangren bertubuh lebih tinggi dari siapa pun di situ, tetapi Ouyang Feng dapat mencengkeram lehernya dengan mudah. 
+Bahkan jika Ouyang Feng mengangkat tangannya ke atas kepalanya, ia belum tentu bisa mengangkat kaki Lingzhi dari geladak, 
+tetapi ketika Ouyang Feng membalikkan tubuhnya, bagian atas kepala Lingzhi sebenarnya berada sekitar empat kaki di atas 
+geladak.
+
+Kaki Lingzhi Shangren menendang-nendang dengan liar di udara, dan mulutnya mengeluarkan kutukan menggebu-gebu. Semua orang 
+telah melihat bagaimana Lingzhi Shangren melawan Wang Chuyi di Istana Zhao, mereka tahu kungfunya tidak sepele. Tapi 
+sekarang ia dijungkirbalikkan oleh Ouyang Feng, dan ditahan di sana dengan lengannya mengayun lemah di samping kepalanya 
+seolah-olah lengannya patah, dan ia tidak memiliki kekuatan untuk berjuang bebas.
+
+Dengan mata masih melihat ke atas, Ouyang Feng berkata datar, "Hari ini adalah pertama kalinya kau mendengar namaku, karena 
+itu, kau memandang rendah orang tua ini, kan?"
+
+Lingzhi Shangren ketakutan, dan sekaligus marah. Ia mencoba mengerahkan tenaga dalamnya beberapa kali, mencoba untuk 
+membebaskan diri, tetapi tidak peduli apa yang dilakukannya, ia tidak bisa lolos. Peng Lianhu dan yang lainnya telah 
+melihat apa yang terjadi, dan wajah mereka tampak keheranan.
+
+Ouyang Feng melanjutkan, "Kau memandang rendah orang tua ini, tidak apa-apa. Tapi aku tidak ingin membungkuk sampai ke
+tingkatmu yang rendah di hadapan Pangeran Yang Terhormat. Jadi kau ingin menahan Lao Wantong, Zhou Daxia, dan Dewa Pengemis 
+Sembilan Jari, Hong Daxia. Hei, menurutmu kau bisa mengandalkan kekuatan sihirmu untuk menandingi mereka? Kau tidak punya 
+teman dan tidak cukup terpelajar, tidak heran kau tidak banyak pengetahuan dan juga sopan santun. Lao Wantong, ambil ini!"
+
+Sekali lagi, tidak ada yang melihat gerakan tangan Ouyang Feng, ia hanya mengerahkan tenaganya ke telapak tangan, dan 
+Lingzhi Shangren terbang seperti awan dari pelabuhan ke sisi kanan geladak. Begitu merasakan tenaga Ouyang Feng meninggalkan 
+tubuhnya dan ia bebas, Lingzhi meregangkan tubuhnya seperti ikan mas yang mencoba membalikkan tubuhnya ke atas. Lalu ia 
+tiba-tiba merasakan sakit yang tajam di lehernya, ia berteriak dan mengulurkan tangan kirinya untuk menyerang. Sekali lagi 
+ia merasakan lengannya mati rasa dan menggantung tak berdaya di samping kepalanya. Sekali lagi tubuhnya tertahan di udara. 
+Ternyata Zhou Botong mengikuti contoh Ouyang Feng dan mencengkeram lehernya.
+
+Meskipun Wanyan Honglie memahami situasi genting Lingzhi, ia tahu tidak ada yang bisa menuduh Ouyang Feng tidak memberikan 
+peringatan sebelumnya. Tak seorang pun di antara prajuritnya memiliki kemampuan untuk menghadapi Zhou Botong, meskipun ia hanya sendirian, maka ia buru-buru berkata, "Zhou Daxia, kau tidak perlu bermain-main lagi, 
+[Xiao Wang](panggilan.md#xiao-wang "Pangeran Kecil, sebutan untuk diri sendiri dengan maksud merendah.") akan mengirim 
+perahu untuk membawa kalian berempat ke darat."
+
+"Bagus sekali," kata Zhou Botong. "Kau juga bisa mencoba mengambil ini!" Mengikuti teladan Ouyang Feng, ia mengerahkan 
+tenaganya ke telapak tangan, dan mengirim Lingzhi Shangren terbang menuju Sang Pangeran.
+
+Tentu saja Wanyan Honglie mengerti ilmu silat, tetapi keahliannya terbatas pada golok, tombak, busur, dan anak panah dari 
+punggung kuda. Biksu terbang dari tangan Zhou Botong membawa tenaga yang sangat cepat dan kuat, bagaimana ia bisa 
+menerimanya? Bahkan jika tidak mati, ia pasti akan terluka parah, jadi ia buru-buru melangkah ke samping untuk 
+menghindarinya.
+
+Sha Tongtian tahu Sang Pangeran dalam bahaya, dan langsung melangkah maju ke depan Wanyan Honglie, berusaha melindunginya. 
+Ia melihat tubuh Lingzhi Shangren meluncur dengan cepat, dan jika ia memukul dengan telapak tangannya, ia mungkin akan 
+melukai biksu itu. Mengikuti contoh Ouyang Feng dan Zhou Botong sebelumnya, ia ingin mencengkeram leher biksu itu, 
+membalikkannya ke atas, dan kemudian membaringkannya dengan lembut. Tetapi ia melupakan satu detail penting, ilmunya jauh 
+di bawah kedua orang itu. Ia telah melihat Ouyang Feng dan Zhou Botong, tampaknya tanpa usaha, meraih dan melempar tubuh 
+berat Lingzhi Shangren. Oleh karena itu ia melompat untuk mencegat Lingzhi, merentangkan tangannya untuk mencengkeram 
+lehernya. Saat ia menyentuh leher Lingzhi Shangren, tiba-tiba ia merasakan sensasi terbakar diikuti oleh gelombang tenaga 
+kuat yang menyerang telapak dan pergelangan tangannya. Ia tahu jika ia tidak menahan serangan ini, pergelangan tangannya 
+akan segera patah. Pada saat kritis ini ia dengan cepat menarik tangan kanannya, sementara tangan kirinya meluncurkan 
+[Po Jia Zhui](referensi-karakter.md#po-jia-zhui "Po Jia Zhui (破甲锥) = Kerucut Penembus Baja").
+
+
+**Last line was 692 in the draft**
 
