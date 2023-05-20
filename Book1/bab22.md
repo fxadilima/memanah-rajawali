@@ -1617,7 +1617,7 @@ hantu dan menyalahkan dewa karena memperlakukannya dengan tidak adil, atas semua
 Ia mengarahkan perahunya menuju daratan. Begitu berada di darat, amarahnya berkobar lagi. Ia melihat ke langit dan 
 berteriak, "Siapa yang membunuh Rong'er-ku? Siapa yang membunuh Rong'er-ku?"
 
-Tiba-tiba sebuah pikiran muncul di benaknya, "Bocah itu bermarga Guo itu. Benar, itu pasti dia! Kalau bukan karena dia, 
+Tiba-tiba sebuah pikiran muncul di benaknya, "Bocah bermarga Guo itu. Benar, itu pasti dia! Kalau bukan karena dia, 
 mengapa Rong'er naik ke kapal itu? Tapi bocah itu mati di samping Rong'er, kepada siapa aku harus melampiaskan kemarahanku?"
 
 Begitu ia memikirkan hal ini, ia teringat kepada guru Guo Jing, 
