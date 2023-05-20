@@ -908,6 +908,240 @@ bertarung melawan Peng Lianhu dan yang lainnya satu lawan satu, aku mungkin tida
 menang. Tapi Racun Tua berdiri di dekatnya, ditambah orang-orang lain ini. Akan sangat sulit bagi kita untuk menghindari 
 bahaya hari ini."
 
-**Last line was 504 in the draft**
+Orang-orang di kapal besar terkejut mendengar teriakan Ouyang Feng dari atas rakit. Sekarang setelah mereka melihat Guo Jing 
+dan yang lainnya, mereka semakin terkejut. Ouyang Feng menggendong keponakannya, Guo Jing dan Huang Rong membawa Hong Qigong, 
+lima orang dalam dua kelompok melompat satu demi satu dari perahu kecil ke kapal besar.
 
-G-585147
+Segera seorang pria keluar dari kabin untuk menyambut mereka, ia mengenakan jubah bersulam dengan warna cerah. Begitu melihat 
+Guo Jing, keduanya tertegun. Pria itu berjanggut rapi di dagunya, berwajah tampan, tidak lain adalah Pangeran Keenam Jin 
+Agung, Wanyan Honglie.
+
+Setelah melarikan diri dari aula leluhur keluarga Liu di Baoying, Wanyan Honglie takut Guo Jing akan mengejarnya ke utara, 
+ia tidak berani pulang. Ia bertemu dengan Peng Lianhu, Sha Tongtian dan yang lainnya, lalu memutuskan untuk pergi ke selatan 
+dan mencuri buku yang ditinggalkan oleh Yue Wumu (Jendral Yue Fei). Saat ini tentara Mongolia telah mengirimkan ekspedisi 
+militer besar-besaran melawan Jin, ibu kota Yanjing telah dikepung selama beberapa bulan dan enam belas prefektur yang 
+mengelilinginya telah jatuh ke tangan Mongolia. Seiring berjalannya waktu, situasi Kekaisaran Jin menjadi semakin kritis. 
+Wanyan Honglie sangat menguatirkan nasib negaranya, ia telah melihat dengan matanya sendiri bahwa orang-orang Mongolia sangat 
+cepat dan garang. Meskipun pasukan Jin sepuluh kali lebih banyak jumlahnya, setiap kali mereka bertemu, Jin kalah. Wanyan 
+Honglie dengan susah payah merenungkan semua ide untuk membangun kembali cita-cita luhur negaranya, dan sampai pada 
+kesimpulan bahwa yang dibutuhkannya saat itu adalah Buku Wumu warisan Jendral Yue Fei. Ia berpikir bahwa jika buku tentang 
+strategi militer ini dimilikinya, ia akan mampu membangun pasukan ilahi dan tak terkalahkan seperti pasukan Yue Fei sendiri. 
+Meskipun tentara Mongolia kuat, mereka akan melarikan diri saat melihat pasukannya.
+
+Ia saat ini memimpin ekspedisi ini ke selatan, mencoba melacak keberadaan warisan tersebut, tapi ia takut Song Selatan akan 
+mengendus niatnya dan waspada terhadap penyusup. Ia memutuskan untuk pergi melalui laut, berharap tidak ada yang tahu rencana 
+perjalanannya dan ia bisa mendarat di pantai Zhejiang tanpa terdeteksi, lalu diam-diam memasuki Lin'an untuk mencuri buku itu.
+
+Sebelum berangkat ia mencari Ouyang Ke, tahu bahwa orang itu adalah seorang ahli silat dan akan menjadi pendamping yang 
+sangat berguna. Setelah lama tidak mendengar kabar tentangnya, ia lalu memutuskan untuk pergi tanpa menunggu lagi. Sekarang 
+mereka tiba-tiba bertemu secara tidak sengaja di laut, dan tidak hanya Ouyang Ke, tetapi juga Guo Jing. Ia tidak bisa tidak 
+merasa cemas, takut misi rahasianya sudah bocor.
+
+Melihat musuh yang telah membunuh ayahnya, Guo Jing sangat marah, ia tidak peduli sedang dikelilingi oleh musuh yang kuat dan 
+ia memandang Wanyan Honglie dengan tatapan yang menyala-nyala.
+
+Saat itu orang lain keluar dari kabin, tetapi ketika baru setengah langkah melewati pintu ia segera masuk kembali. Mata tajam 
+Huang Rong melihat bahwa pria itu mirip Yang Kang.
+
+Sementara itu Ouyang Ke memperkenalkan pamannya kepada sang pangeran, "Paman, ini adalah Pangeran Keenam dari Jin Agung yang 
+sangat menghargai orang-orang berilmu tinggi." Ouyang Feng merangkapkan tangan di depan dadanya.
+
+Wanyan Honglie tidak tahu bahwa Ouyang Feng adalah nama yang sangat besar di dunia persilatan. Ia melihat Ouyang Feng 
+punya ekspresi arogan, tapi demi Ouyang Ke ia membalas sikap hormat itu dengan sebaik-baiknya.
+
+Ketika Peng Lianhu, Sha Tongtian dan yang lainnya mendengar nama Ouyang Feng, mereka membungkuk dan mengucapkan pujian 
+mereka, "Ouyang Xiansheng sudah lama dikenal sebagai pendekar besar di dunia persilatan, hari ini kami beruntung akhirnya 
+bertemu denganmu." Ouyang Feng sedikit membungkuk, mengembalikan rasa hormat mereka dengan setengah hati.
+
+Da Shou Yin, Lingzhi Shangren  berasal dari Tibet, dan tidak tahu apa-apa tentang nama besar Racun Barat, ia hanya menyatukan 
+kedua telapak tangannya tanpa mengatakan apa-apa.
+
+Wanyan Honglie tahu bahwa Sha Tongtian dan yang lainnya adalah orang-orang yang sombong, dan mereka selalu memandang rendah 
+orang lain, tetapi ia melihat bahwa mereka sangat menghormati Ouyang Feng, hampir sampai ketakutan dan menumpuk kata-kata 
+sanjungan kepadanya. Ekspresi mereka terlihat sangat tidak biasa. Wanyan Honglie menyadari bahwa orang yang bengkak air 
+dengan rambut acak-acakan dan kaki telanjang ini bukanlah orang biasa. Ia segera memperlakukan Ouyang Feng dengan hormat dan 
+mengucapkan beberapa kata sopan.
+
+Di antara orang-orang ini, hanya Liang Ziweng yang memiliki perasaan berbeda. Karena Guo Jing telah meminum darah berharga 
+dari ular beludaknya, dan sekarang setelah mereka bertemu lagi, bagaimana mungkin ia tidak marah? Tapi ia juga memperhatikan 
+bahwa orang yang paling ditakutinya, Hong Qigong, ada bersama Guo Jing. Meskipun ia sangat marah, ia berhasil menjaga air 
+mukanya, dan tetap tersenyum. Ia maju dan membungkuk dengan hormat, "Xiaode Liang Ziweng menyapa Hong Bangzhu, dan berharap 
+Qianbei baik-baik saja."
+
+Ucapannya mengejutkan semua orang. Meskipun mereka semua sudah lama mendengar reputasi Racun Barat dan Pengemis Utara, 
+mereka belum pernah bertemu secara langsung. Siapa yang mengira bahwa dua nama terbesar di dunia seni bela diri itu 
+akan benar-benar muncul pada saat yang bersamaan? Mereka akan bergegas maju, dan memberi hormat ketika Hong Qigong tertawa 
+keras dan berkata, "Pengemis Tua mengalami nasib buruk, seekor anjing ganas menggigitku meninggalkan aku setengah mati dan 
+setengah hidup, untuk apa kau memberi hormat? Akan lebih baik kalau kau membawakan aku sesuatu untuk dimakan."
+
+Semua orang terkejut dan mereka berpikir, "Hong Qigong ini terbaring tak bergerak karena terluka parah... kita tidak perlu 
+takut." Mereka memandang Ouyang Feng, menunggu untuk melihat apa yang akan dilakukannya.
+
+Sebelumnya, Ouyang Feng telah menyusun rencana tentang bagaimana menyingkirkan ketiga orang ini, Hong Qigong harus 
+disingkirkan terlebih dahulu, supaya kelakuannya yang tidak terhormat tidak diketahui publik, selanjutnya ia akan memaksa 
+Guo Jing untuk menjelaskan kalimat-kalimat sulit dari kitab itu, dan kemudian ia akan membunuhnya. Sedangkan Huang Rong, 
+meskipun keponakannya mencintainya, jika ia membiarkan bocah itu hidup, ia akan menyebabkan bencana besar di masa depan. 
+Namun jika ia secara pribadi membunuhnya, Huang Yaoshi tidak akan membiarkannya memiliki kedamaian sesaat pun. Oleh karena 
+itu ia memutuskan untuk menggunakan tangan orang lain untuk membunuhnya, dan dengan demikian mengalihkan kesalahan dari 
+pundaknya. Karena ketiganya berada di atas perahu, ia tidak takut mereka akan terbang dan melarikan diri. Ia melangkah maju 
+dan berkata kepada Wanyan Honglie, "Ketiga orang ini sangat licik dan mereka juga ahli kungfu. Aku mohon kepada Pangeran 
+untuk menugaskan beberapa orang untuk menjaga mereka dengan baik."
+
+Liang Ziweng sangat senang, dia berputar ke kiri dan melewati Sha Tongtian untuk meraih tangan Guo Jing. Guo Jing memutar 
+pergelangan tangannya dan menepuk bahu Liang Ziweng. Ia menggunakan 
+[Jian Long Zai Tian](referensi-karakter.md#jianlong-zai-tian "Melihat Naga Di Lapangan"), gerakan yang cepat dan berat, 
+meskipun kungfu Liang Ziweng tinggi, ia terpaksa mundur mendadak dua langkah.
+
+Peng Lianhu dan Liang Ziweng terus bersaing untuk merebut hati Wanyan Honglie. Mereka selalu berusaha saling mengalahkan, 
+dan apa yang mereka tunjukkan di luar berbeda dari apa yang mereka rasakan di dalam hati. Melihat Liang Ziweng tersandung, 
+Peng Lianhu dalam hati sangat senang. Ia melangkah lebih dekat ke Hong Qigong dan yang lainnya, tapi ia menunggu Liang 
+Ziweng jatuh sebelum mengambil tindakan apapun.
+
+Ketika Liang Ziweng menyelinap melewati Sha Tongtian untuk menarik Guo Jing pergi, ia bersiap untuk jurus tunggal Guo Jing, 
+[Kang Long You Hui](referensi-karakter.md#kanglong-you-hui "Naga Angkuh Punya Penyesalan"), ia tahu bahwa ia tidak akan bisa 
+menghadapinya secara langsung, karena itu serangan dari samping. Sama sekali ia tidak mengira bahwa dalam waktu kurang dari 
+sebulan, Kang Long You Hui bukan satu-satunya jurus yang diketahui Guo Jing. Karena Guo Jing tidak mengejar, ia melompat 
+dan menyerang dengan tinjunya, meluncurkan hasil latihan yang berharga seumur hidupnya, 
+jurus [Liao Dong Ye Hu Quan Fa](referensi-karakter.md#liaodong-ye-hu-quan-fa "Jurus Rubah Liar dari Liaodong"), bertekad 
+untuk mengambil nyawa Guo Jing, baik karena mempermalukannya barusan dan juga karena membunuh ularnya yang berharga.
+
+Suatu kali Liang Ziweng pergi mengumpulkan ginseng di Gunung Changbai[^changbai], ia melihat seekor anjing berkelahi dengan 
+rubah liar di salju. Rubah itu sangat licik, ia melompat kesana-kemari dengan sangat cepat dan gesit. Meskipun cakar dan 
+gigi anjing itu tajam, setelah bertarung lama ia belum juga meraih kemenangan. Liang Ziweng memperhatikan kemampuan rubah 
+untuk melompat sangat tinggi dan ia tiba-tiba mendapat inspirasi. Ia meninggalkan niatnya untuk mengumpulkan ginseng dan 
+memutuskan untuk tinggal di gubuk jerami di gunung bersalju, dengan susah payah merenungkan gerakan kungfu selama beberapa 
+bulan. Sebagai hasilnya lahirlah Jurus Rubah Liar itu.
+
+[^changbai]: Dataran tinggi yang terletak di propinsi yang menjadi asal suku Jurchen, yaitu Jilin.
+
+Teknik ini menggabungkan empat prinsip dasar, yaitu ling[^waspada], shan[^menghindar], pu[^menerkam], dan die[^jatuh]. 
+Teknik ini sangat berguna dalam menghadapi musuh yang kuat. Pertama-tama, ia tidak memberi musuh kesempatan untuk 
+menangkapnya karena mundur sangat cepat, dan ia bisa bergegas ke kiri dan melarikan diri ke kanan, lalu menyerang balik 
+begitu ada kesempatan. 
+
+[^waspada]: Ling (灵) = waspada atau 'alert'.
+
+[^menghindar]: Shan (闪) = menghindar atau mengelak.
+
+[^menerkam]: Pu (扑) = menerkam.
+
+[^jatuh]: Die (跌) = jatuh.
+
+Sekarang ia tidak berani lagi meremehkan lawannya, dan segera meluncurkan serangan ini. Ia mengerahkan seluruh kemampuan 
+yang dimilikinya untuk menyerang Guo Jing. Teknik tinju itu aneh, Guo Jing belum pernah melihat yang seperti ini sebelumnya. 
+Ia berpikir, "Dalam teknik 
+[Tao Hua Shen Jian Zhang](referensi-karakter.md#taohua-shen-jian-zhang) milik Rong'er ada banyak gerakan tipuan, dari lima 
+serangan hanya satu yang nyata, atau terkadang satu dari delapan. Tapi sepertinya jurus kakek tua ini semuanya adalah 
+serangan kosong. Aku ingin tahu teknik aneh macam apa ini?" Tetapi ia ingat nasihat Hong Qigong, bahwa terlepas dari teknik 
+yang digunakan lawannya, yang perlu dilakukannya hanyalah tetap menggunakan Delapan Belas Jurus Penakluk Naga.
+
+Setelah menyaksikan kedua pria itu bertarung sebentar, semua orang mulai menggelengkan kepala dalam diam sambil berpikir, 
+"Si Tua Liang Tua bisa dianggap sebagai ahli silat yang hebat, mengapa saat melawan bocah bau kencur ini dia terus bergerak 
+dan tidak berani menyerang secara langsung?"
+
+Beberapa langkah kemudian kekuatan telapak tangan Guo Jing mulai memaksanya mundur selangkah demi selangkah, sepertinya ia 
+akan segera jatuh ke laut. Menyadari bahwa Ye Hu Quan Fa miliknya tidak banyak membantunya, Liang Ziweng berpikir untuk 
+menggunakan teknik tinju yang berbeda, tetapi sudah terlambat. Telapak tangan Guo Jing mengepungnya, tidak memberinya 
+kesempatan untuk melakukan serangan balik. Di tengah hembusan angin yang kencang terdengar suara Hong Qigong, "Serang bagian 
+bawah!"
+
+Guo Jing segera meluncurkan jurus Sang Naga Mengibaskan Ekor, dan lengan kirinya menyapunya. Liang Ziweng meraung keras 
+dan jatuh dari pagar perahu.
+
+Semua orang tercengang dan bergegas ke tepi untuk melihat, hanya untuk mendengar seseorang di laut tertawa terbahak-bahak. 
+Tubuh Liang Ziweng tiba-tiba terbang kembali, dan dengan suara keras mendarat kembali di geladak, tak sadarkan diri.
+
+Apa yang baru saja terjadi membingungkan semua orang di kapal. Mungkinkah ombak memantulkan tubuhnya kembali ke atas? Semua 
+orang berkerumun di pagar perahu, melihat ke laut, dan melihat seorang lelaki tua berjanggut dan berambut putih bergerak 
+kesana-kemari di permukaan laut dengan kecepatan yang luar biasa. Mereka menajamkan mata untuk melihat lebih jelas, 
+ternyata orang itu sedang menunggangi seekor hiu besar dengan kecepatan yang tidak kalah dengan seseorang yang menunggang 
+kuda di tanah kering.
+
+Guo Jing sangat terkejut, dan dengan suara nyaring ia berteriak, "Kakak Zhou, aku di sini!" Penunggang hiu itu memang Lao 
+Wantong, Zhou Botong.
+
+Zhou Botong mendengar teriakan Guo Jing dan bersorak kegirangan, kemudian ia memukul kepala hiu di dekat mata kanannya, 
+dan hiu itu segera berbelok ke kiri, mendekati sisi perahu.
+
+"Apa itu Guo Xiongdi?" seru Zhou Botong. "Apa kabar? Ada paus di depan, aku mengejarnya sepanjang hari. Aku ingin terus 
+mengejarnya. Sampai jumpa lagi!"
+
+"Dage! Cepat ke sini!" seru Guo Jing dengan cemas. "Ada banyak orang jahat di sini yang ingin menggertak adikmu!"
+
+Zhou Botong marah, "Begitukah?" Tangan kanannya memegang sesuatu di dalam mulut hiu, sementara tangan kirinya mencengkeram 
+pagar perahu besar. Ia menyentak dengan keras, sehingga tubuhnya tiba-tiba terbang berikut hiu itu di atas kepala semua 
+orang, dan mendarat di geladak. Ia berseru, "Siapa yang berani menggertak adikku?"
+
+Hampir setiap orang di kapal memiliki pengetahuan luas tentang masalah Jianghu, tetapi lelaki tua berjanggut putih yang 
+tiba-tiba muncul dengan cara yang paling aneh ini membuat semua orang terpana. Bahkan Hong Qigong dan Ouyang Feng tercengang.
+
+Zhou Botong melihat Huang Rong, dan ia merasa heran. "Kenapa kau juga ada di sini?" Dia bertanya.
+
+Huang Rong tersenyum, "Kenapa tidak?" jawabnya. "Kupikir kau akan muncul lagi hari ini, itu sebabnya aku di sini menunggumu. 
+Cepat ajari aku cara menunggangi hiu."
+
+Zhou Botong tertawa, "Baik, aku akan mengajarimu."
+
+Huang Rong menjawab, "Pertama, kau harus membantu kami menyingkirkan orang-orang jahat ini, dan kemudian kau bisa 
+mengajariku."
+
+Zhou Botong mengalihkan pandangannya ke orang-orang di geladak, lalu berkata kepada Ouyang Feng, "Aku tahu orang lain tidak 
+akan berani bertindak begitu kejam, jadi ternyata itu kau."
+
+Ouyang Feng menjawab dengan dingin, "Seorang pria yang tidak menepati janjinya, selama masih hidup di dunia ini, akan menjadi bahan tertawaan semua pejuang dunia."
+
+"Benar sekali," kata Zhou Botong. "Seorang pria sejati pasti tidak akan menimbulkan masalah. Tapi yang bicara benar dan 
+yang kentut harus dibedakan dengan jelas, kalau tidak orang yang mendengar mungkin tidak tahu apakah suara itu berasal dari 
+atas atau dari bawah. Aku memang mencarimu untuk membuat perhitungan lama, dan tidak ada yang lebih baik daripada melihatmu 
+di sini. Pengemis Tua, kau adalah saksi kami, berdiri dan beri kami penilaianmu."
+
+Hong Qigong berbaring di geladak dan ia tersenyum sedikit. Huang Rong berkata, "Racun Tua hampir mati sembilan kali dan 
+guruku cukup baik untuk menyelamatkannya setiap saat. Siapa sangka dia punya hati serigala dan paru-paru anjing, dan 
+membalas kebaikan dengan kejahatan, dia melukai guruku dan menotok jalan darahnya."
+
+Sebenarnya, Hong Qigong hanya menyelamatkan nyawa Ouyang Feng tiga kali, tetapi Huang Rong sengaja membesar-besarkan 
+tiga kali lipat. Ouyang Feng sudah tahu hal ini, tetapi tidak ingin berdebat, ia hanya menatapnya dengan mata menyala-nyala.
+
+Zhou Botong membungkuk mencoba membuka totokan di jalan darah qu chi dan yong quan Hong Qigong dengan menggosoknya. 
+"Lao Wantong, itu tidak ada gunanya," kata Hong Qigong.
+
+Ternyata totokan yang digunakan Ouyang Feng agak tidak biasa, selain Huang Yaoshi dan dirinya sendiri, tidak ada orang lain 
+di dunia luas ini yang bisa membukanya. Ouyang Feng tertawa dengan arogan. "Lao Wantong, buka totokannya kalau bisa," 
+tantangnya.
+
+Meskipun Huang Rong tidak dapat membuka totokan itu, ia akrab dengan ilmu tototak, ia mengatupkan bibirnya dan berkata, "Apa 
+yang aneh sih soal itu? Ayahku bisa membebaskan totokan 
+[Tou Gu Daxue Fa](referensi-karakter.md#tou-gu-da-xue-fa "Totokan Penembus Tulang") ini tanpa banyak usaha."
+
+Mendengar Huang Rong menyebutkan nama ilmu totokannya dengan tepat, Ouyang Feng kagum akan pengetahuan gadis kecil ini 
+yang dianggapnya sedalam jurang maut, bahkan mencakup teknik totokan. Namun ia tidak memperhatikannya, dan menoleh ke Zhou 
+Botong sambil bertanya, "Kau kalah taruhan, mengapa kau bicara seperti kentut?"
+
+Zhou Botong menutupi hidungnya dan berseru, "Kentut? Busuk, bau busuk! tapi coba aku tanya, kita taruhan apa?"
+
+"Semua orang di sini, kecuali bocah marga Guo dan gadis kecil ini, adalah pendekar yang terkenal. Aku akan menceritakan apa 
+yang terjadi dan minta para pendekar ini untuk menjadi hakim kita," jawab Ouyang Feng.
+
+"Bagus, bagus," kata Peng Lianhu. "Ouyang Xiansheng, tolong beritahu kami."
+
+"Orang ini adalah Zhou Botong dari Perguruan Quanzhen, yang dikenal di dunia Jianghu sebagai Lao Wantong. Dalam hal 
+senioritas, dia memegang posisi yang sangat tinggi, Qiu Chuji, Wang Chuyi dan para pendekar Quanzhen lainnya adalah 
+keponakannya."
+
+Selama belasan tahun terakhir ini, Zhou Botong telah ditahan di Pulau Bunga Persik, sebelum waktu itu kungfunya tidak jelas. 
+Selain beberapa masalah nakal, ia tidak pernah mencapai apa pun yang layak disebut, jadi reputasinya tidak tersebar luas di 
+dunia Jianghu. Tetapi semua orang pernah melihatnya mengendarai hiu, suatu prestasi yang tidak mudah dicapai oleh salah satu 
+dari mereka. Karena ia adalah paman guru dari Tujuh Pendekar Quanzhen, tidak heran ia sehebat ini. Akibatnya semua orang 
+saling bicara di antara mereka sendiri dengan suara rendah. Peng Lianhu ingat janji mereka pada Perayaan Pertengahan Musim 
+Gugur[^zhongqiu-jie] bulan kedelapan di Jiaxing, jika Tujuh Pendekar Quanzhen punya sekutu seperti orang tua aneh ini, 
+mereka tidak akan mudah untuk dihadapi. Ia jadi merasa sangat cemas.
+
+Ouyang Feng melanjutkan, "Zhou Xiong terdampar di laut, di antara sekumpulan hiu, dan aku menyelamatkannya. Aku mengatakan 
+jumlah hiu ini tidak banyak, dan tanpa terlalu banyak usaha aku bisa membunuh mereka semua. Zhou Xiong tidak mempercayai 
+kata-kataku, jadi kami berdua bertaruh. Saudara Zhou, bukankah yang kukatakan benar?"
+
+[^zhongqiu-jie]: Zhong Jiu Jie (中秋节), atau lebih populer dengan sebutan Tiong Chiu Chue di Indonesia, adalah perayaan tradisional masyarakat Tionghoa, yang biasa ditandai dengan saling berbagi kue bulan (Tiong Chiu Pia).
+
+
+**Last line was 608 in the draft**
+

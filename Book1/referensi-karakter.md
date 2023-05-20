@@ -196,7 +196,8 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     </dd>
     <dt id="kanglong-you-hui">Kang Long You Hui (康龙有悔)</dt>
     <dd>
-        Lagi-lagi kutipan dari Yijing.
+        Lagi-lagi kutipan dari Yijing. Ini jurus pertama dari 18 Jurus Penakluk Naga milik Hong Qigong. Bisa diterjemahkan
+        menjadi 'Naga Angkuh Punya Penyesalan'.
     </dd>
     <dt id="taohua-shen-jian-zhang">Tao Hua Shen Jian Zhang (桃花神剑掌)</dt>
     <dd>
@@ -1076,4 +1077,8 @@ Ilmu ini akhirnya juga dikuasai oleh Pendeta Wang Chongyang setelah Duan Zhixing
 ### <a name="jian-si-bu-jiu" id="jian-si-bu-jiu">Jian Si Bu Jiu (见死不救)</a>
 
 Ini adalah pepatah kuno Tiongkok yang berarti 'Mengabaikan orang yang sedang dalam bahaya'.
+
+### <a name="tou-gu-da-xue-fa" id="tou-gu-da-xue-fa">Tou Gu Da Xue Fa (透骨大穴法)</a>
+
+Ilmu totokan yang dikuasai oleh Ouyang Feng dan Huang Yaoshi. Nama ini bisa diterjemahkan menjadi 'Totokan Penembus Tulang'.
 
