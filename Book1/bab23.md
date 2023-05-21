@@ -419,6 +419,57 @@ Zhou Botong memanggil dari luar, "Hei! Cepat keluar dari sana! Kita perlu mengun
 
 "Malam ini?" tanya Guo Jing.
 
+Hong Qigong menjawab, "Lebih cepat lebih baik. Rasanya aku tidak tahan lebih lama lagi."
 
-**Last line was 202 in the draft**
+"Shifu, jangan dengarkan Lao Wantong omong kosong," kata Huang Rong. "Kita tidak bisa pergi malam ini. Kita akan memasuki 
+gerbang kota besok dini hari. Kalau Lao Wantong punya ide-ide aneh lagi, kami tidak akan mengajak dia ke istana."
+
+"Huh!" dengus Zhou Botong. "Sekali lagi aku yang harus disalahkan." Dia merajuk dan menolak untuk berbicara.
+
+Malam itu keempatnya tidur di ranjang jerami yang diletakkan di lantai. Keesokan paginya Huang Rong dan Guo Jing menyiapkan 
+sarapan, dan mereka berempat ditambah Sha Gu makan bersama. Huang Rong memutar mangkuk besi, menutup dinding lemari dan 
+mengembalikan semua mangkuk yang terkelupas dan peralatan yang rusak ke dalam lemari. Sha Gu acuh tak acuh terhadap apa yang 
+terjadi di sekitarnya, sementara ia memegang gagang pedang di tangannya dan memainkannya.
+
+Huang Rong mengambil sebongkah kecil yuan bao[^yuan-bao] dari sakunya dan memberikannya padanya. Sha Gu mengambilnya dan 
+dengan santai melemparkannya ke atas meja. "Kalau lapar, kau bisa menggunakannya untuk membeli nasi dan daging," kata Huang 
+Rong. Sulit dikatakan apakah Sha Gu mengerti, karena ia hanya terkikik bodoh.
+
+[^yuan-bao]: Batangan perak berbentuk kapal, uang jaman dulu.
+
+
+Huang Rong merasakan kesedihan merayapi hatinya, mengetahui bahwa gadis ini pasti punya hubungan dengan Qu Lingfeng. Jika ia 
+bukan anggota keluarganya, maka seharusnya adalah muridnya. Enam atau tujuh kungfunya dari Bi Bo Zhang Fa pasti berasal dari 
+Qu Lingfeng, meskipun ia hanya mempelajarinya secara kasar. Apa yang tidak diketahui Huang Rong adalah, entah ia telah 
+terbelakang sejak lahir, ataukah memiliki pengalaman mengerikan, yang mengejutkan dan merusak pikirannya. Ia ingin mencari 
+lebih banyak informasi tentang dia di desa, tetapi Zhou Botong terus mendesak mereka untuk pergi. Oleh karena itu mereka 
+berempat, dengan gerobak mereka, langsung berangkat dan memasuki kota Lin'an.
+
+Saat ini Lin'an adalah kota paling ramai di dunia. Ketika pemerintahan Song pindah ke selatan, diresmikan sebagai ibukota 
+baru. Segala jenis orang berkumpul di kota itu dan terus berkembang.
+
+Keempatnya memasuki kota melalui gerbang timur dan langsung menuju 'Gerbang Portal Indah' [li cheng men] Istana Kekaisaran. Hong Qigong tetap berada di dalam gerobak sementara Zhou Botong dan yang lainnya melihat sekeliling. Mereka melihat paku emas di pintu merah tua, balok yang dicat, pagar berukir, dan ubin tembaga yang menutupi atap. Ada patung naga terbang dan burung phoenix, semuanya luar biasa dalam kemegahannya yang menyilaukan mata mereka.
+
+"Menarik!" Zhou Botong memanggil dengan keras saat dia mengambil langkah untuk masuk.
+
+Penjaga istana yang ditempatkan di depan gerbang telah memperhatikan tiga orang ini, satu tua dan dua muda, dengan gerobak keledai membuat keributan di depan gerbang Istana Kekaisaran. Empat penjaga dengan kapak di tangan mereka telah melangkah maju dengan wajah mengancam.
+
+Zhou Botong sangat suka membuat gangguan. Menyaksikan para penjaga dengan baju besi khas mereka, tinggi dan kekar, dia ingin sekali melakukan pertarungan yang menarik.
+
+"Cepat pergi!" Huang Rong memanggil.
+
+Zhou Botong menatapnya. "Apa yang Anda takutkan? Apa menurutmu bayi-bayi ini bisa memakan Old Urchin?” Dia bertanya.
+
+Huang Rong dengan cepat berkata, “Jing ge ge, ayo pergi dan bermain di tempat lain. Karena Old Urchin tidak mendengarkan, kita abaikan saja dia.” Dia menjentikkan cambuknya dan gerobak melaju ke barat. Guo Jing mengikuti di belakang. Zhou Botong takut dia akan tertinggal saat mereka pergi ke tempat yang lebih menarik, jadi dia mengabaikan para penjaga dan berlari mengejar. Para penjaga mengira mereka adalah penduduk desa biasa yang melihat-lihat kota, jadi mereka tertawa keras dan tidak mengejar mereka. Huang Rong mengendarai gerobak ke tempat sepi. Melihat tidak ada yang mengejar mereka, mereka berhenti.
+
+“Mengapa kita tidak masuk ke istana? Bisakah kantong anggur dan karung beras itu [para penjaga] menghentikan kami?” tanya Zhou Botong.
+
+“Tentu saja menerobos masuk tidak sulit, tapi izinkan saya bertanya kepada Anda… apakah kita di sini untuk berkelahi atau pergi ke dapur dan mencuri makanan?” Huang Rong berkata, “Jika kamu masuk, istana akan kacau balau. Apakah Anda pikir koki diam-diam akan membuat 'Bebek Mandarin Lima Harta Karun' untuk dimakan Guru?
+
+“Melawan dan menangkap orang adalah urusan penjaga dan tidak ada hubungannya dengan koki,” Zhou Botong beralasan. Sebenarnya, apa yang dia katakan memang masuk akal dan Huang Rong sesaat bingung, tapi dia tidak mau menyerah padanya, jadi dia berargumen, "Koki kekaisaran bisa menyiapkan makanan dan menangkap orang."
+
+Zhou Botong menatapnya tetapi tidak tahu bagaimana harus menanggapi. Beberapa saat kemudian dia mengakui, "Baik, anggap saja saya salah."
+
+“Apa maksudmu 'mempertimbangkan'? Anda salah sejak awal, ”kata Huang Rong.
+
 
