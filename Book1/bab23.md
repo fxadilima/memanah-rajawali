@@ -525,6 +525,60 @@ Huang Rong tersenyum, "'Kata-kata telah keluar dari mulut, empat ekor kuda sulit
 
 [^pepatah-2]: Ini adalah pepatah kuno, Yi Yan Ji Chu, Si Ma Nan Zhui (一言既出，驷马难追). Maksudnya adalah tekad untuk menepati janji.
 
+Selama musim semi ketika Huang Rong meninggalkan rumah untuk pergi ke utara, ia mengunjungi Lin'an selama sehari, tetapi kota 
+itu terlalu dekat dengan Pulau Bunga Persik, dan ia takut ayahnya akan menemukannya. Ia tidak berani tinggal terlalu lama, 
+maka kunjungannya singkat. Kali ini hari-hari terasa panjang dan tidak ada yang membebani pikirannya. Bergandengan tangan 
+dengan Guo Jing, ia pergi ke Danau Barat.
+
+Ia melihat wajah Guo Jing tampak cemas, dan tahu ia kuatir tentang luka guru mereka. "Shifu bilang ada satu orang di dunia 
+ini yang mampu menyembuhkan lukanya," kata Huang Rong. "Tapi dia tidak mengijinkanku bertanya lebih jauh. Dari caranya 
+bicara, pasti Kaisar Duan itu, tapi kita tidak tahu di mana dia. Kita harus menemukan cara untuk memintanya menyembuhkan 
+Shifu."
+
+"Itu bagus sekali," kata Guo Jing dengan gembira. "Rong'er, menurutmu kita bisa memintanya?"
+
+Huang Rong menjawab, "Aku masih memikirkan bagaimana caranya. Selama kita makan hari ini aku mencoba memancing beberapa 
+informasi dari Shifu. Dia baru saja mau mengatakan sesuatu, tapi lalu menyadarinya dan segera berhenti bicara. Aku toh 
+harus mengorek informasi ini juga pada akhirnya." Guo Jing tahu persis kemampuannya, jadi ia sangat lega.
+
+Mereka masih berbicara ketika tiba di Jembatan Rusak, di tepi danau[^jembatan-rusak]. Tempat itu adalah salah satu 
+pemandangan Danau Barat yang terkenal, tetapi saat itu musim panas, karenanya yang mereka lihat hanyalah teratai di bawah 
+jembatan. Huang Rong melihat toko arak kecil yang rapi di tepi danau. "Ayo kita minum secawan arak sambil menikmati teratai," 
+katanya.
+
+[^jembatan-rusak]: Duan Qiao Can Xue (断桥残雪), atau Jembatan Rusak tempat orang bisa melihat sisa-sisa salju. 
+
+
+"Bagus sekali," Guo Jing setuju. Keduanya masuk dan duduk. Penjaga toko mengirimkan arak dan hidangan daging yang rasanya 
+sangat enak. Mereka minum arak sambil menikmati pemandangan dan dalam suasana hati yang menyenangkan.
+
+Huang Rong melihat sekat di dekat jendela timur, ditutupi kain berwarna hijau giok. Jelas sang pemilik toko menganggap sekat 
+itu sebagai benda yang sangat berharga. Keingintahuannya terusik, jadi ia mendekat untuk melihat lebih jelas. Ternyata di 
+bawah kain itu ada sebuah puisi yang tertulis di sekat. Judulnya adalah 'Angin Memasuki Pinus' [song feng ru], yang berbunyi,
+
+```
+Waktu musim semi selalu dihabiskan dengan membuang-buang uang, 
+minum setiap hari di tepi danau. 
+Mengendarai kuda kulit rusa di sepanjang jalan menuju Danau Barat, 
+dengan bangga melintas di depan sebuah bar. 
+Bernyanyi dan menari di tengah harumnya aprikot merah, 
+berayun di bawah bayang-bayang willow hijau. 
+Angin hangat memeluk sepuluh 'li' wanita cantik dan langit, 
+bunga-bunga yang hancur menghiasi sisi pelipis mereka. 
+Perahu indah yang membawa dupa bolak-balik seperti asap menutupi air. 
+Kembalilah besok mendukung sisa-sisa kemabukan, 
+mencari tatahan emas mewah di jalan setapak.
+```
+
+Huang Rong berkata, "Puisi ini bagus."
+
+Guo Jing memintanya menjelaskan arti puisi itu. Semakin dia mendengarkan, dia semakin kesal dan dia berkata, “Ini adalah ibu kota Dinasti Song Agung dan para pejabat pemerintah ini menghabiskan hari-hari mereka dengan minum anggur dan menikmati bunga. Apakah mereka tidak peduli atau bahkan memperhatikan urusan negara?”
+
+Huang Rong menjawab, "Tepat sekali, orang-orang ini berbicara tanpa malu-malu!"
+
+Tiba-tiba seseorang di belakang mereka berkata, “Huh! Apa yang kalian berdua cukup ketahui untuk membicarakan omong kosong seperti itu?”
+
+Mereka berbalik dan melihat seorang pria berpakaian sarjana, kira-kira berusia empat puluh tahun, mencibir ke arah mereka. Guo Jing menyapa cendekiawan itu dengan menangkupkan tangannya dan berkata, "Junior tidak mengerti dan ingin meminta nasihat dari Tuan."
 
 
 
