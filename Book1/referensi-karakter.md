@@ -1098,4 +1098,9 @@ Ilmu totokan yang dikuasai oleh Ouyang Feng dan Huang Yaoshi. Nama ini bisa dite
 Ini sebuah gerakan yang dilakukan oleh Sha Tongtian di Bab 22, mungkin bisa diterjemahkan menjadi 'Kerucut Penembus Baja'.
 
 
+### <a name="bi-bo-zhang-fa" id="bi-bo-zhang-fa">Bi Bo Zhang Fa (碧波掌法)</a>
+
+Salah satu ilmu silat dasar Pulau Bunga Persik yang diajarkan Huang Yaoshi. Nama ini bisa diterjemahkan menjadi
+'Pukulan Gelombang Hijau'.
+
 
