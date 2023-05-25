@@ -110,3 +110,9 @@ Panggilan umum bagi para Biksu. Arti literal per karakter adalah:
 Dengan demikian istilah ini sebetulnya berarti 'Guru Besar'.
 
 
+### <a name="die" id="die">Die (爹)</a>
+
+Die (dibaca: Tiē), _bukan_ bahasa Inggris yang berarti 'mati'. 
+Ini adalah panggilan umum dari anak-anak kepada ayahnya.
+
+

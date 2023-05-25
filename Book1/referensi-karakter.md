@@ -118,7 +118,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         adalah Raja Ular dari <em>Sebelah Timur Sungai</em>, dan bukan "Sungai Timur". Kelihatannya kecil, tetapi maknanya
         sangat berbeda.
     </dd>
-    <dt id="qingjing-sanren">Qing Jing San Ren (清静散人)</dt>
+    <dt id="qingjing-sanren">Qing Jing Shan Ren (清静散人)</dt>
     <dd>
         Ini adalah gelar murid ketujuh dari Wang Chongyang, yang bernama Sun Bu'er, seorang perempuan.
         Makna dari karakter Qing Jing (清静) agak kompleks.
@@ -937,6 +937,12 @@ Berbeda dengan Jian Long Zai Tian yang memakai karakter Tian (田), karakter Tia
 yang berarti 'Langit'. Dan Naga memang seharusnya berada di langit. Dengan demikian ini melambangkan bahwa Sang Kaisar
 sedang menjalankan tugasnya baik-baik, di ruang kerjanya.
 
+### <a name="zhenjing-bai-li" id="zhenjing-bai-li">Zhen Jing Bai Li (震惊百里)<a>
+
+Salah satu dari 18 Jurus Penakluk Naga, yang bisa diterjemahkan menjadi 'Kejutan Seratus li'.
+Nama ini kelihatannya _bukan_ kutipan dari salah satu teks kuno.
+
+
 ### <a name="wuxing-qimen" id="wuxing-qimen">Wu Xing Qi Men (五行奇门)</a>
 
 Keempat karakter tersebut bisa diterjemahkan menjadi 'Pintu Gerbang Ajaib dari Lima Elemen'.
@@ -1102,5 +1108,17 @@ Ini sebuah gerakan yang dilakukan oleh Sha Tongtian di Bab 22, mungkin bisa dite
 
 Salah satu ilmu silat dasar Pulau Bunga Persik yang diajarkan Huang Yaoshi. Nama ini bisa diterjemahkan menjadi
 'Pukulan Gelombang Hijau'.
+
+
+### <a name="jiu-yin-baigu-zhua" id="jiu-yin-baigu-zhua">Jiu Yin Baigu Zhua (九陰白骨爪)</a>
+
+Ini adalah ilmu silat yang dikembangkan oleh murid Huang Yaoshi, Chen Xuanfeng, berdasarkan sebagian dari
+isi [Kitab Sembilan Bulan](#jiu-yin-zhen-jing "Jiu Yin Zhen Jing"), tetapi tanpa bagian penting untuk melatih
+tenaga dalam. Chen Xuanfeng dan Mei Chaofeng melatihnya dengan menggunakan sasaran tengkorak manusia hidup.
+
+Sebagai hasilnya, ilmu ini bisa dilatih dalam waktu jauh lebih singkat dibandingkan aslinya, tetapi konsekuensinya
+adalah merusak mental orang yang mempraktekkan ilmu ini. Chen Xuanfeng sendiri mengatakan bahwa metode latihannya
+adalah _sesat_, tetapi pada saat itu mereka memerlukannya.
+
 
 
