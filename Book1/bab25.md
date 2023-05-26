@@ -893,8 +893,6 @@ Kapten dari para pengawal dari Song memasuki kedai dan dengan penuh hormat mengh
 Tolui beberapa saat sebelum kembali ke luar dan berteriak memberikan perintahnya, "Periksa semua rumah dan tanyakan apakah
 ada orang bermarga Guo, Guo Jing, Guo Guanren[^guanren] tinggal di tempat ini. Kalau ternyata tidak ada, tanyakan kemana dia pindah!"
 
-[^guanren]: Guan Ren = pejabat pemerintah setempat.
-
 Para prajurit itu menurut dengan suara bulat dan segera berpencar di luar. Tak terlalu lama kemudian dari segala penjuru 
 desa itu terdengar suara ayam dan anjing ramai berlarian, suara laki-laki berteriak dan wanita menjerit-jerit, karena
 para prajurit itu tidak menemukan informasi yang mereka cari, lalu mereka dengan seenaknya merampas domba dan harta benda
@@ -1798,4 +1796,5 @@ saat ini Qiu Chuji, Sun Bu'er dan yang lainnya menyadari bahwa dengan kematian T
 rusak. Jika mereka terus melawan Huang Yaoshi, mereka hanya akan mengantarkan enam nyawa lagi. Soal balas dendam harus 
 menunggu lain kali.
 
+[^guanren]: Guan Ren (官人), secara literal berarti pejabat pemerintah lokal.
 
