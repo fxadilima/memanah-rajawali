@@ -260,17 +260,15 @@ Huang Rong buru-buru mengikutinya keluar. Dari di belakang ayahnya, ia melihat g
 tertutup debu dan ujung-ujungnya kecokelatan dan pecah. Tertulis di atasnya, dengan tulisan miring, ada beberapa 
 baris kata:
 
-Ditujukan dengan sangat hormat kepada Huang Daozhu dari Pulau Bunga Persik:
+_Ditujukan dengan sangat hormat kepada Huang Daozhu dari Pulau Bunga Persik:_
 
-Dizi telah menemukan dari dalam istana, berbagai macam kaligrafi, lukisan, dan artefak lainnya, yang ingin dipersembahkan 
-sebagai tanda penghargaan untuk Shifu.
+_Dizi telah menemukan dari dalam istana, berbagai macam kaligrafi, lukisan, dan artefak lainnya, yang ingin dipersembahkan  sebagai tanda penghargaan untuk Shifu._
 
-Dizi dengan hormat memanggil Shifu, tidak berani lancang mengucapkan Enshi[^enshi] - bahkan jika, dalam mimpi,dizi masih memanggil 
-Enshi.
+_Dizi dengan hormat memanggil Shifu, tidak berani lancang mengucapkan Enshi[^enshi] - bahkan jika, dalam mimpi, dizi masih memanggil Enshi._
 
 [^enshi]: Enshi (恩师) secara literal bisa diterjemahkan menjadi 'Guru Penolong'. Seseorang, kepada siapa si murid telah berhutang budi sedalam-dalamnya. Karakter yang bermakna 'Guru' adalah Shi (师). Jika kita bandingkan dengan istilah Shifu (师父), terasa ada sebuah perbedaan yang sangat prinsip. Karena karakter En (恩) dan Fu (父) yang membentuk kedua istilah itu ditempatkan di posisi yang berbeda. Untuk membuat perbedaannya lebih terasa, kita jelaskan begini: Enshi berarti Guru yang telah menyelamatkan hidup saya. Sedangkan Shifu berarti Fu (ayah) yang mengajarkan ilmu kepada saya. 
 
-Kemalangan menimpa dizi yang dikepung oleh pengawal istana, dan meninggalkan seorang putri...
+_Kemalangan menimpa dizi yang dikepung oleh pengawal istana, dan meninggalkan seorang putri..._
 
 Tulisan itu telah mencapai kata "putri", tidak ada lagi - kecuali beberapa tanda cipratan yang samar-samar dapat dilihat sebagai noda darah.
 
