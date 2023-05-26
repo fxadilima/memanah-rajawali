@@ -13,6 +13,10 @@ lebih tidak dapat dipahami – membangun permusuhan yang mendalam dengan mereka.
 sekali. Melihat nafas Mei Chaofeng terengah-engah dan semakin lama semakin redup, ia memikirkan dendam yang disimpannya 
 selama lebih dari satu dekade, dan ia merasakan kesedihan yang luar biasa dan tak tertahankan. Air mata mulai jatuh.
 
+**WARNING: Setelah baris ini semuanya masih Draft**
+
+***
+
 Sedikit senyuman muncul di sudut bibir Mei Chaofeng. “Guru,” katanya, “tolong… perlakukan saya seperti dulu – seperti cara Anda memperlakukan saya sebelumnya. Aku telah berbuat salah padamu: terlalu banyak berbuat salah padamu, terlalu jauh! Biarkan aku berada di sisimu selamanya…selamanya untuk melayanimu. Saya sekarat dengan cepat. Waktu hampir habis!” Ekspresi memohon menutupi wajahnya.
 
 Mata Huang Yaoshi berlinang air mata. “Sangat baik, sangat baik! Saya akan memperlakukan Anda seperti yang saya lakukan saat Anda masih kecil, ”katanya. “Jadi mulai hari ini, sebaiknya Ruohua menjadi gadis yang baik, dan perhatikan apa yang guru katakan.”
