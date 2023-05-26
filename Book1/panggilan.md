@@ -116,3 +116,15 @@ Die (dibaca: Tiē), _bukan_ bahasa Inggris yang berarti 'mati'.
 Ini adalah panggilan umum dari anak-anak kepada ayahnya.
 
 
+### <a name="zhang-lao" id="zhang-lao">Zhang Lao (长老)</a>
+
+Secara umum ini adalah sebutan untuk seorang pemimpin dalam sebuah organisasi, dalam hal ini adalah Kai Pang, dan juga
+biasa digunakan untuk hirarki kepemimpinan lainnya. Istilah ini bisa diterjemahkan sewajarnya menjadi 'Penatua' atau 'Tetua'.
+Di semua cerita silat yang menghadirkan Kai Pang istilah ini bertebaran di mana-mana. Pangkat seorang Zhanglao biasanya
+bisa dilihat dari jumlah kantong atau karung di punggungnya, kalau jumlah kantong tersebut sampai delapan, berarti ia
+hanya setingkat di bawah Ketua Umum Kai Pang, dan hanya akan menerima perintah dari Ketua Umum.
+
+Dalam organisasi lain, bukan tidak mungkin akan dipakai sebutan lain untuk posisi yang sebetulnya serupa.
+
+
+
