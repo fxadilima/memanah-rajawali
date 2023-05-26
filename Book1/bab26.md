@@ -1,14 +1,9 @@
-# Tatanan Lama, Aliansi Baru
+# Bab 26
+## Tatanan Lama, Aliansi Baru
 
-[![Huang Rong Bertemu Hua Zheng](images/huang-rong-bertemu-hua-zheng.jpg)](https://youtube.com/clip/UgkxyC71FcuesonhmpSNh2jijKmqPapDuqe0)
+| Ilustrasi | Narasi |
+|   :---:   | :---   |
+| ![Ilustrasi Bab 26](https://res.cloudinary.com/drzjshskk/image/upload/v1676693386/sdyxz/originals/loch-26_iy9vew.jpg)  | _Huang Yaoshi melihat penderitaan di air muka putrinya, jelas sekali perasaannya sulit ditahan atau dilepaskan. Ia tahu cintanya yang mendalam kepada Guo Jing tidak bisa berubah dan tak terpisahkan. Ia menghela nafas panjang. Huang Rong berdiri diam, air matanya turun perlahan-lahan._  |
 
-<div class="w3-panel w3-card-4 w3-blue">
-    <p>
-    Keseluruhan adegan ini tidak bisa dirangkum dalam satu menit dengan baik tanpa mengurangi makna.
-    Bagi Guo Jing yang dibesarkan di Mongolia, dan otomatis separuh dari dirinya sebagai seorang manusia
-    adalah mengandung semangat Mongolia, <em>the words of a gentleman</em> adalah nomor satu, urusan lain
-    adalah nomor-nomor berikutnya.
-    </p>
-</div>
-
+***
 
