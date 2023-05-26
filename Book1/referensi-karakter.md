@@ -839,7 +839,7 @@ _justru ruang kosong itulah yang bermanfaat_, alias _bisa_ digunakan.
 ### <a name="shuang-shou-hubo" id="shuang-shou-hubo">Shuang Shou Hu Bo (simplified: 双手互搏, traditional: 雙手互搏)</a>
 
 Keempat karakter di atas jika digabungkan akan bermakna 'Sepasang tangan yang saling berkelahi'.
-Teknik ini juga diciptakan oleh Zhou Botog ketika sedang dikurung oleh Huang Yaoshi di Pulau Bunga Persik selama
+Teknik ini juga diciptakan oleh Zhou Botong ketika sedang dikurung oleh Huang Yaoshi di Pulau Bunga Persik selama
 15 tahun. Ia merasa sangat bosan tanpa teman bermain, karena itu akhirnya menemukan metode ini untuk menghibur diri.
 
 Ia kemudian melatih diri menggunakan teknik berlainan untuk masing-masing tangan. Di kemudian hari teknik ini sangat
