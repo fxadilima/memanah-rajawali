@@ -1283,7 +1283,7 @@ Qiu Qianren takut kalau mereka akan bertemu dengan Zhou Botong, ia buru-buru ber
 semua berkumpul di sini, dia bisa mencari kalian kapan saja. Huang Laoxie ini sangat kejam, Laofu[^laofu] tidak bisa
 membiarkan dia terus-terusan seperti ini. Aku akan mencarinya, kalian tunggu kabar dariku di sini."
 
-[^laofu]: Bisa diterjemahkan menjadi 'Orang tua ini', sebutan untuk diri sendiri dalam konteks sopan-santun umum.
+[^laofu]: Laufu (老夫), bisa diterjemahkan menjadi 'Orang tua ini', sebutan untuk diri sendiri dalam konteks sopan-santun umum.
 
 Semua orang menganggapnya senior, akan sangat tidak pantas kalau mereka membantahnya, dan lagi mereka takut kehilangan
 jejak Huang Yaoshi kalau mereka ikut keluar mencarinya, jadi terasa jauh lebih baik menunggu lawan yang mendatangi mereka 
@@ -1338,15 +1338,15 @@ terjadi, entah keributan macam apapun, kau pokoknya jangan keluar."
 
 "Tan Shige," seru Qiu Chuji. "Formasi Bintang Utara!"[^tian-gang-bei-dou]
 
-[^tian-gang-bei-dou]: Secara literal per karakter Tian Gan Bei Tou adalah 'Langit, Bintang, Utara, Kepala'. Entah apa alasannya, dalam bahasa Inggris diterjemahkan menjadi 'The Big Dipper Constellation'. Untuk alasan estetika di sini diterjemahkan menjadi 'Formasi Bintang Utara'.
+[^tian-gang-bei-dou]: Tian Gang Bei Dou (天罡北斗), secara literal per karakter Tian Gang Bei Tou adalah 'Langit, Bintang, Utara'. Karakter keempat Dou (斗) sebagai kata benda bisa dijelaskan sebagai 'sebuah objek yang berbentuk mirip sekop/sendok'. Untuk alasan estetika di sini diterjemahkan menjadi 'Formasi Bintang Utara'. Tian Gang (天罡) itu sendiri banyak digunakan dalam Taoisme, dan semua ini tampaknya berkaitan erat dengan perbintangan, khususnya karakter Gang (罡) yang memang berkaitan erat dengan Taoisme. Sedangkan istilah Bei Dou (北斗) adalah istilah yang sering dipakai di dalam astronomi. Bahkan di jaman modern ini [sistem navigasi satelit](https://en.wikipedia.org/wiki/BeiDou) juga dinamai Bei Dou Wei Xing Dao Hang Xi Dong (北斗卫星导航系统).
 
-Ketika mendengar istilah empat karakter 'Tian Gang Bai Dou', hati Guo Jing tergerak, ia berpikir, 
-"Bei Dou da Fa[^bei-dou-da-fa] disinggung beberapa kali di dalam Jiu Yin Zhen Jing sebagai dasar dari latihan ilmu silat.
+Ketika mendengar istilah empat karakter 'Tian Gang Bei Dou', hati Guo Jing tergerak, ia berpikir, 
+"Bei Dou Da Fa[^bei-dou-da-fa] disinggung beberapa kali di dalam Jiu Yin Zhen Jing sebagai dasar dari latihan ilmu silat.
 Tapi penjelasan dari Bei Dou Da Fa itu sendiri sama sekali buram, sangat sulit dipahami. Aku ingin tahu apakah Tian Gang Bei 
 Dou milik Ma Daozhang dan yang lain ini ada hubungannya dengan Bei Dou Da Fa. Ini pasti penting untuk diketahui." Ia 
 buru-buru menempelkan matanya di lubang kecil itu untuk mengintip keluar.
 
-[^bei-dou-da-fa]: Bei Dou Da Fa bisa diartikan 'Ilmu Besar Bintang Utara', dalam terjemahan bahasa Inggris ternyata ditulis 'Big Dipper Great Method'.
+[^bei-dou-da-fa]: Bei Dou Da Fa (北斗大法) bisa diartikan 'Ilmu Agung Biduk Utara', dalam terjemahan bahasa Inggris ternyata ditulis 'Big Dipper Great Method', yang membuatnya berkaitan erat dengan astronomi.
 
 Matanya baru saja mencapai lubang itu ketika terdengan suara keras 'Brakk!' dari pintu yang tergetar, dan seorang pendeta 
 Tao masuk. Tapi jubahnya terangkat, kaki kirinya sudah melangkah masuk, tiba-tiba ia terhuyung ke kembali keluar pintu.
@@ -1360,34 +1360,254 @@ Di bawah sinar bulan rambutnya tampak acak-acakan, dengan dua tetes darah mengal
 kanannya tinggal setengah dari aslinya, secara keseluruhan penampilannya sangat kacau. Begitu memasuki ruangan tanpa
 mengatakan apa-apa ia langsung duduk bersila. Ma Yu dan yang lain juga segera duduk di posisi masing-masing.
 
-Blacksmith = pandai besi
+Dari kegelapan di luar terdengar suara wanita yang bernada muram berseru, "Tan Laodao, kalau aku tidak memandang muka
+kakak seperguruanmu Ma Yu, Lao Nu[^lao-nu] pasti sudah mengirim nyawamu ke Surga sebelumnya. Kenapa kau mengajakku ke sini?
+Siapa yang barusan mengadu pukulan denganku? Cepat, katakan kepada Mei Chaofeng."
 
-From the darkness outside came a woman’s gloomy voice calling out, “Tan Laodao [old
-Taoist], if I did not regard the face of your Shixiong Ma Yu, this old lady would have al-
-ready delivered your life to the heaven early on. Why did you lead the old lady to come
-over here? Who had just exchanged palm strength with me? Tell it to Mei Chaofeng.”
+[^lao-nu]: Lao Nu (老女), secara literal berarti 'Perempuan Tua ini', sebutan untuk diri sendiri sebagai orang ketiga tunggal.
 
-In the stillness of the night listening to her owl-cry like voice, although it was the mid-
-dle of summer, involuntarily a chill crept on everybody’s back. As soon as she stopped
-talking the silence came back, outside the door the insects’ buzz was heard clearly. A
-moment later a series of cracking noises were heard. Guo Jing knew the noise came
-from Mei Chaofeng’s joints, in a moment she would start making her move.
+Di kesunyian malam, mendengar suaranya yang mirip tangisan burung hantu, meskipun saat itu pertengahan musim panas, tetapi
+punggung semua orang jadi terasa dingin. Begitu ia selesai bicara, keheningan datang kembali, di luar pintu suara serangga
+terdengar jelas. Sesaat kemudian terdengar serangkaian bunyi retakan tulang. Guo Jing tahu bahwa suara itu datang dari 
+persendian Mei Chaofeng, dalam hitungan detik ia akan mulai bergerak.
 
-Yet another moment someone was reciting softly, “Once one make a dwelling one can
-stay for several dozens years.” Guo Jing recognized it was Ma Yu’s voice, the intonation
-was really gentle and soothing. Tan Chuduan continued, “With disheveled hair walking
-all day long like crazy.” His voice was straightforward and heroic. Guo Jing peeked out-
-side and took a good look on the Second Master of the Quanzhen Seven Masters. He
-saw a muscular face with thick eyebrows and big eyes, his body looked big and sturdy.
-Before he became a priest Tan Chuduan was a blacksmith in Shandong. After he en-
-tered Quanzhen Sect, his title was Changzhen [Eternal Truth] Zi.
+Saat berikutnya seseorang membaca kitab dengan suara lembut, "Sekali orang membuat tempat tinggal, ia bisa tinggal selama
+puluhan tahun." Guo Jing mengenali suara Ma Yu, intonasinya sangat lembut dan menenangkan. Tan Chuduan melanjutkan, 
+"Dengan rambut acak-acakan berjalan seharian seperti orang gila." Suaranya sangat terus-terang dan heroik. Guo Jing
+mengintip ke luar dan mengamati pendekar kedua dari Tujuh Pendekar Quanzhen itu. Ia melihat wajah yang kokoh dengan 
+alis tebal dan mata besar, tubuhnya juga tampak besar dan kokoh. Sebelum menjadi pendeta Tan Chuduan adalah seorang pandai 
+besi di Shandong. Setelah bergabung dengan aliran Quanzhen, ia bergelar Changzhen Zi, atau Kebenaran Abadi.
 
-The third Taoist priest was thin and small, his face looked like a monkey; he was
-Changsheng [Eternal Life] Zi, Liu Chuxuan. He continued the recitation, “Chongyang Zi
-[from ‘Wang Chongyang] underneath the ‘hay tang ting’ [ocean cherry-apple pavilion].”
-His stature might be small, but his voice was loud and clear.
+Pendeta Tao ketiga kurus kecil, mukanya mirip monyet, ia adalah Changsheng[^chang-sheng] Zi, Liu Chuxuan. Ia melanjutkan
+kutipan, "Chongyang Zi[^chongyang-zi] di bawah Hay Tang Ting[^hay-tang-ting]." Orangnya mungkin saja kecil, tapi suaranya
+nyaring dan jernih.
+
+[^chang-sheng]: Changsheng Zi (長生子), sewajarnya bisa diartikan 'Panjang Umur'.
+
+[^hay-tang-ting]: Hay Tang Ting (海棠亭), secara literal adalah Paviliun Lautan Apel. Gabungan karakter Hay Tang (海棠) adalah nama sejenis apel dari genus Malus, bunganya berwarna putih, dan buahnya merah sampai kuning.
+
+[^chongyang-zi]: Chongyang Zi (重阳子) diambil dari nama Wang Chongyang, pendiri Quanzhen.
+
+Giliran Qiu Chuji membuka mulut membaca kutipannya. "Tai Yi Xian di daun teratai." Lalu diikuti Wang Chuyi, "Tak ada
+yang bisa lolos dari kerang kosong." Selanjutnya Guangning Zi[^guangning-zi] Hao Datong mengutip, "Ada seseorang yang
+bisa mencapai pencerahan sebelum dilahirkan." Dan terakhir Qingjing Sanren Sun Bu'er, "Meninggalkan rumah dengan
+senyuman tanpa gangguan." Ma Yu menyimpulkan semuanya, "Awan di Danau Barat, bulan di langit!"
+
+Mei Chaofeng mendengarkan ketujuh kutipan itu, setiap suara mengandung Qi yang kuat, menandakan kekuatan tenaga dalam
+mereka. Ia diam-diam kaget. "Apa Tujuh Pendekar Quanzhen kali ini sungguh hadir di sini? Tidak mungkin. Selain Ma Yu,
+suara yang lain-lainnya tidak sama."
+
+Di atas tebing terjal di Mongolia ia telah mendengar suara Ma Yu dan Enam Orang Aneh dari Jiangnan yang berpura-pura
+menjadi Tujuh Pendekar Quanzhen dan saling bicara keras-keras. Matanya buta, maka ia sangat mengandalkan pendengarannya
+yang istimewa, ingatannya juga sangat kuat, sekali ia mendengar apapun, ia tidak akan melupakannya. Ia tidak tahu bahwa
+saat itu Ma Yu telah menipunya.
+
+"Ma Daozhang, kau pasti dalam kondisi luar biasa setelah pertemuan terakhir kita!" katanya dengan suara jernih. Ia tahu
+Ma Yu berbelas kasihan kepadanya ketika di tebing Mongolia. Meskipun ia sadis, ia bisa membedakan kebaikan dan kejahatan.
+Ketika Tan Chuduan tidak bisa mengimbangi langkah Zhou Botong ia memutuskan untuk kembali. Di perjalanan ia melihat
+Mei Chaofeng sedang menggunakan orang hidup sebagai sasaran untuk melatih kungfunya. Sebagai orang lurus dan gagah berani,
+ia maju untuk mencegah terjadinya kejahatan, tapi di luar dugaan ternyata ia bukan tandingan Mei Chaofeng. Untungnya
+Mei Chaofeng mengenalinya sebagai pendeta Tao dari Quanzhen. Karena rasa hormatnya kepada Ma Yu ia tidak membunuh
+Tan Chuduan, ia hanya melukainya dan mengejarnya.
+
+Ma Yu berkata, "Aku sangat beruntung! Terima kasih! Tao Hua Dao sama sekali tidak punya dendam dengan Perguruan Quanzhen.
+Apa gurumu yang terhormat segera datang?"
+
+Mei Chaofeng terkejut. "Kau menunggu guruku?" tanyanya.
+
+Qiu Chuji berseru, "Iblis! Cepat bawa gurumu ke sini untuk mencicipi kungfu sejati Quanzhen!"
+
+Mei Chaofeng marah. "Siapa kau?" bentaknya.
+
+"Qiu Chuji!" kata Qiu Chuji. "Kau, iblis, belum pernah dengar namaku?"
+
+Mei Chaofeng berseru nyaring, tubuhnya terbang ke arah suara Qiu Chuji. Telapak tangan kirinya melindungi diri,
+dan cakar tangan kanannya menghujam ke bawah.
+
+Guo Jing tahu bahwa serangan Mei Chaofeng ini sangat cepat dan kejam, sangat sulit dibendung. Meskipun kungfu
+Qiu Chuji sangat bagus, tetapi ia tidak akan mampu membendungnya. Di luar dugaan ia ternyata masih tetap duduk
+bersila di lantai, sama sekali tidak menangkis atau mengelak.
+
+"Celaka!" jerit Guo Jing dalam hati. "Kenapa Qiu Daozhang begitu berani?" Ia melihat Mei Chaofeng sudah hampir menyentuh
+bagian atas kepala Qiu Chuji, mendadak dua gelombang angin tajam datang dari kiri dan kanan, Liu Chuxuan dan Wang Chuyi
+menyerang serempak. Cakar kanan Mei Chaofeng terus menyerang, sementara tangan kirinya menyapu horizontal untuk membendung
+serangan Liu Chuxuan dan Wang Chuyi. Tak disangka ternyata kedua telapak tangan itu saling mendukung, yang satu mengandung
+tenaga Yin dan yang lain mengandung tenaga Yang, dan di luar perkiraan Mei Chaofeng, kekuatan gabungan itu jauh melampaui
+gabungan tenaga dalam dua orang.
+
+Mei Chaofeng felt this surge of power in midair; it was like a cannonball pushing her
+upward. Hastily she changed her right claw into a palm, striking downward then she
+flipped her body backwards and landed on the threshold. She was unable to restrain
+her shock, thinking that these two people’s skills were very profound, certainly above
+the Quanzhen Seven Masters. “Is Hong Qigong and Emperor Duan in here?” she called
+out.
+
+Mei Chaofeng merasakan desakan tenaga ini di tengah udara, mirip terjangan batu besar dari ketapel raksasa yang
+mendorongnya ke atas. Buru-buru ia mengubah cakar kanannya menjadi telapak tangan, menghantam ke bawah kemudian
+memutar tubuhnya ke belakang dan mendarat di ambang pintu. Ia tak bisa menahan kaget, berpikir bahwa kungfu kedua
+orang itu sangat dahsyat, sudah pasti di atas Tujuh Pendekar Quanzhen. "Apakah Hong Qigong dan Kaisar Duan di sini?"
+serunya.
+
+Qiu Chuji berkata sambil tersenyum, "Kami Tujuh Pendekar Quanzhen. Hong Qigong dan Kaisar Duan yang mana maksudmu?"
+
+Mei Chaofeng bingung. "Tan Laodao bukan tandinganku, mana mungkin ada ahli silat setingkat ini di antara saudaranya?
+Masa bisa sebesar itu perbedaan kungfu di antara mereka, meskipun datang dari aliran yang sama?"
+
+Guo Jing di ruangan lain juga bingung, ia berpikir meskipun kungfu Liu Chuxuan dan Wang Chuyi lebih tinggi,
+mereka setidaknya berimbang dengan Mei Chaofeng atau Chen Xuanfeng. Sekalipun mereka berdua menggabungkan tenaga,
+mereka tetap tidak mungkin dengan santainya mendesak Mei Chaofeng seperti itu. Hanya Zhou Botong, Hong Qigong,
+Huang Yaoshi, Ouyang Feng, dan orang sekaliber mereka yang bisa melakukannya, bagaimana Tujuh Pendekar Quanzhen
+bisa melakukannya?"
+
+Mei Chaofeng sangat berani, selain gurunya sendiri, ia tidak takut kepada siapapun di dunia ini. Semakin ia kalah,
+ia akan bertindak lebih nekad. Ketika berhadapan di atas tebing itu ma Yu berbicara dengan sabar, memperlakukannya
+dengan baik dan membebaskannya tanpa memberikan kesulitan. Tetapi hari ini Qiu Chuji mempercayai kebohongan
+Qiu Qianren bahwa Zhou Botong telah dibunuh oleh Huang Yaoshi, ia juga percaya bahwa Huang Yaoshi membunuh Guo Jing.
+Kebenciannya terhadap Pulau Bunga Persik telah merasuk tulang, ia terus-terusan menyebut Mei Chaofeng 'Yaofu'[^yaoufu].
+Mei Chaofeng sadar betul bahwa ia bukan tandingan lawan-lawannya, tetapi ia tidak mau menyerah. Ia ragu sejenak sebelum
+menarik cambuk perak dari pinggangnya. "Ma Daozhang!" serunya. "Hari ini aku harus menyinggungmu!"
+
+[^yaofu]: Ini mirip sebutan Yaonu yang berarti iblis/monster, tetapi ditujukan kepada seorang wanita yang lebih tua.
+
+Ma Yu menjawab, "Kau menyanjungku!"
+
+Mei Chaofeng berkata, "Aku akan memakai senjataku. Hunus pedangmu!"
+
+Wang Chuyi berkata, "Kami bertujuh, sementara kau sendirian, ditambah lagi kau tidak bisa melihat. Kalaupun Tujuh
+Pendekar Quanzhen tidak layak, kami tidak bisa menggunakan senjata melawanmu. Kami akan tetap duduk dan tidak bergerak, 
+kau mulailah!"
+
+Mei Chaofeng berkata dengan dingin, "Kau mau menghadapi cambuk perakku dengan duduk tak bergerak?"
+
+Qiu Chuji membentak, "Yaofu, malam ini nyawamu akan lenyap, kau masih ingin ngomong apa?"
+
+"Hm," dengus Mei Chaofeng. Tangan kanannya menyentil, cambuk panjang yang penuh kait di tangannya bergerak pelan
+seperti ular python besar, langsung ke arah Sun Bu'er.
+
+Di ruangan lain Huang Rong mendengarkan percakapan mereka, ia tahu betapa dahsyatnya cambuk perak Mei Chaofeng,
+Tujuh Pendekar Quanzhen berani menantangnya sambil duduk tak bergerak dan dengan tangan kosong, ia jadi ingin tahu
+bagaimana mereka akan mengatasinya. Ia menarik Guo Jing dari lubang itu dan memberitahunya bahwa ia ingin melihat.
+
+Dia melihat Quanzhen Seven Masters duduk dalam formasi di dalam ruangan; tiba-tiba dia sadar, “Ini adalah konstelasi Biduk! Hmm, benar! Bukankah Qiu Daozhang menyebutkan formasi Biduk?” Huang Yaoshi mahir dalam astronomi dan mempelajari perhitungan kalender (almanak). Ketika Huang Rong masih kecil, dia sering duduk di pangkuan ayahnya di malam yang cerah, melihat konstelasi langit, sehingga dia segera mengenali posisi tujuh pendeta Tao.
+
+Ma Yu dari Quanzhen Seven Masters mengambil posisi 'tian shu' [poros langit], Tan Chuduan mengambil posisi 'tian xuan' [batu giok langit], Liu Chuxuan 'tian ji' [mutiara langit], Qiu Chuji 'tian quan' [kekuatan/otoritas langit]. Keempat orang ini membentuk kepala konstelasi. Wang Chuyi mengambil 'yu heng' [giok (mengukur) berat], Hao Datong 'kai yang' [matahari terbuka], dan Sun Bu'er 'yao guang' [gemetar sinar (cahaya)]. Ketiganya adalah pegangan Biduk.
+
+Di antara tujuh bintang Biduk, cahaya 'tian quan' adalah yang paling gelap, tetapi itu adalah penghubung yang menghubungkan kepala dengan gagangnya. Itu adalah posisi yang paling penting; karenanya diduduki oleh yang terkuat di antara Tujuh Master Quanzhen, Qiu Chuji. Di antara pegangannya, 'yu heng' adalah yang paling penting; karenanya diambil oleh Wang Chuyi terkuat kedua.
+
+'du long bian' Mei Chaofeng bergerak menuju dada Sun Bu'er. Kelihatannya lambat tapi sangat ganas; siapa yang mengira bahwa Daogu [pendeta Tao] masih duduk tak bergerak. Huang Rong mengikuti gerakan ujung cambuk dan melihat ada tengkorak yang tersulam di jubah Tao Sun Bu'er; dia diam-diam kagum. "Sekte Quanzhen menikmati reputasi sebagai sekolah ortodoks Tao, kenapa pakaiannya menyerupai sesuatu dari jalur Mei Shijie?" Dia tidak tahu bahwa ketika Wang Chongyang mengambil Sun Bu'er sebagai muridnya, dia menggambar tengkorak dan memberikannya kepadanya. Maknanya adalah bahwa hidup seseorang pendek, kematian yang sangat cepat akan datang, dan orang itu akan berubah menjadi tengkorak; jadi dia harus mengembangkan 'jalan' yang benar dan dikagumi ['Dao' dari Tao berarti 'jalan']. Untuk mengenang almarhum tuannya, Sun Bu'er menyulam tengkorak ini di jubahnya.
+
+'Yin bian' [cambuk perak] sepertinya bergerak lambat, namun membawa embusan angin. Ujung cambuk itu hanya berjarak sekitar beberapa inci dari sulaman tengkorak di jubahnya, tiba-tiba dengan gerakan tiba-tiba cambuk perak itu terbang ke belakang, persis seperti ular piton yang kepalanya dipotong dengan pisau, atau seperti panah yang terbang lurus. kembali ke Mei Chaofeng. Itu sangat aneh dan cepat; Mei Chaofeng hanya merasa tangannya sedikit terguncang dan angin sudah membelai wajahnya. Dengan cepat dia merunduk dan cambuk perak menyapu rambutnya. "Berbahaya!" dia berteriak dalam hati saat dia menarik cambuknya kembali dan menyerang kembali. Kali ini cambuk itu ditujukan ke arah Ma Yu dan Qiu Chuji yang masih duduk tak bergerak. Tan Chuduan dan Wang Chuyi mengangkat telapak tangan mereka dan menangkis cambuk itu.
+
+Setelah mereka bertukar beberapa posisi, Huang Rong dapat melihat dengan jelas bahwa Tujuh Master Quanzhen selalu menangkis serangan yang masuk dengan satu telapak tangan, sementara telapak tangan lainnya memegang bahu orang yang duduk tepat di sebelah mereka. Huang Rong merenung dalam-dalam dan dia sadar, “Ternyata mereka menggunakan metode yang sama yang saya gunakan untuk membantu menyembuhkan luka Jing Gege. Mereka menggabungkan kekuatan tujuh orang menjadi satu; bagaimana Mei Shijie bisa menolak?”
+
+Formasi Biduk adalah seni bela diri tertinggi dan paling misterius Sekte Quanzhen, yang dikembangkan oleh Wang Chongyang dengan sangat teliti. Prinsip utamanya adalah menggabungkan kekuatan dalam pertempuran dengan berbagai variasi; bahkan mungkin digunakan di medan perang. Saat musuh menyerang, orang yang langsung menanggung beban tidak perlu mengerahkan tenaga untuk melawan; rekan-rekan di sayapnya yang akan melancarkan serangan balik. Seolah-olah satu orang dengan seni bela diri beberapa orang; kekuatannya benar-benar tak tertahankan.
+
+Beberapa gerakan kemudian Mei Chaofeng menjadi semakin panik, karena dia menyadari bahwa musuh tidak lagi menangkis dan mengibaskannya, tetapi dia merasa cambuk itu ditarik dan dialihkan sehingga lingkaran gerakan cambuk itu berkurang, semakin kecil dan lebih kecil. Sesaat kemudian ketika beberapa cambuk perak panjang zhang bergerak setengah jalan ke arah musuh, dia tidak bisa menariknya lagi. Jika saat ini dia melepaskan cambuk dan melompat mundur, dia mungkin lolos tanpa cedera; tetapi dia telah menghabiskan banyak upaya yang melelahkan dalam pelatihan dengan cambuk panjang ini, bagaimana mungkin dia hanya duduk diam ketika musuh mencoba merebut cambuk itu dari tangannya?
+
+Dia ragu-ragu hanya sesaat tetapi kesempatannya untuk melarikan diri telah hilang. Begitu Formasi Biduk mulai bergerak, ketujuh orang itu bergerak dengan cepat seolah-olah mereka adalah satu orang, tak terbendung kecuali oleh orang yang menempati posisi 'tian quan'. Pada saat Mei Chaofeng menyadari situasi gentingnya, sudah terlambat baginya untuk mundur. Satu-satunya hal yang bisa dia lakukan adalah mengatupkan giginya, melepaskan gagang cambuk dan mempertaruhkan semuanya.
+
+Telapak tangan Liu Chuxuan melakukan gerakan menarik, dengan 'bang!' cambuk yang keras terbang dan menabrak dinding, mengguncang seluruh bangunan; genteng bergemerincing keras dan debu serta puing-puing dari atap berjatuhan ke tanah. Mei Chaofeng terhuyung; dia tidak bisa menahan gaya tarik ini dan dipaksa satu langkah ke depan.
+
+Meski satu langkah ini hanya sekitar dua kaki, itu sangat penting dalam menentukan kemenangan atau kekalahan. Jika Mei Chaofeng melepaskan cambuknya lebih cepat, dia tidak akan ditarik ke depan dan dia bisa berbalik dan kabur keluar pintu; Tujuh Master Quanzhen mungkin belum tentu mengejarnya, karena meskipun mereka melakukannya, mereka belum tentu dapat menyusulnya. Tapi sekarang setelah dia bergerak maju satu langkah, dia tahu situasinya tidak menguntungkan baginya; dia mengayunkan telapak tangannya ke kiri dan ke kanan, dan mereka kebetulan bertemu dengan telapak tangan Sun Bu'er dan Wang Chuyi. Saat dia sedikit menambahkan kekuatan telapak tangannya, telapak tangan Ma Yu dan Hao Datong menyerang dari belakang. Dia tahu betul bahwa jika dia bergerak selangkah lagi, situasinya akan menjadi lebih berbahaya; tetapi dalam keadaan itu, dia tidak punya pilihan sehingga kaki kirinya melangkah setengah langkah ke depan. Di saat yang sama dengan teriakan keras kaki kanannya melayang dan berturut-turut menendang tangan Ma Yu dan Hao Datong.
+
+"Keterampilan yang bagus!" Qiu Chuji dan Liu Chuxuan bersorak bersama, sementara secara bersamaan telapak tangan mereka menyerang, satu dari depan, yang lain dari belakang, untuk mencegahnya melanjutkan serangannya. Bahkan sebelum kaki kanannya mendarat, kaki kiri Mei Chaofeng melayang dan seperti kilat menendang telapak tangan Qiu dan Liu; tetapi saat kaki kanannya mendarat, dia maju satu langkah lagi. Dengan cara ini dia masuk lebih dalam ke Formasi Biduk; dia tidak akan bisa melarikan diri kecuali dia berhasil menggulingkan satu dari tujuh orang.
+
+Saat dia menyaksikan pertempuran, hati Huang Rong diam-diam gelisah. Di bawah sinar bulan kuning pucat dia melihat rambut panjang Mei Chaofeng berkibar di udara saat dia melompat-lompat dan telapak tangannya memukul, kakinya menendang. Setiap tangan dan setiap kaki membawa angin sepoi-sepoi, seperti harimau yang melompat atau macan tutul yang terbang ke mana-mana.
+
+Tujuh Master Quanzhen masih duduk bersila; saat kepala dipukul ekor merespon, saat ekor diserang kepala merespon, saat tengah dipukul kepala dan ekor merespon, sambil terus menjaganya tetap kokoh di dalam formasi.
+
+Mei Chaofeng berturut-turut menggunakan 'jiu yin bai gu zhua' [sembilan yin cakar tulang putih] dan 'cui xin zhang' [telapak tangan penghancur hati] mencoba berlari keluar dari pengepungan yang ketat; tetapi setiap kali dia dipaksa untuk kembali oleh kekuatan telapak tangan Tujuh Master. Dalam kegelisahannya dia mengeluarkan teriakan 'wah, wah' yang aneh.
+
+Pada saat ini jika Tujuh Master ingin mengambil nyawanya, mereka akan dapat melakukannya tanpa terlalu banyak usaha, tetapi selama ini mereka tidak pernah melancarkan serangan maut. Huang Rong mengamati selama setengah hari sebelum dia menyadari apa yang sedang terjadi, “Ah, benar! Mereka meminjam Mei Shijie untuk melatih formasi ini. Tidak mudah menemukan lawan dengan seni bela diri tingkat tinggi. Saya pikir mereka akan membuatnya lelah sampai mati sebelum mereka berhenti.” Sebenarnya tebakannya hanya setengah benar; mereka meminjam Mei Chaofeng untuk melatih formasi mereka dengan baik, tetapi Taoisme tidak mentolerir pembunuhan dengan mudah, oleh karena itu, mereka tidak pernah punya niat untuk membunuhnya.
+
+Huang Rong tidak memiliki kesan yang baik terhadap Mei Chaofeng, tetapi melihat Tujuh Tuan mempermalukannya seperti ini, Huang Rong mendidih karena marah; jadi setelah menonton lebih lama dia tidak ingin menonton lagi dan mengembalikan lubang itu ke Guo Jing. Namun, dia masih mendengar hembusan angin di ruangan lain yang terkadang meningkat dan terkadang melambat, pertanda pertempuran masih berkecamuk.
+
+Awalnya Guo Jing bingung melihat pertarungan itu; dia tidak mengerti mengapa Tujuh Master melawan Mei Chaofeng dengan duduk dalam formasi tidak teratur di tanah. Huang Rong berbisik di telinganya, “Mereka duduk menurut Konstelasi Biduk; kekuatan internal tujuh orang terhubung satu sama lain. Apakah kamu melihatnya?"
+
+Itu seperti pengingat bagi Guo Jing; dia ingat bagian kedua dari Pedoman Sembilan Yin cukup sering menyebutkan Biduk. Dia telah menghafal bagian ini dengan hati, namun dia tidak mengerti artinya. Melihat Seven Masters meluncurkan serangan telapak tangan sambil duduk dalam formasi tiba-tiba dia mengerti apa yang dimaksud dengan Manual. Semakin dia menonton, semakin bahagia dia, akhirnya dia tidak bisa menahan kegembiraannya dan berdiri....
+
+Huang Rong terkejut dan dengan cepat menariknya kembali. Guo Jing menggigil ketakutan dan segera duduk. Dia menempelkan matanya ke lubang dan menyaksikan pertarungan itu lagi. Kali ini dia kurang lebih memahami esensi dari Formasi Biduk. Meskipun dia tidak tahu bagaimana menggunakannya, setiap gerakan dan setiap jurus yang digunakan oleh Tujuh Guru seperti menunjukkan kepadanya trik perdagangan yang disebutkan dalam Pedoman Sembilan Yin.
+
+Pedoman Sembilan Yin adalah hasil dari pemahaman ahli seni bela diri Senior atas kanon Tao kuno. Wang Chongyang mengembangkan formasi ini sebelum dia melihat Manual; namun, studi seni bela diri dalam Taoisme berasal dari akar yang sama. Esensi dasarnya awalnya tidak jauh berbeda; oleh karena itu, variasi dalam formasi tidak jauh dari isi dasar Buku Pedoman.
+
+Di lain waktu di Pulau Bunga Persik, Guo Jing menyaksikan Hong Qigong melawan Ouyang Feng dan dia mendapatkan keuntungan yang luar biasa. Namun, dia lambat, ditambah seni bela diri Pengemis Utara dan Racun Barat tidak didasarkan pada Manual; oleh karena itu, pemahamannya agak terbatas. Kali ini seni bela diri Tujuh Master dan posisi yang mereka ambil didasarkan pada esensi Taoisme yang sama dengan Manual; semuanya tampak pas dan kali ini dia benar-benar mendapatkan keuntungan besar.
+
+Dia melihat Mei Chaofeng berada dalam situasi yang sulit, tetapi kekuatan telapak tangan Tujuh Master juga berangsur-angsur melemah. Tiba-tiba dia mendengar seseorang di ambang pintu berbicara, "Yao Xiong, apakah kamu akan bertindak lebih dulu, atau kamu ingin Kakak mencoba dulu?"
+
+Guo Jing terkejut, itu adalah suara Ouyang Feng; dia tidak tahu kapan dia masuk. Tujuh Master juga terkejut mendengar suaranya; mereka menoleh ke arah pintu dan melihat dua pria berdiri berdampingan di ambang pintu, yang satu mengenakan jubah panjang berwarna hijau tua, yang lainnya berpakaian putih. Mereka adalah dua orang yang mengejar Zhou Botong malam itu.
+
+Quanzhen Seven Masters membuat suara siulan pelan, berhenti berkelahi, dan berdiri. Huang Yaoshi berkata, “Sungguh pemandangan yang bagus! Tujuh rambut campur aduk [istilah merendahkan untuk pendeta Tao] bergabung melawan satu-satunya muridku. Feng Xiong, jika saya mengajari mereka beberapa pelajaran, apakah Anda akan mengatakan saya menggertak beberapa junior?
+
+Ouyang Feng berkata sambil tersenyum, “Mereka bersikap kasar padamu dulu; jika Anda tidak menunjukkan keahlian Anda, para junior ini tidak akan memahami kemampuan Master of Peach Blossom Island.”
+
+Wang Chuyi telah melihat Bidat Timur dan Racun Barat di Gunung Hua; dia akan melangkah maju untuk memberi hormat kepada mereka ketika tiba-tiba bayangan Huang Yaoshi melintas dan menyerang dengan punggung telapak tangannya. Wang Chuyi mundur untuk menghindar, tapi dia terlalu lambat. 'Tampar!' pipinya dipukul tepat; dia terhuyung-huyung dan jatuh.
+
+Qiu Chuji terkejut, "Cepat kembali ke posisi!" dia memanggil; tapi 'Tampar! Tamparan! Tamparan! Tampar!’ Tan, Liu, Hao dan Sun empat orang ditampar dengan telapak tangan. Qiu Chuji hanya melihat bayangan hijau gelap melintas; sebuah telapak tangan diretas tepat di depannya, bayangan telapak tangan itu tiba-tiba berkibar. Qiu Chuji tidak tahu dari mana datangnya serangan itu; dengan putus asa dia mengangkat lengan bajunya, menyerang ke arah dada Huang Yaoshi.
+
+Seni bela diri Qiu Chuji adalah yang utama di antara Tujuh Guru Quanzhen; pemogokan ini bukanlah masalah kecil. Huang Yaoshi terlalu meremehkannya; tiba-tiba dia dipukul oleh lengan baju Qiu Chuji dan dia merasakan sakit di dadanya. Buru-buru dia menarik tangannya untuk melindungi dadanya; tangan kirinya terangkat dan meraih lengan baju, tangan kanannya bergerak cepat ke arah mata Qiu Chuji. Qiu Chuji berjuang sekuat tenaga dan merobek lengan bajunya. Pada saat yang sama telapak tangan Ma Yu dan Wang Chuyi datang untuk menyelamatkannya. Huang Yaoshi bergerak sangat cepat; segera setelah serangannya ke Qiu Chuji gagal, dia melompat ke belakang punggung Hao Datong dan mengangkat kaki kirinya. 'Bang!' dia menendang Hao Datong, membuatnya berguling-guling di tanah.
+
+Kali ini Guo Jing membiarkan Huang Rong melihat melalui lubang kecil itu. Dia melihat ayahnya sangat menunjukkan kekuatannya yang tak terkalahkan, dia sangat senang. Jika dia tidak ingat bahwa Guo Jing masih membutuhkan dua sampai empat jam untuk pulih, dia pasti sudah melompat dan bersorak.
+
+Ouyang Feng tertawa terbahak-bahak dan berseru, "Wang Chongyang telah menerima kelompok ember nasi ini sebagai muridnya!"
+
+Sejak Qiu Chuji mulai belajar seni bela diri, dia tidak pernah mengalami kekalahan seperti itu. "Kembali ke posisi!" dia berulang kali berteriak. Tapi Huang Yaoshi melintas ke timur dan bergoyang ke barat, dan dalam waktu singkat melancarkan tujuh, delapan serangan mematikan. Semua orang mengalami kesulitan untuk menangkis, bagaimana mereka bisa kembali ke formasi mereka? Beberapa 'retak! retak!’ suara terdengar; Huang Yaoshi mematahkan pedang Ma Yu dan Tan Chuduan, dia mematahkan dan melemparkannya ke tanah.
+
+Sepasang pedang Qiu Chuji dan Wang Chuyi terus bergerak ke atas dengan teknik pedang variasi halus Sekte Quanzhen. Saat sepasang pedang menyerang bersama, kekuatan mereka meningkat secara eksponensial. Huang Yaoshi tidak berani lalai; dengan perhatian terkonsentrasi dia meluncurkan beberapa serangan balik. Sementara itu Ma Yu mengambil kesempatan ini untuk kembali ke posisi 'tian shu' sambil melancarkan serangan telapak tangan pada saat yang sama, memberikan kesempatan kepada Tan, Liu dan yang lainnya untuk kembali ke posisi masing-masing.
+
+Segera setelah Formasi Biduk ini terbentuk, situasi pertempuran berubah. 'Tian quan' dan 'yu heng' menghadapi musuh dari depan; 'tian ji' dan 'kai yang' mengirimkan serangan telapak tangan dari kedua sisi, 'yao guang' dan 'tian xuan' dari belakang berputar ke depan.
+
+Dengan empat suara mendesing, Huang Yaoshi mengirimkan empat serangan telapak tangan ke arah empat orang. "Feng Xiong," dia tertawa dan berkata, "Aku tidak tahu Wang Chongyang meninggalkan keterampilan semacam ini!" Suaranya terdengar mudah saat tangannya menangkis setiap serangan telapak tangan lawan, masing-masing secara substansial berbeda satu sama lain. Masing-masing dari serangan tujuh orang ini membawa kekuatan yang sangat besar; itu tidak ada bandingannya dengan ketika mereka bertarung secara individu. Segera Huang Yaoshi menggunakan 'luo ying shen jian zhang fa' [teknik telapak pedang dewa jatuh (daun)]; tubuhnya bergerak dengan cepat seolah-olah dia sedang berseluncur secara acak sementara telapak tangannya terbang seolah-olah ada di mana-mana.
+
+Huang Rong berpikir, “Ketika Ayah mengajariku ‘luo ying shen jian zhang fa’ ini, aku hanya mengetahui lima rongga satu padat, atau tujuh rongga satu padat; dengan kekosongan untuk mengalihkan perhatian musuh. Tetapi saya tidak tahu bahwa lima rongga dan tujuh rongga ini dapat diubah menjadi benda padat. Pertarungan yang luar biasa ini tentunya tidak sama dengan saat Seven Masters melawan Mei Chaofeng sebelumnya. Tidak hanya Huang Rong menyaksikan pertarungan dengan umpan nafas, Ouyang Feng dengan level atau keterampilan seni bela dirinya juga terkejut.
+
+Mei Chaofeng berdiri di samping, mendengarkan angin yang ditimbulkan oleh pertempuran itu. Dia gembira sekaligus ketakutan di dalam. Tiba-tiba dia mendengar 'Ah!' diikuti dengan 'bang!'; ternyata Yin Zhiping sedang menonton pertarungan delapan orang, dia menjadi pusing seolah-olah dunia berputar di sekelilingnya; dia melihat banyak Huang Yaoshi bergerak di depannya, pandangannya kabur dan dia jatuh ke belakang, pingsan.
+
+Tujuh Master Quanzhen dengan teguh mempertahankan posisi mereka, melakukan semua yang mereka bisa untuk melawan musuh; mereka tahu hanya satu kesalahan kecil yang diperlukan, dan tujuh dari mereka tidak akan hidup untuk melihat hari itu. Seiring dengan kematian mereka, Sekte Quanzhen akan melihat kejatuhannya. Huang Yaoshi juga mengerang dalam hati. Jika saja dia meluncurkan serangan maut beberapa saat yang lalu, dia bisa membunuh satu atau dua musuh maka Formasi Biduk akan hancur. Tetapi karena dia telah menunjukkan kelonggaran, dia tahu kemenangan tidak akan diraih dengan mudah, sementara dia tidak boleh kalah. Kedua belah pihak seperti menunggangi punggung harimau; mereka tidak bisa mundur dengan mudah. Yang bisa mereka lakukan hanyalah bertarung dengan seluruh kekuatan mereka.
+
+Dalam waktu kurang dari dua jam, Huang Yaoshi telah menggunakan tiga belas seni bela diri yang berbeda hanya untuk menyamakan kedudukan dengan lawan. Delapan orang tak terpisahkan sampai fajar tiba, ayam jantan berkokok dan matahari mulai memancarkan cahayanya ke dalam ruangan. Saat ini Guo Jing telah menyelesaikan pelatihan tujuh hari tujuh malamnya. Meskipun pertarungan di ruangan lain mengguncang langit dan membalikkan bumi, pikirannya sangat damai; matanya tertutup, energi internalnya menghangatkan seluruh tubuhnya, mulai dari 'wei lu' [gerbang ekor] menuju ke 'shen guan' [saluran ginjal], dari tulang punggungnya melalui kedua lintasan itu naik ke 'tian zhu' [pilar langit] dan 'yu zhen' [bantal giok]; akhirnya ke 'ni wan gong' [istana pil yang ditahan], di bagian atas otaknya, berhenti sejenak dan kemudian mendorong lidahnya ke rahangnya. Napas batinnya turun dari wajahnya, 'shen ting' [halaman dewa], ke 'que qiao' [jembatan murai], dan kembali lagi sampai tiba di 'huang ting' [halaman kuning], 'qi xue' [udara saku] dan perlahan turun ke 'dan tian' [daerah kemaluan].
+
+Huang Rong melihat wajahnya kemerahan dan gemerlap dalam kecemerlangan ilahi; hatinya sangat gembira. Dia menempelkan matanya ke lubang kecil itu lagi untuk melihat ke luar dan dia terkejut. Dia melihat langkah ayahnya lamban; dia bergerak menurut 'ba gua' [delapan diagram]; sambil perlahan meluncurkan serangan telapak tangan dengan serangan telapak tangan. Dia tahu ayahnya tidak akan dengan mudah menggunakan teknik gerak kaki tertinggi ini. Dia tahu bahwa kemenangan atau kekalahan akan segera diputuskan; itu adalah momen yang menentukan hidup dan mati.
+
+Tujuh Master Quanzhen juga bertarung dengan sekuat tenaga sambil meneriakkan semangat satu sama lain. Bagian atas kepala mereka memancarkan kabut yang mengepul, jubah mereka menempel di tubuh mereka yang berkeringat. Kondisi mereka sama sekali berbeda dengan saat mereka santai melawan Mei Chaofeng tadi.
+
+Ouyang Feng berdiri di samping dengan lengan baju ke bawah, menatap tajam ke Formasi Biduk Tujuh Master. Dia berharap Huang Yaoshi akan kelelahan dan menderita cedera serius sehingga pada Pertemuan Pedang kedua di Gunung Hua dia akan memiliki satu musuh yang kurang kuat. Siapa sangka seni bela diri Huang Yaoshi muncul satu demi satu; meskipun Tujuh Master tidak dikalahkan, jelas bahwa mereka juga tidak akan meraih kemenangan dengan mudah. "Old Heretic Huang benar-benar bagus!" dia pikir. Dia melihat kedua belah pihak bergerak semakin lambat, pertanda bahwa situasinya menjadi lebih kritis dari sebelumnya; dalam waktu kurang dari waktu untuk minum teh pertempuran ini akan mencapai kesimpulannya.
+
+Huang Yaoshi mengirimkan dua serangan telapak tangan ke arah Sun Bu'er dan Tan Chuduan. Mereka mengangkat tangan untuk menangkis, sementara Liu Chuxuan dan Ma Yu datang untuk menyelamatkan mereka. Ouyang Feng bersiul panjang dan berseru, "Yao Xiong, biarkan aku membantumu." Dia berjongkok dan mendorong kedua telapak tangannya dengan ganas ke punggung Tan Chuduan. Tan Chuduan menggunakan seluruh kekuatannya untuk melawan Huang Yaoshi. Tiba-tiba dia merasakan kekuatan penghancur bumi datang dari belakang dengan kecepatan kilat. Tidak hanya saudara laki-laki dan perempuannya yang tidak punya waktu untuk menyelamatkan, dia juga tidak punya waktu untuk menghindar. 'Bang!' seluruh tubuhnya terlempar ke depan.
+
+"Siapa yang mau bantuanmu?" Huang Yaoshi meraung dengan marah. Tepat pada saat itu telapak tangan Qiu Chuji dan Wang Chuyi tiba bersamaan. Dia menyikat lengan bajunya untuk menetralkan serangan itu, sementara telapak tangan kanannya memblokir telapak tangan Ma Yu dan Hao Datong.
+
+Ouyang Feng tertawa dan berkata, "Baiklah, biarkan aku membantu mereka!" Tiba-tiba telapak tangannya menghantam punggung Huang Yaoshi. Ketika dia menyerang Tan Chuduan, dia hanya menggunakan 30% dari kekuatannya, tapi sekarang dia menggunakan semua energi kultivasi seumur hidupnya; mengambil kesempatan sementara Huang Yaoshi sibuk memblokir serangan Empat Master. Dia ingin menjatuhkan Huang Yaoshi dalam satu pukulan. Dia telah merencanakannya dengan hati-hati: dia akan membunuh salah satu dari Tujuh Guru dan kemudian membunuh Huang Yaoshi. Begitu Formasi Biduk rusak, dia tidak akan takut akan balas dendam mereka. Skema jahatnya ini sempurna; bahkan jika keterampilan Huang Yaoshi lebih tinggi, dia tidak akan mampu melawan Empat Master dan Racun Barat di punggungnya sekaligus.
+
+"Aku sudah selesai!" Huang Yaoshi diam-diam menghela nafas; dia tidak punya pilihan selain memusatkan 'qi' di punggungnya, mempertaruhkan segalanya untuk menerima beban serangan Toad Stance Ouyang Feng. Dorongan Ouyang Feng membawa kekuatan yang sangat besar, tetapi kecepatannya lebih lambat. Dia yakin rencananya akan menang, dia diam-diam senang. Tiba-tiba bayangan gelap melintas. Seseorang dari samping terbang ke arah punggung Huang Yaoshi, menerima pukulan itu dengan teriakan keras.
+
+Huang Yaoshi, Ma Yu dan yang lainnya segera berhenti berkelahi dan melompat mundur. Mereka melihat bahwa orang yang mempertaruhkan nyawanya untuk melindungi tuannya adalah Mei Chaofeng. Huang Yaoshi menoleh dan dengan dingin tertawa, "Racun Tua benar-benar beracun, kamu benar-benar sesuai dengan reputasimu!"
+
+Saat serangannya secara tidak sengaja mengenai orang lain, Ouyang Feng berteriak di dalam hatinya, “Sayang sekali!” Dia sadar bahwa jika Huang Yaoshi bergandengan tangan dengan Quanzhen Seven Masters, hidupnya akan sulit dilindungi. Dengan tertawa keras dia terbang keluar pintu dan lari.
+
+Ma Yu membungkuk untuk menahan Tan Chuduan dan dia terkejut. Tubuh Tan Chuduan miring, kepalanya terkulai ke samping. Ternyata serangan Ouyang Feng yang satu ini telah mematahkan tulang rusuk di punggung dan tulang punggungnya. Melihat kehidupan Shi Di-nya terpotong, air mata Ma Yu mengalir seperti hujan.
+
+Qiu Chuji mengejar dengan pedang di tangannya, hanya untuk mendengar Ouyang Feng memanggil dari jauh, “Old Heretic Huang, aku membantumu menghancurkan formasi Wang Chongyang, aku juga menghukum murid pemberontak Pulau Bunga Persik atas namamu. Enam rambut yang tersisa dapat Anda urus sendiri. Kita akan bertemu lagi nanti!”
+
+"Huh!" Huang Yaoshi mendengus; dia tahu Ouyang Feng menyebarkan racunnya lagi, mencoba memicu ketegangan antara dia dan Sekte Quanzhen dengan menyalahkan pembunuhan Tan Chuduan di pundaknya, sehingga Sekte Quanzhen akan membalas dendam padanya. Dia sangat memahami niat buruk Ouyang Feng, namun dia tidak mau menjelaskan apa pun kepada Tujuh Master Quanzhen. Perlahan dia mengangkat Mei Chaofeng; dia melihat darah menyembur keluar darinya ke tanah, dia tahu dia tidak akan hidup.
+
+Qiu Chuji mengejar puluhan zhang tetapi dia tidak bisa melihat ke arah mana Ouyang Feng pergi. Ma Yu takut jika dia mengejarnya sendiri dia juga akan jatuh ke tangan beracun Ouyang Feng, jadi Ma Yu berteriak, “Qiu Shi Di! Kembali!"
+
+Mata Qiu Chuji terbakar; dia kembali dengan langkah besar, mengarahkan jarinya ke Huang Yaoshi dan memarahinya, “Permusuhan apa yang kamu miliki dengan Sekte Quanzhen? Anda adalah hantu jahat! Pertama Anda membunuh Zhou Shishu kami, sekarang Anda melukai Tan Shi Ge kami. Mengapa kamu datang ke sini?”
+
+Huang Yaoshi terkejut. "Zhou Botong?" dia bertanya, "Aku membunuhnya?"
+
+"Kamu masih tidak mau mengakuinya?" Qiu Chuji berkata.
+
+Sebenarnya Huang Yaoshi sedang berlomba dengan Zhou Botong dan Ouyang Feng. Mereka telah berlari selama beberapa ratus 'li dan tidak dapat dipisahkan satu sama lain; tidak ada yang mau menyerah. Saat mereka berlari, Zhou Botong tiba-tiba teringat dia meninggalkan Hong Qigong sendirian di istana kekaisaran. Hong Qigong telah kehilangan keterampilan seni bela dirinya; jika dia ditemukan oleh penjaga istana, nyawanya akan berada dalam bahaya. Jadi dia berkata, “Landak Tua memiliki urusan yang harus dihadiri. Saya tidak ingin balapan lagi!” Begitu dia bilang dia tidak mau balapan, dia tidak mau balapan. Huang Yaoshi dan Ouyang Feng tidak dapat membuatnya melakukan sebaliknya dan terpaksa melepaskannya. Huang Yaoshi ingin menanyakan kabar kepada Zhou Botong tentang putri kesayangannya, tetapi selama ini dia tidak memiliki kesempatan untuk melakukannya.
+
+Tan Chuduan dan yang lainnya mengejar di belakang, tetapi segera mereka kehilangan jejak bayangan ketiganya. Namun, Huang Yaoshi dan dua lainnya bisa melihat mereka dengan jelas. Jadi ketika Old Urchin pergi untuk mengurus bisnisnya, Bidat Timur dan Racun Barat dua orang memutuskan untuk kembali ke Desa Sapi tanpa mengharapkan apa yang menunggu mereka di sana.
+
+Saat Qiu Chuji menginjak kakinya dengan marah, Sun Bu'er menangis sambil memegangi tubuh Tan Chuduan. Semua orang ingin mempertaruhkan semuanya untuk melawan Huang Yaoshi. Huang Yaoshi tahu ada kesalahpahaman di sini, tetapi sebagai pria dengan posisinya, dia hanya tertawa dingin tanpa berkata apa-apa.
+
+Tan Chuduan membuka matanya perlahan dan dengan suara rendah berkata, "Aku akan pergi." Qiu Chuji dan yang lainnya dengan cepat berkumpul di sekelilingnya, duduk bersila di tanah. Mereka mendengar Tan Chuduan dengan lembut melafalkan, “Berpegangan tangan, jiwa yang telah meninggal, seperti untaian mutiara, memaksa dirinya untuk pergi. Hati terbuka untuk suara alam, tidak seperti seruling yang ditiup.” Saat dia selesai membaca, dia menutup matanya dan mati.
+
+Enam Guru Quanzhen menunduk untuk berdoa. Selesai berdoa, Ma Yu menggendong tubuh tak bernyawa Tan Chuduan di pelukannya. Qiu Chuji, Yin Zhiping dan yang lainnya mengikuti di belakang tanpa melihat ke belakang. Pada saat ini Qiu Chuji, Sun Bu'er dan yang lainnya menyadari bahwa dengan kematian Tan Chuduan, Formasi Biduk telah rusak. Jika mereka terus melawan Huang Yaoshi, mereka hanya akan memberikan enam nyawa lagi. Balas dendam harus menunggu beberapa hari lagi.
 
 
-
-**Last line was in Page 42 in the PDF**
+**Last line was in Page 45 in the PDF**
 
