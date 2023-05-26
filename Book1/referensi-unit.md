@@ -47,3 +47,9 @@ Satuan ini juga disebut Shili (市里). Ini dikenal juga sebagai ukuran mil Tion
 sangat bervariasi dari jaman ke jaman, tetapi secara umum bisa kita anggap sepertiga mil. Saat ini disederhanakan lagi
 menjadi 500 meter, atau setengah kilometer.
  
+### <a name="satuan-cun" id="satuan-cun">Satuan Cun (寸)</a>
+
+Satuan Cun juga dipakai untuk mengukur jarak, 1 cun kira-kira 1 inci. Karena itu satuan ini juga sering disebut sebagai 
+_Chinese Inch_.
+
+

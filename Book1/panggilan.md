@@ -127,4 +127,11 @@ hanya setingkat di bawah Ketua Umum Kai Pang, dan hanya akan menerima perintah d
 Dalam organisasi lain, bukan tidak mungkin akan dipakai sebutan lain untuk posisi yang sebetulnya serupa.
 
 
+### <a name="gugu" id="gugu">Gu Gu (姑姑)</a>
+
+Dalam hirarki keluarga, panggilan ini ditujukan kepada 'Tante' atau 'Bibi', yang adalah adik perempuan dari pihak ayah.
+Karena struktur panggilan ini pada prinsipnya sama dalam konteks perguruan silat, maka untuk adik seperguruan dari seorang
+guru laki-laki, seorang murid akan memanggilnya dengan sebutan Shigu (师姑), atau Bibi Guru.
+
+
 

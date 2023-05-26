@@ -13,10 +13,6 @@ lebih tidak dapat dipahami – membangun permusuhan yang mendalam dengan mereka.
 sekali. Melihat nafas Mei Chaofeng tersengal-sengal dan semakin lama semakin redup, ia memikirkan dendam yang disimpannya 
 selama lebih dari satu dekade, dan ia merasakan kesedihan yang luar biasa dan tak tertahankan. Air mata mulai jatuh.
 
-**WARNING: Setelah baris ini semuanya masih Draft**
-
-***
-
 Senyum tipis muncul di sudut bibir Mei Chaofeng. "Shifu," katanya. "Tolong... perlakukan dizi seperti dulu — seperti cara 
 Shifu memperlakukan dizi sebelumnya. Dizi telah bersalah, terlalu banyak bersalah, terlalu jauh! Biarkan aku berada di sisimu 
 selamanya... selamanya untuk melayanimu. Dizi sebentar lagi akan pulang ke alam baka, sebentar lagi... Waktu hampir habis!" 
@@ -266,27 +262,89 @@ _Dizi telah menemukan dari dalam istana, berbagai macam kaligrafi, lukisan, dan 
 
 _Dizi dengan hormat memanggil Shifu, tidak berani lancang mengucapkan Enshi[^enshi] - bahkan jika, dalam mimpi, dizi masih memanggil Enshi._
 
-[^enshi]: Enshi (恩师) secara literal bisa diterjemahkan menjadi 'Guru Penolong'. Seseorang, kepada siapa si murid telah berhutang budi sedalam-dalamnya. Karakter yang bermakna 'Guru' adalah Shi (师). Jika kita bandingkan dengan istilah Shifu (师父), terasa ada sebuah perbedaan yang sangat prinsip. Karena karakter En (恩) dan Fu (父) yang membentuk kedua istilah itu ditempatkan di posisi yang berbeda. Untuk membuat perbedaannya lebih terasa, kita jelaskan begini: Enshi berarti Guru yang telah menyelamatkan hidup saya. Sedangkan Shifu berarti Fu (ayah) yang mengajarkan ilmu kepada saya. 
-
 _Kemalangan menimpa dizi yang dikepung oleh pengawal istana, dan meninggalkan seorang putri..._
 
-Tulisan itu telah mencapai kata "putri", tidak ada lagi - kecuali beberapa tanda cipratan yang samar-samar dapat dilihat sebagai noda darah.
+[^enshi]: Enshi (恩师) secara literal bisa diterjemahkan menjadi 'Guru Penolong'. Seseorang, kepada siapa si murid telah berhutang budi sedalam-dalamnya. Karakter yang bermakna 'Guru' adalah Shi (师). Jika kita bandingkan dengan istilah Shifu (师父), terasa ada sebuah perbedaan yang sangat prinsip. Karena karakter En (恩) dan Fu (父) yang membentuk kedua istilah itu ditempatkan di posisi yang berbeda. Untuk membuat perbedaannya lebih terasa, kita jelaskan begini: Enshi berarti Guru yang telah menyelamatkan hidup saya. Sedangkan Shifu berarti Fu (ayah) yang mengajarkan ilmu kepada saya. 
 
-Pada saat kelahiran Huang Rong, semua murid telah mengalami pengusiran dari Pulau Bunga Persik, dan Qu Lingfeng paling awal menderitanya. Huang Rong, mengetahui bahwa setiap orang di bawah pengawasan ayahnya adalah individu yang hebat, tidak dapat menahan perasaan khawatir melihat hari ini laporan yang ditinggalkan oleh Qu Lingfeng.
+Tulisan itu berakhir setelah kata "putri", tidak ada lanjutannya lagi - kecuali beberapa tanda cipratan yang samar-samar 
+dapat dilihat sebagai noda darah.
 
-Sekarang, Huang Yaoshi sudah mengerti inti dari itu. Dia tahu bahwa, setelah Qu Lingfeng dikeluarkan dari pengajarannya, dia sangat menderita karena mendapatkan penerimaan kembali ke sekolah Pulau Bunga Persik. Mengingat bahwa Huang Yaoshi menyukai harta karun, barang antik, dan sampel dari karya pelukis terkenal, dia mengambil risiko pergi ke istana kekaisaran dan melakukan perampokan. Ini telah menguntungkan beberapa kali, tetapi pada akhirnya, dia ditemukan oleh penjaga kekaisaran. Setelah pertarungan sengit, dia menderita luka serius; kembali ke rumah untuk menulis wasiat terakhirnya, dia pasti berjuang untuk menyelesaikannya karena keseriusan cederanya. Ketika, tidak lama kemudian, master pengawal datang mengejar, kedua belah pihak akhirnya mati di sini.
+Pada saat kelahiran Huang Rong, semua murid Huang Yaoshi telah diusir dari Pulau Bunga Persik, dan Qu Lingfeng paling awal 
+mengalaminya. Huang Rong tahu bahwa setiap orang di bawah pengawasan ayahnya adalah pribadi yang istimewa, ia tidak dapat 
+menahan rasa haru ketika hari ini melihat surat yang ditinggalkan oleh Qu Lingfeng.
 
-Huang Yaoshi sudah menyesal setelah melihat Lu Chengfeng terakhir kali. Sekarang, dengan kematian Mei Chaofeng baru-baru ini dan melihat dedikasi seperti itu dari Qu Lingfeng, dia merasa lebih bersalah. Memutar kepalanya dan melihat Sha Gu yang menyeringai berdiri di belakangnya, dia berpikir. "Apakah ayahmu mengajarimu cara bertarung?" dia bertanya, dengan suara tegas.
+Sekarang, Huang Yaoshi sudah mengerti inti dari semua itu. Ia tahu bahwa setelah Qu Lingfeng keluar dari perguruannya, ia 
+berjuang keras untuk bisa diterima kembali sebagai murid Pulau Bunga Persik. Mengingat Huang Yaoshi menyukai harta karun, 
+barang antik, dan karya-karya pelukis terkenal, ia mengambil resiko pergi ke istana kekaisaran dan melakukan perampokan. 
+Ini sukses beberapa kali, tetapi pada akhirnya ia kepergok oleh pengawal kekaisaran. Setelah pertarungan sengit, ia menderita 
+cedera serius, pulang untuk menulis surat terakhirnya, ia pasti berjuang keras untuk menyelesaikannya karena cederanya. 
+Ketika tidak lama kemudian kepala pengawal datang mengejar, kedua belah pihak akhirnya mati di sini.
 
-Sha Gu menggelengkan kepalanya; berlari ke pintu, dia menutupnya dan kemudian diam-diam mengintip demi mengintip melalui celah di ambang pintu, melakukan beberapa gerakan meninju. Tapi saat pukulan datang dan pergi, semuanya adalah enam atau tujuh gerakan kasar yang sama dari bentuk 'Blue Wave Palm', dan tidak ada yang lain.
+Huang Yaoshi sudah menyesal setelah melihat Lu Chengfeng terakhir kali. Sekarang dengan kematian Mei Chaofeng baru-baru ini, 
+dan melihat dedikasi Qu Lingfeng, ia merasa lebih bersalah lagi. Ia menoleh dan melihat Sha Gu yang menyeringai berdiri di 
+belakangnya, tiba-tiba sebuah pikiran muncul di benaknya. "Ayahmu mengajarimu kungfu?" tanyanya dengan suara tegas.
 
-"Ayah," komentar Huang Rong, "dia belajar sendiri dengan memata-matai ketika Martial Brother Qu sedang berlatih seni bela diri."
+Sha Gu menggelengkan kepalanya dan berlari ke pintu, ia menutupnya dan kemudian berulang kali pura-pura mengintip melalui 
+celah di ambang pintu, melakukan beberapa gerakan meninju. Tapi saat pukulan datang dan pergi, semuanya adalah enam atau 
+tujuh gerakan kasar yang sama dari 
+[Bi Bo Zhang Fa](referensi-karakter.md#bi-bo-zhang-fa "Pukulan Gelombang Hijau"), dan tidak ada yang lain.
 
-Huang Yaoshi menganggukkan kepalanya, bergumam: "Saya berharap Lingfeng tidak akan memiliki keberanian untuk berani memberikan seni bela diri kepada orang lain setelah meninggalkan pengawasan saya." Dia menambahkan: “Rong'er, coba serang gerak kakinya. Jebakan dia.”
+"Ayah," komentar Huang Rong, "dia belajar sendiri dengan cara mengintip Qu Shige sedang latihan."
 
-Huang Rong maju, cekikikan. “Sha Gu,” katanya, “mari berlatih seni bela diri. Mencari!"
+Huang Yaoshi menganggukkan kepalanya, bergumam, "Aku juga merasa Lingfeng tidak akan berani menurunkan kungfu kepada orang 
+lain setelah meninggalkan Pulau Persik." Ia menambahkan, "Rong'er, coba serang kakinya. Jebak dia."
 
-Melemparkan tipuan dengan telapak tangan kirinya, dia segera mengikuti dengan 'Matching Ducks Joined by a Ring', meluncurkan dua tendangan dengan kecepatan yang tak tertandingi. Sha Gu, kaget, telah mengambil tendangan kiri Huang Rong di pinggul kanannya sebelum dia buru-buru mundur. Tapi dia tidak tahu bahwa kaki kanan Huang Rong, ditempatkan di muka, sedang menunggu di belakangnya; dia masih goyah dari langkah mundurnya ketika momentumnya membuat perjalanannya dan dia jatuh tertelungkup.
+Huang Rong maju sambil cekikikan. "Sha Gu," katanya, "ayo kita latihan kungfu. Awas!"
+
+Melemparkan tipuan dengan telapak tangan kirinya, ia segera mengikutinya dengan 'Sepasang Bebek Bersatu Dalam Lingkaran', 
+meluncurkan dua tendangan dengan kecepatan yang tak tertandingi. Sha Gu kaget setelah terkena tendangan kiri Huang Rong di 
+pinggul kanannya, ia buru-buru mundur. Tapi ia tidak tahu bahwa kaki kanan Huang Rong yang memang sudah disiapkan sebelumnya, 
+menunggu di belakangnya, ia masih goyah dari langkah mundurnya ketika tersandung kaki Huang Rong dan jatuh terjengkang.
+
+Buru-buru melompat bangkit, ia berteriak, "Kau curang! Ayo, Mei Mei, kita mulai lagi!"
+
+Air muka Huang Yaoshi berubah menjadi gelap. "Siapa Mei Mei?" katanya dengan nada tegas. "Seharusnya 
+[Gugu](panggilan.md#gugu "Gu Gu (姑姑) = Bibi atau Tante")!"
+
+Sha Gu, yang tidak mengerti perbedaan antara Mei Mei dan Gugu, tertawa. "Gugu, Gugu!" katanya dengan patuh.
+
+Huang Rong sudah mengerti. Ia berpikir, "Ayah pada dasarnya ingin supaya aku menguji gerakan kakinya. Kedua kaki 
+Qu Shige patah, jadi ketika latihan sendiri, dia jelas tidak bisa menggunakan kakinya. Karena itu, Sha Gu tidak akan bisa 
+mengintip gerakan kaki apapun. Kalau Qu Shige melatihnya secara pribadi, maka dia akan mengajarkan kungfu untuk semua bagian 
+tubuh, atas, tengah, dan juga gerak kaki. Jelas gerakan kaki Sha Gu payah, pertanda dia belajar dari mengintip ayahnya
+latihan. Qu Shige tidak mengajarinya kungfu."
+
+Dengan menyuruhnya memanggil Huang Rong 'Gugu', berarti Huang Yaoshi akhirnya menerima Sha Gu di bawah pengawasannya, yang 
+sama artinya dengan menerima Qu Lingfeng kembali menjadi muridnya. "Mengapa kau begitu bodoh?" tanyanya.
+
+Sha Gu tertawa, "Aku _memang_ Sha Gu[^sha-gu]!"
+
+Huang Yaoshi merengut. "Di mana ibumu?"
+
+Sha Gu memasang wajah menangis dan menjawab, "Pergi ke tempat nenek."
+
+[^sha-gu]: Sha (傻) adalah 'Bodoh' dalam arti 'idiot' atau terbelakang mental. Sedangkan Gu (姑) berarti anak perempuan. Sewaktu Sha Gu mendengar Huang Yaoshi mengatakan 'bodoh' atau Sha, ia hanya tertawa dan membenarkan, karena itu memang nama panggilannya.
+
+Huang Yaoshi kemudian mengajukan tujuh atau delapan pertanyaan berturut-turut, tetapi tidak mendapatkan apa pun yang penting. 
+Ia hanya bisa menghela nafas dan tidak melanjutkan lagi. Ketika Qu Lingfeng masih dalam asuhannya, ia tahu bahwa 
+Qu Lingfeng punya seorang anak perempuan yang tidak terlalu cerdas. Itu pasti Sha Gu.
+
+Kemudian mereka menguburkan Mei Chaofeng di kebun belakang kedai itu. Guo Jing dan Huang Rong membawa kerangka Qu Lingfeng 
+dan menguburkannya di sebelah Mei Chaofeng. Meskipun Enam Orang Aneh adalah musuh bebuyutan Hei Feng Shuang Sha, kematian 
+seseorang tetap adalah masalah penting, mereka juga bersujud di depan makam, mengucapkan harapan dan mengabaikan urusan 
+mereka di masa lalu.
+
+Huang Yaoshi, menatap dua kuburan baru untuk waktu yang lama, merasakan seratus perasaan bercampur menjadi satu. "Rong'er," katanya, dengan sedih, "ayo pergi dan lihat harta Martial Brother Qu." Saat itu, ayah dan putrinya berjalan kembali ke ruang rahasia.
+
+Melihat barang-barang yang ditinggalkan Qu Lingfeng, Huang Yaoshi terdiam untuk waktu yang lama. Sambil meneteskan air mata, dia berkata: “Di antara murid-murid di bawah pengawasan saya, Lingfeng memiliki seni bela diri terkuat dan pikiran paling cemerlang. Jika kakinya tidak patah, seratus penjaga istana pun tidak akan mampu melukainya.”
+
+“Itu hal yang biasa,” kata Huang Rong. "Ayah, apakah kamu akan mengajar seni bela diri Sha Gu secara pribadi?"
+
+"Aku akan mengajarinya seni bela diri," gumamnya. “Dan aku akan mengajarinya menulis ayat, bermain qin, misteri dari lima elemen… Semua keterampilan yang saat itu ingin dipelajari oleh Martial Brother Qu tetapi tidak dipelajari – aku akan mengajarinya, secara komprehensif.”
+
+Huang Rong menjulurkan lidahnya, dan berpikir: “Pikiran sesat dari seorang pria sesat! Ayah membiarkan dirinya sendiri mengalami banyak stres.
 
 
-**Last line was in Page 4 in the PDF**
+
+**Last line was 345 in the draft**
+

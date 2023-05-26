@@ -49,6 +49,8 @@ Jiu Yin Shen Zhua (九阴神爪) adalah versi asli dari Jiu Yin Baigu Zhua/Zhao.
 
 Yue Nu Jian Fa = Jurus Pedang Nona Yue/Yue Maiden Swordplay (越女劍法)
 
+Bù xiāng shàngxià (不相上下) = ???
+
 
 # Nama Panggilan
 
