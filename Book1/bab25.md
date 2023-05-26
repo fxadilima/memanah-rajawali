@@ -1346,7 +1346,7 @@ Tapi penjelasan dari Bei Dou Da Fa itu sendiri sama sekali buram, sangat sulit d
 Dou milik Ma Daozhang dan yang lain ini ada hubungannya dengan Bei Dou Da Fa. Ini pasti penting untuk diketahui." Ia 
 buru-buru menempelkan matanya di lubang kecil itu untuk mengintip keluar.
 
-[^bei-dou-da-fa]: Bei Dou Da Fa (北斗大法) bisa diartikan 'Ilmu Agung Biduk Utara', dalam terjemahan bahasa Inggris ternyata ditulis 'Big Dipper Great Method', yang membuatnya berkaitan erat dengan astronomi.
+[^bei-dou-da-fa]: Bei Dou Da Fa (北斗大法) bisa diartikan 'Ilmu Agung Gugus Bintang Utara', dalam terjemahan bahasa Inggris ternyata ditulis 'Big Dipper Great Method', yang membuatnya berkaitan erat dengan astronomi. Beidou (北斗) adalah gugus bintang yang populer dengan istilah The Big Dipper atau _Ursa Major_, terdiri dari tujuh bintang. Dalam persenjataan Tiongkok kuno, Beidou sudah sangat umum ditemukan di mata tombak, pisau, pedang, atau golok. Biasanya diukir di bilahnya dalam bentuk tujuh ukiran kecil yang tersusun menurut gugusan bintang itu. Bahkan tak hanya dalam senjata Tiongkok kuno, juga biasa terdapat di senjata-senjata Vietnam dan Korea. Di kalangan kolektor barang antik, pedang seperti ini sudah umum dikenal sebagai Pedang 7 Bintang, atau Qixing Jian (七星剑) [Baca artikel terkait](https://www.mandarinmansion.com/glossary/beidou#:~:text=B%C4%9Bid%C7%92u%20(%E5%8C%97%E6%96%97)%20means%20%22the,that%20consists%20of%20seven%20stars.)
 
 Matanya baru saja mencapai lubang itu ketika terdengan suara keras 'Brakk!' dari pintu yang tergetar, dan seorang pendeta 
 Tao masuk. Tapi jubahnya terangkat, kaki kirinya sudah melangkah masuk, tiba-tiba ia terhuyung ke kembali keluar pintu.
@@ -1387,6 +1387,8 @@ nyaring dan jernih.
 [^hay-tang-ting]: Hay Tang Ting (海棠亭), secara literal adalah Paviliun Lautan Apel. Gabungan karakter Hay Tang (海棠) adalah nama sejenis apel dari genus Malus, bunganya berwarna putih, dan buahnya merah sampai kuning.
 
 [^chongyang-zi]: Chongyang Zi (重阳子) diambil dari nama Wang Chongyang, pendiri Quanzhen.
+
+[^guangning-zi]: Guangning Zi (广宁子, atau 廣寧子), tak ada penjelasan dari novel apa makna gelar ini dalam konteksnya. Guangning adalah nama sebuah daerah di propinsi Guangdong. Ditambah karakter Zi (子) bisa berarti 'Putra Daerah' tersebut.
 
 Giliran Qiu Chuji membuka mulut membaca kutipannya. "Tai Yi Xian di daun teratai." Lalu diikuti Wang Chuyi, "Tak ada
 yang bisa lolos dari kerang kosong." Selanjutnya Guangning Zi[^guangning-zi] Hao Datong mengutip, "Ada seseorang yang
@@ -1435,13 +1437,6 @@ serangan Liu Chuxuan dan Wang Chuyi. Tak disangka ternyata kedua telapak tangan 
 tenaga Yin dan yang lain mengandung tenaga Yang, dan di luar perkiraan Mei Chaofeng, kekuatan gabungan itu jauh melampaui
 gabungan tenaga dalam dua orang.
 
-Mei Chaofeng felt this surge of power in midair; it was like a cannonball pushing her
-upward. Hastily she changed her right claw into a palm, striking downward then she
-flipped her body backwards and landed on the threshold. She was unable to restrain
-her shock, thinking that these two people’s skills were very profound, certainly above
-the Quanzhen Seven Masters. “Is Hong Qigong and Emperor Duan in here?” she called
-out.
-
 Mei Chaofeng merasakan desakan tenaga ini di tengah udara, mirip terjangan batu besar dari ketapel raksasa yang
 mendorongnya ke atas. Buru-buru ia mengubah cakar kanannya menjadi telapak tangan, menghantam ke bawah kemudian
 memutar tubuhnya ke belakang dan mendarat di ambang pintu. Ia tak bisa menahan kaget, berpikir bahwa kungfu kedua
@@ -1488,7 +1483,10 @@ Di ruangan lain Huang Rong mendengarkan percakapan mereka, ia tahu betapa dahsya
 Tujuh Pendekar Quanzhen berani menantangnya sambil duduk tak bergerak dan dengan tangan kosong, ia jadi ingin tahu
 bagaimana mereka akan mengatasinya. Ia menarik Guo Jing dari lubang itu dan memberitahunya bahwa ia ingin melihat.
 
-Dia melihat Quanzhen Seven Masters duduk dalam formasi di dalam ruangan; tiba-tiba dia sadar, “Ini adalah konstelasi Biduk! Hmm, benar! Bukankah Qiu Daozhang menyebutkan formasi Biduk?” Huang Yaoshi mahir dalam astronomi dan mempelajari perhitungan kalender (almanak). Ketika Huang Rong masih kecil, dia sering duduk di pangkuan ayahnya di malam yang cerah, melihat konstelasi langit, sehingga dia segera mengenali posisi tujuh pendeta Tao.
+Ia melihat Tujuh Pendekar Quanzhen duduk dalam formasi di dalam ruangan, tiba-tiba ia sadar, "Ini Beidou[^bei-dou-da-fa]! 
+Hmm, benar! Qiu Daozhang tadi bilang Beidou!" Huang Yaoshi mahir dalam astronomi dan mempelajari perhitungan kalender. 
+Ketika Huang Rong masih kecil, ia sering duduk di pangkuan ayahnya di malam yang cerah, melihat gugusan bintang langit, 
+karena itu ia segera mengenali posisi ketujuh pendeta Tao itu.
 
 Ma Yu dari Quanzhen Seven Masters mengambil posisi 'tian shu' [poros langit], Tan Chuduan mengambil posisi 'tian xuan' [batu giok langit], Liu Chuxuan 'tian ji' [mutiara langit], Qiu Chuji 'tian quan' [kekuatan/otoritas langit]. Keempat orang ini membentuk kepala konstelasi. Wang Chuyi mengambil 'yu heng' [giok (mengukur) berat], Hao Datong 'kai yang' [matahari terbuka], dan Sun Bu'er 'yao guang' [gemetar sinar (cahaya)]. Ketiganya adalah pegangan Biduk.
 

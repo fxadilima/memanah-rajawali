@@ -1121,4 +1121,28 @@ adalah merusak mental orang yang mempraktekkan ilmu ini. Chen Xuanfeng sendiri m
 adalah _sesat_, tetapi pada saat itu mereka memerlukannya.
 
 
+### <a name="formasi-7-bintang" id="formasi-7-bintang">Formasi 7 Bintang</a>
+
+Dalam bahasa mandarin istilah ini seharusnya adalah Beidou Qixing Zhen (北斗七星阵), yang mengacu kepada Gugus Bintang
+Utara yang terdiri dari 7 bintang, populer dengan nama bahasa Inggris Northern Big Dipper, atau [Ursa Major](https://en.wikipedia.org/wiki/Ursa_Major).
+
+![Beidou](images/big-dipper.png)
+
+Dalam konteks cerita silat ini, gugusan tersebut dipakai untuk membentuk formasi pedang oleh 7 Pendekar Quanzhen, 
+yang dimainkan dengan susunan sebagai berikut:
+
+Empat orang membentuk kepala konstelasi berbentuk empat persegi.
+
+- Ma Yu mengambil posisi Tian Shu (天枢)
+- Tan Chuduan mengambil posisi Tian Xuan (天璇) 
+- Liu Chuxuan Tian Ji (天璣)
+- Qiu Chuji Tian Quan (天權) 
+
+Tiga orang mengambil posisi pegangan sekop atau sendok yang tanpa sudut.
+
+- Wang Chuyi mengambil Yu Heng (玉衡)
+- Hao Datong Kai Yang (開陽)
+- Sun Bu'er Yao Guang (搖光) 
+
+
 
