@@ -1283,8 +1283,8 @@ Dan untuk 'Kungfu Dahsyat Telapak Tangan Besi' apa pun itu..." Mengingat bagaima
 dan melarikan diri, ia hanya menatap Guo Jing dan terkikik.
 
 Lu Youjiao menatapnya dengan tegas. Ia menyatakan, "Meskipun aku tidak tahu trik kotor macam apa yang telah mereka mainkan, 
-tapi Tie Zhang Bang telah berkembang dalam beberapa tahun terakhir. Kalian benar-benar tidak boleh meremehkan mereka  
-seperti itu."
+tapi Tie Zhang Bang telah berkembang dalam beberapa tahun terakhir. Kalian benar-benar tidak boleh meremehkan mereka seperti 
+itu."
 
 "Baik, Kakak Lu!" kata Guo Jing dengan tergesa-gesa, kuatir dia akan marah. "Rong'er suka bercanda."
 
@@ -1342,5 +1342,3 @@ Huang Rong menghela nafas dan berkata: "Kenapa kau tidak berpikir sedikit tentan
 
 Guo Jing tiba-tiba menyadari. "Jadi!" teriaknya. "Maksudmu berputar-putar ini mau memanggilku anjing!" Ia melompat, 
 memberi isyarat untuk menggelitiknya sebagai hukuman. Huang Rong cekikikan, menghindari tangannya yang terulur.
-
-
