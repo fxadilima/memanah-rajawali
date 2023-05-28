@@ -1185,9 +1185,9 @@ Ia belum selesai bicara ketika tiba-tiba dari sudut restoran mereka mendengar se
 "Berani memandang rendah 
 [Tie Zhang Shui Shang Piao](referensi-karakter.md#tie-zhang-shui-shang-piao "Telapak Besi Mengapung Di Air") Qiu Qianbei 
 dari 
-[Telapak Besi](referensi-karakter.md#tie-zhang-bang "Telapak Besi")? Itu omong besar!" Guo Jing dan Huang Rong melirik dari 
-mana suara itu berasal, dan melihat seorang pengemis setengah baya, berkulit gelap dan mengenakan jubah compang-camping, 
-berjongkok di sudut dan menatap mereka dengan tawa terkekeh.
+[Tie Zhang Bang](referensi-karakter.md#tie-zhang-bang "Telapak Besi")? Itu omong besar!" Guo Jing dan Huang Rong melirik 
+dari mana suara itu berasal, dan melihat seorang pengemis setengah baya, berkulit gelap dan mengenakan jubah 
+compang-camping, berjongkok di sudut dan menatap mereka dengan tawa terkekeh.
 
 Setelah Guo Jing melihat orang itu adalah sosok anggota Kai Pang, ia langsung santai. Ketika air mukanya yang menyenangkan, 
 Guo Jing menggenggam tangannya dengan hormat dan berkata, "Qianbei, bagaimana kalau bergabung dengan kami dan minum satu 
