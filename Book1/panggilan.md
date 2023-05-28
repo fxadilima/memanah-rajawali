@@ -150,3 +150,15 @@ Karakter Mongolia And (анд) jika diterjemahkan melalui Google Translate akan 
 tetapi dua karakter (ах) menghasilkan 'saudara', yang dalam bahasa mandarin adalah Xiongdi (兄弟).
 
 
+### <a name="xiang-gong" id="xiang-gong">Xiang Gong (相公)</a>
+
+Sebutan hormat ini bisa memiliki beberapa makna:
+
+- Majikan
+- Tuan Muda
+- Pemilik
+- Panggilan mesra dari istri kepada suaminya
+- Pelacur pria
+- Pria simpanan di dunia homoseksual
+
+

@@ -53,3 +53,8 @@ Satuan Cun juga dipakai untuk mengukur jarak, 1 cun kira-kira 1 inci. Karena itu
 _Chinese Inch_.
 
 
+### <a name="satuan-qing" id="satuan-qing">Satuan Qing</a>
+
+Satuan yang dipakai untuk mengukur luas areal, 1 qing kira-kira 6.67 hektar atau 16.47 are.
+
+
