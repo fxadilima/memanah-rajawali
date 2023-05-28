@@ -121,8 +121,7 @@ Ini adalah panggilan umum dari anak-anak kepada ayahnya.
 Secara umum ini adalah sebutan untuk seorang pemimpin dalam sebuah organisasi, dalam hal ini adalah Kai Pang, dan juga
 biasa digunakan untuk hirarki kepemimpinan lainnya. Istilah ini bisa diterjemahkan sewajarnya menjadi 'Penatua' atau 'Tetua'.
 Di semua cerita silat yang menghadirkan Kai Pang istilah ini bertebaran di mana-mana. Pangkat seorang Zhanglao biasanya
-bisa dilihat dari jumlah kantong atau karung di punggungnya, kalau jumlah kantong tersebut sampai delapan, berarti ia
-hanya setingkat di bawah Ketua Umum Kai Pang, dan hanya akan menerima perintah dari Ketua Umum.
+bisa dilihat dari jumlah kantong atau karung di punggungnya.
 
 Dalam organisasi lain, bukan tidak mungkin akan dipakai sebutan lain untuk posisi yang sebetulnya serupa.
 
@@ -132,6 +131,16 @@ Dalam organisasi lain, bukan tidak mungkin akan dipakai sebutan lain untuk posis
 Dalam hirarki keluarga, panggilan ini ditujukan kepada 'Tante' atau 'Bibi', yang adalah adik perempuan dari pihak ayah.
 Karena struktur panggilan ini pada prinsipnya sama dalam konteks perguruan silat, maka untuk adik seperguruan dari seorang
 guru laki-laki, seorang murid akan memanggilnya dengan sebutan Shigu (师姑), atau Bibi Guru.
+
+
+### <a name="gexia" id="gexia">Ge Xia (阁下)</a>
+
+Ini adalah sebutan hormat kepada seseorang yang dipandang sangat tinggi. Setara denga 'Yang Mulia', tetapi karena
+konteksnya adalah dunia persilatan, maka lebih cocok diterjemahkan menjadi Sang Perkasa atau Sang Pemberani.
+
+
+
+
 
 
 

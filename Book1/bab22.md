@@ -517,7 +517,7 @@ cepat memanggil, "Jing'er, kau mendengar suara itu dari pantai?"
 
 Guo Jing segera bangkit dan melompat turun dari pohon. Begitu ia melihat apa yang terjadi di pantai, ia tidak bisa berhenti 
 mengutuk, ia segera bergegas maju mengejar. Pada saat ini Huang Rong juga terbangun dan berlari mengejarnya sambil berseru, 
-"Jing ge ge, ada apa?"
+"Jing Gege, ada apa?"
 
 Guo Jing berteriak dari kejauhan, "Para pencuri jahat itu mencuri rakit kita." Mendengar ini, Huang Rong kaget.
 

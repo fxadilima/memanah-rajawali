@@ -251,7 +251,7 @@ ruang tersembunyi itu. Kakak Zhou, tolong jaga Shifu dan awasi anak ini. Jing Ge
 
 Zhou Botong melambaikan tangannya dan berkata, "Tidak, aku ikut kalian."
 
-Huang Rong memberitahunya, "Aku tidak ingin kamu ikut denganku."
+Huang Rong memberitahunya, "Aku tidak ingin kau ikut."
 
 Meskipun Zhou Botong adalah seorang senior dengan kungfu yang jauh lebih tinggi, untuk beberapa alasan ia tidak berani 
 menentang Huang Rong. Ia hanya bisa memohon, "Nona yang baik, lain kali aku tidak akan berdebat denganmu."
