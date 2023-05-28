@@ -121,7 +121,10 @@ Ini adalah panggilan umum dari anak-anak kepada ayahnya.
 Secara umum ini adalah sebutan untuk seorang pemimpin dalam sebuah organisasi, dalam hal ini adalah Kai Pang, dan juga
 biasa digunakan untuk hirarki kepemimpinan lainnya. Istilah ini bisa diterjemahkan sewajarnya menjadi 'Penatua' atau 'Tetua'.
 Di semua cerita silat yang menghadirkan Kai Pang istilah ini bertebaran di mana-mana. Pangkat seorang Zhanglao biasanya
-bisa dilihat dari jumlah kantong atau karung di punggungnya.
+bisa dilihat dari jumlah kantong (Daizi 袋子) atau karung di punggungnya.
+
+Penatua dengan delapan kantong akan dipanggil Ba Dai Zhanglao (八袋长老), sesuai dengan jumlah kantong itu, Ba (八) adalah 'Delapan'. Mirip dalam militer, jumlah kantong itu akan menentukan berapa banyak anak buah yang dipimpinnya. Kai Pang adalah
+organisasi terbesar saat itu, anggotanya ada di mana-mana, dan jumlah mereka teramat sangat banyak.
 
 Dalam organisasi lain, bukan tidak mungkin akan dipakai sebutan lain untuk posisi yang sebetulnya serupa.
 
@@ -135,12 +138,15 @@ guru laki-laki, seorang murid akan memanggilnya dengan sebutan Shigu (师姑), a
 
 ### <a name="gexia" id="gexia">Ge Xia (阁下)</a>
 
-Ini adalah sebutan hormat kepada seseorang yang dipandang sangat tinggi. Setara denga 'Yang Mulia', tetapi karena
+Ini adalah sebutan hormat kepada seseorang yang dipandang sangat tinggi. Setara dengan 'Yang Mulia', tetapi karena
 konteksnya adalah dunia persilatan, maka lebih cocok diterjemahkan menjadi Sang Perkasa atau Sang Pemberani.
 
+### <a name="anda" id="anda">Anda (анд)</a>
 
+Di Mongolia, setelah mengucapkan ikrar untuk saling mengangkat saudara, kedua belah pihak akan memanggil saudara
+angkatnya dengan sebutan 'Anda'.
 
-
-
+Karakter Mongolia And (анд) jika diterjemahkan melalui Google Translate akan menghasilkan 'friend' atau 'teman',
+tetapi dua karakter (ах) menghasilkan 'saudara', yang dalam bahasa mandarin adalah Xiongdi (兄弟).
 
 
