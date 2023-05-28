@@ -16,31 +16,56 @@ itu kami datang ke sini untuk membantu."
 
 Guo Jing dan Huang Rong terkejut, mereka bertanya, "Tangan beracun apa?"
 
-Pengemis itu bertanya, “Pengemis tua itu tidak mau makan bersamamu, kan?”
+Pengemis itu bertanya, "Pengemis tua itu tidak mau makan bersamamu, kan?"
 
-Huang Rong menggigil ketakutan, dia bertanya, "Apakah dia memasukkan racun ke dalam makanan kita?"
+Huang Rong menggigil ketakutan, ia bertanya, "Apa dia memasukkan racun ke dalam makanan kita?"
 
-Pengemis itu menghela nafas dan berkata, “Ini adalah kemalangan Klan Pengemis kita karena kita memiliki pengkhianat licik di antara kita. Pengemis tua ini sangat terampil menggunakan racun; begitu jarinya menjentikkan dengan ringan, racun yang tersembunyi di kuku jarinya akan segera bercampur dengan makanan dan anggur; bahkan dewa tidak akan curiga. Keracunanmu sudah dalam; dalam waktu satu jam tidak ada yang bisa menyelamatkan hidup Anda.
+Pengemis itu menghela nafas dan berkata, "Inilah nasib buruk Kai Pang kita, ada pengkhianat licik di antara kita. Pengemis 
+tua itu sangat pandai menggunakan racun, begitu jarinya menyentil dengan ringan, racun yang tersembunyi di kuku jarinya akan 
+segera bercampur dengan makanan dan arak, bahkan dewa tidak akan curiga. Keracunanmu sudah gawat, dalam waktu satu jam tidak 
+ada yang bisa menyelamatkan hidupmu."
 
-Huang Rong tidak mempercayai apa yang dia katakan, dia bertanya, "Kami tidak memiliki permusuhan terhadapnya, mengapa dia meracuni kami?"
+Huang Rong tidak mempercayai apa yang dikatakannya, ia bertanya, "Kami tidak punya permusuhan dengan dia, mengapa dia 
+meracuni kami?"
 
-Pengemis itu menjawab, “Kemungkinan besar kalian berdua mengatakan sesuatu yang menghina dia. Tolong cepat dan ambil penawar ini, hanya dengan begitu kalian berdua bisa diselamatkan.” Setelah berbicara, dia mengeluarkan sebungkus obat bubuk dari sakunya dan memasukkannya ke dalam dua cangkir anggur dan menuangkan anggur ke dalamnya lalu dia memohon kepada Jing, dua orang Rong untuk segera meminumnya.
+Pengemis itu menjawab, "Kemungkinan besar kalian berdua mengatakan sesuatu yang menghina dia. Cepat dan ambil penawar ini, 
+hanya dengan begitu kalian berdua bisa diselamatkan." Setelah berbicara, ia mengeluarkan sebungkus obat bubuk dari sakunya 
+dan memasukkannya ke dalam dua cawan arak, dan menuangkan arak ke dalamnya, lalu ia menyuruh Guo Jing dan Huang Rong segera 
+meminumnya.
 
-Beberapa saat yang lalu Huang Rong melihat mereka pergi menemui Yang Kang, dia curiga. Bagaimana mereka bisa minum obat begitu saja berdasarkan apa yang baru saja dia katakan? Jadi dia bertanya, “Pria bermarga Yang itu adalah kenalan kita. Bisakah kalian bertiga mengundangnya untuk datang dan melihat kami?”
+Beberapa saat yang lalu Huang Rong melihat mereka pergi menemui Yang Kang, ia curiga. Bagaimana mereka bisa minum obat begitu 
+saja berdasarkan apa yang baru saja dikatakannya? Jadi ia bertanya, "Orang bermarga Yang itu kenalan kami. Kalian bertiga 
+bisa mengundangnya untuk datang dan menemui kami?"
 
-“Tentu saja,” pengemis itu menjawab, “Tapi racun murid pengkhianat itu terlalu parah. Anda harus meminum penawar ini dengan cepat, atau jika tidak maka akan terlambat.”
+"Tentu saja," jawab pengemis itu. "Tapi racun murid pengkhianat itu terlalu parah. Kau harus cepat-cepat minum penawar ini, 
+kalau tidak akan terlambat."
 
-Huang Rong berkata, “Kami sangat berterima kasih atas niat baik Anda. Maukah Anda duduk dan minum beberapa cangkir bersama kami? Saya sering berpikir tentang Pemimpin Klan kesebelas dari Klan Pengemis seorang diri melawan sekelompok prajurit di Gunung Beigu; hanya menggunakan tongkat dan sepasang telapak tangannya untuk menjatuhkan lima tiran Luoyang; betapa pahlawannya dia.”
+Huang Rong berkata, "Kami sangat berterima kasih atas niat baikmu. Bagaimana kalau kau duduk dan minum beberapa cawan 
+bersama kami? Aku sering berpikir tentang Ketua Kai Pang kesebelas seorang diri melawan sekelompok prajurit di Gunung Beigu, 
+hanya menggunakan tongkat dan sepasang telapak tangannya untuk menjatuhkan lima tiran Luoyang, betapa hebatnya dia."
 
-Selama dia dan Guo Jing bersama dengan Hong Qigong mengikat beberapa kayu untuk membuat rakit di pulau MingXia [Awan Merah Terang], Hong Qigong sering menceritakan kisahnya tentang beberapa peristiwa besar di masa lalu dalam Klan Pengemis, jadi dia tidak akan benar-benar bodoh ketika dia menjadi Pemimpin Klan di masa depan. Pencapaian Pemimpin Klan kesebelas Klan Pengemis itu adalah salah satu cerita yang dia dengar dari Hong Qigong. Ketika ketiga pengemis tua itu mendengarnya tiba-tiba berbicara tentang mantan Pemimpin Klan, mereka saling memandang dengan heran, mereka bertanya-tanya bagaimana seorang anak muda seperti dia tahu tentang masalah seperti itu.
+Waktu dia dan Guo Jing bersama dengan Hong Qigong mengikat beberapa kayu untuk membuat rakit di pulau Ming Xia, Hong Qigong 
+sering menceritakan kisahnya tentang beberapa peristiwa besar Kai Pang di masa lalu, jadi ia tidak akan benar-benar bodoh 
+ketika menjadi Kai Pang di masa depan. Pencapaian Ketua Kai Pang kesebelas itu adalah salah satu cerita yang didengarnya dari 
+Hong Qigong. Ketika ketiga pengemis tua itu mendengarnya tiba-tiba berbicara tentang mantan Ketua Kai Pang, mereka saling 
+pandang dengan heran, mereka bertanya-tanya bagaimana seorang anak muda seperti dia tahu tentang masalah seperti itu.
 
-Huang Rong berkata lagi, "Delapan Belas Telapak Tangan [Pemimpin Klan] Hong Bangzhu tidak ada bandingannya di bawah langit, aku bertanya-tanya berapa banyak jurus yang kalian bertiga pelajari?"
+Huang Rong berkata lagi, "Delapan Belas Jurus Penakluk Naga Hong Bangzhu tidak ada bandingannya di kolong langit, aku 
+bertanya-tanya berapa banyak jurus yang kalian bertiga pelajari?"
 
-Ekspresi malu muncul di wajah ketiga pengemis itu; mereka bahkan tidak belajar satu jurus pun dari Delapan Belas Telapak Tangan Penundukkan Naga Pemimpin Klan, mereka lebih rendah bahkan dari murid delapan tas Li Sheng yang menguasai satu jurus 'Naga Ilahi Mengayunkan ekornya'.
+Ekspresi malu muncul di wajah ketiga pengemis itu, mereka bahkan tidak belajar satu jurus pun dari Delapan Belas Penakluk 
+Naga, peringkat mereka lebih rendah dari 
+[Ba Dai Zhanglao](panggilan.md#zhang-lao "Penatua Delapan Kantong") Li Sheng yang menguasai satu jurus Sang Naga Mengibaskan 
+Ekor.
 
-Huang Rong melanjutkan, “Lu Zhanglao [Penatua Lu] yang meracuni kami beberapa saat yang lalu; Saya pikir skillnya biasa saja. Bulan lalu Racun Barat Ouyang Feng mengundang saya untuk minum tiga anggur beracun, sekarang agak lebih baik. Mengapa Anda tidak meminum sendiri dua cangkir anggur beracun ini?” Dia mendorong dua cangkir dengan obat bubuk di depan tiga pengemis.
+Huang Rong melanjutkan, "Lu Zhanglao yang meracuni kami beberapa saat yang lalu, kupikir kungfunya biasa saja. Bulan lalu 
+Racun Barat Ouyang Feng mengundangku untuk minum tiga cawan arak beracun, sekarang agak lebih baik. Mengapa kau tidak minum 
+sendiri dua cawan beracun ini?" Ia mendorong dua cawan dengan obat bubuk di depan tiga pengemis.
 
-Wajah ketiga pengemis itu sedikit berubah; mereka tahu dia sengaja berbicara omong kosong dan tidak mau minum obat. Penatua dengan penampilan orang kaya itu tersenyum dan berkata, “Nona curiga, tentu saja kami tidak bisa memaksamu. Hanya niat baik kita yang akan sia-sia. Izinkan saya menunjukkan satu hal untuk meyakinkan Nona. Silakan lihat mata saya; beri tahu saya jika Anda melihat sesuatu yang tidak biasa.
+Air muka ketiga pengemis itu agak berubah, mereka tahu ia sengaja omong kosong dan tidak mau minum obat. Penatua dengan 
+penampilan orang kaya itu tersenyum dan berkata, "Nona curiga, tentu saja kami tidak bisa memaksamu. Hanya saja, niat baik 
+kami yang akan sia-sia. Ijinkan aku menunjukkan satu hal untuk meyakinkan Nona. Silakan lihat mataku, beritahu aku kalau kau 
+melihat sesuatu yang tidak biasa."
 
 Guo Jing dan Huang Rong menatap matanya, hanya untuk melihat sepasang mata sipit di tengah wajah gemuk gemuk, seperti sepasang celah di wajahnya; tetapi bola matanya berkilau, terlihat sangat jernih dan cerah. "Apa yang begitu aneh tentang matanya?" Huang Rong bertanya-tanya di dalam hatinya, “Mereka terlihat seperti sepasang mata babi yang berkilauan.”
 
@@ -57,4 +82,15 @@ Saat ini Guo Jing sudah memiliki energi internal yang kuat, dia mampu memutuskan
 Guo Jing ingin menambah kekuatannya dan mencoba lagi, tiba-tiba dia merasakan sesuatu yang dingin di wajahnya; sepotong pedang sedingin es ditepuk lembut dua kali di pipinya. Dia menoleh dan melihat empat pengemis muda, masing-masing dengan senjata terhunus menjaga mereka di sisi mereka. Dia tidak punya pilihan selain berhenti berjuang. Dia menoleh untuk melihat Huang Rong.
 
 Huang Rong menenangkan diri; dia tahu dia perlu menilai keseluruhan situasi terlebih dahulu, dan kemudian mencoba mencari cara untuk melarikan diri. Dia membalikkan tubuhnya dan tertegun. Ternyata mereka berada di puncak sebuah puncak kecil. Di bawah sinar bulan dia dengan jelas melihat air danau di sekitar mereka. Kabut tipis menggantung rendah pada sepuluh ribu 'qing' [unit area, 1 qing kira-kira 6,67 Hektar atau 16,47 hektar] gelombang hijau kebiruan. Pikirnya, “Ternyata kami ditangkap dan dibawa ke puncak Gunung Jun di Danau Dongting. Kenapa saya tidak merasakan apa-apa di sepanjang jalan?
+
+Dia menoleh lagi dan melihat ada platform tinggi selusin zhang jauhnya. Area di sekitar peron dipenuhi deretan ratusan pengemis. Mereka duduk diam; sinar bulan belum menyinari orang-orang ini, itulah alasan mengapa Huang Rong tidak memperhatikan mereka sebelumnya. Dalam hati dia bahagia, “Ah, benar! Hari ini adalah hari kelima belas bulan ketujuh; itu Majelis Umum Klan Pengemis. Saya harus memikirkan cara untuk berbicara, lalu saya akan menyampaikan perintah Shifu, bagaimana bisa para pengemis di sini menolak untuk menerimanya?”
+
+Setelah sekian lama, rombongan pengemis itu masih belum menunjukkan aktivitas apapun. Huang Rong tidak tahan lagi, tetapi dia tidak bisa bergerak dan harus bertahan dengan sabar. Sekitar setengah jam kemudian, anggota tubuhnya mati rasa. Dia melihat bulan perlahan naik ke tengah langit, menerangi setengah dari platform tinggi. Huang Rong berpikir, "Li Tai menulis sebuah puisi, 'Bulan pucat menyapu danau, permukaannya jernih seperti cermin giok, berdiri di Gunung Jun melukis gambar.' Dia naik gunung untuk menikmati bulan malam itu, jadi bebas dan tidak terikat. Malam ini pemandangannya sama, tapi Jing Gege dan aku terikat di sini. Itu benar-benar menjengkelkan dan lucu pada saat bersamaan!”
+
+Cahaya bulan perlahan bergerak, menyinari tiga karakter yang tertulis di sisi peron, 'xuan yuan [nama untuk Kaisar Kuning] tai' [peron]. Huang Rong teringat kisah yang diceritakan ayahnya tentang kisah-kisah hebat dunia Jianghu. Legenda mengatakan bahwa Huang Di [Yellow Emperor] melemparkan [kata 'cast' di sini seperti dalam 'casting logam dari cetakan'] sebuah Ding [tripod, digunakan untuk peralatan minum. Dari Wikipedia: sejenis kapal Tiongkok kuno berkaki tiga] di tepi danau Dongting. Ketika ding selesai, dia mengendarai seekor naga dan naik ke surga. Dia percaya platform ini dibangun untuk memperingati peristiwa itu.
+
+Tentang waktu yang dibutuhkan untuk membuat teh nanti, platform tinggi itu benar-benar diliputi oleh bulan yang cerah. Tiba-tiba dia mendengar 'bonk, bonk, bonk' tiga kali lalu berhenti, lalu 'bonk, bonk, bonk' lagi. Pola ini berulang-ulang, kadang pelan kadang cepat, kadang tinggi, kadang rendah, seolah-olah mengikuti ritme tertentu. Ternyata masing-masing pengemis itu memegang tongkat kecil di tangan mereka dan mereka mengetuk batu gunung di depan mereka. Huang Rong diam-diam menghitung ketukan, dia menghitung sembilan kali sembilan, delapan puluh satu kali ketika suara itu berhenti dan empat orang berdiri dari kerumunan pengemis. Di bawah sinar bulan yang terang dia bisa melihat mereka dengan jelas; mereka adalah Lu Youjiao dan tiga tetua dari Fraksi Pakaian Bersih.
+
+
+**Last line was 69 in the Draft**
 
