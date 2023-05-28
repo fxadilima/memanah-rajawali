@@ -1162,10 +1162,6 @@ Terbalik dari [Kai Pang Baju Kotor](#wu-yi-pai "Wu Yi Pai"), ini adalah cabang K
 Kai Pang Baju Bersih.
 
 
-### <a name="bi-wu" id="bi-wu">Bi Wu (比武)</a>
-
-Istilah ini berarti 'Adu ilmu silat', alias berkelahi dalam arti bertanding.
-
 
 
 

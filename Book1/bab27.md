@@ -185,7 +185,7 @@ adalah Majikan Pulau Bunga Persik, Dong Xie[^dong-xie] Huang Yaoshi, dan Tujuh M
 
 [^maling-quanzhen]: Yang Kang menggunakan istilah Quanzhen Qi Zei (全真七贼), yang berarti 7 Maling dari Quanzhen. 
 
-Huang Yao Shi tidak meninggalkan pulaunya selama beberapa waktu; oleh karena itu, sembilan dari sepuluh pengemis tidak 
+Huang Yao Shi tidak meninggalkan pulaunya selama beberapa waktu, oleh karena itu sembilan dari sepuluh pengemis tidak 
 mengetahui banyak tentang reputasinya. Namun prestasi Tujuh Pendekar Quanzhen telah mengguncang dunia, jauh dan luas. Para 
 pengemis yang menghadiri pertemuan umum di Junshan hari ini bukan anggota baru Kai Pang, tentu saja mereka sangat memahami 
 kemampuan Tujuh Pendekar Quanzhen. Mereka tidak peduli orang seperti apa Huang Yaoshi itu, tetapi jika Tujuh Pendekar 
