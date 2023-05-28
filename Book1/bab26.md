@@ -1283,7 +1283,7 @@ Dan untuk 'Kungfu Dahsyat Telapak Tangan Besi' apa pun itu..." Mengingat bagaima
 dan melarikan diri, ia hanya menatap Guo Jing dan terkikik.
 
 Lu Youjiao menatapnya dengan tegas. Ia menyatakan, "Meskipun aku tidak tahu trik kotor macam apa yang telah mereka mainkan, 
-tapi Tie Zhang Bang telah berkembang dalam beberapa tahun terakhir. Kalian benar-benar tidak boleh meremehkan mereka dengan 
+tapi Tie Zhang Bang telah berkembang dalam beberapa tahun terakhir. Kalian benar-benar tidak boleh meremehkan mereka  
 seperti itu."
 
 "Baik, Kakak Lu!" kata Guo Jing dengan tergesa-gesa, kuatir dia akan marah. "Rong'er suka bercanda."
