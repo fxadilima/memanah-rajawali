@@ -1166,34 +1166,181 @@ Guo Jing menatapnya. "Apakah itu puisi Fan Zhongyan juga?" tanyanya.
 
 [^sumuzhe]: Huang Rong di sini menutip bagian akhir dari Su Mu Zhe (蘇幕遮), karya Fan Zhongyan, yang selengkapnya adalah 碧云天，黄叶地，秋色连波，波上寒烟翠。山映斜阳天接水，芳草无情，更在斜阳外。黯乡魂，追旅思，夜夜除非，好梦留人睡。明月楼高休独倚，酒入愁肠，化作相思泪. Bait terakhir itu selengkapnya adalah 'Setiap malam menjelang, hanya mimpi indah yang membuatku tertidur. Dengan terang bulan, di atas balkon, aku tidak sendirian. Arak yang masuk ke perutku berubah menjadi air mata kerinduan.'
 
-Keduanya minum beberapa cangkir satu sama lain, dan Huang Rong melihat para tamu di restoran. Di sisi timur, dia melihat tiga pengemis paruh baya duduk mengelilingi meja persegi; meskipun memakai banyak tambalan, pakaian mereka bersih dan segar. Dilihat dari penampilan mereka, mereka adalah tokoh penting dalam Geng Pengemis yang datang untuk menghadiri pertemuan besar malam ini. Selain mereka, semua tamu lainnya adalah pejabat dan pedagang biasa. Kicau jangkrik yang tak henti-hentinya terdengar dari pohon willow besar di luar restoran.
+Mereka masing-masing minum beberapa cawan, dan Huang Rong melihat para tamu di restoran. Di sisi timur, ia melihat tiga 
+pengemis setengah baya duduk mengelilingi meja persegi, meskipun memakai banyak tambalan, pakaian mereka bersih dan segar. 
+Dilihat dari penampilan mereka, mereka adalah tokoh penting dalam Kai Pang yang datang untuk menghadiri pertemuan besar 
+malam ini. Selain mereka, semua tamu lainnya adalah pejabat dan pedagang biasa. Suara jangkrik tak henti-hentinya 
+terdengar dari pohon willow besar di luar restoran.
 
-“Sepanjang hari,” kata Huang Rong, “jangkrik ini meneriakkan ‘zhi le, zhi le’ tanpa henti, tapi apapun yang mereka ketahui tidak diketahui. Pada dasarnya, bahkan di antara serangga ada pria yang menyombongkan diri tanpa malu-malu. Itu membuat saya memikirkan orang tertentu, dan saya lebih merindukannya.
+"Sepanjang hari," kata Huang Rong, "jangkrik ini meneriakkan ‘zhi le, zhi le’ tanpa henti, tapi apapun yang mereka ketahui 
+tidak diketahui. Pada dasarnya bahkan di antara serangga pun ada saja yang tanpa malu-malu membual. Itu mengingatkan aku kepada orang tertentu, dan aku malas ketemu dia."
 
 "Siapa?" tanya Guo Jing.
 
-"Banteng yang banyak bicara itu," kata Huang Rong, tersenyum, "Qiu 'Mengapung-Di Atas-Air' dari Tapak Besi!"
+"Banteng yang banyak bicara itu," kata Huang Rong tersenyum. "Qiu 'Mengapung-Di Atas-Air' dari Telapak Besi!"
 
-Guo Jing tertawa keras. “Penipu tua itu…!” dia memulai.
+Guo Jing tertawa keras. "Penipu tua itu...!" katanya.
 
-Dia belum selesai berbicara ketika tiba-tiba, dari sudut restoran, mereka mendengar seseorang berbicara dengan suara misterius: “Melihat ke bawah bahkan tetua 'Floats-Over-Water' Qiu dari Iron Palm? Itu pembicaraan besar! Guo Jing dan Huang Rong melirik dari mana suara itu berasal dan melihat seorang pengemis paruh baya, dengan kulit gelap dan mengenakan jaket compang-camping, berjongkok di sudut dan melihat mereka dengan tawa terkekeh.
+Ia belum selesai bicara ketika tiba-tiba dari sudut restoran mereka mendengar seseorang bicara dengan suara misterius, 
+"Berani memandang rendah 
+[Tie Zhang Shui Shang Piao](referensi-karakter.md#tie-zhang-shui-shang-piao "Telapak Besi Mengapung Di Air") Qiu Qianbei 
+dari 
+[Telapak Besi](referensi-karakter.md#tie-zhang-bang "Telapak Besi")? Itu omong besar!" Guo Jing dan Huang Rong melirik dari 
+mana suara itu berasal, dan melihat seorang pengemis setengah baya, berkulit gelap dan mengenakan jubah compang-camping, 
+berjongkok di sudut dan menatap mereka dengan tawa terkekeh.
 
-Guo Jing, melihat dirinya adalah sosok Geng Pengemis, langsung santai. Menyadari bahwa dia memiliki ekspresi yang menyenangkan, Guo Jing menggenggam tangannya dengan hormat dan berkata: Senior, bagaimana kalau bergabung dengan kami dan minum satu atau tiga cangkir?
+Setelah Guo Jing melihat orang itu adalah sosok anggota Kai Pang, ia langsung santai. Ketika air mukanya yang menyenangkan, 
+Guo Jing menggenggam tangannya dengan hormat dan berkata, "Qianbei, bagaimana kalau bergabung dengan kami dan minum satu 
+atau tiga cawan?"
 
 "Tentu!" kata pengemis itu, segera datang.
 
-Huang Rong memesan satu cangkir ekstra dan satu set sumpit dari seorang pelayan. Menuangkan cangkir dengan anggur, dia berkata sambil tersenyum: "Silakan duduk, dan minumlah!"
+Huang Rong memesan satu cawan ekstra dan satu set sumpit dari seorang pelayan. Menuangkan arak ke dalam cawan, ia 
+berkata sambil tersenyum, "Silakan duduk, dan minumlah!"
 
-“Pengemis di sini tidak pantas mendapat tempat duduk,” jawabnya. Duduk tepat di papan lantai, dia mengeluarkan mangkuk pecah dan sepasang sumpit bambu dari sakunya. Memperpanjang mangkuk, dia berkata: "Sisa makanan yang sudah kamu habiskan - buang sebagian, dan mereka akan melakukannya untukku."
+"Lao Gai di sini tidak pantas mendapat tempat duduk," jawabnya. Duduk tepat di papan lantai, ia mengeluarkan mangkuk pecah 
+dan sepasang sumpit bambu dari sakunya. Mengulurkan mangkuk, ia berkata, "Sisa makanan yang sudah kau makan - buang 
+sebagian, dan sisanya untukku."
 
-"Itu akan sedikit terlalu tidak sopan!" kata Guo Jing. “Apa pun hidangan yang senior ingin makan, kami akan memesannya dari dapur.”
+"Itu terlalu tidak sopan!" kata Guo Jing. "Apa pun hidangan yang ingin Qianbei makan, kami akan memesannya dari dapur."
 
-“Seorang pengemis terlihat seperti pengemis,” kata pengemis itu. “Jika dia hanya satu nama – hanya berpura-pura aksen dan mempengaruhi penampilan – mungkin juga bukan pengemis. Jika Anda setuju untuk membagikannya, maka bagikan. Jika tidak, saya akan pergi ke tempat lain untuk meminta makanan!”
+"Seorang pengemis terlihat seperti pengemis," kata pengemis itu. "Kalau hanya nama — hanya ngomong dan berpakaian _seperti_ 
+pengemis — mungkin juga bukan pengemis. Kalau kalian mau berbagi, ya bagikan. Kalau tidak, aku akan pergi minta makanan ke 
+tempat lain!"
 
-Huang Rong melirik Guo Jing. "Memang!" dia tertawa. "Kamu mengatakannya dengan benar!" Mereka kemudian memasukkan semua sisa makanan mereka ke dalam mangkuk yang pecah. Pengemis itu mengambil beberapa gumpalan nasi dingin dari dalam sakunya dan, bersama sisa makanannya, mulai memakannya dengan lahap.
+Huang Rong melirik Guo Jing. "Betul!" ia tertawa. "Kau mengatakannya dengan tepat!" Mereka kemudian memasukkan semua sisa 
+makanan mereka ke dalam mangkuk yang pecah. Pengemis itu mengambil beberapa gumpalan nasi dingin dari dalam sakunya dan, 
+bersama sisa makanan itu, mulai makan dengan lahap.
 
-Diam-diam, Huang Rong menghitung jumlah kantong pada dirinya: ada tiga kantong untuk satu kelompok, dan total tiga kelompok – totalnya, sembilan kantong. Melihat sekali lagi ke tiga pengemis di sekitar meja lainnya, masing-masing dari mereka juga mengenakan sembilan saku, tetapi di atas meja mereka ada makanan dan minuman yang mewah. Ketiganya bertindak seolah-olah mereka tidak melihat pengemis yang satu ini, dan selama ini tidak pernah meliriknya; tetapi kadang-kadang, ekspresi mereka menunjukkan ekspresi jijik yang samar.
+Diam-diam Huang Rong menghitung jumlah kantongnya, ada tiga kantong untuk satu kelompok, dan total tiga kelompok — totalnya 
+sembilan kantong. Melihat sekali lagi ke tiga pengemis di sekitar meja lainnya, masing-masing dari mereka juga mengenakan 
+sembilan kantong, tetapi di atas meja mereka ada makanan dan minuman yang mewah. Ketiganya bertindak seolah-olah mereka 
+tidak melihat pengemis yang satu ini, dan selama ini tidak pernah meliriknya, tetapi kadang-kadang muka mereka menunjukkan 
+perasaan jijik yang tersamar.
 
+Saat pengemis itu terus makan dengan lahap, tiba-tiba mereka mendengar suara langkah kaki di tangga, dan tiga orang mulai 
+datang. Guo Jing menoleh dan melihat ke arah tangga.
 
-**Last line was 843 in the draft**
+Dua orang pertama adalah Si Gendut dan Si Kurus, dua pengemis yang bertemu Yang Kang dan dikenal Mu Nianci di Desa Niu, 
+Lin'an. Orang ketiga adalah Yang Kang sendiri. Menjulurkan kepalanya ke atas, ia sangat terkejut melihat Guo Jing yang 
+ternyata masih hidup. Setelah panik sesaat ia tiba-tiba berbalik dan menuruni tangga dengan ketakutan, menggumamkan sesuatu 
+sambil berjalan pergi. Si Gendut mengikutinya, tapi Si Kurus pergi ke meja ketiga pengemis itu, dan mengatakan beberapa hal 
+kepada mereka dengan suara rendah. Ketiganya segera berdiri dan pergi menuruni tangga. Sementara itu pengemis yang duduk di 
+lantai itu terus saja makan tanpa menghiraukan mereka sama sekali.
+
+Huang Rong pergi ke jendela dan melihat ke bawah dari sana, melihat Yang Kang — dikerumuni oleh selusin pengemis — berangkat 
+ke Barat. Ia belum pergi jauh ketika ia menoleh dan melihat ke atas. Kebetulan melakukan kontak mata dengan Huang Rong, ia 
+langsung memalingkan muka dan mempercepat langkahnya.
+
+Pengemis itu, setelah selesai makan, menjilat bagian bawah mangkuk sampai licin dan bersih, mengelap sumpit dengan 
+pakaiannya, dan memasukkan semuanya ke dalam saku. Huang Rong menatapnya dengan cermat. Wajahnya dipenuhi kerutan, 
+mengungkapkan kesulitan dan penderitaan hidup yang dialaminya, tangannya luar biasa besar — hampir dua kali lipat dari 
+orang biasa — dan di punggung tangan itu timbul urat biru, membuktikan kerja keras seumur hidup.
+
+Guo Jing berdiri dan melipat tangannya dengan hormat. "Qianbei," katanya. "Silakan duduk dan kita bisa bicara."
+
+"Aku tidak terbiasa duduk di bangku!" tawa pengemis itu. "Kalian berdua adalah murid Ketua Hong, meskipun kalian masih muda, 
+kita sebenarnya satu generasi. Tetapi karena aku lebih tua beberapa tahun, kalian bisa memanggilku 'Dage'. Namaku Lu. Aku 
+dipanggil Lu Youjiao."
+
+Guo Jing dan Huang Rong saling melirik, keduanya berpikir, "Jadi dia sudah tahu latar belakang kita!"
+
+"Kakak Lu," kata Huang Rong sambil tersenyum. "Namamu ini benar-benar menarik!"
+
+Lu Youjiao menjawab, "Sering dikatakan, 'Orang miskin tanpa tongkat diganggu oleh anjing.' Aku memang tanpa tongkat, 
+tetapi yang aku punya adalah sepasang kaki yang bau. Kalau seekor anjing datang untuk mengganggku, aku langsung menendang 
+kepala anjing kampung itu, dan bajingan itu akan kena kakiku! Lalu ia akan lari sambil mengempit ekornya."
+
+Huang Rong tertawa dan bertepuk tangan. "Hebat, hebat! katanya. "Kalau anjing tahu arti namamu, mereka akan selalu menjaga 
+jarak!"
+
+"Dari cerita Saudara Li Sheng," komentar Lu Youjiao, "Aku tahu aksi kalian berdua di Baoying. Pepatah 'Tujuan hidup bukan 
+datang karena usia lanjut, tak punya tujuan hidup, berarti akan hidup seratus tahun dengan sia-sia.' Sungguh benar! Itu 
+mengagumkan. Pantas saja Ketua Hong sangat menyukai kalian!" Guo Jing bangkit dan menolak dengan rendah hati.
+
+Lu Youjiao melanjutkan, "Baru saja aku mendengar kalian berdua mengobrol tentang Qiu Qianren dan Tie Zhang Bang. Sepertinya 
+kalian tidak tahu siapa dia sebenarnya."
+
+"Benar," kata Huang Rong. "Aku harus meminta petunjukmu."
+
+"Qiu Qianren adalah Ketua Tie Zhang Bang," kata Lu Youjiao. "Kelompok ini punya pengaruh besar di wilayah Hunan, Hubei, dan 
+Sichuan. Kelompok itu melakukan pembunuhan dan perampokan, tidak ada kejahatan yang tidak akan mereka lakukan. Awalnya, 
+mereka bekerja sama dengan pejabat setempat. Sekarang, mereka semakin licik dan jahat — mengeluarkan uang tunai untuk 
+menyuap menteri, mereka sendiri mulai menjadi pejabat. Yang lebih tercela adalah hubungan rahasia mereka dengan negara Jin, 
+yang dengan itu mereka telah membuat kesepakatan untuk bekerja dari dalam sesuai keinginan bangsa lain."
+
+"Qiu Qianren tua itu hanya pandai menipu orang," kata Huang Rong. "Bagaimana dia bisa menangani urusan yang begitu serius?"
+
+"Qiu Qianren sangat berbahaya!" desak Lu Youjiao. "Kau seharusnya tidak memandangnya sepele, Nona."
+
+Huang Rong tersenyum. "Kau pernah bertemu dengannya?" tanyanya.
+
+"Sebetulnya tidak,” kata Lu Youjiao mengaku. "Aku mendengar dia tinggal dalam pengasingan di antara pegunungan yang tidak 
+jelas, mempraktekkan kungfu dahsyat dari Telapak Besi, dia belum turun gunung setidaknya selama satu dekade."
+
+"Kau tertipu!" kata Huang Rong sambil tertawa. "Aku sudah bertemu dengannya beberapa kali. Aku bahkan pernah melawannya. 
+Dan untuk 'Kungfu Dahsyat Telapak Tangan Besi' apa pun itu..." Mengingat bagaimana Qiu Qianren berpura-pura sakit perut 
+dan melarikan diri, ia hanya menatap Guo Jing dan terkikik.
+
+Lu Youjiao menatapnya dengan tegas. Ia menyatakan, "Meskipun aku tidak tahu trik kotor macam apa yang telah mereka mainkan, 
+tapi Tie Zhang Bang telah berkembang dalam beberapa tahun terakhir. Kalian benar-benar tidak boleh meremehkan mereka dengan 
+seperti itu."
+
+"Baik, Kakak Lu!" kata Guo Jing dengan tergesa-gesa, kuatir dia akan marah. "Rong'er suka bercanda."
+
+"Sejak kapan aku bercanda?" kata Huang Rong sambil tertawa. Mencengkeram perutnya dan meniru suara Qiu Qianren, ia 
+menambahkan. "Aduh, aduh! Aku sakit perut!" Kejenakaannya membuat Guo Jing mengingat tontonan spesial itu, dan ia juga 
+tidak bisa menahan tawa.
+
+Huang Rong melihat ia juga tertawa, tetapi langsung menahan kegembiraannya dan mengubah topik pembicaraan dengan bertanya, 
+"Kakak Lu, kau kenal ketiga orang yang baru saja makan di sini?"
+
+Lu Youjiao menghela nafas. "Kalian berdua bukan orang luar," katanya, "jadi kalian mungkin pernah mendengar Ketua Hong 
+menyebutkan kelompok kita punya dua cabang, 
+[Baju Bersih](referensi-karakter.md#jing-yi-pai "Jing Yi Pai, Kai Pang Baju Bersih") 
+dan [Baju Kotor](referensi-karakter.md#wu-yi-pai "Wu Yi Pai, Kai Pang Baju Kotor")."
+
+"Belum pernah mendengar Shifu membicarakannya," kata Guo Jing dan Huang Rong bersamaan.
+
+"Perpecahan di dalam Kai Pang pada dasarnya bukanlah hal yang baik," kata Lu Youjiao. "Ketua Hong sangat tidak senang dengan 
+hal itu. Ketua menghabiskan banyak pikiran dan tenaga, tetapi selama ini belum bisa membuat kedua cabang ini bersatu. 
+Sekarang di bawah Ketua Hong, Kai Pang punya empat Penatua..."
+
+"Ini aku pernah mendengar guru menyebutkan," sela Huang Rong. Karena Hong Qigong masih ada di dunia ini, ia tidak ingin mengangkat masalah bahwa Hong Qigong telah mengangkatnya menjadi Ketua Kai Pang.
+
+Lu Youjiao mengangguk. "Aku penatua peringkat keempat," lanjutnya. "Ketiga orang yang tadi ada di sini juga adalah Penatua."
+
+"Aku mengerti!" kata Huang Rong. "Kau adalah kepala dari cabang Baju Kotor, dan mereka dari cabang Baju Bersih!"
+
+"Eh? Bagaimana kau tahu?" tanya Guo Jing.
+
+"Lihat betapa kotornya pakaian Kakak Lu!" kata Huang Rong. "Tapi pakaian yang lain benar-benar bersih. Kakak Lu, kurasa 
+cabang Baju Kotor tidak bagus, berpakaian begitu bau, begitu sembrono — sama sekali tidak nyaman! Orang-orang di cabangmu 
+ini harus lebih sering mencuci pakaiannya. Bukankah itu hanya membuat kedua cabang menjadi sama?"
+
+Lu Youjiao sangat marah. "Kau nona cilik ini dari keluarga kaya," gerutunya. "Tentu saja kau akan terganggu dengan pengemis 
+bau!" Dengan hentakan kaki ia berdiri. Guo Jing bergerak untuk meminta maaf atas pelanggaran tersebut, tetapi Lu Youjiao 
+yang marah langsung turun dari tangga, bahkan tanpa menoleh.
+
+Huang Rong menjulurkan lidahnya. "Jing Gege," katanya. "Aku tadi menyinggung Kakak Lu itu. Jangan suruh aku pergi."
+
+Guo Jing hanya tersenyum.
+
+Huang Rong menambahkan, "Aku benar-benar kuatir sekarang."
+
+"Kuatir soal apa?" tanya Guo Jing.
+
+Huang Rong memasang muka serius. "Hanya kuatir dia mengangkat kaki dan menendangmu. Kan itu sangat buruk bagimu."
+
+"Kenapa dia tiba-tiba menendangku?" tanya Guo Jing. "Kalaupun kau menyinggung perasaannya, tetap tidak ada gunanya 
+menendang orang."
+
+Huang Rong mengerutkan bibirnya tersenyum tipis, tapi tidak menanggapi. Guo Jing hanya duduk terpaku, merenung tidak 
+mengerti.
+
+Huang Rong menghela nafas dan berkata: "Kenapa kau tidak berpikir sedikit tentang arti namanya?"
+
+Guo Jing tiba-tiba menyadari. "Jadi!" teriaknya. "Maksudmu berputar-putar ini mau memanggilku anjing!" Ia melompat, 
+memberi isyarat untuk menggelitiknya sebagai hukuman. Huang Rong cekikikan, menghindari tangannya yang terulur.
+
 

@@ -677,6 +677,14 @@ per karakter bisa diterjemahkan sebagai berikut:
 Julukan ini sendiri mengandung unsur keras (besi) dan juga ringan (terapung di air). Ini adalah julukan populer dari
 Qiu Qianren.
 
+### <a name="tie-zhang-bang" id="tie-zhang-bang">Tie Zhang Bang (铁掌帮)</a>
+
+Kelompok Telapak Besi, yang dalam cerita ini dipimpin oleh Qiu Qianren, murid dari Shangguan Jiannan, anak buah dari
+Jendral Song, Han Shizong.
+
+_Perlu penjelasan lebih lanjut_ mengenai hubungan kelompok ini dengan Han Shizong, dan bagaimana mereka akhirnya bisa
+terpeleset sangat jauh, dan bersekongkol dengan Wanyan Honglie.
+
 ### <a name="hua-shan-lun-jian" id="hua-shan-lun-jian">Hua Shan Lun Jian (华山论剑)</a>
 
 Istilah ini dipakai sebagai nama _event_, yaitu pertandingan antar lima pendekar besar di dunia persilatan,
@@ -1143,6 +1151,17 @@ Tiga orang mengambil posisi pegangan sekop atau sendok yang tanpa sudut.
 - Wang Chuyi mengambil Yu Heng (玉衡)
 - Hao Datong Kai Yang (開陽)
 - Sun Bu'er Yao Guang (搖光) 
+
+### <a name="wu-yi-pai" id="wu-yi-pai">Wu Yi Pai (污衣派)</a>
+
+Ini adalah cabang Kai Pang yang dalam buku-buku karya Kho Ping Hoo/Gan KL lebih populer dengan sebutan Kai Pang Baju Kotor.
+
+### <a name="jing-yi-pai" id="jing-yi-pai">Jing Yi Pai (净衣派)</a>
+
+Terbalik dari [Kai Pang Baju Kotor](#wu-yi-pai "Wu Yi Pai"), ini adalah cabang Kai Pang yang dikenal sebagai
+Kai Pang Baju Bersih.
+
+
 
 
 
