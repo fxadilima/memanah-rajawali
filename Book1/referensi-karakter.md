@@ -1063,6 +1063,17 @@ Squash the Dog's Back (壓扁狗背)
 No Dogs Under Heaven (天下無狗)
 ```
 
+### <a name="ya-bian-gou-bei" id="ya-bian-gou-bei">Ya Bian Gou Bei (压扁狗背)</a>
+
+Salah satu jurus dari rangkaian 
+[Tongkat Penggebuk Anjing](#da-gou-bang), yang bisa diterjemahkan menjadi 'Meluruskan Punggung Anjing'.
+
+### <a name="bo-gou-chao-tian" id="bo-gou-chao-tian">Bo Gou Chao Tian (拨狗朝天)</a>
+
+Ini juga salah satu dari rangkaian jurus 
+[Tongkat Penggebuk Anjing](#da-gou-bang), bisa diterjemahkan menjadi 'Menjungkir balikkan anjing'.
+
+
 ### <a name="shuanglong-qushui" id="shuanglong-qushui">Shuang Long Qu Shui (双龙取水)</a>
 
 Ini adalah salah satu dari 18 Jurus Penakluk Naga, secara literal bisa diterjemahkan menjadi
@@ -1172,6 +1183,14 @@ Ini adalah cara bertegur sapa yang umum di kalangan orang-orang Tionghoa, di man
 sedangkan Hui (会) adalah 'Pertemuan', dengan demikian ini berarti 'Pertemuan yang menguntungkan'. Biasanya kedua kata itu
 akan diulang, dan sapaan itu akan menjadi menjadi 'Xing hui, xing hui!'. Ini akan membuat suasana menjadi santai dan
 tidak formal.
+
+
+### <a name="feng-mo-gun-fa" id="feng-mo-gun-fa">Feng Mo Gun Fa (疯魔棍法)</a>
+
+Istilah yang dipakai dalam terjemahan bahasa Inggris versi penggemar adalah _Mad Demon's Staff Skill_, dan kalau kita
+mencoba menelusuri istilah ini yang kita temukan adalah ilmu tongkat dari Shaolin dengan nama Feng Mo Gun ini.
+
+Nama ini sendiri sewajarnya bisa kita terjemahkan menjadi 'Ilmu Tongkat Iblis Gila'.
 
 
 
