@@ -387,7 +387,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Barangkali cukup menarik untuk disimak bahwa kedua karakter Jiang (江) dan Hu (湖) tersebut sama-sama memiliki
         elemen 氵yang bermakna 'air'.
     </dd>
-    <dt id="bi-wu">Bi Wu (比武)</dt>
+    <dt id="tie">Bi Wu (比武)</dt>
     <dd>Adu ilmu silat.</dd>
     <dt id="niubi">Niu Bi (牛鼻)</dt>
     <dd>
@@ -1017,6 +1017,10 @@ berikut nama ilmu yang dipakai dengan menggunakan tongkat tersebut.
 
 Ilmu Tongkat Pemukul Anjing adalah Da Gou Bang Fa (打狗棒法).
 
+### <a name="ao-kou-duo-zhang" id="ao-kou-duo-zhang">Ao Kou Duo Zhang (獒口夺仗)</a>
+
+Menyambar tongkat dari rahang anjing, ini adalah salah satu teknik dari Tongkat Penggebuk Anjing ajaran Hong Qigong.
+
 
 ## Daftar Ilmu Silat Kai Pang
 
@@ -1160,6 +1164,14 @@ Ini adalah cabang Kai Pang yang dalam buku-buku karya Kho Ping Hoo/Gan KL lebih 
 
 Terbalik dari [Kai Pang Baju Kotor](#wu-yi-pai "Wu Yi Pai"), ini adalah cabang Kai Pang yang dikenal sebagai
 Kai Pang Baju Bersih.
+
+
+### <a name="xing-hui" id="xing-hui">Xing Hui(幸会)</a>
+
+Ini adalah cara bertegur sapa yang umum di kalangan orang-orang Tionghoa, di mana Xing (幸) bisa bermakna 'Keberuntungan',
+sedangkan Hui (会) adalah 'Pertemuan', dengan demikian ini berarti 'Pertemuan yang menguntungkan'. Biasanya kedua kata itu
+akan diulang, dan sapaan itu akan menjadi menjadi 'Xing hui, xing hui!'. Ini akan membuat suasana menjadi santai dan
+tidak formal.
 
 
 
