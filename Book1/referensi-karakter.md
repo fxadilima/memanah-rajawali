@@ -1192,7 +1192,15 @@ mencoba menelusuri istilah ini yang kita temukan adalah ilmu tongkat dari Shaoli
 
 Nama ini sendiri sewajarnya bisa kita terjemahkan menjadi 'Ilmu Tongkat Iblis Gila'.
 
+### <a name="yi-hun-da-fa" id="yi-hun-da-fa">Yi Hun Da Fa (移魂大法)</a>
 
+Ini salah satu ilmu hipnotis yang terdapat di dalam Jiu Yin Zhen Jing, bisa diterjemahkan menjadi 'Ilmu Menggerakkan Jiwa'.
+
+
+### <a name="she-xin-fa" id="she-xin-fa">She Xin Fa (摄心法)</a>
+
+Hampir sama seperti Yi Hun Da Fa, prinsipnya adalah ilmu hipnotis.
+Ini bisa diterjemahkan menjadi 'Ilmu Menggerakkan Hati'.
 
 
 

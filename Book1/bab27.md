@@ -460,7 +460,7 @@ bicara."
 Kerumunan pengemis mendengarkan suara Yang Kang yang semakin keras, dan melihat Guo Jing berulang kali menganggukkan 
 kepalanya dan mereka yakin Guo Jing mengakui semua tuduhan itu. Mereka tidak pernah menyadari bahwa semua pertanyaan tentang 
 Hong Qigong yang disergap ini tidak ada hubungannya dengan masalah yang ada, itu semua adalah bagian dari rencana jahat Yang 
-Kang untuk menjebak Guo Jing dan Huang Rong. Bahkan Lu Youjiao sangat membenci Guo Jing dan Huang Ron, ia melangkah maju dan 
+Kang untuk menjebak Guo Jing dan Huang Rong. Bahkan Lu Youjiao sangat membenci Guo Jing dan Huang Rong, ia melangkah maju dan 
 menendang Guo Jing beberapa kali.
 
 Yang Kang berseru, "Saudara-saudaraku! Kedua bajingan kecil ini telah dengan mudah mengakui kejahatan mereka, biarkan saja 
@@ -773,7 +773,7 @@ Kali ini ia mengerti bahwa ia mungkin tidak dapat melukai musuh, tetapi ia berha
 cengkeraman musuh. Siapa sangka ketika bagian atas kepalanya menyentuh perut musuh, ia merasa sedang memukul benda lunak, 
 seolah-olah ia sedang memasuki bantal katun lembut. Ia tahu itu bukan pertanda baik, jadi ia buru-buru menarik kepalanya, 
 tapi yang mengejutkan perut musuh juga mengikuti kepalanya. Lu Youjiao berjuang dengan seluruh kekuatannya, namun perut Qiu 
-Qianren memiliki isapan yang sangat kuat, memegangi kepala Lu Youjiao dengan kuat. Lu Youjiao ketakutan karena ia merasa 
+Qianren punya tenaga hisapan yang sangat kuat, memegangi kepala Lu Youjiao dengan kuat. Lu Youjiao ketakutan karena ia merasa 
 kepalanya berangsur-angsur panas, pada saat yang sama ia merasa seolah-olah tangannya juga memasuki tungku panas. Rasa 
 sakitnya tak tertahankan.
 
@@ -1033,7 +1033,9 @@ tidak seberbahaya yang ada di gurun Mongolia. Guo Jing menilai situasi mereka de
 
 "Kita tidak bisa," desah Huang Rong, "Mereka mungkin melempari kami dengan batu. Ini jalan buntu."
 
-Guo Jing ragu-ragu. Entah bagaimana, di ambang situasi hidup dan mati ia tiba-tiba teringat suatu bagian dalam Jiu Yin Zhen Jing, ia berkata, "Rong'er, ada bagian dalam kitab itu tentang Yi Hun Da Fa, aku yakin ini mirip dengan She Xin Fa yang baru 
+Guo Jing ragu-ragu. Entah bagaimana, di ambang situasi hidup dan mati ia tiba-tiba teringat suatu bagian dalam Jiu Yin Zhen Jing, ia berkata, "Rong'er, ada bagian dalam kitab itu tentang 
+[Yi Hun Da Fa](referemsi-karakter.md#yi-hun-da-fa "Yi Hun Da Fa (移魂大法), Metode untuk menggerakkan jiwa, semacam ilmu hipnotis"), aku yakin ini mirip dengan 
+[She Xin Fa](referensi-karakter.md#she-xin-fa "She Xin Fa (摄心法), hampir sama seperti Yi Hun Da Fa, ilmu hipnotis") yang baru 
 saja kau sebutkan... Baiklah, ayo kita taruhan, kita turun ke jurang bersama-sama."
 
 Huang Rong menghela nafas, "Ini semua adalah bawahan Shifu, mereka adalah saudara-saudaranya, apa gunanya membunuh begitu banyak 
