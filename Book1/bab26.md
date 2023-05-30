@@ -1069,17 +1069,19 @@ dipulihkan. Ia baru saja akan meletakkannya ketika tiba-tiba menyadari bahwa beb
 samping puisi yang dianotasi oleh Han Shizhong. Ketika diteliti kata-kata ini ditulis di atas kertas yang terletak di antara 
 lukisan dan lembaran tempat lukisan itu dipasang, jika bukan karena lukisannya basah kuyup, pasti tidak akan terlihat. 
 Hancurnya kertas yang basah kuyup telah membuat tulisan itu terpisah-pisah dan sulit dibedakan, tetapi dengan melihat bentuk 
-susunannya, Huang Rong dapat mengetahui bahwa semuanya ada empat kalimat.
+susunannya, Huang Rong bisa mengetahui bahwa semuanya ada empat baris kalimat.
 
-Dengan pemahaman yang cermat, ia membaca perlahan.
+Dengan pemahaman yang cermat, ia membaca perlahan.[^susunan-kalimat]
 
 ```
-tulisan peninggalan almarhum...,
+...tulisan peninggalan almarhum...,
 telapak besi...,
 Tengah... puncak,
 Kedua... sendi.
 
 ```
+
+[^susunan-karakter]: Dalam karakter bahasa mandarin empat baris kalimat yang tidak lengkap itu adalah "... 遗书 ... , ... 铁掌 ..., 中 ... 峰 , 第二 ... 结". Di mana kedua karakter baris pertama yang terbaca Yishu (遗书) berarti 'Catatan bunuh diri' atau tulisan yang ditinggalkan oleh seseorang yang mati bunuh diri. Baris kedua mengandung dua karakter Tie Zhang (铁掌) atau 'Telapak Besi', baris ketiga mengandung karakter Zhong (中) dan dan Feng (峰) yang saat ini terlihat berdiri sendiri-sendiri karena bagian tengah dan akhirnya tidak terbaca. Zhong berdiri sendiri bisa bermakna 'tengah atau pusat ', sedangkan Feng bisa bermakna 'puncak, atau ujung atas'. Baris keempat mengandung dua karakter Di Er (第二), yang kalau digabungkan akan bermakna 'yang kedua', bagian tengahnya hilang, dan karakter yang terakhir adalah Jie (结).
 
 Kata-kata yang tersisa sangat rusak sehingga sama sekali tidak mungkin untuk diidentifikasi.
 
@@ -1089,7 +1091,7 @@ Kata-kata yang tersisa sangat rusak sehingga sama sekali tidak mungkin untuk dii
 Aula Cuihan istana. Tetapi meskipun ia berhasil mendapatkan kotak batu itu, buku itu tidak terlihat di mana pun. Sepertinya 
 lokasi penyimpanan buku itu sangat tergantung pada empat baris teks ini."
 
-Setelah menggumamkan "...telapak tangan besi... tengah... sendi..." untuk beberapa saat, ia menambahkan, "Hari itu di Rumah 
+Setelah menggumamkan "...telapak besi... tengah... sendi..." untuk beberapa saat, ia menambahkan, "Hari itu di Rumah 
 Awan, aku sepertinya mendengar Lu Shige dan keenam gurumu membicarakan tentang penipu itu, Qiu Qianren. Mereka mengatakan 
 dia adalah Ketua Perkumpulan Telapak Besi atau semacamnya. Ayah berkata bahwa kekuatan Kelompok Telapak Besi mengguncang 
 Sichuan dan Hunan, nama besar dan prestasinya benar-benar mengagumkan. Mungkinkah buku itu ada hubungannya dengan Qiu 

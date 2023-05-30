@@ -56,3 +56,9 @@ Since then, Liu Yong's talent in literacy had become more widely known by people
 
 Digunai (24 February 1122 – 15 December 1161), also known by his sinicised name Wanyan Liang (完顏亮) and his formal title Prince of Hailing (海陵王, Hǎilíng Wáng), was the fourth emperor of the Jurchen-led Jin dynasty of China. He was the second son of Wanyan Zonggan, the eldest son of Aguda (Emperor Taizu) (the founder of the Jin dynasty). He came to power in 1150 after overthrowing and murdering his predecessor, Emperor Xizong, in a coup d'état. During his reign, he moved the Jin capital from Shangjing (present-day Acheng District, Harbin, Heilongjiang Province) to Yanjing (present-day Beijing), and introduced a policy of sinicisation. In 1161, after the Jin dynasty lost the Battle of Caishi against the Southern Song dynasty, Digunai's subordinates rebelled against him and assassinated him. After his death, even though he ruled as an emperor during his lifetime, he was posthumously demoted to the status of a prince – "Prince Yang of Hailing" (海陵煬王) – in 1162 by his successor, Emperor Shizong. However, in 1181, Emperor Shizong further posthumously demoted him to the status of a commoner, hence he is also known as the "Commoner of Hailing" (海陵庶人).
 
+### <a name="" id="">Shangguan Jian Nan (上官剑南)</a>
+
+Shangguan Jiannan adalah mantan Ketua Kelompok Telapak Besi, yang adalah mantan anak buah Jendral Han Shizhong dari
+Dinasti Song. Ia juga adalah guru dari ketua saat ini, Qiu Qianren.
+
+
