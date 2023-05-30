@@ -1071,7 +1071,7 @@ lukisan dan lembaran tempat lukisan itu dipasang, jika bukan karena lukisannya b
 Hancurnya kertas yang basah kuyup telah membuat tulisan itu terpisah-pisah dan sulit dibedakan, tetapi dengan melihat bentuk 
 susunannya, Huang Rong bisa mengetahui bahwa semuanya ada empat baris kalimat.
 
-Dengan pemahaman yang cermat, ia membaca perlahan.[^susunan-kalimat]
+Dengan pemahaman yang cermat, ia membaca perlahan.[^susunan-karakter]
 
 ```
 ...tulisan peninggalan almarhum...,
