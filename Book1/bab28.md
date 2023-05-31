@@ -608,7 +608,7 @@ baginya.[^puisi-kedua]
 [^zhulong]: Zhulong (tradisional: 燭龍) adalah karakter dalam mitologi Tiongkok kuno yang mewakili naga raksasa merah menyala. Dalam mitos, ia punya kepala manusia dan tubuh ular raksasa. Ia menciptakan siang dan malam dengan jalan membuka dan menutup matanya, dan menciptakan musim dengan cara bernafas.
 
 Anggota Sekte Telapak Besi terus berteriak dan mengutuk. Guo Jing membiarkan kepala Huang Rong bersandar di pahanya sementara 
-ia terus melafalkan karya Yue Fei, "Judulnya adalah 'Nama Kediaman Zhulong', Di Biara Gunung Wei, mata air pegunungan 
+ia terus melafalkan karya Yue Fei, "Judulnya adalah 'Nama Kediaman Zhulong'[^zhulong], Di Biara Gunung Wei, mata air pegunungan 
 mengalahkan keheningan. Di patung Buddha di Zijin, salju menutupi kepala biksu tua itu. Air danau yang dingin menyambut bulan 
 baru, dan pohon pinus menyambut angin musim gugur. Aku meninggalkan ucapan Sang Naga, berharap untuk membantu orang-orang di 
 tengah badai." Angin bertiup dan burung-burung berkicau saat Huang Rong beristirahat dengan nyaman di pelukan Guo Jing. 
@@ -632,7 +632,8 @@ menjalar ke arah mereka. Saat gunung dipenuhi rerumputan tinggi, api dengan cepa
 
 [^pengju]: Peng Ju (鵬舉) adalah nama yang diberikan kepada Yue Fei setelah dewasa, ini karena ketika ia dilahir, seekor burung besar yang mirip angsa mendarat di atap rumahnya. Karakter Peng (鵬) melambangkan burung besar itu.
 
-[^rajawali]: Karakter Diao (鵰) 
+[^rajawali]: Karakter Diao (鵰) punya beberapa makna, salah satunya adalah 'burung pemangsa', dengan demikian adalah elang. Istilah Rajawali ini adalah istilah dalam bahasa Indonesia, dalam bahasa Inggris maupun mandarin tidak ada istilah khusus, kecuali kalau kita tambahkan satu istilah baru, misalnya menjadi 'Divine Eagle', atau Shen Diao (神鵰). Istilah 'Condor' yang dipakai dalam judul drama ataupun terjemahan lain adalah kurang tepat, karena Condor adalah nama burung yang hanya terdapat di benua Amerika, dalam hal ini Amerika Selatan. Burung elang Guo Jing tentunya adalah dari jenis [Haliaeetus leucoryphus](https://en.wikipedia.org/wiki/Pallas%27s_fish_eagle), yang memang banyak terdapat di Mongolia. Warnanya coklat tua, dan kepalanya putih sampai ke leher.
+
 
 Guo Jing terengah-engah, "Mereka tidak berani masuk ke wilayah terlarang ini, jadi mereka menyerang dengan api. Gua itu tidak 
 memiliki benda yang mudah terbakar, tapi kita pasti akan digoreng." Ia segera meraih Huang Rong ketika ia mendengar Qiu Qianzhang 
