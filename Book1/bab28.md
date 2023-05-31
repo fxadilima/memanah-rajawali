@@ -601,9 +601,11 @@ akan bertemu dengan pahlawan yang hebat. Tolong bacakan puisinya," Guo Jing memb
 seperti Man Jiang Hong[^man-jiang-hong] terasa akrab bagi Huang Rong, sementara yang lain seperti 'Mendaki Menara Huanghe' baru 
 baginya.[^puisi-kedua]
 
+[^man-jiang-hong]: Man Jiang Hong (满江红) adalah puisi bertemakan heroik yang sangat populer hingga saat ini, dan oleh banyak pihak diklaim sebagai karya Yue Fei. Nama ini sendiri bisa diterjemahkan menjadi 'Sungai Merah'.
+
 [^puisi-kedua]: Puisi Yue Fei yang kedua masih tetap berjudul Man Jiang Hong (满江红), yang artinya kurang lebih adalah 'Sungai Merah' atau 'The Crimson River', yang sebenarnya banyak diperdebatkan apakah puisi terkait memang adalah hasil karya Yue Fei, karena para ahli menemukan indikasi bahwa puisi tersebut ada kemungkinan ditulis di sekitar era Dinasti Ming. Puisi tersebut mengandung sentimen Anti-Jurchen yang sangat kental. Seperti sudah dibahas, suku Jurchen dikemudian hari akan lebih akrab dengan nama Manchu setelah Aisin Gioro Hong Taiji berkuasa sebagai Khan. Puisi yang kedua ini punya judul kecil Deng Huanghe Lou You Gan (登黄鹤楼有感), yang kira-kira berarti 'Ketika Aku Mendaki Menara Bangau Kuning'. Puisi Yue Fei lainnya yang cukup populer adalah Xiao Chong Shan (小重山), atau Bukit Kecil Yang Berat.
 
-[^zhulong]: Zhulong (tradisional: 燭龍) adalah karakter dalam mitologi Tiongkok kuno yang mewakili naga raksasa merah menyala. Dalam mitos, ia punya kepala manusia dan yubuh ular raksasa. Ia menciptakan siang dan malam dengan jalan membuka dan menutup matanya, dan menciptakan musim dengan cara bernafas.
+[^zhulong]: Zhulong (tradisional: 燭龍) adalah karakter dalam mitologi Tiongkok kuno yang mewakili naga raksasa merah menyala. Dalam mitos, ia punya kepala manusia dan tubuh ular raksasa. Ia menciptakan siang dan malam dengan jalan membuka dan menutup matanya, dan menciptakan musim dengan cara bernafas.
 
 Anggota Sekte Telapak Besi terus berteriak dan mengutuk. Guo Jing membiarkan kepala Huang Rong bersandar di pahanya sementara 
 ia terus melafalkan karya Yue Fei, "Judulnya adalah 'Nama Kediaman Zhulong', Di Biara Gunung Wei, mata air pegunungan 
