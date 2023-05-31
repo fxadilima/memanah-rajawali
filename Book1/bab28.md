@@ -603,15 +603,89 @@ baginya.[^puisi-kedua]
 
 [^puisi-kedua]: Puisi Yue Fei yang kedua masih tetap berjudul Man Jiang Hong (满江红), yang artinya kurang lebih adalah 'Sungai Merah' atau 'The Crimson River', yang sebenarnya banyak diperdebatkan apakah puisi terkait memang adalah hasil karya Yue Fei, karena para ahli menemukan indikasi bahwa puisi tersebut ada kemungkinan ditulis di sekitar era Dinasti Ming. Puisi tersebut mengandung sentimen Anti-Jurchen yang sangat kental. Seperti sudah dibahas, suku Jurchen dikemudian hari akan lebih akrab dengan nama Manchu setelah Aisin Gioro Hong Taiji berkuasa sebagai Khan. Puisi yang kedua ini punya judul kecil Deng Huanghe Lou You Gan (登黄鹤楼有感), yang kira-kira berarti 'Ketika Aku Mendaki Menara Bangau Kuning'. Puisi Yue Fei lainnya yang cukup populer adalah Xiao Chong Shan (小重山), atau Bukit Kecil Yang Berat.
 
-Anggota Iron Palm Sekte terus berteriak dan mengutuk; Guo Jing membiarkan kepala Huang Rong bersandar di pahanya sementara dia terus melafalkan karya Yue Fei, “Judulnya adalah ‘Judul Kediaman Naga Matahari’: Di Biara Gunung Wei, mata air pegunungan mengalahkan keheningan. Di patung Buddha di Zijin, salju menutupi kepala biksu tua itu. Air danau yang dingin menyambut bulan baru, dan pohon pinus menyambut angin musim gugur. Saya meninggalkan kata-kata naga, berharap untuk membantu orang-orang di tengah badai.” Angin bertiup dan burung-burung berkicau saat Huang Rong beristirahat dengan nyaman di pelukan Guo Jing. Guo Jing berkata, “Marsekal Agung Yue sangat mengingat penderitaan rakyat; dia memang pahlawan sejati. Huang Rong mengangguk dan tersenyum, "Pahlawan muda sedang membaca karya seorang pahlawan hebat sementara 'pahlawan' tua sedang mendengarkan. Betapa mubazirnya." Dia kemudian bertanya, "Apa isi buku yang lain?" Guo Jing membaca beberapa baris di dalam dan dengan bersemangat berseru, “Ini… ini benar-benar teks tulisan tangan Grand Marshal Yue tentang strategi perang! Wanyan Hong Lie tidak akan pernah membayangkan hal ini. Untungnya itu tidak diambil olehnya.” Di halaman pertama tertulis, dengan 18 kata tebal: Berulang kali memeriksa rencana, Pelatihan yang keras/ketat, Penghargaan/hukuman yang setara, Perintah yang jelas tanpa kompromi, Aturan yang adil/adil, Setiap orang berbagi kesulitan.
+[]^zhulong]: Zhulong (tradisional: 燭龍) adalah karakter dalam mitologi Tiongkok kuno yang mewakili naga raksasa merah menyala. Dalam mitos, ia punya kepala manusia dan yubuh ular raksasa. Ia menciptakan siang dan malam dengan jalan membuka dan menutup matanya, dan menciptakan musim dengan cara bernafas.
 
-Saat mereka membaca, teriakan di bawah tiba-tiba berhenti dan tidak ada satu suara pun yang terdengar. Tiba-tiba, mereka ditinggalkan dalam keheningan yang tidak wajar. Guo Jing dan Huang Rong mendengarkan dengan seksama dan mendengar derak rumput yang terbakar di kejauhan saat Qiu Qian Zhang mengerang keras, "Hari ini kalian 2 boneka telah menyebabkan kehancuranku." Dalam kepanikannya, dia menyebut mereka "boneka" lagi. Guo Jing bergegas keluar dan melihat seluruh dinding api dengan cepat membakar ke arah mereka. Saat gunung dipenuhi rerumputan tinggi, api dengan cepat menyebar membentuk lautan api.
+Anggota Sekte Telapak Besi terus berteriak dan mengutuk. Guo Jing membiarkan kepala Huang Rong bersandar di pahanya sementara 
+ia terus melafalkan karya Yue Fei, "Judulnya adalah 'Nama Kediaman Zhulong', Di Biara Gunung Wei, mata air pegunungan 
+mengalahkan keheningan. Di patung Buddha di Zijin, salju menutupi kepala biksu tua itu. Air danau yang dingin menyambut bulan 
+baru, dan pohon pinus menyambut angin musim gugur. Aku meninggalkan ucapan Sang Naga, berharap untuk membantu orang-orang di 
+tengah badai." Angin bertiup dan burung-burung berkicau saat Huang Rong beristirahat dengan nyaman di pelukan Guo Jing. 
+Guo Jing berkata, "Jendral Agung Yue teringat penderitaan rakyat, dia memang pahlawan sejati." Huang Rong mengangguk dan 
+tersenyum, "Pahlawan muda sedang membaca karya seorang pahlawan hebat sementara 'pahlawan' tua sedang mendengarkan. Betapa 
+mubazirnya." Ia kemudian bertanya, "Apa isi buku yang lain?" Guo Jing membaca beberapa baris dari buku itu, dan dengan 
+bersemangat berseru, "Ini... ini benar-benar teks tulisan tangan Jendral Besar Yue tentang strategi perang! Wanyan Honglie 
+tidak akan pernah membayangkan hal ini. Untungnya tidak jatuh ke tangannya." Di halaman pertama tertulis, dengan delapan belas 
+karakter tebal, "Berulang kali memeriksa rencana, Latihan yang keras dan ketat, Penghargaan dan hukuman yang setara, Perintah 
+yang jelas tanpa kompromi, Aturan yang adil dan seimbang, Setiap orang berbagi kesulitan."
 
-Guo Jing terengah-engah, “Mereka tidak berani masuk ke wilayah terlarang ini, jadi mereka menyerang dengan api. Gua itu tidak memiliki benda yang mudah terbakar, tapi kita pasti akan digoreng.” Dia segera meraih Huang Rong ketika dia mendengar Qiu Qian Zhang berteriak di tanah, jadi dia menendangnya dengan ringan untuk membuka segel accupointnya agar dia bisa melarikan diri sendiri. Dia kemudian menyambar kotak kayu itu dan berlari ke atas gunung. Mereka masih beberapa ratus meter dari puncak. Guo Jing mengumpulkan konsentrasinya dan berlari ke atas dengan Qiu Qian Zhang mengikuti di belakang. Guo Jing melihat ke bawah dan melihat api menyebar di kejauhan dan tahu bahwa mengira mereka aman untuk sementara, itu tidak akan lama, jadi dia menghela nafas panjang. Huang Rong tiba-tiba berkata, “Nama depan Grand Marshal Yue adalah 'Fei' (terbang), bergaya 'Crane'. Ayo coba 'Condor', bagaimana dengan itu?" Guo Jing bertanya, "Kondor apa?" Huang Rong berkata, "Panggil condor untuk menjemput kami." Guo Jing melompat dan berseru, “Itu akan menyenangkan. Saya akan memanggil mereka. Tapi saya tidak yakin mereka bisa menahan beban kita. Huang Rong menghela nafas, "Bagaimanapun kita sedang menuju kehancuran, jadi sebaiknya kita mengambil risiko." Guo Jing duduk dengan benar dan mengumpulkan Qi-nya di Dan Tian-nya dan membuat peluit nyaring yang menyebar ke segala arah. Ini adalah hasil dari pelatihan energi internalnya di bawah Ma Yu, dan dengan [Panduan Sembilan Yin], energi internalnya meningkat pesat. Meskipun jarak antara pangkalan dan puncak cukup jauh, tidak lama kemudian burung-burung condor itu terbang dan berhenti di depan mereka. Guo Jing membantu Huang Rong melepas Soft Armor dan menempatkannya di punggung condor. Dia khawatir dia mungkin tidak bisa memegang erat-erat dengan lukanya, jadi dia mengikatnya dengan sabuk kain. Sambil menaiki burung condor lainnya, dia bersiul dan burung condor itu mengepakkan sayapnya. Mereka sangat gemetar saat lepas landas, tetapi begitu terbang, burung condor menjadi stabil. Pada awalnya, Guo Jing takut dia mungkin terlalu berat, tetapi begitu dia melebarkan sayapnya, dia terbang dengan mudah. Huang Rong, sebagai seorang anak di hati, merasa ini adalah pemandangan yang menarik, jadi dia membimbing condor menuju Qiu Qian Zhang dan itu meluncur dengan anggun melewatinya. Qiu Qian Zhang terkejut dan berteriak, “Nona, bawa aku. Api akan segera menghanguskanku!” Huang Rong tertawa, “Tidak bisa menahan beban 2 orang. Mengapa kamu tidak mencoba memohon pada saudaramu? Karena dia lebih pendek 3000 chi, tidakkah dia mendengarkanmu?” Dia mengetuk burung itu dan terbang; Qiu Qian Zhang menjadi semakin gugup dan berseru, "Nona, apakah menurut Anda ini tidak menarik?" Keingintahuannya terangsang dan dia berbalik ke apa yang dia lakukan. Tiba-tiba, dia meluncurkan dirinya ke depan, melemparkan tubuhnya dari gunung untuk menangkapnya. Dia tahu bahwa bagaimanapun juga dia akan mati, jadi dia bertaruh dengan putus asa. Dengan kenaikan berat yang tiba-tiba, burung condor itu jatuh dengan cepat. Itu mengepakkan sayapnya dengan panik tetapi masih tidak bisa menghasilkan daya angkat yang cukup. Qiu Qian Zhang meraih punggung Huang Rong dan mencoba menariknya dan melemparkannya ke bawah, tetapi dia diikat ke condor yang mencegahnya jatuh. Mereka akan terjun ke kematian mereka, dan anggota Iron Palm Sekte yang menyaksikan mereka terlalu terkejut untuk berbicara. Pada saat kritis ini, condor Guo Jing terbang lurus ke arah mereka dan mematuk kepala Qiu Qian Zhang. Dia merasakan sakit yang menusuk menembus kepalanya dan dia merentangkan tangannya untuk melindungi kepalanya. Tapi dia kehilangan cengkeramannya dan membalik ke bawah, berteriak dengan liar saat dia jatuh ke lembah di bawah. Penurunan berat memungkinkan condor untuk mendapatkan kembali daya dorongnya dan menambah ketinggian. Kedua condor kemudian terbang ke utara.
+[^boneka]: Dalam bahasa mandarin istilah 'boneka' ini adalah Wawa (娃娃), yang menggambarkan muka bayi yang imut-imut.
+
+Saat mereka membaca, teriakan di bawah tiba-tiba berhenti dan tak satu suara pun yang terdengar. Tiba-tiba mereka ditinggalkan 
+dalam keheningan yang tidak wajar. Guo Jing dan Huang Rong mendengarkan dengan seksama dan mendengar bunyi rumput yang terbakar 
+di kejauhan saat Qiu Qianzhang mengerang keras, "Hari ini kalian dua boneka ini telah menyebabkan kehancuranku." Dalam 
+kepanikannya, ia menyebut mereka 'boneka'[^boneka] lagi. Guo Jing bergegas keluar dan melihat seluruh dinding api dengan cepat 
+menjalar ke arah mereka. Saat gunung dipenuhi rerumputan tinggi, api dengan cepat menyebar membentuk lautan api.
+
+[^fei]: Fei (飛) secara literal berarti 'terbang'.
+
+[^pengju]: Peng Ju (鵬舉) adalah nama yang diberikan kepada Yue Fei setelah dewasa, ini karena ketika ia dilahir, seekor burung besar yang mirip angsa mendarat di atap rumahnya. Karakter Peng (鵬) melambangkan burung besar itu.
+
+[^rajawali]: Karakter Diao (鵰) 
+
+Guo Jing terengah-engah, "Mereka tidak berani masuk ke wilayah terlarang ini, jadi mereka menyerang dengan api. Gua itu tidak 
+memiliki benda yang mudah terbakar, tapi kita pasti akan digoreng." Ia segera meraih Huang Rong ketika ia mendengar Qiu Qianzhang 
+berteriak di tanah, jadi ia menendangnya dengan ringan untuk membuka totokannya, agar ia bisa melarikan diri sendiri. Ia 
+kemudian menyambar kotak kayu itu dan berlari ke atas gunung. Mereka masih beberapa ratus meter dari puncak. Guo Jing 
+mengumpulkan konsentrasinya dan berlari ke atas dengan Qiu Qianzhang mengikuti di belakang. Guo Jing melihat ke bawah dan 
+melihat api menyebar di kejauhan, dan mengira mereka aman untuk sementara, tetapi itu tidak akan lama, jadi dia menghela nafas 
+panjang. Huang Rong tiba-tiba berkata, "Nama Jendral Yue adalah 'Fei'[^fei], dan panggilannya adalah Pengju[^pengju]. Ayo kita 
+coba Rajawali[^rajawali], bagaimana?" Guo Jing bertanya, "Rajawali apa?" Huang Rong berkata, "Panggil elangmu untuk menjemput 
+kita." Guo Jing melompat dan berseru, "Wah, ini akan seru sekali. Akan kupanggil mereka. Tapi aku tidak yakin mereka sanggup 
+menahan berat kita." Huang Rong menghela nafas, "Bagaimanapun juga kita sekarang sedang menuju kehancuran, jadi sebaiknya kita 
+mengambil risiko." Guo Jing duduk dengan benar dan mengumpulkan Qi di Dan Tian-nya dan bersiul nyaring, yang menyebar ke segala 
+arah. Ini adalah hasil dari latihan tenaga dalam di bawah bimbingan Ma Yu, dan dengan panduan Jiu Yin Zhen Jing sekarang tenaga 
+dalamnya meningkat pesat. Meskipun jarak antara pangkalan dan puncak cukup jauh, tidak lama kemudian burung-burung elang itu 
+terbang dan berhenti di depan mereka. Guo Jing membantu Huang Rong melepas Ruan Wei Jia dan menempatkannya di punggung elang. 
+Ia kuatir Huang Rong mungkin tidak bisa berpegangan erat-erat karena lukanya, jadi ia mengikatnya dengan sabuk kain. Sambil 
+menaiki burung elang lainnya, ia bersiul dan kedua burung elang itu mengepakkan sayapnya. Mereka sangat gemetar saat lepas 
+landas, tetapi begitu terbang, keduanya menjadi stabil. Pada awalnya Guo Jing takut beban tubuhnya mungkin terlalu berat, tetapi 
+begitu elang itu merentangkan sayapnya, ia terbang dengan mudah. Huang Rong yang masih kekanak-kanakan merasa ini semua sangat
+menarik, jadi ia membimbing elang menuju ke arah Qiu Qianzhang, elang itu meluncur dengan anggun melewatinya. Qiu Qianzhang 
+terkejut dan berteriak, "Nona, bawa aku. Api akan segera menghanguskanku!" Huang Rong tertawa, "Tidak bisa menahan beban dua 
+orang. Mengapa kau tidak mencoba memohon kepada saudaramu? Karena dia lebih pendek 3000 chi, masa dia berani membantahmu?" 
+Ia mengetuk burung itu dan terbang. Qiu Qianzhang semakin gugup dan berseru, "Nona, apa menurutmu yang ini tidak menarik?" 
+Rasa ingin tahu Huang Rong terangsang, ia berbalik untuk melihat yang dilakukannya. Tiba-tiba ia meluncurkan dirinya ke depan, 
+melemparkan tubuhnya dari gunung untuk menangkapnya. Ia tahu bahwa bagaimanapun juga ia akan mati, jadi dari putus asa ia menjadi 
+nekad. Dengan tambahan beban berat yang mendadak, burung elang itu jatuh dengan cepat. Elang itu mengepakkan sayapnya dengan 
+panik, tetapi masih tidak bisa menghasilkan daya angkat yang cukup. Qiu Qianzhang meraih punggung Huang Rong dan mencoba 
+menariknya untuk melemparkannya ke bawah, tetapi ia diikat ke tubuh elang untuk yang mencegahnya jatuh. Mereka akan terjun 
+menuju maut, dan para anggota Sekte Telapak Besi yang menyaksikan mereka terlalu terkejut untuk berbicara. Pada saat kritis ini, 
+elang Guo Jing terbang lurus ke arah mereka dan mematuk kepala Qiu Qianzhang. Ia merasakan sakit yang menusuk menembus kepalanya 
+dan ia merentangkan tangannya untuk melindungi kepalanya. Tapi ia kehilangan cengkeramannya, dan jungkir-balik ke bawah, 
+menjerit liar ketika jatuh ke jurang. Dengan pengurangan beban berat, elang itu mendapatkan kembali daya dorongnya, dan 
+menambah ketinggian. Kedua elang itu kemudian terbang ke utara.
 
 ### Catatan Penulis
 
-Author’s Note:
+Puisi Yue Fei yang populer hingga saat ini, Man Jiang Hong (满江红), menimbulkan kontroversi karena beberapa peneliti sejarah 
+modern menemukan indikasi bahwa puisi itu sebetulnya ditulis di era Dinasti Ming, dengan demikian bukan hasil karya Yue Fei. 
+Sedangkan dua puisi karya Yue Fei bersama Sun Yue He, yang berjudul 'Kutipan Tentara Jin' dan 'Panggilan Setempat', tidak dapat 
+ditemukan hingga saat ini. 
 
-Yue Fei’s poem ‘The crimson River’ ( 满江红 ) was very well known, but the Song Dynasty had no known records of it. Yue Fei and Sun Yue He’s ‘Jin Soldier’s Passages’ and ‘Domestic Calling Volume’, a compilation of Yue Fei’s literary works have not been found to date. The text quoted above first appeared in the Ming Dynasty, so some believe that it belongs to the works of Ming Dynasty authors. Some sources claim that these works are of no value as they merely used Yue Fei’s name for the works.
+Ada sebuah cerita mengenai makanan ringan yag di Indonesia populer dengan nama 'Cakwe', dalam bahasa mandarin nama ini adalah
+You Tiao (油条). Tetapi nama Youtiao itu sendiri tidak mirip 'Cakwe', dan kalau kita terjemahkan, secara sederhana hasilnya adalah
+'Gorengan'. Nama yang lebih spesifik adalah You Zha Gui (油炸鬼), alias 'Hantu Goreng'. Cakwe sendiri adalah dialek Hokkian untuk 
+karakter kedua dan ketiga. Sedangkan You (油) berarti 'Minyak'. Mengapa disebut 'Hantu'?
+
+Ceritanya, ketika rakyat setempat mendengar tentang kematian Yue Fei, mereka sangat marah, dan kemarahan mereka tertuju kepada
+Menteri Qin Hui dan istrinya. Dua orang pedagang makanan di ibukota yang saat itu sedang mencari ide untuk membuat makanan baru 
+kebetulan tertarik melihat kemarahan rakyat, lalu membuat adonan tepung dan membentuknya menjadi dua lembar yang ditempelkan, dan
+menggorengnya untuk dimakan. Kedua potong roti goreng yang saling melekat itu akan terapung di dalam minyak, dan setelah matang 
+memang berbentuk mirip dua orang manusia, yang adalah simbol dari Qin Hui dan istrinya.
+
+Mereka kemudian menjualnya di jalanan sambil berteriak, "Dijual, Hui Goreng!". Di sini yang dimaksud 'Hui' tentunya adalah
+Qin Hui. Aksi ini menarik perhatian banyak orang, mereka berdatangan untuk melihat apa itu 'Hui Goreng' (Zha Hui). Dan karena
+rasanya ternyata juga enak, makanan ringan tersebut dengan cepat menjadi populer. Secara berangsur-angsur namanya pun berubah
+menjadi Zha Gao (炸糕), yang berarti 'Kue Goreng', sampai akhirnya menjadi Zha Gui (炸鬼), yang berarti 'Hantu Goreng', yang 
+dalam dialek Hokkian adalah Cakwe.
 
