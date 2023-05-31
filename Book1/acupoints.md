@@ -30,6 +30,22 @@ supaya bisa diakses dari bab manapun.
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1683703380/misc/images_vicdtn.jpg"
             alt="Titik akupuntur Taiyang">
     </dd>
+    <dt id="ling-tai">Titik Akupuntur Ling Tai (GV 10)</dt>
+    <dd>
+        Ling Tai di gambar ini adalah GV 10, abaikan bahwa gambar ini sebenarnya menunjuk ke Zhi Yang.
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1683642673/misc/GV-9-Zhiyang_tdbglk.jpg"
+            alt="titik Akupuntur Zhi Yang">
+    </dd>
+    <dt id="tian-tu">Titik Akupuntur Tian Tu</dt>
+    <dd>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1685475216/misc/CV22-300x288_fkkrdo.jpg"
+            alt="titik Akupuntur Tian Tu">
+    </dd>
+    <dt id="yin-du">Titik Akupuntur Yin Du</dt>
+    <dd>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1685477335/misc/yindu-kid-19-2_phitoh.webp"
+            alt="titik Akupuntur Yin Du">
+    </dd>
 </dl>
 
 

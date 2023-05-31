@@ -1203,4 +1203,60 @@ Hampir sama seperti Yi Hun Da Fa, prinsipnya adalah ilmu hipnotis.
 Ini bisa diterjemahkan menjadi 'Ilmu Menggerakkan Hati'.
 
 
+### <a name="huanghe-lou" id="huanghe-lou">Huang He Lou (黄鹤楼)</a>
+
+Menara Huang He, atau Menara Bangau Kuning, dalam istilah bahasa Inggris 'Yellow Crane Tower'.
+
+Puisi karya Cui Han:
+
+```
+昔人已乘黃鶴去， 此地空餘黃鶴樓。
+黃鶴一去不復返， 白雲千載空悠悠。
+晴川歷歷漢陽樹， 芳草萋萋鸚鵡洲。
+日暮鄉關何處是， 煙波江上使人愁。
+```
+
+Adalah Li Bai yang berpisah dengan sahabatnya, yang sekaligus partner dalam menulis puisi, Meng Haoran (孟浩然),
+yang menulis karya lain mengenai Huanghe Lou.
+
+```
+故人西辭黃鶴樓，
+煙花三月下揚州。
+孤帆遠影碧空盡，
+唯見長江天際流。
+```
+
+Puisi dari Yue Fei Man Jiang Hong yang kedua, dengan judul kecil Deng Huanghe Lou You Gan (登黄鹤楼有感), yang kurang 
+lebih berarti 'Perasaanku ketika mendaki Menara Bangau Kuning', tidak diketemukan di internet.
+
+Berikut ini barangkali cukup berkaitan dengan puisi kedua itu, tetapi tidak ada artikel pendukung yang cukup kuat
+sebagai bahan pembanding yang membuktikan keabsahan dokumen ini. Puisi ini sendiri saya temukan dalam bahasa Inggris.
+
+```
+Looking at the Central Plains, there are many cities outside the barren smoke.
+Back then, flowers covered the willows, Fenglou and Longge.
+In front of the Long Live Mountain, there are jewels and greens, and there are songs in the Penghu Hall.
+Until now, the iron cavalry is full of the suburbs, and the dust is evil.
+Are the soldiers here?Anointing the front; where are the people?Fill the gully.
+Sigh the country as before, thousands of villages are few.
+What day please Ying Tirui brigade, cross Qinghe Luo straight with a whip.
+But when he returned, he continued his tour of Hanyang and rode a yellow crane.
+```
+
+Demikian juga puisi lainnya yang berjudul Xiao Chong Shan (小重山).
+
+```
+The cold cricket couldn't stop crying last night.
+Shocked back to Qianli Meng, it has been three watchers.
+Get up and walk around the steps alone.
+People are quiet, and the moon is bright outside the curtain.
+The white head is fame.
+The old mountains, pine and bamboo, hinder the return journey.
+I want to pay Yaoqin to my heart.
+If there are few friends, who will listen to the broken string?
+
+```
+
+
+
 
