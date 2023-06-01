@@ -59,6 +59,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
     <dd>
         Secara literal berarti 'Tuan Rumah', maknanya adalah pemilik rumah atau tanah yang ditinggalinya. Ini adalah
         panggilan yang biasa digunakan oleh para pelayan untuk memanggil majikan mereka.
+        Sebaliknya, istilah Laoye Zi (老爷子) dipakai secara sopan untuk memanggil seorang tua (laki-laki).
     </dd>
     <dt id="shaoye">Shao Ye (少爺)</dt>
     <dd>
@@ -954,7 +955,11 @@ Nama ini kelihatannya _bukan_ kutipan dari salah satu teks kuno.
 ### <a name="wuxing-qimen" id="wuxing-qimen">Wu Xing Qi Men (五行奇门)</a>
 
 Keempat karakter tersebut bisa diterjemahkan menjadi 'Pintu Gerbang Ajaib dari Lima Elemen'.
-Ini adalah bagian dari teori Lima Elemen (五行) yang berkaitan dengan ajaran Tao.
+Ini adalah bagian dari teori Lima Elemen (五行) yang berkaitan dengan ajaran Tao dan astronomi.
+
+Karakter Xing (行) sebagai kata kerja berarti 'melakukan/bergerak/pergi/bepergian', sebuah planet dalam bahasa mandarin
+adalah Xing Xing (行星), perhatikan perbedaan kedua karakter tersebut. Ini artinya adalah Bintang Bergerak. Yang dimaksud Wu Xing
+di sini mengacu ke lima planet utama, yaitu Jupiter, Saturnus, Merkurius, Mars, dan Venus.
 
 ### <a name="she-xing-li-fan" id="she-xing-li-fan">She Xing Li Fan (蛇行狸翻)</a>
 

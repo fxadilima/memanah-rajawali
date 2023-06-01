@@ -58,3 +58,10 @@ _Chinese Inch_.
 Satuan yang dipakai untuk mengukur luas areal, 1 qing kira-kira 6.67 hektar atau 16.47 are.
 
 
+### <a name="satuan-fen" id="satuan-fen">Satuan Fen (分)</a>
+
+Satuan terkecil untuk mengukur jarak. Menurut standar saat itu, yaitu era Dinasti Song Selatan, 1 Fen setara dengan 2.7 mm.
+Di jaman modern yang umumnya memakai standar yang ditetapkan pada tahun 1915, 1 Fen setara dengan 3.2 mm.
+
+Untuk mengira-ngira dan mempermudah perhitungan kita bisa membulatkan satuan ini menjadi 3 mm.
+

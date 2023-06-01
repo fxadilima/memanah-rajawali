@@ -7,83 +7,184 @@
 
 ***
 
-Mengendarai elang Guo Jing berulang kali berteriak, memanggil kuda merah kecil di tanah untuk mengikuti mereka. Dalam waktu singkat sepasang elang telah menempuh jarak yang cukup jauh. Meskipun sepasang elang ini luar biasa besar, mereka tidak dapat terbang terlalu jauh sambil membawa manusia di punggungnya. Tidak lama kemudian, mereka mulai turun dan akhirnya mendarat di tanah.
+Mengendarai elang Guo Jing berulang kali berteriak, memanggil kuda merah kecil di darat untuk mengikuti mereka. Dalam waktu 
+singkat sepasang elang itu telah menempuh jarak yang cukup jauh. Meskipun sepasang elang ini luar biasa besar, mereka tidak dapat 
+terbang terlalu jauh sambil membawa manusia di punggungnya. Tidak lama kemudian, mereka mulai turun dan akhirnya mendarat di 
+tanah.
 
-Guo Jing segera melompat ke punggung elang dan bergegas melihat kondisi Huang Rong. Dia menemukan bahwa Huang Rong pingsan saat berada di punggung elang. Dengan tergesa-gesa dia membuka ikat pinggangnya dan memijat nadinya. Setelah beberapa saat Huang Rong sadar kembali, tetapi dia masih linglung dan tidak dapat mengucapkan sepatah kata pun.
+Guo Jing segera melompat dari punggung elang dan bergegas melihat kondisi Huang Rong. Ia menemukan bahwa Huang Rong pingsan saat 
+berada di punggung elang. Dengan tergesa-gesa ia membuka ikat pinggangnya dan memijat nadinya. Setelah beberapa saat Huang Rong 
+sadar kembali, tetapi masih linglung dan tidak dapat mengucapkan sepatah kata pun.
 
-Pada saat itu awan gelap menggantung di langit, menghalangi bulan dan bintang menyinari cahayanya ke tanah. Setelah nyaris lolos dari kematian, ketika dia mengingat apa yang baru saja terjadi, Guo Jing masih menggigil ketakutan. Dia memegang Huang Rong di tangannya, berdiri di tengah hutan belantara. Dia merasa dunia ini luas dan tidak jelas dan tidak tahu kemana dia harus pergi. Dia tidak berani memanggil kuda merah kecilnya karena takut Qiu Qianren akan mendengar panggilannya.
+Pada saat itu awan gelap menggantung di langit, menghalangi bulan dan bintang menyinari cahayanya ke tanah. Setelah nyaris lolos 
+dari kematian, ketika ia mengingat apa yang baru saja terjadi, Guo Jing masih menggigil ketakutan. Ia memegang Huang Rong di 
+tangannya, berdiri di tengah hutan belantara. Ia merasa dunia ini luas dan tidak jelas, dan tidak tahu kemana ia harus pergi. 
+Ia tidak berani memanggil kuda merah kecilnya karena takut Qiu Qianren akan mendengar panggilannya.
 
-Setelah berdiri diam selama setengah hari, dia tidak punya pilihan selain mulai berjalan. Setiap langkah yang dia ambil dia menginjak semak atau rumput tinggi; tidak ada jalan sama sekali. Betisnya tertusuk duri di sepanjang jalan. Meski merasakan sakit, dia dengan tabah berjalan ke depan. Di sekelilingnya gelap gulita; bahkan jika dia mencoba membuka matanya lebar-lebar dia tetap tidak bisa melihat tangannya di depan matanya. Dia terpaksa berjalan sangat lambat, karena takut dia akan melangkah ke ruang kosong; namun karena dia takut orang-orang Iron Palm Clan akan mengejar, dia tidak berani berhenti.
+Setelah berdiri diam selama setengah harian, ia tidak punya pilihan selain mulai berjalan. Setiap langkah yang diambilnya, ia 
+menginjak semak atau rumput tinggi, tidak ada jalan sama sekali. Betisnya tertusuk duri di sepanjang jalan. Meski merasakan 
+sakit, ia dengan tabah berjalan ke depan. Di sekelilingnya gelap gulita, bahkan jika ia mencoba membuka matanya lebar-lebar, 
+ia tetap tidak bisa melihat tangannya di depan matanya. Ia terpaksa berjalan sangat lambat, karena takut akan melangkah ke ruang 
+kosong, namun karena takut orang-orang Telapak Besi akan mengejar, ia tidak berani berhenti.
 
-Setelah berjalan merana sekitar dua li [1 li kira-kira 0,5 km] tiba-tiba dia melihat sebuah bintang besar berkelap-kelip rendah di ufuk sebelah kirinya. Dia melihat dengan penuh perhatian, berusaha mendapatkan sikapnya; dia menemukan bahwa itu bukanlah bintang, tetapi cahaya api. Dan di mana ada cahaya, pasti ada orang di sekitarnya. Guo Jing sangat senang; dia mempercepat langkah kakinya berjalan langsung ke cahaya itu. Dia melihat bahwa cahaya terkadang menghilang di antara pohon; sepertinya sumber cahaya itu ada di dalam hutan lebat di depannya. Tapi begitu dia memasuki hutan dia tidak bisa berjalan lurus, jalurnya berbelok ke timur dan berbelok ke barat, sehingga dia segera kehilangan cahaya. Sulit untuk melihat ke mana dia pergi di hutan lebat itu, jadi dia melompat ke atas pohon dan melihat sekeliling; dia menemukan bahwa cahaya sudah ada di belakangnya.
+Setelah berjalan merana sekitar 
+[dua li](referensi-unit.md#satuan-li "1 li kira-kira 0.5 km"), tiba-tiba ia melihat sebuah bintang besar berkelap-kelip rendah 
+di ufuk sebelah kirinya. Ia melihat dengan penuh perhatian, berusaha memahami apa yang dilihatnya, dan ia menemukan bahwa itu 
+bukan bintang, tetapi cahaya api. Dan di mana ada cahaya, pastilah ada orang di sekitarnya. Guo Jing sangat senang, ia 
+mempercepat langkah kakinya berjalan langsung ke sumber cahaya itu. Ia melihat bahwa cahaya itu terkadang menghilang di antara 
+pepohonan, sepertinya sumber cahaya itu ada di dalam hutan lebat di depannya. Tapi begitu memasuki hutan ia tidak bisa berjalan 
+lurus, jalurnya berbelok ke sana-sini, sehingga ia segera kehilangan cahaya itu. Sulit untuk melihat ke mana ia pergi di hutan 
+lebat itu, jadi ia melompat ke atas pohon dan melihat ke sekeliling, dia menemukan bahwa cahaya sudah ada di belakangnya.
 
-Dia berjalan kembali, tetapi segera dia kehilangan pandangan lagi. Setelah berjalan berputar-putar, kepalanya berputar; kemanapun dia pergi, dia tidak bisa mencapai cahaya itu. Dia sedang memikirkan sepasang elang dan kudanya, tetapi tidak tahu kemana mereka pergi. Dia berpikir untuk melompat dari pohon ke pohon, tetapi sangat gelap sehingga dia tidak bisa melihat ke mana harus melangkah; juga dia takut cabang-cabang pohon itu akan melukai Huang Rong. Tapi mereka harus mencari penginapan untuk bermalam karena dia tahu mereka tidak bisa tinggal di hutan yang gelap ini menunggu fajar. Ia bertekad untuk tetap berjalan meski harus membenturkan kepalanya ke pohon. Karena itu, ia memutuskan untuk menenangkan diri dan mengatur napas terlebih dahulu, istirahat sejenak.
+Ia berjalan kembali, tetapi dengan segera ia kehilangan arah lagi. Setelah berjalan berputar-putar, kepalanya pusing, kemanapun 
+ia pergi, ia tidak bisa mencapai sumber cahaya itu. Ia sedang memikirkan sepasang elang dan kudanya, tetapi tidak tahu kemana 
+mereka pergi. Ia berpikir untuk melompat dari pohon ke pohon, tetapi sangat gelap sehingga ia tidak bisa melihat ke mana harus 
+melangkah, dan juga ia takut cabang-cabang pohon itu akan melukai Huang Rong. Tapi mereka harus mencari penginapan untuk bermalam 
+karena ia tahu mereka tidak bisa tinggal di hutan yang gelap ini menunggu fajar. Ia bertekad untuk tetap berjalan meski harus 
+membenturkan kepalanya ke pohon. Karena itu ia memutuskan untuk menenangkan diri dan mengatur napas terlebih dahulu, istirahat 
+sejenak.
 
-Sekarang Huang Rong perlahan sadar kembali; di punggung Guo Jing dia merasakan bagaimana dia berjalan berkeliling, berbelok ke timur dan berbelok ke barat. Meskipun dia tidak bisa melihat apa-apa, dia mulai memahami jalur hutan. "Jing Gege, berjalanlah secara diagonal ke kanan," katanya dengan suara rendah.
+Sekarang Huang Rong perlahan sadar kembali, di punggung Guo Jing ia bisa merasakan bagaimana mereka berjalan berkeliling, 
+berbelok kesana-kemari. Meskipun ia tidak bisa melihat apa-apa, ia mulai memahami jalur hutan. "Jing Gege, jalan menyilang 
+ke kanan," katanya dengan suara rendah.
 
-"Rong'er, apakah kamu baik-baik saja?" Guo Jing dengan senang hati bertanya.
+"Rong'er, kau baik-baik saja?" tanya Guo Jing dengan senang.
 
-Huang Rong bergumam tidak jelas, dia masih terlalu lemah untuk berbicara. Guo Jing berjalan mengikuti arahannya. Huang Rong diam-diam menghitung langkah kakinya. Setelah sekitar tujuh belas langkah dia berkata, "Berjalan ke kiri delapan langkah." Guo Jing mengikuti instruksinya. Huang Rong kembali berkata, "Berjalan lagi secara diagonal ke kanan sejauh tiga belas langkah."
+Huang Rong bergumam tidak jelas, ia masih terlalu lemah untuk berbicara. Guo Jing berjalan mengikuti arahannya. Huang Rong 
+diam-diam menghitung langkah kakinya. Setelah sekitar tujuh belas langkah ia berkata, "Berjalan ke kiri delapan langkah." Guo 
+Jing mengikuti instruksinya. Huang Rong kembali berkata, "Menyilang ke kanan lagi tiga belas langkah."
 
-Dengan satu memberikan arah yang lain mengikuti, dua orang membuat kemajuan yang bagus di jalur hutan berliku yang gelap gulita itu. Ketika Guo Jing berjalan bolak-balik sebelumnya, Huang Rong menyimpulkan dengan benar bahwa jalur ini adalah buatan manusia. Dia telah menguasai sebagian teknik 'wu xing qi men' yang luar biasa dari Huang Yaoshi [gerbang lima arah yang aneh/indah/misterius]; meskipun jalurnya membingungkan, dia bisa melihatnya dengan jelas dengan mata tertutup. Jika siang hari, dia akan tiba lebih cepat, tetapi dalam kegelapan dia sama sekali tidak bisa menemukan jalur yang aman.
+Dengan satu memberikan arah yang lain mengikuti, dua orang itu membuat kemajuan yang bagus di jalur hutan berliku yang gelap 
+gulita itu. Ketika Guo Jing berjalan bolak-balik sebelumnya, Huang Rong menyimpulkan dengan benar bahwa jalur ini adalah buatan 
+manusia. Ia telah menguasai sebagian 
+[teori Wu Xing Qi Men](referensi-karakter.md#wuxing-qimen "Wu Xing Qi Men (五行奇门) adalah bagian dari teori Lima Elemen Taoisme. Istilah tersebut berarti Pintu Gerbang Ajaib Lima Elemen") yang luar biasa dari Huang Yaoshi, meskipun jalurnya 
+membingungkan ia bisa melihatnya dengan jelas dengan mata tertutup. Jika siang hari ia akan tiba lebih cepat, tetapi dalam kegelapan ia sama sekali tidak bisa menemukan jalur yang aman.
 
-Dengan mengikuti instruksi Huang Rong, Guo Jing terkadang berjalan ke kiri, terkadang ke kanan, terkadang secara diagonal beberapa langkah ke kiri atau ke kanan; kadang-kadang tampaknya dia berjalan menjauh dari cahaya, tetapi dalam waktu kurang dari waktu yang dibutuhkan untuk minum secangkir teh, sumber cahaya tiba-tiba muncul di depan mereka. Guo Jing sangat senang, dia berlari ke depan.
+Dengan mengikuti instruksi Huang Rong, Guo Jing terkadang berjalan ke kiri, terkadang ke kanan, terkadang secara diagonal 
+beberapa langkah ke kiri atau ke kanan, kadang-kadang tampaknya ia berjalan menjauh dari cahaya, tetapi dalam waktu kurang 
+dari waktu yang dibutuhkan untuk minum secangkir teh, sumber cahaya tiba-tiba muncul di depan mereka. Guo Jing sangat senang, 
+ia berlari ke depan.
 
-"Jangan terlalu cepat!" Huang Rong dengan cemas memanggil. "Aiyo!" teriak Guo Jing. Kakinya langsung tenggelam ke dalam parit. Dengan cepat dia menendang kakinya untuk menarik keluar dari parit. Begitu mereka kembali ke tanah yang kokoh, asap lumpur yang kuat dari kakinya menyerang lubang hidung mereka. Mereka melihat ke depan dan samar-samar melihat dua gubuk jerami yang dikelilingi lapisan tipis kabut. Cahaya itu berasal dari gubuk-gubuk ini.
+"Jangan terlalu cepat!" cegah Huang Rong dengan. "Aiyo!" teriak Guo Jing. Kakinya langsung tenggelam ke dalam parit. Dengan 
+cepat ia menendang kakinya untuk menarik keluar dari parit. Begitu mereka kembali ke tanah yang padat, bau lumpur yang kuat 
+dari kakinya menyerang lubang hidung mereka. Mereka melihat ke depan dan samar-samar melihat dua gubuk jerami yang dikelilingi 
+lapisan tipis kabut. Cahaya itu berasal dari gubuk-gubuk ini.
 
-Guo Jing dengan lantang berseru, “Kami adalah pengunjung yang lewat, juga menderita luka serius. Kami memohon kepada tuan rumah agar memberi kami tempat untuk beristirahat dan air untuk diminum.” Namun setelah menunggu setengah hari tidak ada jawaban yang keluar dari gubuk tersebut. Guo Jing menelepon lagi, tapi tetap tidak ada yang menjawab. Setelah memanggil untuk ketiga kalinya, suara perempuan menjawab dari gubuk, “Kamu bisa sampai sejauh ini, tentu kamu memiliki kemampuan untuk memasuki rumah. Haruskah aku keluar untuk menyambutmu?” Suaranya sangat dingin dan acuh tak acuh; jelas dia tidak menyambut pengunjung dan tidak ingin diganggu.
+Guo Jing dengan lantang berseru, "Kami kebetulan lewat, juga menderita luka serius. Kami mohon kepada tuan rumah agar memberi 
+kami tempat untuk beristirahat dan air minum." Namun setelah menunggu lama tidak ada jawaban yang keluar dari gubuk tersebut. 
+Guo Jing memanggil lagi, tapi tetap tidak ada yang menjawab. Setelah memanggil untuk ketiga kalinya, suara perempuan menjawab 
+dari dalam gubuk, "Kalian bisa sampai sejauh ini, tentu kau punya kemampuan untuk memasuki rumah. Masa aku harus keluar untuk 
+menyambutmu?" Suaranya sangat dingin dan acuh tak acuh, jelas ia tidak menyambut pengunjung dan tidak ingin diganggu.
 
-Dalam keadaan normal Guo Jing lebih suka bermalam di hutan, dia juga benci mengganggu tuan rumah yang tidak ramah dengan sengaja; tetapi untuk saat ini kesejahteraan Huang Rong lebih penting baginya. Namun, di depannya ada rawa yang luas, yang dia tidak tahu bagaimana cara menyeberang; oleh karena itu, dengan suara rendah dia mendiskusikan hal ini dengan Huang Rong.
+Dalam keadaan normal Guo Jing lebih suka bermalam di hutan, ia juga tidak suka kalau harus mengganggu tuan rumah yang tidak 
+ramah, tetapi untuk saat ini kesejahteraan Huang Rong lebih penting baginya. Namun di depannya ada rawa yang luas, yang ia 
+tidak tahu bagaimana cara menyeberang, karena itu dengan suara rendah ia mendiskusikan hal ini dengan Huang Rong.
 
-Huang Rong berpikir sejenak lalu berkata, “Gubuk-gubuk ini dibangun di tengah kolam lumpur. Coba lihat dengan jelas dan beri tahu saya apakah bentuk gubuk itu satu persegi dan yang lainnya bulat.
+Huang Rong berpikir sejenak lalu berkata, "Gubuk-gubuk ini dibangun di tengah kolam lumpur. Coba lihat dengan jelas dan beritahu 
+aku apa benar bentuk gubuk itu satu persegi dan yang lainnya bulat."
 
-Guo Jing membuka matanya lebar-lebar sejenak lalu dia berseru, "Benar! Rong'er, kamu tahu segalanya."
+Guo Jing membuka matanya lebar-lebar sejenak lalu ia berseru, "Benar! Rong'er, kau tahu semuanya."
 
-“Pergi ke belakang gubuk bundar itu, dari sana jalan lurus ke lampu tiga langkah, lalu belok diagonal ke kiri empat langkah, lalu lurus tiga langkah dan diagonal ke kanan empat langkah. Dengan hati-hati berjalan lurus dan diagonal seperti ini, Anda tidak akan salah langkah, ”kata Huang Rong.
+"Pergi ke belakang gubuk bundar itu, dari sana jalan lurus ke sumber cahaya tiga langkah, lalu belok menyilang ke kiri empat 
+langkah, lalu lurus tiga langkah dan menyilang ke kanan empat langkah. Kalau dengan hati-hati berjalan lurus dan menyilang 
+seperti ini, kau tidak akan salah langkah," kata Huang Rong.
 
-Guo Jing mengikuti instruksinya ke surat itu; dan benar saja, setiap kali dia menginjakkan kakinya, dia akan menginjak tiang kayu yang terendam. Hanya tiang-tiang kayu itu yang tidak kokoh, ada yang goyah dan ada yang ditanam miring; jika kungfu ringannya tidak bagus, mereka akan jatuh ke rawa. Dia memusatkan seluruh perhatiannya untuk berjalan tiga langkah secara diagonal dan empat langkah lurus; dan setelah berjalan sebanyak 119 anak tangga mereka sampai di depan gubuk persegi.
+Guo Jing mengikuti instruksinya dengan teliti, dan benar saja, setiap kali ia menginjakkan kakinya, ia akan menginjak tiang kayu 
+yang terendam. Hanya saja tiang-tiang kayu itu yang tidak kokoh, ada yang goyah dan ada yang ditanam miring, jika ilmu 
+meringankan tubuhnya tidak bagus, mereka akan jatuh ke rawa. Ia memusatkan seluruh perhatiannya untuk berjalan tiga langkah 
+secara diagonal dan empat langkah lurus, dan setelah berjalan sebanyak seratus sembilan belas langkah, mereka sampai di depan 
+gubuk persegi.
 
-Gubuk itu sebenarnya tanpa pintu. Huang Rong berbisik, “Dari sini kamu melompat ke depan, pastikan kamu mendarat di sisi kiri.”
+Gubuk itu sebenarnya tanpa pintu. Huang Rong berbisik, "Dari sini kau melompat ke depan, pastikan kau mendarat di sisi kiri."
 
-Membawa Huang Rong di punggungnya, Guo Jing melompat ke depan dan mendarat di sisi kiri, dia tidak bisa menahan perasaan kagum, "Semuanya persis seperti yang diantisipasi Rong'er."
+Membawa Huang Rong di punggungnya, Guo Jing melompat ke depan dan mendarat di sisi kiri, dia tidak bisa menahan perasaan kagum, 
+"Semuanya persis seperti yang diantisipasi Rong'er."
 
-Ada sebuah halaman di dalam tembok, yang terbagi menjadi dua bagian: di sebelah kiri adalah tanah yang kokoh, sedangkan di sebelah kanan adalah sebuah kolam. Guo Jing melintasi halaman dan memasuki aula utama. Di luar aula ada gerbang bulan tanpa pintu di atasnya. "Langsung saja," kata Huang Rong, "Tidak ada yang aneh mulai dari sini."
+[^yueliangmen]: Yue Liang Men (月亮门), atau 'Gerbang Bulan' adalah sebuah gerbang tanpa daun pintu yang berbentuk bulat, ini adalah elemen yang sudah biasa di setiap bangunan tradisional Tiongkok. [Referensi Wikipedia tentang Moon Gate](https://en.wikipedia.org/wiki/Moon_gate "Baca artikel Wikipedia mengenai Moon Gate ini, gunakan tombol Back di browser untuk kembali, tautan ini tidak akan membuka tab maupun window baru.").
 
-GuoJing mengangguk. Dengan suara lantang dan jelas ia berkata, “Para tamu yang lewat mempersilahkan masuk ke dalam rumah; Saya mohon kepada tuan rumah yang terhormat untuk memaafkan keberanian kami.” Dia menunggu sebentar lalu mulai memasuki aula.
+Ada sebuah halaman di dalam tembok, yang terbagi menjadi dua bagian, di sebelah kiri adalah tanah yang kokoh, sedangkan di 
+sebelah kanan adalah sebuah kolam. Guo Jing melintasi halaman dan memasuki ruang utama. Di luar ruangan itu ada sebuah Yue Liang Men[^yueliangmen] di atasnya. "Langsung saja," kata Huang Rong, "Tidak ada yang aneh mulai dari sini."
 
-Di dalam aula ada meja panjang; di atasnya ada tujuh lampu minyak, tersusun dalam formasi Biduk. Seorang wanita berambut abu-abu berjongkok di tanah, pakaiannya terbuat dari kain kasar. Perhatiannya terfokus pada potongan bambu yang tak terhitung jumlahnya yang tersebar di tanah; begitu dalam konsentrasinya bahkan ketika dia mendengar orang masuk, dia tidak mengangkat kepalanya untuk melihat.
+[^tuan-rumah]: Untuk laki-laki umumnya dipanggil Zhuangzhu, dan perempuan Nu Zhu (女主). 
 
-Guo Jing dengan lembut menurunkan Huang Rong di kursi. Di bawah cahaya lampu mereka melihat wajah wanita itu kurus dan pucat, seolah-olah dia tidak berdarah; mereka merasa kasihan padanya. Guo Jing hendak membuka mulutnya meminta air tetapi melihat wanita itu begitu asyik dengan apa pun yang dia lakukan, dia takut mengganggu pemikirannya; karenanya dia menahan diri untuk tidak membuat keributan.
+Guo Jing mengangguk. Dengan suara lantang dan jelas ia berkata, "Tamu-tamu yang numpang lewat ingin masuk ke dalam rumah. Zaixia 
+mohon kepada tuan rumah yang terhormat[^tuan-rumah] untuk memaafkan kelancangan kami." Ia menunggu sebentar lalu mulai memasuki 
+ruangan.
 
-Setelah duduk sejenak, semangat Huang Rong sedikit bangkit kembali. Dia melihat potongan bambu di tanah kira-kira panjangnya empat 'cun [sekitar 13 cm atau 5 inci] dan lebar dua 'fen [sekitar 7 mm atau ½ inci]; itu adalah potongan bambu yang biasanya digunakan untuk perhitungan. Sekali lagi dia melihat lebih dekat, perhitungan itu didasarkan pada metode perhitungan 'shang, shi, fa, jie' [bisnis/perdagangan, realitas, hukum, pinjaman (uang)] dengan empat titik desimal. Saat ini dia sedang menghitung akar kuadrat dari 55.225; dengan posisi 'shang' telah menunjukkan hasil menjadi 230. Tapi wanita itu masih berkutat dengan digit ketiga.
+Di dalam aula ada meja panjang, di atasnya ada tujuh lampu minyak, tersusun dalam formasi Bintang Utara. Seorang wanita berambut 
+abu-abu berjongkok di tanah, pakaiannya terbuat dari kain kasar. Perhatiannya terfokus pada potongan bambu yang tak terhitung 
+jumlahnya yang tersebar di tanah. Konsentrasinya begitu dalam, bahkan ketika mendengar ada orang masuk, ia tidak mengangkat 
+kepalanya untuk melihat.
 
-Huang Rong menyindir, “Lima! Dua ratus tiga puluh lima!”
+Guo Jing dengan lembut menurunkan Huang Rong di kursi. Di bawah cahaya lampu mereka melihat wajah wanita itu kurus dan pucat, 
+seolah-olah tidak punya darah, mereka merasa iba. Guo Jing hendak membuka mulutnya meminta air, tetapi melihat wanita itu begitu 
+asyik dengan apa pun yang dilakukannya, ia takut mengganggu, karenanya ia menahan diri.
 
-Wanita tua itu terkejut, dia mengangkat kepalanya, matanya berbinar, menatap Huang Rong dengan tatapan tajam, lalu segera menundukkan kepalanya untuk melanjutkan perhitungannya. Saat dia mengangkat kepalanya, Guo dan Huang, dua orang melihat wajahnya; itu sederhana dan indah. Mereka percaya dia belum genap empat puluh tahun. Mungkin rambut di pelipisnya sudah memutih karena terlalu banyak pikiran.
+Setelah duduk sejenak, semangat Huang Rong bangkit kembali. Ia melihat potongan bambu di tanah kira-kira panjangnya 
+[empat cun](referensi-unit.md#satuan-cun "sekitar 13 cm atau 5 inci") dan lebarnya 
+[dua fen](referensi-unit.md#satuan-fen "sekitar 6-7 mm"), itu adalah potongan bambu yang biasanya digunakan untuk perhitungan. 
+Sekali lagi ia melihat lebih dekat, perhitungan itu didasarkan pada metode perhitungan 'shang, shi, fa, jie'[^hitungan-1] dengan 
+empat titik desimal. Saat ini ia sedang menghitung akar kuadrat dari 55.225, dengan posisi 'shang' telah menunjukkan hasil 
+menjadi 230. Tapi wanita itu masih berkutat dengan digit ketiga.
 
-Setelah menghitung beberapa saat, wanita itu menemukan jawabannya memang 'lima'; dia mengangkat kepalanya untuk melihat Huang Rong lagi. Dia tampak bingung, tetapi juga marah, seolah-olah dia akan berkata, “Kamu hanyalah seorang gadis muda; Anda telah membuat tebakan yang beruntung, apa yang aneh tentang itu? Jangan main-main dengan urusanku di sini.” Dia menuliskan '235' lima karakter [er bai san shi wu] di selembar kertas, lalu melanjutkan ke soal berikutnya.
+[^hitungan-1]: Teori matematika di jaman Dinasti Song yang dimaksud Huang Rong adalah berdasarkan Shu Shu Jiu Zhang (数书九章), yaitu teori yang ditulis oleh ahli matematika Qin Jiushao (秦九韶) pada tahun 1247. Dalam hal ini ada kemungkinan Jin Yong agak meleset dalam pemakaian topik ini untuk jaman Guo Jing dan Huang Rong. Tetapi dengan disebutkannya Shang, Shi, Fa dan Jie itu, maka berarti memang metode inilah yang dimaksud. Buku Qin Jiushao sendiri punya cakupan yang sangat luas, mulai dari pertanian, astronomi, perpajakan, survei, militer, dsb. Isinya terdiri dari 9 bab. Metode perhitungan yang dimaksud Huang Rong adalah Shang (商) atau niaga/perdagangan/bisnis, Shi (实) yang berarti realitas atau kenyataan, Fa (法) atau 'Hukum/Aturan', Jie (借) atau 'Pinjaman', Fang (方) atau bujur sangkar, Lian (廉) atau 'murah', Yu (隅) atau 'sudut', dan Xia (下) atau 'bawah'. Di jaman itu alat bantu dalam menghitung bukan Suanpan (算盘) atau sempoa, melainkan potongan-potongan bambu. Di era tersebut mampu menghitung dengan presisi empat angka di belakang koma adalah sangat mencengangkan.
 
-Kali ini dia sedang mencari akar pangkat tiga dari 34.012.224. Dia mulai dengan meletakkan 'shang' dan 'shi' dan 'fang' [persegi], diikuti oleh 'lian' [murah], 'yu' [sudut] dan 'xia' [bawah], enam strip; dan menemukan digit pertama menjadi 'tiga'.
+Huang Rong menyindir, "Lima! Dua ratus tiga puluh lima!"
+
+Wanita tua itu terkejut, ia mengangkat kepalanya, matanya berbinar, menatap Huang Rong dengan tatapan tajam, lalu segera 
+menundukkan kepalanya untuk melanjutkan perhitungannya. Saat ia mengangkat kepalanya, Guo Jing dan Huang Rong melihat wajahnya 
+yang sederhana dan cantik. Mereka percaya ia belum genap empat puluh tahun. Mungkin rambut di pelipisnya sudah memutih karena 
+terlalu banyak pikiran.
+
+Setelah menghitung beberapa saat, wanita itu menemukan jawabannya memang 'lima', ia mengangkat kepalanya untuk melihat Huang Rong 
+lagi. Ia tampak bingung, tetapi juga marah, seolah-olah ia akan berkata, "Kau hanya anak ingusan, cuma kebetulan benar. Jangan 
+main-main dengan urusanku di sini." Ia menuliskan angka 235[^angka-235] di selembar kertas, lalu melanjutkan ke soal berikutnya.
+
+[^angka-235]: Liang Bai San Shi Wu (两百三十五), angka 235. Dalam dialek lain, misalnya Guangdong, karakter Liang (两) tersebut akan ditulis menurut angka 2, yaitu Er (二).
+
+Kali ini dia sedang mencari akar pangkat tiga dari 34.012.224. Dia mulai dengan meletakkan Shang, Shi, Fang, diikuti oleh Lian, 
+Yu dan Xia, enam batang dan menemukan digit pertama menjadi 'tiga'.
 
 Huang Rong dengan lembut berkata, "Tiga ratus dua puluh empat."
 
-Wanita itu mengeluarkan suara 'Hmm', bagaimana dia bisa mempercayainya? Dia terus menghitung untuk waktu yang lama, dan setelah beberapa saat perlu minum secangkir teh nanti, hasilnya keluar, memang '324'.
+Wanita itu mengeluarkan suara 'Hmm', bagaimana ia bisa mempercayainya? Ia terus menghitung, dan setelah kira-kira waktu yang 
+diperlukan untuk menghabiskan secangkir teh, hasilnya keluar, memang '324'.
 
-Wanita itu menegakkan punggungnya dan berdiri; ternyata dahinya penuh kerutan, tapi pipinya penuh, wajahnya terlihat bulat. Setengah bagian atas wajahnya tampak tua, bagian bawahnya tampak muda, tampak seperti kedua bagian berbeda sebanyak dua puluh tahun. Matanya menatap Huang Rong, tiba-tiba dia menunjuk ke arah ruang dalam dan berkata, "Ikut aku." Dia mengambil lampu minyak dan masuk.
+Wanita itu menegakkan punggungnya dan berdiri, ternyata dahinya penuh kerutan, tetapi pipinya penuh, wajahnya terlihat bulat. 
+Setengah bagian atas wajahnya tampak tua, bagian bawahnya tampak muda, tampak seperti kedua bagian berbeda sebanyak dua puluh 
+tahun. Matanya menatap Huang Rong, tiba-tiba ia menunjuk ke arah ruang dalam dan berkata, "Ikut aku." Ia mengambil lampu minyak 
+dan masuk.
 
-Guo Jing menyangga Huang Rong dan mengikutinya ke dalam. Dinding ruang dalam berbentuk bulat; lantainya tertutup pasir halus. Di atas pasir tertulis banyak simbol aneh, garis dan lingkaran vertikal dan horizontal; juga beberapa karakter seperti 'tai' [hebat], 'tian yuan' [langit pertama/primer], 'di yuan' [bumi pertama/primer], 'ren yuan' [manusia pertama/primer], dan 'wu yuan' [objek pertama/utama].
+[^karakter-5]: Tai (太) yang berarti 'Besar', Tian Yuan (天原) yang berarti 'Langit Utama', Di Yuan (地原) 'bumi utama', Ren Yuan (人原) 'manusia utama', dan Wu Yuan (物原) 'benda/objek/substansi utama'.
 
-Guo Jing tidak tahu apa itu; dia takut mengacaukan simbol-simbol ini, jadi dia berhenti di pintu dan tidak berani masuk ke kamar.
+Guo Jing menyangga Huang Rong dan mengikutinya ke dalam. Dinding ruang dalam berbentuk bulat, lantainya tertutup pasir halus. 
+Di atas pasir tertulis banyak simbol aneh, garis dan lingkaran vertikal dan horizontal, juga beberapa karakter seperti Tai, Tian 
+Yuan, Di Yuan, Ren Yuan, dan Wu Yuan.[^karakter-5]
 
-Sejak masa kecilnya, Huang Rong telah dilatih oleh ayahnya dalam semua jenis matematika. Dia melihat simbol di tanah dan segera menyadari bahwa itu adalah teknik lanjutan dalam matematika yang disebut 'tian yuan zhi shu' [teknik utama langit]. Meskipun terlihat rumit, seharusnya tidak terlalu sulit untuk diselesaikan selama seseorang memahami prinsipnya.
+Guo Jing tidak tahu apa arti semua itu, ia takut mengacaukan simbol-simbol ini, jadi ia berhenti di pintu dan tidak berani masuk 
+ke ruangan.
 
-[Catatan penulis: Ini sangat mirip dengan aljabar modern. Negara kita sejak zaman kuno telah mengembangkan teknik perhitungan ini, dengan 'tian', 'di', 'ren' dan 'wu' sebagai empat variabel yang tidak diketahui; seperti variabel X, Y, X dan W dalam aljabar barat]
+[^tian-yuan-zhi-shu]: Referensi yang ditemukan adalah Tian Yuan Shu (天元术). Karakter Zhi sebelum Shu (术) tersebut kemungkinan diambil dari nama ahli matematika dari Dinasti Yuan Li Zhi (李治), yang merevisi Tian Yuan Shu di dalam bukunya yang berjudul Yigu Yan Duan (益古演段). Dengan demikian ini adalah salah satu _bug_ dalam novel Jin Yong ini, mengingat Dinasti Yuan didirikan oleh Kubilai Khan, yang notabene adalah anak keempat dari Tolui, sedangkan Tolui sendiri dalam cerita ini adalah saudara angkat Guo Jing yang sebaya. Mengenai empat karakter ini sendiri, berikutnya Huang Rong malah menyelipkan karakter Si (四), yang berarti 'Empat', sehingga menjadi Tian Yuan Si Yuan Zhi Shu (天元四元治术). Istilah terakhir itu melambangkan struktur ajaran Tian Yuan Shu yang terdiri dari 4 Yuan yang dipandang sebagai 4 variabel yang tidak diketahui, yaitu Tian, Di, Ren, dan Wu. Secara berurutan adalah Langit, Bumi, Manusia dan Benda-benda. Nantinya di era Dinasti Yuan yang didirikan oleh anak keempat Tolui, ahli matematika Zhu Shijie akan mengembangkan teori ini untuk membawa Tian Yuan Shu menjadi sebuah _masterpiece_ dengan nama Si Yuan Yu Jian (四元玉鉴), atau Cermin Giok dan Empat Variabel. [Baca lebih lengkap](ancient-math.md#si-yuan-yu-jian).
 
-Huang Rong menarik tongkat bambu dari pinggangnya; bersandar pada Guo Jing dia mulai menulis di atas pasir. Dalam waktu singkat ketujuh, delapan soal matematika di atas pasir diselesaikan. Wanita itu dengan susah payah mencoba memecahkan masalah itu selama berbulan-bulan; melihat solusinya, dia tidak bisa tidak merasa sangat bingung. Dia diam selama setengah hari lalu tiba-tiba bertanya, "Siapa kamu?"
+Sejak masa kecilnya, Huang Rong telah diajari oleh ayahnya dalam semua jenis matematika. Ia melihat simbol di lantai dan segera 
+menyadari bahwa itu adalah teori matematika tingkat lanjut yang disebut Tian Yuan Zhi Shu[^tian-yuan-zhi-shu]. Meskipun terlihat 
+rumit, seharusnya tidak terlalu sulit untuk diselesaikan selama orang memahami prinsipnya.
 
-Huang Rong menunjukkan senyum tipis dan menjawab, “Apa yang istimewa tentang 'tian yuan si [empat] yuan zhi shu'? Buku matematika memiliki sembilan belas pendahuluan, setelah 'ren' ada 'xian' [abadi], 'ming' [cerah], 'xiao' [cakrawala], 'han' [dari dinasti Han], 'lei' [benteng] , 'ceng' [lapisan], 'gao' [tinggi], 'shang' [atas/atas], dan 'tian' [langit]. Sebelum 'ren' adalah 'di' [bumi/tanah], 'xia' [di bawah/di bawah], 'di' [rendah], 'jian' [kurangi], 'luo' [turun], 'shi' [mati ], 'quan' [air mancur], 'an' [tersembunyi/rahasia], dan 'gui' [licik/licik]. Setelah Anda menguasai sembilan belas primer, semua masalah akan terlihat mudah!”
+Huang Rong menarik tongkat bambu dari pinggangnya, bersandar pada Guo Jing, lalu mulai menulis di atas pasir. Dalam waktu singkat 
+ketujuh, delapan soal matematika di atas pasir diselesaikan. Wanita itu dengan susah payah mencoba memecahkan masalah itu selama 
+berbulan-bulan, ketika melihat penyelesaian Huang Rong, ia merasa sangat bingung. Ia terdiam agak lama, lalu tiba-tiba bertanya, 
+"Siapa kau?"
 
-Wanita itu tampak sedih, tubuhnya gemetar; dia jatuh ke tanah, memegang kepalanya di tangannya saat dia tersesat, tenggelam dalam pikirannya. Sesaat kemudian dia mengangkat kepalanya dan dengan wajah senang bertanya, “Kemampuan matematikamu seratus kali lebih baik dariku, tapi izinkan aku menanyakan ini: kamu memiliki susunan tiga kali tiga dari nomor satu sampai sembilan, tidak peduli bagaimana kamu jumlahkan, secara vertikal, horizontal atau diagonal, jumlah dari tiga angka harus lima belas. Bagaimana Anda mengaturnya?”
+Huang Rong tersenyum tipis dan menjawab, "Apa yang istimewa 
+[Tian Yuan Si Yuan Zhi Shu](ancient-math.md#si-yuan-yu-jian "Teori matematika Dinasti Song Selatan yang adalah cikal-bakal teori matematika Dinasti Yuan Si Yuan Yu Jian, Cermin Giok dan Empat Variabel.")? 
+Buku matematika terdiri dari sembilan belas dasar, setelah Ren ada Xian, Ming, Xiao, Han, Lei, Ceng, Gao, Shang, dan Tian. 
+Sebelum Ren adalah Di, Xia, Di[^rendah], Jian, Luo, Si, Quan, An, dan Gui. Setelah kita menguasai sembilan belas dasar itu, 
+semua masalah lain akan kelihatan gampang!"
+
+Wanita itu tampak sedih, tubuhnya gemetar, ia menjatuhkan diri ke lantai, memegangi kepalanya sambil tenggelam dalam pikiran. 
+Sesaat kemudian ia mengangkat kepalanya dan dengan wajah gembira bertanya, "Kemampuan matematikamu seratus kali lipat lebih baik 
+dariku, tapi ijinkan aku menanyakan ini, kau punya susunan tiga kali tiga dari nomor satu sampai sembilan, tidak peduli bagaimana 
+kau jumlahkan, secara vertikal, horizontal atau diagonal, jumlah dari tiga angka harus lima belas. Bagaimana caramu mengaturnya?"
 
 Huang Rong berpikir, “Ayahku mendirikan Pulau Bunga Persik berdasarkan variasi lima cara; apa yang begitu misterius tentang itu? 'Jiu gong' [sembilan istana atau aula] adalah dasar dari diagram Pulau Bunga Persik; bagaimana mungkin aku tidak mengetahuinya?” Oleh karena itu, dengan suara tenang dia melafalkan, “Diagram ‘jiu gong’ dibangun seperti pola pada cangkang kura-kura [Catatan penerjemah: lakukan pencarian google dengan kata kunci ‘Lo Shu Square’]; empat dan dua adalah bahu, delapan dan enam adalah kaki. Tiga di kiri dan tujuh di kanan; kenakan sembilan dan injak satu, sementara lima menempati bagian tengah.” Sambil melafalkan ini dia membuat diagram 'jiu gong' di atas pasir.
 

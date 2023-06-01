@@ -131,7 +131,7 @@ kacau lagi. Dalam hati Huang Rong berpikir, "Surga berkati kami, jangan biarkan 
 atau nyawa Jing Gege jadi lebih sulit diselamatkan."
 
 Ia kembali mendengar suara Ouyang Feng berkata, "Tempat ini begitu jauh, pasukan Song tidak akan menemukan kita di sini.
-Aku ingin tahu harta karun macam apa yang ada di dalam warisan Yue Fei[^yishu] ini. Mari sama-saa kita lihat."
+Aku ingin tahu harta karun macam apa yang ada di dalam warisan Yue Fei[^yishu] ini. Mari sama-sama kita lihat."
 
 [^yishu]: Istilah yang digunakan adalah Yue Fei Yishu, yang juga sering disebut Wumu Yishu.
 
