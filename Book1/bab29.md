@@ -188,7 +188,7 @@ Sesaat kemudian ia mengangkat kepalanya dan dengan wajah gembira bertanya, "Kema
 dariku, tapi ijinkan aku menanyakan ini, kau punya susunan tiga kali tiga dari nomor satu sampai sembilan, tidak peduli bagaimana 
 kau jumlahkan, secara vertikal, horizontal atau diagonal, jumlah dari tiga angka harus lima belas. Bagaimana caramu mengaturnya?"
 
-[^lima-element]: [Wu Xing Qi Men](referensi-karakter.md#wuxing-qimen "Lima Elemen") adalah pelajaran dasar Taoisme, dan berkaitan erat dengan astronomi.
+[^lima-elemen]: [Wu Xing Qi Men](referensi-karakter.md#wuxing-qimen "Lima Elemen") adalah pelajaran dasar Taoisme, dan berkaitan erat dengan astronomi.
 
 Huang Rong berpikir, "Ayahku mendirikan Pulau Bunga Persik berdasarkan variasi lima elemen[^lima-elemen], apanya yang misterius sih? [Jiu Gong](ancient-math.md#lo-shu "Jiu Gong Tu (九宫图) adalah nama lain untuk diagram Lo Shu atau kotak Lo Shu, yang di dalam mmatematika barat setara dengan Magic Box 3x3, yang penjumlahan angka 3 kotaknya akan selalu menghasilkan 15. Jiu Gong Tu sendiri secara literal berarti Sembilan Bangunan") adalah dasar dari diagram Pulau Bunga Persik, mana mungkin aku tidak tahu?" 
 Karena itu dengan tenang ia melafalkan, "Diagram Jiu Gong dibangun seperti pola pada cangkang kura-kura, empat dan dua adalah 
