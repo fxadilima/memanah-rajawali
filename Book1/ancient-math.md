@@ -42,7 +42,7 @@ Sembilan belas Yuan yang disebutkan Huang Rong berturut-turut adalah:
 10. Gao (高), tinggi, dalam arti semacam 'orang itu _tinggi_'.
 11. Shang (上), di atas/_above_.
 12. Xia (下), di bawah/_below_.
-13. Di (低), rendah atau _low_.
+13. Di (低), karakter yang sama dengan nomor 2 di atas, tetapi dalam makna 'rendah' atau _low_.
 14. Jian (减), operasi pengurangan/_subtraction_.
 15. Luo (落), turun atau jatuh.
 16. Si (死), 'mati', atau ada kemungkinan adalah karakter Shi dalam Guo Shi (过世).

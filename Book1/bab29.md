@@ -175,6 +175,8 @@ ketujuh, delapan soal matematika di atas pasir diselesaikan. Wanita itu dengan s
 berbulan-bulan, ketika melihat penyelesaian Huang Rong, ia merasa sangat bingung. Ia terdiam agak lama, lalu tiba-tiba bertanya, 
 "Siapa kau?"
 
+[^rendah]: Di (地) berarti 'rendah', karakter yang sama dengan 'bumi' atau 'tanah'm tetapi dipakai dalam konteks yang berbeda.
+
 Huang Rong tersenyum tipis dan menjawab, "Apa yang istimewa 
 [Tian Yuan Si Yuan Zhi Shu](ancient-math.md#si-yuan-yu-jian "Teori matematika Dinasti Song Selatan yang adalah cikal-bakal teori matematika Dinasti Yuan Si Yuan Yu Jian, Cermin Giok dan Empat Variabel.")? 
 Buku matematika terdiri dari sembilan belas dasar, setelah Ren ada Xian, Ming, Xiao, Han, Lei, Ceng, Gao, Shang, dan Tian. 
@@ -186,43 +188,80 @@ Sesaat kemudian ia mengangkat kepalanya dan dengan wajah gembira bertanya, "Kema
 dariku, tapi ijinkan aku menanyakan ini, kau punya susunan tiga kali tiga dari nomor satu sampai sembilan, tidak peduli bagaimana 
 kau jumlahkan, secara vertikal, horizontal atau diagonal, jumlah dari tiga angka harus lima belas. Bagaimana caramu mengaturnya?"
 
-Huang Rong berpikir, “Ayahku mendirikan Pulau Bunga Persik berdasarkan variasi lima cara; apa yang begitu misterius tentang itu? 'Jiu gong' [sembilan istana atau aula] adalah dasar dari diagram Pulau Bunga Persik; bagaimana mungkin aku tidak mengetahuinya?” Oleh karena itu, dengan suara tenang dia melafalkan, “Diagram ‘jiu gong’ dibangun seperti pola pada cangkang kura-kura [Catatan penerjemah: lakukan pencarian google dengan kata kunci ‘Lo Shu Square’]; empat dan dua adalah bahu, delapan dan enam adalah kaki. Tiga di kiri dan tujuh di kanan; kenakan sembilan dan injak satu, sementara lima menempati bagian tengah.” Sambil melafalkan ini dia membuat diagram 'jiu gong' di atas pasir.
+[^lima-element]: [Wu Xing Qi Men](referensi-karakter.md#wuxing-qimen "Lima Elemen") adalah pelajaran dasar Taoisme, dan berkaitan erat dengan astronomi.
 
-Wajah wanita itu berubah pucat, dia menghela nafas, “Saya pikir saya mengembangkan formula rahasia ini. Ternyata ada lagu tentang itu yang diwariskan dari generasi ke generasi.”
+Huang Rong berpikir, "Ayahku mendirikan Pulau Bunga Persik berdasarkan variasi lima elemen[^lima-elemen], apanya yang misterius sih? [Jiu Gong](ancient-math.md#lo-shu "Jiu Gong Tu (九宫图) adalah nama lain untuk diagram Lo Shu atau kotak Lo Shu, yang di dalam mmatematika barat setara dengan Magic Box 3x3, yang penjumlahan angka 3 kotaknya akan selalu menghasilkan 15. Jiu Gong Tu sendiri secara literal berarti Sembilan Bangunan") adalah dasar dari diagram Pulau Bunga Persik, mana mungkin aku tidak tahu?" 
+Karena itu dengan tenang ia melafalkan, "Diagram Jiu Gong dibangun seperti pola pada cangkang kura-kura, empat dan dua adalah 
+bahu, delapan dan enam adalah kaki. Tiga di kiri dan tujuh di kanan, atas sembilan dan bawah satu, sementara lima menempati bagian tengah." Sambil melafalkan ini dia membuat diagram Jiu Gong di atas pasir.
 
-Huang Rong tersenyum, “Tidak hanya ‘jiu gong’, bahkan larik empat kali empat, atau lima kali lima, hingga larik seratus demi seratus, tidak terlalu sulit,” katanya, “Ambil empat kali empat larik misalnya; kami memiliki 16 angka dalam empat baris. Pertama kita menentukan empat pasang sudut; satu dan enam belas dibuat berpasangan, begitu pula empat dan tiga belas. Kemudian kami menentukan empat pasang di dalamnya; enam dan sebelas adalah sepasang, begitu pula tujuh dan sepuluh. Dengan cara ini, jumlah semua baris horizontal, vertikal, dan diagonal adalah 34.”
+Wajah wanita itu berubah pucat, ia menghela nafas, "Kupikir aku yang mengembangkan formula rahasia ini. Ternyata ada syair 
+tentang itu yang diwariskan dari generasi ke generasi."
 
-Wanita itu membuat diagram di atas pasir dan benar saja, seperti yang dikatakan Huang Rong. Huang Rong melanjutkan, “Setiap aula dari diagram sembilan aula itu dapat diubah menjadi ‘ba gua’ [delapan diagram]. Delapan kali sembilan sama dengan 72 angka. Angka-angka ini: 1 hingga 72 lingkaran di sekitar 'jiu gong' seperti karangan bunga. Setiap putaran terdiri dari delapan angka; setiap empat putaran membentuk lingkaran lain yang lebih besar, ada empat putaran sudut sekaligus, yang membuat jumlah putaran menjadi 13. Jumlah angka dalam setiap putaran adalah 292. Variasi diagram ini dicatat dalam Luo Shu [luo – nama dari sebuah sungai, shu – buku] sangat indah secara ilahi; tidak heran Anda tidak menyadarinya. Sambil menjelaskannya, Huang Rong juga menggambar 72 angka dari delapan diagram sembilan aula di atas pasir.
+Huang Rong tersenyum, "Tidak hanya Jiu Gong, bahkan kotak empat kali empat, atau lima kali lima, sampai kotak seratus kali 
+seratus, tidak terlalu sulit," katanya. "Misalnya kotak empat kali empat, kita punya enam belas angka dalam empat baris. Pertama 
+kita menentukan empat pasang sudut, satu dan enam belas dibuat berpasangan, begitu pula empat dan tiga belas. Kemudian kita 
+menentukan empat pasang di dalamnya, enam dan sebelas adalah sepasang, begitu pula tujuh dan sepuluh. Dengan cara ini, jumlah 
+semua baris horizontal, vertikal, dan diagonal adalah tiga puluh empat."
 
-Wanita itu tercengang, dia bimbang dan bertanya, "Nona, siapa kamu?" Tapi sebelum Huang Rong bisa menjawabnya, dia merasakan sakit di dadanya; wajahnya memucat, dan dengan cemas dia mengambil botol dari sakunya dan menelan pil hijau dari botol itu. Setelah setengah hari wajahnya rileks, dia menghela nafas dan berkata, “Sudah selesai, sudah selesai!” Dua tetes air mata mengalir di pipinya.
+Wanita itu membuat diagram di atas pasir dan benar saja, seperti yang dikatakan Huang Rong. Huang Rong melanjutkan, "Setiap ruang 
+dari diagram sembilan ruang itu bisa diubah menjadi Ba Gua. Delapan kali sembilan sama dengan tujuh puluh dua. Angka-angka satu 
+sampai tujuh puluh dua mengelilingi Jiu Gong seperti karangan bunga. Setiap putaran terdiri dari delapan angka, setiap empat 
+putaran membentuk lingkaran lain yang lebih besar, ada empat putaran sudut sekaligus, yang membuat jumlah putaran menjadi tiga 
+belas. Jumlah angka dalam setiap putaran adalah dua ratus sembilan puluh dua. Variasi diagram ini dicatat dalam 
+[Luo Shu](ancient-math.md#lo-shu "Nama itu diambil dari nama Sungai Luo"), sangat indah dan ajaib, tidak heran kau tidak 
+menyadarinya." Sambil menjelaskannya, Huang Rong juga menggambar angka 72 dari delapan diagram sembilan ruang di atas pasir.
 
-Guo Jing dan Huang Rong saling memandang; mereka pikir perilaku wanita ini sangat aneh.
+Wanita itu tercengang, ia bimbang dan bertanya, "Nona, siapa kau?" Tapi sebelum Huang Rong bisa menjawabnya, ia merasa dadanya 
+sakit, wajahnya memucat, dan dengan cemas ia mengambil botol dari sakunya dan menelan pil hijau dari botol itu. Setelah agak lama 
+wajahnya rileks, ia menghela nafas dan berkata, "Tamat, habislah sudah!" Dua tetes air mata mengalir di pipinya.
 
-Wanita itu belum berbicara apa-apa ketika tiba-tiba ada panggilan intermiten dari luar. Itu adalah pengejar Iron Palm Clan. "Apakah mereka teman atau musuh?" wanita itu bertanya.
+Guo Jing dan Huang Rong saling memandang, mereka pikir perilaku wanita ini sangat aneh.
 
-"Mereka adalah musuh yang mengejar kita," kata Guo Jing.
+Wanita itu belum berbicara apa-apa ketika tiba-tiba terdengar suara panggilan bersahut-sahutan dari luar. Itu adalah para 
+pengejar dari Telapak Besi. "Mereka teman atau musuh?" tanya wanita itu.
 
-"Klan Tapak Besi?" wanita itu bertanya.
+"Mereka musuh yang mengejar kita," kata Guo Jing.
+
+"Telapak Besi?" tanya wanita itu lagi.
 
 "Ya," jawab Guo Jing.
 
-Wanita itu mencondongkan telinganya untuk mendengarkan sebentar dan kemudian berkata, “Qiu Bangzhu [Pemimpin Klan Qiu] secara pribadi memimpin klannya untuk mengejar. Siapa kamu sebenarnya?” Saat menanyakan ini, suaranya tegas.
+Wanita itu mencondongkan telinganya untuk mendengarkan sebentar dan kemudian berkata, "Qiu Bangzhu secara pribadi memimpin anak 
+buahnya untuk mengejar. Siapa kalian sebenarnya?" Saat menanyakan ini suaranya sangat tegas.
 
-Guo Jing bergerak maju satu langkah, berdiri di depan Huang Rong, dan dengan suara tenang dia berkata, "Kami adalah murid Pengemis Dewa Sembilan Jari Hong Bangzhu. Adik perempuanku terluka oleh Qiu Qianren dari Iron Palm Clan. Kami berlindung di sini. Jika Senior memiliki hubungan dekat dengan Iron Palm Clan dan tidak mau memberi kita perlindungan; maka kami akan pergi. Setelah mengatakan ini, dia mengangkat tinjunya dan kemudian berbalik untuk membantu Huang Rong berdiri.
+Guo Jing bergerak maju selangkah, berdiri di depan Huang Rong, dan dengan tenang ia berkata, "Kami adalah murid-murid Dewa 
+Pengemis Sembilan Jari, Hong Bangzhu. Adik seperguruanku terluka oleh Qiu Qianren dari Telapak Besi. Kami berlindung di sini. 
+Kalau Qianbei punya hubungan dekat dengan Telapak Besi dan tidak mau memberi kami perlindungan, kami akan pergi." Setelah 
+mengatakan hal ini, ia mengangkat tinjunya dan kemudian berbalik untuk membantu Huang Rong berdiri.
 
-Wanita itu tersenyum dengan acuh tak acuh dan berkata, “Kamu masih muda, namun berkepala bagal. Anda dapat bertahan tetapi apakah menurut Anda saudari bela diri Anda bisa? Jadi Anda adalah murid Hong Qigong, tidak heran Anda memiliki keterampilan seperti ini.”
+Wanita itu tersenyum dengan acuh tak acuh dan berkata, "Kau masih muda, tapi keras kepala. Kau bisa bertahan, tapi menurutmu 
+Xiao Shimei-mu ini bisa? Jadi kalian murid Hong Qigong, tidak heran kau punya kungfu seperti ini."
 
-Dia mendengar teriakan orang-orang Iron Palm Clan terkadang jauh dan terkadang dekat, terkadang tinggi dan terkadang rendah; dia menghela nafas dan berkata, “Mereka tidak dapat menemukan jalannya, mereka tidak dapat masuk; santai aja. Bahkan jika mereka berhasil masuk, Anda adalah tamu saya, bagaimana mungkin Dewa … Dewa … Ying Gu membiarkan orang lain menggertak tamunya yang terhormat? Dia berpikir, “Awalnya saya dipanggil 'shen suan zi' [Ahli Matematika Ilahi] Ying Gu; tapi keterampilan matematika nona muda ini seratus kali lebih baik dariku. Bagaimana saya bisa menyebut diri saya 'shen suan zi' lagi?" Oleh karena itu, dia hanya mengucapkan kata pertama 'shen' tetapi tidak bisa memaksakan diri untuk mengucapkan dua karakter berikutnya.
+[^shen-suan-zi]: Shen Suan Zi (神算子) bisa kita terjemahkan secara bebas menjadi 'Dewi Matematika'.
 
-Guo Jing membungkuk untuk mengungkapkan rasa terima kasihnya. Ying Gu menyelipkan pakaian dari bahu Huang Rong untuk melihat lukanya. Dia mengerutkan alisnya tetapi tidak mengatakan apa-apa; dia mengambil botol dari dadanya dan melarutkan pil hijau ke dalam semangkuk air.
+Ia mendengar teriakan orang-orang Telapak Besi terkadang jauh dan terkadang dekat, terkadang tinggi dan terkadang rendah, ia 
+menghela nafas dan berkata, "Mereka tidak bisa menemukan jalan, mereka tidak bisa masuk, santai aja. Bahkan jika mereka berhasil 
+masuk, kalian adalah tamuku, mana mungkin Dewi... Dewi... Ying Gu membiarkan orang lain menggertak tamu kehormatannya?" Ia 
+berpikir, "Tadinya aku dipanggil Shen Suanzi[^shen-suan-zi] Ying Gu, tapi ilmu matematika bocah perempuan ini seratus kali lipat 
+lebih baik dari aku. Mana mungkin aku menyebut diri Shen Suanzi lagi?" Karena itu ia hanya mengucapkan kata pertama Shen, tetapi 
+tidak bisa memaksakan diri untuk mengucapkan dua karakter berikutnya.
 
-Huang Rong mengambil mangkuk itu tetapi dia ragu-ragu, mereka tidak tahu apakah wanita itu teman atau musuh; bagaimana dia bisa meminum obatnya?
+Guo Jing membungkuk untuk mengungkapkan rasa terima kasihnya. Ying Gu menyibakkan pakaian dari bahu Huang Rong untuk melihat 
+lukanya. Ia mengerutkan alisnya tetapi tidak mengatakan apa-apa, ia mengambil botol dari dadanya dan melarutkan pil hijau ke 
+dalam semangkuk air.
 
-Ying Gu melihat keraguannya, dia dengan dingin berkata, “Kamu terluka oleh Iron Palm Qiu Qianren; masih percaya bisa sembuh? Jika saya ingin menyakiti Anda, apakah menurut Anda saya perlu repot? Obat ini adalah pereda nyeri; kamu tidak menginginkannya? Bagus!" Dia mengambil mangkuk itu kembali dan menuangkan isinya ke tanah.
+Huang Rong mengambil mangkuk itu tetapi ragu-ragu, mereka tidak tahu apakah wanita itu teman atau musuh, bagaimana ia bisa minum 
+obatnya?
 
-Melihat kekasarannya terhadap Huang Rong, Guo Jing tidak dapat menahan amarahnya. “Saudari bela diri saya terluka parah; bagaimana kamu bisa begitu marah padanya?" dia berkata, "Rong'er, ayo pergi."
+Ying Gu melihat keraguannya, dia dengan dingin berkata, "Kamu terluka oleh telapak besi Qianren, masih percaya bisa sembuh? 
+Seandainya aku ingin menyakitimu, apa menurutmu sulit? Obat ini adalah pereda nyeri, kau tidak menginginkannya? Bagus!" Ia 
+mengambil mangkuk itu kembali dan menuangkan isinya ke tanah.
 
-Ying Gu dengan dingin tersenyum dan berkata, “Dua gubuk kecil Ying Gu; apakah menurutmu dua junior sepertimu dapat dengan mudah datang dan pergi dengan mudah?" Dengan dua potongan bambu di tangannya, dia berdiri di ambang pintu, menghalangi pintu keluar.
+Melihat kekasarannya terhadap Huang Rong, Guo Jing tidak bisa menahan amarahnya. "Adik seperguruanku terluka parah, masa kau 
+bisa sekasar itu?" katanya. "Rong'er, ayo pergi."
+
+Ying Gu dengan dingin tersenyum dan berkata, "Dua gubuk kecil Ying Gu, apakah menurutmu dua anak kecil seperti kalian bisa 
+datang dan pergi seenaknya begitu?" Dengan dua potongan bambu di tangannya, ia berdiri di ambang pintu, menghalangi pintu keluar.
 
 Guo Jing berpikir, "Bicara tidak berguna, harus menggunakan kekuatan." Dia berseru, "Senior, maafkan saya karena bersikap kasar." Dia sedikit menekuk lututnya; membuat lingkaran dengan tangannya, dia meluncurkan Proud Dragon Repens langsung ke pintu. Sikap ini adalah yang paling sengit; dia takut Ying Gu tidak bisa menahannya, jadi dia hanya menggunakan 30% dari kekuatannya. Niatnya hanyalah untuk membuka jalan; dia tidak ingin menyakiti siapa pun. Saat embusan angin tiba di tubuh Ying Gu, Guo Jing memperhatikan dengan seksama bagaimana Ying Gu akan memblokir serangan ini; apakah dia harus meningkatkan kekuatannya atau menariknya segera. Siapa sangka Ying Gu hanya menyandarkan tubuhnya sedikit, telapak tangan kirinya membuat gerakan diagonal untuk mendorong lengannya dengan ringan dan kekuatan Guo Jing dialihkan ke samping.
 
