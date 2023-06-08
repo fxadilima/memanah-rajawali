@@ -65,3 +65,11 @@ Di jaman modern yang umumnya memakai standar yang ditetapkan pada tahun 1915, 1 
 
 Untuk mengira-ngira dan mempermudah perhitungan kita bisa membulatkan satuan ini menjadi 3 mm.
 
+### <a name="satuan-mu" id="satuan-mu">Satuan Mu (亩)</a>
+
+Bisa juga ditulis dengan karakter 畝.
+
+Ini adalah satuan untuk mengukur luas area. 
+
+1 Mu setara dengan 1/15 hektar, atau sekitar 666.67 meter persegi.
+

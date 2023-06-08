@@ -809,7 +809,7 @@ Guo Jing merasa seperti beban berat diambil dari pikirannya, ia tidak menyembuny
 selain menganggukkan kepala, tetapi hatinya dipenuhi dengan kecemasan dan penyesalan, ia membenci dirinya sendiri karena tidak 
 bisa berbohong.
 
-[^bayi-perak]: Yin Wawa secara literal berarti 'Bayi perak', istilah ini dikarang seenaknya.
+[^bayi-perak]: Yin (银) Wawa secara literal berarti 'Bayi perak', istilah ini dikarang seenaknya.
 
 Nelayan itu hampir berteriak, "Jangan mimpi untuk ketemu guruku. Kalaupun aku harus menanggung omelan guru dan paman guruku, 
 aku tetap tidak menginginkan Jin Wawa atau Yin Wawa[^bayi-perak] lagi. Pergi saja ke gunung, cepat!"
@@ -825,11 +825,14 @@ Pang Bangzhu? Aku tidak percaya!"
 Guo Jing mengarahkan jarinya ke tongkat bambu di tangan Huang Rong, ia berkata, "Ini adalah Da Gou Bang milik Ketua Kai Pang, 
 pasti Paman mengenalinya."
 
-Nelayan itu mengangguk. "Kalau begitu, apa hubunganmu dengan Dewa Pengemis Sembilan Jari itu?" tanyanya.
+Nelayan itu mengangguk. "Kalau begitu, apa hubunganmu dengan Dewa Pengemis Sembilan Jari[^julukan-hong-qigong] itu?" tanyanya.
 
 "Dia adalah guru kami," jawab Guo Jing.
 
-"Ah!" si nelayan berseru, "Begitukah? Apa datang untuk menemui guruku juga atas perintah Dewa Pengemis Sembilan Jari?"
+[^julukan-hong-qigong]: Jiu Zhi Shen Gai (九指神丐) adalah julukan Hong Qigong, yang bisa diterjemahkan menjadi 'Dewa Pengemis Sembilan Jari'. Julukan itu didapat karena ia memang hanya memiliki sembilan jari, salah satu jarinya dipotongnya sendiri untuk mengatasi kerakusannya. Tetapi upaya ini gagal, ia tetap saja rakus.
+
+
+"Ah!" si nelayan berseru, "Begitukah? Apa datang untuk menemui guruku juga atas perintah Jiu Zhi Shen Gai?"
 
 Guo Jing ragu-ragu sebelum menjawab, Huang Rong dengan cepat menjawab, "Tentu saja."
 
@@ -1079,101 +1082,200 @@ Cepat, adalah kesalahan langit dan bumi,
 lambat, juga salah langit dan bumi!
 ```
 
-'Domba lereng bukit' adalah lagu populer dari akhir Dinasti Song, semua orang di mana pun bisa menyanyikan lagu itu. Lagunya hanya satu, tapi liriknya bisa diubah sesuai keinginan penyanyi, jadi mau tidak mau ada ratusan ribu variasi di luar sana, hanya sebagian besar kasar dan vulgar.
+'Domba lereng bukit' adalah lagu populer dari akhir Dinasti Song[^shan-po-yang], semua orang di mana pun bisa menyanyikan lagu itu. Lagunya hanya satu, tapi liriknya bisa diubah sesuai keinginan penyanyi, jadi mau tidak mau ada ratusan ribu variasi di luar sana, hanya sebagian besar kasar dan vulgar.
 
-Huang Rong memperhatikan bahwa lagu ini meratapi naik turunnya umat manusia, membawa makna yang mendalam; dia diam-diam memuji penyanyi itu. Dia melihat penyanyi itu keluar dari balik pelangi; tangan kirinya membawa seikat kayu bakar, sedangkan tangan kanannya memegang kapak; ternyata dia adalah seorang penebang kayu.
+[^shan-po-yang]: Hampir semua tautan yang kita dapatkan dari Google akan menyatakan bahwa lagu tersebut datang dari era Dinasti Yuan (Mongol), yang tentu saja ada di masa depan dari cerita ini sendiri, tepatnya di era Zhang Wuji atau masa kejayaan Zhang Sanfeng. 
 
-Huang Rong mengingat catatan Ying Gu yang berbunyi, 'Siapa pun yang mencari bantuan medis adalah hal yang tabu baginya, jika Anda menyebutkan niat Anda, sebelum Anda mencapai kediamannya, Anda akan dihentikan oleh tangan jahat seorang nelayan, penebang kayu, petani, dan seorang petani. sarjana.' Pada waktu itu dia tidak jelas apa yang dimaksud dengan 'nelayan, penebang kayu, petani dan sarjana', tapi sekarang dia menyadari orang yang menangkap 'jin wawa' adalah nelayan, dan sekarang dia melihat penebang kayu. Kemudian nelayan, penebang kayu, petani, dan sarjana harus menjadi murid Kaisar Duan atau pembantu tepercaya. Dia tidak bisa menahan perasaan cemas, “Benar-benar tidak mudah melewati nelayan itu. Lagu penebang kayu ini tidak vulgar, sepertinya dia tidak mudah dihadapi. Saya ingin tahu orang macam apa petani dan sarjana itu?
+Huang Rong memperhatikan bahwa lagu ini meratapi naik turunnya umat manusia, membawa makna yang mendalam. Ia diam-diam memuji 
+penyanyi itu. Ia melihat penyanyi itu keluar dari balik pelangi, tangan kirinya membawa seikat kayu bakar, sedangkan tangan 
+kanannya memegang kapak, ternyata ia adalah seorang penebang kayu.
 
-Sementara itu penebang kayu terus bernyanyi, “Di jembatan Tianjin, bersandar di pagar melihat jauh, udara royalti telah layu dan jatuh. Di antara pepohonan hijau tua dan air yang luas, dari platform awan kebangkitan tidak terlihat. Dari keabadian, dalam siklus kehidupan, semuanya musnah. Pahala, tidak akan bertahan selamanya! Nama, juga tidak akan bertahan selamanya!”
+Huang Rong mengingat catatan Ying Gu yang berbunyi, "Siapa pun yang mencari bantuan pengobatan adalah hal yang tabu baginya, 
+kalau kau menyebutkan niatmu, sebelum kau mencapai kediamannya, kau akan dihentikan oleh tangan jahat seorang nelayan, penebang 
+kayu, petani, dan sastrawan." Pada waktu itu ia tidak jelas apa yang dimaksud dengan 'nelayan, penebang kayu, petani dan 
+sastrawan', tapi sekarang ia menyadari orang yang menangkap Jin Wawa adalah nelayan, dan sekarang ia melihat penebang kayu. 
+Berarti nelayan, penebang kayu, petani, dan sastrawan itu kalau bukan murid-murid, pastilah orang-orang kepercayaan Kaisar Duan. 
+Mau tidak mau ia merasa cemas, "Benar-benar tidak mudah melewati nelayan itu. Lagu penebang kayu ini tidak vulgar, sepertinya 
+ia tidak mudah dihadapi. Aku jadi ingin tahu orang macam apa petani dan sarjana itu?"
 
-Dia perlahan berjalan mendekat dan melihat ke arah Jing dan Rong, arah dua orang; tetapi seolah-olah dia tidak melihat mereka, dia hanya menarik kapaknya dan mulai memotong kayu di lereng bukit.
+Sementara itu si penebang kayu terus bernyanyi, "Di jembatan Tianjin, bersandar di pagar melihat jauh, nuansa kekaisaran 
+telah layu dan jatuh. Di antara pepohonan hijau tua dan air yang luas, dari panggung awan kebangkitan tidak terlihat. Dari 
+keabadian, dalam siklus kehidupan, semuanya musnah. Pahala, tidak akan bertahan selamanya! Nama, juga tidak akan bertahan 
+selamanya!"
 
-Huang Rong memperhatikan wajah pria ini agung dan heroik, penampilannya seperti harimau. Cara dia mengangkat tangannya atau mengambil langkah membawa kekuatan yang mengesankan seperti seorang jenderal angkatan darat. Jika dia tidak mengenakan pakaian kasar dan memotong kayu di gunung terpencil ini, dia pasti memberi kesan sebagai jenderal yang memimpin pasukan besar. Hati Huang Rong tergerak, “Shifu berkata bahwa Kaisar Selatan, Kaisar Duan sebenarnya adalah seorang kaisar Dali di Yunnan; mungkinkah penebang kayu ini sebenarnya jendralnya? Hanya mengapa lagunya membawa perasaan putus asa dan sedih?” dia pikir.
+Ia perlahan berjalan mendekat dan melihat ke arah Guo Jing dan Huang Rong, tetapi seolah-olah ia tidak melihat mereka, ia 
+hanya menarik kapaknya dan mulai memotong kayu di lereng bukit.
 
-Penebang kayu terus bernyanyi, “Puncak gunung berdiri seolah-olah mereka berkumpul bersama, ombak bergulung seolah-olah mereka sedang marah. Pegunungan dan sungai di dalam dan sekitar jalan menuju Tongguan; memandang ke barat, hati penuh keraguan. Dinasti Qin dan Han yang berduka, istana mereka telah berubah menjadi debu. Berkembang, orang biasa menderita; binasa, rakyat jelata menderita!”
+Huang Rong memperhatikan wajah pria ini agung dan heroik, penampilannya seperti harimau. Caranya mengangkat tangan atau 
+mengambil langkah mengandung kekuatan yang mengesankan seperti seorang jendral angkatan darat. Jika tidak mengenakan pakaian 
+kasar dan memotong kayu di gunung terpencil ini, ia pasti memberi kesan sebagai jendral yang memimpin pasukan besar. Hati Huang 
+Rong tergerak, "Menurut Shifu Kaisar Selatan, Kaisar Duan, sebenarnya adalah seorang kaisar Dali di Yunnan. Apa mungkin penebang 
+kayu ini sebenarnya jendralnya? Hanya saja, mengapa lagunya membawa perasaan putus asa dan sedih?" pikirnya.
 
-Mendengarkan dua baris terakhir, Huang Rong teringat ayahnya sering berkata, 'Apa itu kaisar atau jenderal? Semuanya adalah penjahat yang merugikan orang biasa. Menggulingkan dinasti, mengubah nama keluarga; pada akhirnya rakyat jelata menderita!’ Dia tidak dapat menahan diri untuk tidak meneriakkan pujiannya, “Lagu yang bagus!”
+Si Penebang kayu terus bernyanyi, "Puncak gunung berdiri seolah-olah mereka berkumpul bersama, ombak bergulung seolah-olah 
+mereka sedang marah. Pegunungan dan sungai di dalam dan sekitar jalan menuju Tongguan, memandang ke barat, hati penuh keraguan. 
+Dinasti Qin dan Han berduka, istana mereka telah berubah menjadi debu. Selanjutnya, rakyat menderita, binasa, rakyat jelata 
+menderita!"
 
-Penebang kayu menoleh, memasukkan kapak kembali ke pinggangnya dia bertanya, “Bagus? Apa bagusnya?”
+Mendengarkan dua baris terakhir, Huang Rong teringat ayahnya sering berkata, "Apa itu kaisar atau jenderal? Semuanya adalah 
+penjahat yang merugikan orang biasa. Menggulingkan dinasti, mengubah nama keluarga, pada akhirnya rakyat jelata menderita!" 
+Ia tidak dapat menahan pujiannya, "Lagu bagus!"
 
-Huang Rong hendak menjawab, tetapi kemudian dia berpikir, "Dia suka menyanyi, mengapa saya tidak menyanyikan 'domba bukit' untuk menjawabnya?" Setelah itu dia tersenyum sedikit, menundukkan kepalanya dan bernyanyi, “Pegunungan hijau saling menunggu, awan putih saling mencintai; bahkan tidak memimpikan jubah ungu dan sabuk emas. Satu gubuk jerami di antara bunga liar yang bermekaran; mengapa khawatir tentang siapa yang berkembang dan siapa yang binasa? Cukuplah satu jalan kecil dan satu sendok sayur. Miskin, semangat tidak berubah; sukses, kemauan tidak berubah!”
+Penebang kayu menoleh, memasukkan kapak kembali ke pinggangnya ia bertanya, "Bagus? Apa bagusnya?"
 
-Dia telah menyimpulkan bahwa penebang kayu ini pasti jenderal yang mengikuti Kaisar Selatan ke tempat terpencil ini; sebelumnya dia harus memimpin seluruh pasukan, yang pernah memegang tempat terkemuka di kerajaan. Oleh karena itu, lagu yang dia nyanyikan adalah pujian atas jasa dan namanya, kepada orang yang hidup dengan puas di hutan pegunungan yang liar. Sebenarnya, meski jenaka dan cerdas, tentu saja dia bukanlah sarjana yang dalam waktu singkat mampu menciptakan lagu yang bagus seperti yang baru saja dinyanyikannya. Saat berada di Pulau Bunga Persik, dia mendengar ayahnya menyanyikan lagu ini; hanya dia mengubah beberapa karakter untuk menekankan kekayaan dan kehormatan penebang kayu ini di masa lalu dan sangat mementingkan pencapaiannya yang berjasa. Sayang sekali dia menderita cedera karena energi dalamnya tidak sekuat itu dan suaranya agak lemah. Seperti kata pepatah, 'qian chuan wan chuan, ma pi bu chuan!' [lit. seribu kali tembus, sepuluh ribu kali tembus; kentut kuda tidak menembus – artinya “Apa pun yang melewati saya kecuali kentut kuda” (Courtesy of Sunnysnow)] Lagu ini membuat penebang kayu sangat senang ketika mendengarnya. Dia telah memperhatikan bahwa Jing dan Rong, dua orang sedang menaiki perahu besi dan menggunakan dayung besi untuk mendayung di sepanjang sungai; pastilah nelayan di bawah gunung yang meminjamkan perahu itu kepada mereka. Dia tidak curiga, dan tanpa bertanya terlalu banyak dia hanya menunjuk ke lereng bukit dan berkata, "Naik ke sana!"
+Huang Rong hendak menjawab, tetapi kemudian ia berpikir, "Dia suka menyanyi, mengapa aku tidak menyanyikan Shan Po Yang untuk 
+menjawabnya?" Setelah itu ia tersenyum sedikit, menundukkan kepalanya dan bernyanyi, "Pegunungan hijau saling menunggu, awan 
+putih saling mencintai, bahkan tidak memimpikan jubah ungu dan sabuk emas. Satu gubuk jerami di antara bunga liar yang 
+bermekaran, mengapa kuatir tentang siapa yang berkembang dan siapa yang binasa? Cukuplah satu jalan kecil dan satu sendok 
+sayur. Miskin, semangat tidak berubah, sukses, kemauan tidak berubah!"
 
-Mereka melihat rotan panjang seukuran lengan manusia tergantung di sepanjang lereng bukit menuju puncak. Jing dan Rong, dua orang melihat ke atas untuk melihat setengah dari puncaknya tersembunyi di awan, tidak jelas seberapa tinggi puncaknya.
+Ia telah menyimpulkan bahwa penebang kayu ini pasti jendral yang mengikuti Kaisar Selatan ke tempat terpencil ini, sebelumnya 
+ia harus memimpin seluruh pasukan, yang pernah memegang tempat terkemuka di kerajaan. Oleh karena itu, lagu yang dinyanyikannya 
+adalah pujian atas jasa dan namanya, kepada orang yang hidup dengan puas di hutan pegunungan yang liar. Sebenarnya meski jenaka 
+dan cerdas, tentu saja ia bukan sastrawan yang dalam waktu singkat mampu menciptakan lagu yang bagus seperti yang baru saja 
+dinyanyikannya. Saat berada di Pulau Bunga Persik, ia mendengar ayahnya menyanyikan lagu ini, hanya saja ia mengubah beberapa 
+karakter untuk menekankan kekayaan dan kehormatan penebang kayu ini di masa lalu, dan sangat mementingkan pencapaiannya yang 
+besar. Sayang sekali ia menderita cedera, maka tenaga dalamnya tidak sekuat itu, dan suaranya agak lemah. Seperti kata pepatah, 
+Qian Chuan Wan Chuan, Ma Pi Bu Chuan[^pepatah-ma-pi]! Lagu ini membuat penebang kayu sangat senang ketika mendengarnya. Ia telah 
+memperhatikan bahwa Guo Jing dan Huang Rong sedang menaiki perahu besi dan menggunakan dayung besi untuk mendayung di sepanjang 
+sungai, pastilah nelayan di bawah gunung yang meminjamkan perahu itu kepada mereka. Ia tidak curiga, dan tanpa bertanya terlalu 
+banyak ia hanya menunjuk ke lereng bukit dan berkata, "Naik ke sana!"
 
-Ketika Huang Rong dan penebang kayu sedang menyanyikan lagu, Guo Jing bahkan tidak mengerti setengah kata pun dari apa yang mereka bicarakan. Saat penebang kayu melepaskan mereka dan mengarahkan mereka untuk naik, dia masih tidak tahu alasannya; tetapi takut penebang kayu itu akan berubah pikiran, tanpa berkata apa-apa dia membawa Huang Rong di punggungnya, meraih rotan panjang itu dengan kedua tangannya, dan dengan terengah-engah mulai memanjat.
+[^pepatah-ma-pi]: Qian Chuan Wan Chuan, Ma Pi Bu Chuan (千穿万穿 , 马屁不穿). Karakter Chuan (穿) secara literal berarti 'Dipakai/Terpakai/Memakai'. Sedangkan Ma Pi (马屁), alias 'Kentut Kuda' di sini adalah istilah umum untuk 'menjilat' atau 'memuji'. Secara literal kalimat ini berarti 'Dipakai ribuan kali, pujian tidak terpakai'. Tetapi makna sebenarnya adalah 'Puluhan ribu benda bisa rusak atau usang, lalu tidak berguna, hanya pujian yang selalu berguna'.
 
-Lengannya ditarik secara bergantian dan mereka merangkak dengan cepat. Dalam waktu singkat mereka telah mendaki sekitar selusin 'zhang; samar-samar mereka masih bisa mendengar si penebang kayu menyanyikan sesuatu seperti, “… dulu orang-orang berjuang, tapi di mana mereka sekarang? Kemenangan, semuanya berubah menjadi debu! Kalah, mereka semua berubah menjadi debu!”
+Mereka melihat rotan panjang seukuran lengan manusia tergantung di sepanjang lereng bukit menuju puncak. Guo Jing dan Huang Rong 
+mendongak dan melihat setengah dari puncaknya tersembunyi di awan, tidak jelas seberapa tinggi puncaknya.
 
-Berjongkok di punggung Guo Jing, Huang Rong tertawa dan berkata, "Jing Gege, menurut apa yang dia katakan, kita tidak perlu mencari bantuan medis."
+Ketika Huang Rong dan penebang kayu sedang menyanyikan lagu, Guo Jing bahkan tidak mengerti setengah kata pun dari apa yang 
+mereka ucapkan. Saat penebang kayu melepaskan mereka dan mengarahkan mereka untuk naik, ia masih tidak tahu alasannya, tetapi 
+takut penebang kayu itu akan berubah pikiran, tanpa berkata apa-apa ia segera membawa Huang Rong di punggungnya, meraih rotan 
+panjang itu dengan kedua tangannya, dan dengan terengah-engah mulai memanjat.
 
-Guo Jing bingung, "Apa?" Dia bertanya.
+Lengannya ditarik secara bergantian dan mereka merangkak dengan cepat. Dalam waktu singkat mereka telah mendaki sekitar selusin 
+zhang, samar-samar mereka masih bisa mendengar si penebang kayu menyanyikan sesuatu seperti, "... dulu orang-orang berjuang, 
+tapi di mana mereka sekarang? Menang, semuanya berubah menjadi debu! Kalah, mereka semua berubah menjadi debu!"
 
-“Bagaimanapun juga semua orang akan mati; jika saya sembuh, saya akan berubah menjadi debu! Jika saya tidak sembuh, saya akan tetap menjadi debu!” kata Huang Rong.
+Berjongkok di punggung Guo Jing, Huang Rong tertawa dan berkata, "Jing Gege, menurut apa yang dikatakannya, kita tidak perlu 
+repot-repot berobat."
 
-"Sayang!" Guo Jing meludah, "Jangan dengarkan dia."
+Guo Jing bingung, ia bertanya, "Apa?"
 
-Huang Rong dengan lembut bernyanyi, “Hidup, gendong aku di punggungmu! Mati, kamu menggendongku di punggungmu!”
+"Bagaimanapun juga semua orang akan mati, kalau sembuh, aku akan berubah menjadi debu! Kalau aku tidak sembuh, aku juga tetap akan menjadi debu!" kata Huang Rong.
 
-Bersamaan dengan lagu lucu Huang Rong, dua orang telah memasuki awan; yang mereka lihat hanyalah hamparan putih yang luas ke mana pun mereka memandang. Saat itu masih musim panas, cuacanya panas, tapi sebenarnya mereka merasakan hawa dingin di udara. Huang Rong menghela nafas, “Tepat di depan mata kita ada keajaiban yang tak terhitung jumlahnya; bahkan jika luka saya tidak dapat disembuhkan, perjalanan kami di sini tidak akan sia-sia.”
+"Puihh!" Guo Jing meludah, "Jangan dengarkan dia."
 
-"Rong'er," kata Guo Jing, "Bisakah kamu tidak menyebutkan hidup dan mati lagi?"
+Huang Rong dengan lembut bernyanyi, "Hidup, gendong aku di punggungmu! Mati, kau menggendongku di punggungmu!"
 
-Huang Rong menundukkan kepalanya dan tertawa, dia dengan lembut menghembuskan nafasnya di belakang leher Guo Jing. Guo Jing merasakan lehernya hangat dan gatal, dia berseru, "Jangan beri aku masalah! Jika tanganku terpeleset, kita berdua akan terjun ke kematian kita.”
+Bersamaan dengan lagu lucu Huang Rong, keduanya telah memasuki awan, yang mereka lihat hanyalah hamparan putih yang luas 
+ke mana pun mereka memandang. Saat itu masih musim panas, cuacanya panas, tapi sebenarnya mereka merasakan hawa dingin 
+di udara. Huang Rong menghela nafas, "Tepat di depan mata kita ada keajaiban yang tak terhitung jumlahnya, kalaupun lukaku 
+tidak bisa disembuhkan, perjalanan kita di sini tidak akan sia-sia."
 
-Huang Rong tertawa, "Baik!" dia berkata, "Kali ini bukan aku yang berbicara tentang hidup dan mati!"
+"Rong'er," kata Guo Jing. "Bisakah kau tidak menyebutkan hidup dan mati lagi?"
 
-Guo Jing tertawa, dia tidak bisa menjawab; dia merangkak lebih cepat dan sesaat kemudian mereka sampai di ujung, atau tepatnya, akar tempat rotan tumbuh. Ternyata mereka sudah sampai di puncak. Mereka baru saja menginjakkan kaki di tanah yang kokoh ketika tiba-tiba terdengar suara gemuruh yang keras, seolah-olah batu gunung pecah; dan kemudian mereka juga mendengar seekor lembu melenguh dengan keras, diikuti dengan teriakan keras seorang pria.
+Huang Rong menundukkan kepalanya dan tertawa, ia dengan lembut menghembuskan nafasnya di belakang leher Guo Jing. Guo Jing 
+merasakan lehernya hangat dan gatal, ia berseru, "Jangan beri aku masalah! Jika tanganku terpeleset, kita berdua akan terjun 
+ke alam maut."
 
-Guo Jing terkejut, “Puncak ini sangat tinggi, namun ada seekor lembu di sini. Sangat aneh!" Membawa Huang Rong di punggungnya, dia bergegas menuju kebisingan.
+Huang Rong tertawa. "Baik!" katanya. "Kali ini bukan aku yang bicara tentang hidup dan mati!"
 
-“Nelayan, penebang kayu, petani dan sarjana. Jika ada seorang petani, maka pasti ada seekor lembu,” kata Huang Rong.
+Guo Jing tertawa, ia tidak bisa menjawab, ia merangkak lebih cepat dan sesaat kemudian mereka sampai di ujung, atau tepatnya 
+akar tempat rotan tumbuh. Ternyata mereka sudah sampai di puncak. Mereka baru saja menginjakkan kaki di tanah yang kokoh ketika 
+tiba-tiba terdengar suara gemuruh yang keras, seolah-olah batu gunung pecah, dan kemudian mereka juga mendengar seekor lembu 
+melenguh dengan keras, diikuti dengan teriakan keras seorang laki-laki.
 
-Dia baru saja selesai berbicara ketika mereka melihat seekor lembu kuning di lereng bukit dengan kepala terangkat, berteriak keras; tetapi lembu itu sebenarnya dalam posisi yang sangat aneh. Itu berbaring telentang di atas batu, keempat kakinya berjuang tetapi tidak bisa berdiri. Batu itu bergetar, siap jatuh, di bawah batu itu ada seorang lelaki yang menggantung batu itu dengan kedua tangan di atas kepalanya seperti huruf T; jika tangannya terpeleset, baik batu maupun lembu itu akan jatuh ke ngarai di bawah. Pria itu berdiri di atas tebing yang menonjol, tidak ada tempat untuk mundur. Jika dia tidak mau melepaskan lembu itu, batu itu akan hancur dan tidak hanya mematahkan lengannya, tetapi juga kakinya. Melihat kondisi mereka, tampaknya lembu itu sedang merumput di lereng bukit dan menginjak batu yang lepas. Pria yang berada di dekatnya mencoba menyelamatkan lembu itu dengan menangkap batu itu tetapi berakhir dalam situasi genting ini.
+Guo Jing terkejut, "Puncak ini sangat tinggi, tapi bisa ada seekor sapi di sini. Sangat aneh!" Sambil membawa Huang Rong di 
+punggungnya, ia bergegas menuju ke sumber suara itu.
 
-Huang Rong tersenyum, "Baru saja kami mendengar lagu 'domba bukit', dan sekarang kami melihat 'sapi bukit'!" dia berkata.
+"Nelayan, penebang kayu, petani dan sastrawan. Jika ada seorang petani, maka pasti ada seekor sapi," kata Huang Rong.
 
-Di puncak gunung itu ada sebidang tanah datar, sudah dibajak siap untuk ditanami, sekitar dua puluh 'mu [sekitar 1,6 hektar atau 2/3 hektar] sawah. Ada cangkul di pinggir lapangan. Orang yang memegang batu bertelanjang dada, kakinya berlumuran lumpur sampai lutut; tampak seperti lembu yang jatuh ketika dia sedang menyiangi rumput.
+Ia baru saja selesai bicara ketika mereka melihat seekor lembu kuning di lereng bukit dengan kepala terangkat, bersuara keras, 
+tetapi lembu itu sebenarnya dalam posisi yang sangat aneh. Ia berbaring telentang di atas batu, keempat kakinya berjuang 
+tetapi tidak bisa berdiri. Batu itu bergetar, siap jatuh, di bawah batu itu ada seorang lelaki yang menggantung batu itu 
+dengan kedua tangan di atas kepalanya seperti huruf 'T', jika tangannya terpeleset, baik batu maupun lembu itu akan jatuh ke 
+jurang. Pria itu berdiri di atas tebing yang menonjol, tidak ada tempat untuk mundur. Jika ia tidak mau melepaskan lembu itu, 
+batu itu akan hancur dan tidak hanya mematahkan lengannya, tetapi juga kakinya. Melihat kondisi mereka, tampaknya lembu itu 
+sedang merumput di lereng bukit dan menginjak batu yang lepas. Pria yang berada di dekatnya mencoba menyelamatkan lembu itu 
+dengan menangkap batu itu tetapi berakhir dalam situasi genting ini.
 
-Huang Rong melihat sekeliling untuk menilai situasinya, dia merenung dalam hatinya, “Pria ini jelas adalah 'petani' dari 'nelayan, penebang kayu, petani dan sarjana'. Sapi beratnya kira-kira tiga ratus kati [sekitar 300 pon atau 150 kg]; sepertinya batu itu tidak lebih ringan dari lembu. Meskipun setengah dari batu itu bersandar di lereng bukit, namun melihat kakinya yang kokoh, pria ini memiliki kekuatan yang luar biasa.”
+Huang Rong tersenyum. "Baru saja kita mendengar lagu 'domba di kaki bukit', dan sekarang kita melihat 'sapi di bukit'!" 
+katanya.
 
-Guo Jing sudah menurunkannya dan bergegas membantu. Huang Rong buru-buru berseru, "Jangan terlalu cepat, jangan gegabah!" Tapi menurut Guo Jing membantu orang lain lebih penting; dia sudah tiba di sisi petani.
+Di puncak gunung itu ada sebidang tanah datar, sudah dibajak siap untuk ditanami, sekitar 
+[dua puluh mu](referensi-unit.md#satuan-mu "sekitar 1.6 hektar") sawah. Ada cangkul di pinggir lapangan. Orang yang memegang 
+batu bertelanjang dada, kakinya berlumuran lumpur sampai ke lutut, tampak seperti lembu yang jatuh ketika sedang menyiangi 
+rumput.
 
-Dia berjongkok di bawah batu dan mengangkatnya sambil berkata, "Aku akan memegangnya, kamu pergi dan selamatkan lembu itu dulu!"
+Huang Rong melihat ke sekeliling untuk menilai situasinya, ia berpikir, "Orang ini jelas adalah Si Petani dari 
+sederetan orang yang dimaksud. Sapi beratnya kira-kira 
+[tiga ratus kati](referensi-unit.md#kati "sekitar 150 kg"), sepertinya batu itu tidak lebih ringan dari lembu. Meskipun setengah 
+dari batu itu bersandar di lereng bukit, namun melihat kakinya yang kokoh, pria ini memiliki kekuatan yang luar biasa."
 
-Petani itu merasa bebannya semakin ringan, tetapi dia masih takut Guo Jing mungkin tidak cukup kuat untuk menopang lembu dan batu besar itu. Dia melepaskan tangan kanannya dan bersandar ke samping, tetapi tangan kirinya masih menopang dasar batu. Guo Jing memantapkan kakinya, lalu mengerahkan kekuatan internalnya dan mendorong ke atas dengan kedua tangannya; batu itu terangkat sekitar satu kaki, memberi kesempatan kepada petani itu untuk melepaskan tangan kirinya.
+Guo Jing sudah menurunkannya dan bergegas membantu. Huang Rong buru-buru berseru, "Jangan terlalu cepat, jangan gegabah!" Tapi 
+menurut Guo Jing membantu orang lain lebih penting, ia sudah tiba di sisi petani.
 
-Petani itu menunggu sebentar. Setelah melihat bahwa batu besar itu tidak akan hancur, dia tahu kekuatan Guo Jing cukup untuk menopangnya. Akhirnya dia membungkuk dan keluar dari bawah batu, melompat ke lereng bukit untuk menyelamatkan lembu kuning itu. Dia tidak bisa tidak mencuri pandang ke arah Guo Jing untuk melihat pahlawan macam apa yang tiba-tiba datang dan menawarkan bantuan. Dia heran karena apa yang dilihatnya adalah seorang anak muda berusia delapan belas, sembilan belas tahun. Lebih mengejutkan lagi, tangan anak muda ini mengangkat batu dan lembu itu tanpa memaksakan diri.
+Ia berjongkok di bawah batu dan mengangkatnya sambil berkata, "Aku akan memegangnya, kau pergi dan selamatkan lembu itu dulu!"
 
-Petani itu selalu bangga memiliki kekuatan fisik yang luar biasa, namun jelas kekuatan anak muda ini jauh di atas dirinya. Kecurigaannya muncul; dia juga melihat ke bawah lereng bukit dan melihat seorang wanita muda bersandar di batu, ekspresi wajahnya lelah, seperti sedang menderita penyakit serius. Kecurigaannya semakin dalam, “Teman, apa yang kamu lakukan di sini?” dia bertanya pada Guo Jing.
+Petani itu merasa bebannya semakin ringan, tetapi ia masih takut Guo Jing mungkin tidak cukup kuat untuk menopang lembu dan batu 
+besar itu. Ia melepaskan tangan kanannya dan bersandar ke samping, tetapi tangan kirinya masih menopang dasar batu. Guo Jing 
+memantapkan kakinya, lalu mengerahkan tenaga dalamnya dan mendorong ke atas dengan kedua tangannya, batu itu terangkat sekitar 
+satu kaki, memberi kesempatan kepada petani itu untuk melepaskan tangan kirinya.
 
-"Untuk mencari audiensi dengan tuanmu," jawab Guo Jing.
+Petani itu menunggu sebentar. Setelah melihat bahwa batu besar itu tidak akan hancur, ia tahu kekuatan Guo Jing cukup untuk 
+menopangnya. Akhirnya ia membungkuk dan keluar dari bawah batu, melompat ke lereng bukit untuk menyelamatkan lembu kuning itu. 
+Ia tidak bisa tidak mencuri pandang ke arah Guo Jing untuk melihat pahlawan macam apa yang tiba-tiba datang dan menawarkan 
+bantuan. Ia heran karena apa yang dilihatnya adalah seorang anak muda berusia delapan belas, sembilan belas tahun. Lebih 
+mengejutkan lagi, tangan anak muda ini mengangkat batu dan lembu itu tanpa memaksakan diri.
 
-"Untuk tujuan apa?" tanya petani itu lagi.
+Petani itu selalu bangga memiliki kekuatan fisik yang luar biasa, namun jelas kekuatan anak muda ini jauh di atas dirinya. 
+Kecurigaannya muncul, ia juga melihat ke bawah lereng bukit dan melihat seorang anak perempuan bersandar di batu, ekspresi 
+wajahnya lelah, seperti sedang menderita penyakit serius. Kecurigaannya semakin dalam, "Teman, apa yang kalian lakukan di sini?" tanyanya kepada Guo Jing.
 
-Guo Jing terkejut dan sesaat tidak tahu bagaimana menjawabnya. Huang Rong di samping berseru, “Cepat tarik lembu itu ke tempat yang aman dulu, tidak akan terlambat untuk bertanya nanti. Jika tangannya terpeleset, bukankah manusia dan lembu itu akan jatuh bersamaan?”
+"Ingin bertemu dengan gurumu," jawab Guo Jing.
 
-Petani itu berpikir, “Keduanya ada di sini untuk melihat Shifu, mengapa kedua kakak seperguruanku yang turun gunung tidak menembakkan panah bersiul? Jika keduanya menerobos mereka, itu berarti seni bela diri mereka tidak bisa dianggap enteng. Sekarang sementara tangannya tidak bebas, saya perlu memahami masalah ini dengan lebih baik.” Setelah itu dia bertanya, "Apakah Anda akan meminta Shifu saya untuk mengobati luka Anda?"
+"Untuk apa?" tanya petani itu lagi.
 
-Guo Jing berpikir, "Orang-orang di pegunungan sudah sadar, tidak perlu menyembunyikan kebenaran darinya." Dia hanya menganggukkan kepalanya.
+Guo Jing terkejut dan sesaat tidak tahu bagaimana menjawabnya. Huang Rong di samping berseru, "Cepat tarik sapi itu ke tempat 
+yang aman dulu, tidak akan terlambat untuk bertanya nanti. Kalau tangannya terpeleset, maka baik orang dan sapi itu akan jatuh 
+bersamaan!"
 
-Wajah petani sedikit berubah, "Saya perlu bertanya dulu," katanya. Tanpa menarik lembu itu, dia melompat menuruni lereng bukit.
+Petani itu berpikir, "Keduanya ada di sini untuk ketemu Shifu, kenapa kedua kakak seperguruanku yang turun gunung tidak 
+menembakkan panah bersiul? Kalau keduanya menerobos mereka, itu berarti kungfu mereka tidak bisa dianggap enteng. Sekarang 
+sementara tangannya tidak bebas, aku perlu memahami masalah ini dengan lebih baik." Setelah itu ia bertanya, "Kalian ingin 
+meminta Shifu untuk mengobati luka?"
 
-"Hai!" Guo Jing berteriak, "Bantu aku meletakkan batu ini dulu, baru kita bisa bicara!"
+Guo Jing berpikir, "Orang-orang di pegunungan sudah sadar, tidak perlu menyembunyikan kebenaran darinya." Ia hanya menganggukkan 
+kepalanya.
 
-Petani itu tersenyum, “Saya akan segera kembali.”
+Wajah petani sedikit berubah, "Aku perlu bertanya dulu," katanya. Tanpa menarik lembu itu, ia melompat menuruni lereng bukit.
 
-Mengamati apa yang sedang terjadi, Huang Rong sudah menebak sejak awal niat petani itu; dia ingin menyia-nyiakan kekuatan Guo Jing. Dia akan dengan sengaja menunggu Guo Jing lelah karena menahan batu itu, dan kemudian dia akan kembali dan membantu. Pada saat itu akan mudah untuk mengusir kedua orang ini turun gunung. Dia membenci dirinya sendiri karena terluka pada saat seperti ini sehingga dia tidak dapat membantu Guo Jing mendorong batu besar itu. Dia melihat petani itu berlari keluar dari ladang, tidak tahu kapan dia akan kembali; dia cemas dan marah pada saat yang sama. "Hei, Paman!" dia berteriak, "Tolong kembali!"
+"Hai!" seru Guo Jing. "Bantu aku meletakkan batu ini dulu, baru kita bisa bicara!"
 
-Petani itu berhenti sejenak dan tersenyum, “Dia memiliki kekuatan yang luar biasa, tidak ada hal buruk yang akan terjadi padanya dalam waktu tiga perempat atau satu jam, jangan khawatir,” katanya.
+Petani itu tersenyum, "Aku segera kembali."
 
-Huang Rong marah, dia berpikir, “Jing Gege cukup baik untuk membantumu, tetapi kamu sebenarnya menipu dia dan membiarkannya terjebak selama tiga perempat atau satu jam. Saya harus menemukan cara untuk memberi Anda pelajaran. Dia mengerutkan alisnya dan memikirkan sebuah ide, “Paman,” serunya, “Kamu ingin meminta nasihat Gurumu, itu sangat masuk akal. Ini adalah surat dari Guru Kebajikan Hong Qigong yang akan dikirimkan kepada Guru Anda. Bisakah Anda membawanya?”
+Mengamati apa yang sedang terjadi, Huang Rong sudah menebak sejak awal niat petani itu, ia ingin menguras tenaga Guo Jing. Ia 
+akan dengan sengaja menunggu Guo Jing lelah karena menahan batu itu, dan kemudian ia akan kembali dan membantu. Pada saat itu 
+akan mudah untuk mengusir kedua orang ini turun gunung. Ia membenci dirinya sendiri karena terluka pada saat seperti ini, 
+karenanya ia tidak dapat membantu Guo Jing mendorong batu besar itu. Ia melihat petani itu berlari keluar dari ladang, tidak 
+tahu kapan ia akan kembali, ia cemas dan sekaligus marah. "Hei, Paman!" serunya. "Tolong kembali!"
 
-"Ah!" mendengar nama Hong Qigong, petani itu berseru kaget, “Ternyata Nona adalah murid Pengemis Dewa Berjari Sembilan. Apakah ini Xiao Ge [lit. adik laki-laki kecil / muda] juga milik sekolah Senior Hong? Tidak heran dia sebaik ini. Dia kembali untuk mengambil surat itu.
+Petani itu berhenti sejenak dan tersenyum, "Dia punya kekuatan yang luar biasa, tidak ada hal buruk yang akan terjadi padanya 
+dalam waktu tiga perempat atau satu jam, jangan kuatir," katanya.
 
-Huang Rong mengangguk, “Hei, dia adalah saudara seperjuanganku, mampu mengangkat beberapa ratus kati. Berbicara tentang seni bela diri dia tidak terlalu jauh di bawah Paman.” Perlahan dia membuka karungnya, pura-pura menemukan surat itu; tapi pertama-tama dia mengambil baju besi landak yang lembut, dan kemudian mengalihkan pandangannya ke arah Guo Jing, wajahnya terlihat ketakutan. “Aiyo! Tidak baik!" dia berseru, “Telapak tangannya akan dihancurkan. Paman, cepat cari cara untuk membantunya.”
+Huang Rong marah, ia berpikir, "Jing Gege berbaik hati membantumu, tetapi kau sebenarnya menipu dia dan membiarkannya terjebak 
+selama tiga perempat atau satu jam. Aku harus menemukan cara untuk memberimu pelajaran." Ia mengerutkan alisnya dan memikirkan 
+sebuah ide. "Paman," serunya. "Kau ingin minta nasihat gurumu, itu sangat masuk akal. Ini adalah surat dari guru kami Hong 
+Qigong yang akan dikirimkan kepada gurumu. Bisa sekalian kau bawa?"
+
+"Ah!" mendengar nama Hong Qigong, petani itu berseru kaget, "Ternyata Nona adalah murid Dewa Pengemis Sembilan Jari. Apa Xiao Ge 
+ini juga murid Hong Lao Qianbei? Tidak heran dia sebagus ini." Ia kembali untuk mengambil surat itu.
+
+Huang Rong mengangguk, "Hei, dia kakak seperjuanganku, mampu mengangkat beberapa ratus kati. Berbicara tentang kungfu, dia tidak 
+terlalu jauh di bawah Paman." Perlahan ia membuka bungkusannya, pura-pura mencari surat itu, tapi pertama-tama ia mengambil 
+rompi kulit landak yang lembut, dan kemudian mengalihkan pandangannya ke arah Guo Jing, wajahnya terlihat ketakutan. "Aiyo! 
+Celaka!" serunya. "Telapak tangannya akan hancur. Paman, cepat cari cara untuk membantunya."
+
+**Bagian setelah ini masih Draft**
 
 Petani itu terkejut, tetapi kemudian dia tertawa, “Dia baik-baik saja,” katanya, “Di mana surat itu?” Dia mengulurkan tangannya untuk mengambil surat itu.
 
