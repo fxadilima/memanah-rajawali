@@ -46,6 +46,16 @@ supaya bisa diakses dari bab manapun.
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1685477335/misc/yindu-kid-19-2_phitoh.webp"
             alt="titik Akupuntur Yin Du">
     </dd>
+    <dt id="qu-ze">Titik Akupuntur Qu Ze</dt>
+    <dd>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1685626173/misc/PC3_p7xnak.jpg"
+            alt="titik Akupuntur Qu Ze">
+    </dd>
+    <dt id="qu-ze">Titik Akupuntur Shen Feng</dt>
+    <dd>
+        <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1685629103/misc/zuj8hu4h0jljnhql9d01.jpg"
+            alt="titik Akupuntur Shen Feng">
+    </dd>
 </dl>
 
 

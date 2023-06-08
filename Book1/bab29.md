@@ -263,409 +263,746 @@ bisa sekasar itu?" katanya. "Rong'er, ayo pergi."
 Ying Gu dengan dingin tersenyum dan berkata, "Dua gubuk kecil Ying Gu, apakah menurutmu dua anak kecil seperti kalian bisa 
 datang dan pergi seenaknya begitu?" Dengan dua potongan bambu di tangannya, ia berdiri di ambang pintu, menghalangi pintu keluar.
 
-Guo Jing berpikir, "Bicara tidak berguna, harus menggunakan kekuatan." Dia berseru, "Senior, maafkan saya karena bersikap kasar." Dia sedikit menekuk lututnya; membuat lingkaran dengan tangannya, dia meluncurkan Proud Dragon Repens langsung ke pintu. Sikap ini adalah yang paling sengit; dia takut Ying Gu tidak bisa menahannya, jadi dia hanya menggunakan 30% dari kekuatannya. Niatnya hanyalah untuk membuka jalan; dia tidak ingin menyakiti siapa pun. Saat embusan angin tiba di tubuh Ying Gu, Guo Jing memperhatikan dengan seksama bagaimana Ying Gu akan memblokir serangan ini; apakah dia harus meningkatkan kekuatannya atau menariknya segera. Siapa sangka Ying Gu hanya menyandarkan tubuhnya sedikit, telapak tangan kirinya membuat gerakan diagonal untuk mendorong lengannya dengan ringan dan kekuatan Guo Jing dialihkan ke samping.
+Guo Jing berpikir, "Bicara tidak ada gunanya, harus pakai tenaga." Ia berseru, "Qianbei, maafkan aku karena bersikap kasar." 
+Ia menekuk lututnya sedikit, membuat lingkaran dengan tangannya, ia meluncurkan Kang Long You Hui langsung ke pintu. Jurus ini 
+sangat dahsyat, ia takut Ying Gu tidak bisa menahannya, jadi ia hanya menggunakan tiga puluh persen dari tenaganya. Niatnya 
+hanyalah untuk membuka jalan, ia tidak ingin menyakiti siapa pun. Saat hembusan angin tiba di tubuh Ying Gu, Guo Jing 
+memperhatikan dengan seksama bagaimana Ying Gu akan memblokir serangan ini, apakah ia harus menambah tenaganya atau menariknya 
+segera. Secara tak terduga, Ying Gu hanya memiringkan tubuhnya sedikit, telapak tangan kirinya membuat gerakan diagonal untuk 
+mendorong lengannya dengan ringan dan tenaga Guo Jing dialihkan ke samping.
 
-Guo Jing tidak menyangka dia memiliki keterampilan setinggi itu; dia didorong maju setengah langkah dari momentum kekuatannya sendiri. Ying Gu juga terkejut bahwa dengan serangan yang begitu kuat Guo Jing mampu mempertahankan pendiriannya dengan kuat di atas pasir dan tidak jatuh. Dari satu pertukaran ini, keduanya diam-diam mengagumi keterampilan lawan mereka.
+Guo Jing tidak menyangka ia punya ilmu setinggi itu, ia terdorong maju setengah langkah dari momentum tenaganya sendiri. Ying Gu 
+juga terkejut bahwa dengan serangan yang begitu kuat Guo Jing mampu mempertahankan kuda-kudanya dengan kuat di atas pasir dan 
+tidak jatuh. Dari satu gebrakan ini keduanya diam-diam mengagumi kemampuan lawan mereka.
 
-"Nak, apakah kamu sudah mempelajari seluruh keterampilan Shifu-mu?" Ying Gu memanggil dengan keras. Sambil berteriak, dia menggunakan potongan bambunya untuk memukul titik akupuntur 'qu ze' [rawa bengkok] di tikungan lengan kanan Guo Jing. Itu adalah titik penting, Guo Jing tidak berani mengabaikan serangan ini. Dia melakukan serangan balik dengan jurus lain dari 18-Dragon Subduing Palms.
+"Nak, kau sudah mempelajari seluruh keterampilan gurumu?" seru Ying Gu dengan keras. Sambil berteriak ia menggunakan potongan 
+bambunya untuk menotok 
+[titik akupuntur Qu Ze](acupoints.md#qu-ze) di tikungan lengan kanan Guo Jing. Itu adalah titik penting, Guo Jing tidak berani 
+mengabaikan serangan ini. Ia melakukan serangan balik dengan jurus lain dari Delapan Belas Jurus Penakluk Naga.
 
-Setelah bertukar beberapa gerakan, Guo Jing menyadari bahwa seni bela diri Ying Gu adalah murni karakter 'yin' [negatif, perempuan], dari sisi 'lunak'. Jelas dia tidak melakukan satu serangan frontal, tetapi setiap gerakannya berisi serangan balik yang mematikan; jika Guo Jing tidak tahu pertarungan tangan timbal balik, dia akan terluka sejak dini.
+Setelah beberapa jurus, Guo Jing menyadari bahwa kungfu Ying Gu adalah murni bersifat Yin, yang lunak. Jelas ia tidak melakukan 
+satu serangan frontal, tetapi setiap gerakannya berisi serangan balik yang mematikan, jika Guo Jing tidak menguasai Shuang Shou Hu Bo yang diajarkan Zhou Botong, ia akan terluka sejak dini.
 
-Semakin dia bertarung, semakin dia tidak berani meremehkannya; secara bertahap dia meningkatkan kekuatan telapak tangannya, tetapi seni bela diri Ying Gu adalah satu-satunya; pendiriannya tampak lembut dan tidak berdaya, namun itu seperti merkuri yang mengalir dengan cepat, menembus setiap lubang, membuatnya hampir mustahil untuk dilawan.
+Semakin bertarung semakin ia tidak berani meremehkannya, secara bertahap ia meningkatkan tenaga telapak tangannya, tetapi kungfu Ying Gu sangat unik, gerakannya tampak lembut dan tak bertenaga, tetapi seperti merkuri yang mengalir deras, menembus setiap 
+lubang, membuatnya hampir mustahil untuk dilawan.
 
-Beberapa langkah kemudian Guo Jing terpaksa mundur dua langkah. Tiba-tiba dia teringat nasihat Hong Qigong ketika dia berdebat dengan 'luo ying shen jian zhang' Huang Rong [teknik pedang dewa daun jatuh]; bahwa terlepas dari ribuan perubahan atau puluhan ribu variasi yang digunakan lawan, dia harus mengabaikan semuanya dan terus bertarung menggunakan '18-Dragon Subduing Palms' untuk mengamankan kemenangan.
+Beberapa langkah kemudian Guo Jing terpaksa mundur dua langkah. Tiba-tiba ia teringat nasihat Hong Qigong ketika ia berhadapan 
+dengan Luo Ying Shen Jian Zhang Huang Rong, terlepas dari ribuan perubahan atau puluhan ribu variasi yang digunakan lawan, ia 
+harus mengabaikan semuanya dan terus bertarung menggunakan Delapan Belas Jurus Penakluk Naga untuk memastikan kemenangan.
 
-Awalnya dia mengira dia tidak punya keinginan untuk bertarung; selain itu, wanita itu terlihat seperti Senior yang baik dan baik hati. Tetapi tanpa permusuhan atau melakukan kesalahan apa pun, dia telah mencegah mereka keluar dari gerbang. Guo Jing masih tidak ingin terjerat atau lebih buruk lagi, melukai hidupnya; karenanya dia hanya menggunakan 30% dari kekuatannya; siapa sangka wanita ini sangat ganas. Jika dia sedikit lalai, keduanya akan mati di tempat itu.
+Awalnya ia tidak punya keinginan untuk bertarung, selain itu wanita ini terlihat seperti seorang Qianbei yang baik. Tetapi tanpa 
+permusuhan atau melakukan kesalahan apa pun, ia mencegah mereka keluar dari gerbang. Guo Jing masih tidak ingin terlibat atau 
+lebih buruk lagi, melukainya, karenanya ia hanya menggunakan tiga puluh persen dari tenaganya, tapi tak terduga wanita ini 
+ternyata sangat kejam. Jika ia lengah sedikit saja, keduanya akan mati di tempat itu.
 
-Guo Jing menarik napas dalam-dalam, mengangkat kedua sikunya sedikit, tangan kanan membentuk kepalan tangan dan tangan kiri telapak tangan, yang satu memukul secara vertikal, yang lain mendorong secara horizontal, yang satu cepat yang lain lambat, kedua tangan bergerak keluar. Itu adalah sikap keenam belas dari '18-Dragon Subduing Palms', 'lu shuang bing zhi' [menginjak es untuk mencapai es], yang diajarkan oleh Hong Qigong di aula leluhur Liu di Baoying. Dalam sikap keras dan lembut ini saling melengkapi, tegak dan terbalik saling melengkapi; keuntungannya tidak terbatas.
+Guo Jing menarik napas dalam-dalam, mengangkat kedua sikunya sedikit, tangan kanan membentuk kepalan tangan dan tangan kiri 
+telapak tangan, yang satu memukul secara vertikal, yang lain mendorong secara horizontal, yang satu cepat yang lain lambat, kedua 
+tangan bergerak keluar. Itu jurus keenam belas dari Delapan Belas Jurus Penakluk Naga, 
+[Lu Shuang Bing Zhi](referensi-karakter.md#lu-shuang-bing-zhi "Menginjak Es"), yang diajarkan oleh Hong Qigong di aula leluhur 
+Liu di Baoying. Dalam jurus ini keras dan lembut saling melengkapi, tegak dan terbalik saling melengkapi, keuntungannya tidak 
+terbatas.
 
-Seni bela diri Hong Qigong berasal dari sisi 'keras' dan 'yang' [positif, laki-laki], tetapi ketika kekerasan mencapai puncaknya, secara default akan ada kelembutan di tengah kekerasan. Dasar dari seni bela diri ini dapat ditemukan dalam Kitab Perubahan ['I Ching'], di mana 'yang' yang lebih tua melahirkan 'yin' yang lebih muda. Oleh karena itu, di dalam Proud Dragon Repent dan Menginjak Frost untuk Mencapai Es, energi keras dan kekuatan lunak bercampur menjadi satu dan tidak mungkin dibedakan.
+Kungfu Hong Qigong bersifat Yang, yaitu panas dan keras, tetapi ketika kekerasan mencapai puncaknya, secara alamiah akan ada 
+kelembutan di tengah kekerasan. Dasar dari kungfu ini dapat ditemukan dalam Kitab Perubahan, Yijing, di mana Yang yang lebih tua 
+melahirkan Yin yang lebih muda. Oleh karena itu di dalam Kang Long You Hui dan Lu Shuang Bing Zhi, tenaga keras dan tenaga lunak 
+bercampur menjadi satu dan tidak mungkin dibedakan.
 
-"Ah!" Ying Gu dengan lembut berseru dan buru-buru mengelak; dia berhasil melepaskan diri dari tinju kanan Guo Jing, tetapi terkena tendangan kirinya. Dia juga tidak bisa menghindari telapak kiri horizontal Guo Jing, yang mendorong bahu kanannya.
+"Ah!" Ying Gu dengan lembut berseru dan buru-buru mengelak, ia berhasil melepaskan diri dari tinju kanan Guo Jing, tetapi 
+terkena tendangan kirinya. Ia juga tidak bisa menghindari telapak kiri horizontal Guo Jing, yang mendorong bahu kanannya.
 
-Saat kekuatan telapak tangannya mencapai target, Guo Jing yakin dia akan terdorong ke belakang ke dinding. Dia takut dinding tanah gubuk beratap jerami ini tidak akan cukup kuat dan runtuh; tetapi anehnya ketika telapak tangannya menyentuh bahunya, dia merasa tubuhnya ditutupi lapisan pelumas tebal yang sangat licin sehingga telapak tangannya tergelincir ke samping. Tapi tubuhnya juga gemetar dan dua potongan bambu di tangannya jatuh ke tanah.
+Saat tenaga telapak tangannya mencapai target, Guo Jing yakin ia akan terdorong ke belakang, ke dinding. Ia takut dinding tanah 
+gubuk beratap jerami ini tidak akan cukup kuat dan runtuh, tetapi anehnya ketika telapak tangannya menyentuh bahunya, ia merasa 
+tubuhnya ditutupi lapisan pelumas tebal yang sangat licin sehingga telapak tangannya tergelincir ke samping. Tapi tubuh Ying Gu 
+juga tergetar, dan dua potongan bambu di tangannya jatuh ke tanah.
 
-Guo Jing terkejut, dengan cepat dia menahan kekuatannya; tapi kelincahan Ying Gu luar biasa, dia sudah memanfaatkan situasi yang menguntungkan. Sepuluh jarinya melesat ke depan dan menyerang titik akupuntur 'shen feng' [rahmat ilahi] dan 'yu shu' [huruf giok] di dada Guo Jing. Teknik penyegelan acupoint-nya sangat bagus.
+[^yu-shu]: Titik akupuntur Yu Shu ini tidak ditemukan dalam daftar, kemungkinan salah terjemahan atau entah kesalahan lainnya.
 
-Guo Jing merasa sudah terlambat untuk menangkis; dia sedikit condong ke samping. Langkahnya mirip dengan jurus yang dia gunakan barusan, tapi serangan pembunuhan disembunyikan di dalam jurus itu. Sesuatu bergerak di dalam hatinya, “Teknik penyegelan titik akupunturnya agak mirip dengan [Big Brother Zhou] Zhou Dage; jika saya tidak berlatih dengan Zhou Dage selama ribuan dan puluhan ribu kali di gua itu, saya tidak akan dapat menghindari serangannya sekarang.”
+Guo Jing terkejut, dengan cepat ia menahan tenaganya, tapi kelincahan Ying Gu luar biasa, ia sudah memanfaatkan situasi yang menguntungkan. Sepuluh jarinya melesat ke depan dan menyerang titik akupuntur 
+[Shen Feng](acupoints.md#shen-feng) dan Yu Shu[^yu-shu] di dada Guo Jing. Totokannya sangat bagus.
 
-Ying Gu merasakan semburan energi keluar dari tubuh Guo Jing melalui lengan kanannya menuju lengannya sendiri; dia menyadari bahwa jika lengannya terkena kekuatan musuh, lengannya pasti akan patah. Oleh karena itu sekali lagi dia menggunakan Manuver Loach untuk membuat telapak tangan Guo Jing terlepas dari bahunya.
+Guo Jing merasa sudah terlambat untuk menangkis, ia mengelak ke samping sedikit. Langkahnya mirip dengan jurus yang digunakannya 
+barusan, tapi serangan maut tersembunyi di dalam jurus itu. Sesuatu melintas di benaknya, "Ilmu totokannya agak mirip dengan 
+Zhou Dage, kalau aku belum pernah latihan dengan Zhou Dage ribuan dan puluhan ribu kali di gua itu, aku tidak bakalan bisa 
+menghindari serangannya sekarang."
 
-Beberapa gerakan ini sangat indah, masing-masing tidak diantisipasi oleh lawan; keduanya terkejut, mereka melompat mundur beberapa langkah hampir bersamaan, keduanya mengambil posisi bertahan. Guo Jing berpikir, “Seni bela diri wanita ini sangat aneh! Jika aku tidak bisa menyentuhnya, maka akulah yang akan selalu diserang.”
+Ying Gu merasakan semburan tenaga keluar dari tubuh Guo Jing melalui lengan kanannya menuju lengannya sendiri, ia menyadari 
+bahwa jika lengannya terkena dorongan musuh, maka lengannya pasti akan patah. Oleh karena itu sekali lagi ia menggunakan gerakan 
+belutnya untuk membuat telapak tangan Guo Jing tergelincir dari bahunya.
 
-Ying Gu juga heran, dia berpikir, "Anak muda ini masih sangat muda, bagaimana dia bisa memiliki keterampilan seni bela diri semacam ini?" Setelah itu dia berpikir, “Saya telah bersembunyi di sini selama lebih dari belasan tahun, dengan rajin berlatih keras; secara tidak sengaja menguasai keterampilan seni bela diri yang luar biasa, mengira saya telah menjadi tak terkalahkan di dunia, segera saya bisa keluar dari hutan ini untuk membalas dendam dan menyelamatkan seseorang. Siapa yang mengira bahwa dalam matematika saya kalah jauh dengan gadis muda ini, dalam hal seni bela diri saya bahkan tidak bisa menandingi anak muda ini yang masih basah di belakang telinganya? Apalagi dia membawa seseorang di punggungnya. Jika kita bertarung dengan sungguh-sungguh, aku akan kalah sejak dini. Puluhan tahun aku menahan rasa sakit dan penderitaan, apakah semua itu akan sirna di air mengalir? Haruskah saya melepaskan keinginan saya untuk membalas dendam dan menyelamatkan seseorang? Setelah memikirkan hal ini, matanya menjadi merah dan hidungnya sakit; dia tidak bisa menahan air mata mengalir di pipinya.
+Beberapa gerakan ini sangat indah, masing-masing tidak diantisipasi oleh lawan, keduanya terkejut, mereka melompat mundur 
+beberapa langkah hampir bersamaan, keduanya mengambil posisi bertahan. Guo Jing berpikir, "Kungfu wanita ini sangat aneh! Kalau 
+aku tidak bisa menyentuhnya, maka akulah yang akan selalu diserang."
 
-Guo Jing tahu kekuatan telapak tangannya sendiri telah mengguncangnya, dia dengan sibuk berkata, "Junior telah menyinggung Senior dengan kasar, aku benar-benar tidak bersungguh-sungguh; tolong maafkan aku dan biarkan kami pergi.”
+Ying Gu juga heran, ia berpikir, "Bocah ini masih sangat muda, bagaimana dia bisa punya kungfu semacam ini?" Setelah itu ia 
+berpikir, "Aku bersembunyi di sini selama lebih dari belasan tahun, dan rajin latihan keras, secara tidak sengaja menguasai 
+kungfu yang luar biasa, dan mengira sudah jadi tak terkalahkan di dunia, segera aku bisa keluar dari hutan ini untuk membalas 
+dendam dan menyelamatkan seseorang. Tak disangka dalam matematika aku kalah jauh sama nona cilik ini, dalam hal kungfu bahkan 
+bukan tandingan bocah ini, belakang telinganya masih basah. Apalagi dia sedang menggendong orang. Kalau sungguh-sungguh 
+bertarung, aku pasti sudah kalah sejak tadi. Puluhan tahun aku menahan rasa sakit dan penderitaan, masa semua itu akan musnah 
+terbawa air? Masa aku harus melepaskan keinginanku untuk membalas dendam dan menyelamatkan seseorang? Setelah memikirkan hal 
+ini matanya menjadi merah dan hidungnya sakit, ia tidak bisa menahan air mata mengalir di pipinya.
 
-Ying Gu memperhatikan bahwa saat berbicara, Guo Jing berulang kali menatap Huang Rong dengan penuh perhatian di wajahnya. Dia mengingat kemalangannya sendiri, bagaimana dia terpisah dari kekasihnya dan tidak dapat bertemu sampai hari itu; kecemburuannya mengamuk dan dia dengan dingin berkata, “Gadis ini terkena Tapak Besi Qiu Qianren. Ada bayangan gelap di wajahnya, dia tidak akan hidup sampai hari keempat; mengapa kamu masih mengkhawatirkannya?”
+Guo Jing tahu tenaga telapak tangannya sendiri telah mengguncangnya, ia berkata, "Wanbei sudah menyinggung Qianbei dengan kasar, 
+aku benar-benar tidak bermaksud begitu, tolong maafkan aku dan biarkan kami pergi."
 
-Guo Jing kaget, langsung dia memeriksa wajah Huang Rong, dan memang dia bisa melihat lapisan bayangan gelap di antara alisnya seperti diolesi tinta. Hatinya menjadi dingin, segera dia mengangkat Huang Rong dan dengan suara gemetar bertanya, "Rong'er, kamu ... bagaimana perasaanmu?"
+Ying Gu memperhatikan bahwa saat berbicara, Guo Jing berulang kali menatap Huang Rong dengan penuh perhatian di wajahnya. 
+Ia mengingat kemalangannya sendiri, bagaimana ia terpisah dari kekasihnya dan tidak dapat bertemu sampai hari ini, kecemburuannya 
+timbul, dan ia berkata dengan nada dingin, "Nona ini terkena Telapak Besi Qiu Qianren. Ada bayangan gelap di wajahnya, dia tidak 
+akan hidup sampai hari keempat, buat apa kau masih menguatirkannya?"
 
-Huang Rong merasakan dada dan perutnya panas membara sementara keempat anggota tubuhnya sedingin es. Dia tahu bahwa wanita itu tidak berbicara omong kosong; dia menghela nafas dan berkata, “Jing Gege, selama tiga hari ini, jangan pernah meninggalkanku bahkan untuk satu langkah pun. Bisakah kamu?"
+Guo Jing kaget, ia langsung memeriksa wajah Huang Rong, dan memang ia bisa melihat lapisan bayangan gelap di antara alisnya 
+seperti diolesi tinta. Hatinya menjadi dingin, segera ia mengangkat Huang Rong dan dengan suara gemetar bertanya, "Rong'er, 
+kau... bagaimana perasaanmu?"
 
-"Aku ... aku tidak akan meninggalkanmu bahkan setengah langkah pun," kata Guo Jing.
+Huang Rong merasakan dada dan perutnya panas membara sementara keempat anggota tubuhnya sedingin es. Ia tahu bahwa wanita itu 
+tidak bicara omong kosong, ia menghela nafas dan berkata, "Jing Gege, selama tiga hari ini, jangan pernah meninggalkanku bahkan 
+untuk satu langkah pun. Bisakah?"
 
-Ying Gu mencibir dan berkata, "Bahkan jika kamu tidak akan meninggalkannya setengah langkah, kamu hanya akan memiliki tujuh puluh dua jam."
+"Aku... aku tidak akan meninggalkanmu bahkan setengah langkah pun," kata Guo Jing.
 
-Guo Jing mengangkat kepalanya, matanya berkaca-kaca. Dia memandang wanita itu dengan sungguh-sungguh memohon padanya untuk tidak mengatakan apa pun yang mungkin menyakiti perasaan Huang Rong.
+Ying Gu mencibir dan berkata, "Bahkan jika kau tidak akan meninggalkannya setengah langkah, kau hanya punya tujuh puluh dua jam."
 
-Ying Gu adalah seorang wanita malang, belasan tahun penderitaan telah memberinya hati yang kapalan. Melihat kedua orang yang saling mencintai ini mengalami bencana, hatinya dipenuhi dengan kegembiraan. Dia akan mengatakan sesuatu untuk menyakiti perasaan mereka ketika dia melihat ekspresi sedih Guo Jing. Tiba-tiba sebuah ide muncul seperti sambaran petir di benaknya, dia berpikir, "Ah, ah, surga mengirim keduanya ke sini untuk membantu saya memenuhi keinginan saya untuk membalas dendam." Dia mengangkat kepalanya dan merenung, "Surga, oh Surga!"
+Guo Jing mengangkat kepalanya, matanya berkaca-kaca. Ia memandang wanita itu dengan sungguh-sungguh memohon untuk tidak 
+mengatakan apa pun yang mungkin menyakiti perasaan Huang Rong.
 
-Saat itu suara orang berteriak di luar hutan semakin keras. Rupanya mereka telah mencari kemana-mana dan sampai pada kesimpulan bahwa Jing dan Rong, dua orang masih berada di dalam hutan; hanya saja mereka tidak dapat menemukan cara untuk masuk.
+Ying Gu adalah seorang wanita malang, belasan tahun penderitaan telah membuat hatinya kebal. Melihat kedua orang yang saling 
+mencintai ini mengalami bencana, hatinya dipenuhi dengan sukacita. Ia akan mengatakan sesuatu untuk menyakiti perasaan mereka 
+ketika ia melihat ekspresi sedih Guo Jing. Tiba-tiba sebuah ide muncul seperti sambaran petir di benaknya, ia berpikir, "Ah, ah, 
+surga mengirim keduanya ke sini untuk membantuku membalas dendam." Ia mengangkat kepalanya dan merenung, "Surga, oh Surga!"
 
-Setelah sekitar setengah hari, suara Qiu Qianren terdengar memanggil dari luar hutan, "Ahli Matematika Ilahi Ying Gu, Qiu dari Iron Palm meminta audiensi." Kata-katanya diteriakkan melawan angin, tetapi secara mengejutkan dapat terdengar dengan jelas, sebuah indikasi dari energi internal yang dalam.
+Saat itu suara orang berteriak di luar hutan semakin keras. Rupanya mereka telah mencari kemana-mana dan sampai pada kesimpulan 
+bahwa Guo Jing dan Huang Rong masih berada di dalam hutan, hanya saja mereka tidak dapat menemukan cara untuk masuk.
 
-Ying Gu berjalan ke jendela, mengumpulkan 'qi' di 'dan tian' miliknya dan berteriak balik, “Aku biasanya tidak melihat orang luar; siapa pun yang datang ke rawa hitam mati, apakah kamu tidak mengetahuinya?
+Setelah lama, suara Qiu Qianren terdengar memanggil dari luar hutan, "Shen Suan Zi Ying Gu, Qiu Qianren dari Tie Zhang Bang ingin 
+ketemu." Ucapannya dilontarkan melawan angin, tetapi secara mengejutkan terdengar dengan jelas, menandakan tenaga dalam yang 
+dahsyat.
 
-“Ada satu pria dan satu wanita yang datang ke rawa hitammu; tolong kirimkan kepada saya, ”jawab Qiu Qianren.
+Ying Gu berjalan ke jendela, mengumpulkan Qi di Dan Tian, dan berteriak balik, "Aku biasanya tidak menemui orang luar, siapa pun 
+yang datang ke rawa hitam ini pasti mati, kau tidak tahu?"
 
-“Siapa yang bisa masuk ke rawa hitamku? Qiu Bangzhu terlalu meremehkan Ying Gu, ”seru Ying Gu.
+"Ada seorang laki-laki dan perempuan datang ke rawa hitammu, tolong serahkan mereka kepadaku," jawab Qiu Qianren.
 
-Qiu Qianren mengeluarkan tawa dingin 'hei, hei, hei'; sepertinya dia mempercayai kata-katanya. Kemudian mereka mendengar teriakan orang-orang Iron Palm Clan secara bertahap membuat ayah pergi. Ying Gu berbalik ke arah Guo Jing dan bertanya, "Apakah kamu ingin menyelamatkan saudari seperguruanmu?"
+"Siapa yang bisa masuk ke rawa hitamku? Qiu Bangzhu terlalu meremehkan Ying Gu," seru Ying Gu.
 
-Guo Jing tercengang, segera dia menekuk lutut untuk berlutut dan berkata, "Jika Senior bersedia memberikan arahan ..."
+Qiu Qianren tertawa dingin, sepertinya ia mempercayai kata-katanya. Kemudian mereka mendengar teriakan orang-orang Telapak Besi 
+yang satu persatu meninggalkan tenpat itu. Ying Gu berbalik ke arah Guo Jing dan bertanya, "Kau ingin menyelamatkan adik 
+seperguruanmu?"
 
-Wajah Ying Gu tiba-tiba tampak tertutup lapisan es, dengan tegas berkata, “Senior! Apa menurutmu aku sudah tua?”
+Guo Jing tercengang, segera ia menekuk lutut untuk berlutut dan berkata, "Kalau Qianbei bersedia memberikan petunjuk..."
 
-"Tidak tidak!" Guo Jing buru-buru berkata, "Tidak terlalu tua."
+Wajah Ying Gu tiba-tiba tampak tertutup lapisan es, dengan tegas berkata, "Qianbei! Apa menurutmu aku sudah tua?"
 
-Perlahan mata Ying Gu bergerak dari Guo Jing untuk melihat ke luar jendela, dia bergumam pelan, “Belum terlalu tua. Hmm, lagipula, itu artinya aku sudah tua.”
+"Tidak tidak!" kata Guo Jing buru-buru. "Tidak terlalu tua."
 
-Guo Jing senang dan cemas pada saat bersamaan; mendengarkan caranya berbicara, sepertinya Huang Rong bisa diselamatkan. Tapi kata-katanya telah menyinggung perasaannya, dia tidak yakin apakah dia masih mau memberikan bantuan. Dia ingin mengatakan sesuatu untuk mengoreksi dirinya sendiri, tetapi sebenarnya tidak tahu harus berkata apa.
+Perlahan mata Ying Gu bergerak dari Guo Jing untuk melihat ke luar jendela, ia bergumam pelan, “Belum terlalu tua. Hmm, 
+bagaimanapun juga, itu artinya aku sudah tua."
 
-Ying Gu berbalik ke arahnya, melihatnya berkeringat deras, terlihat sangat tertekan; ada tikaman rasa sakit di hatinya, “Kalau saja laki-lakiku menunjukkan sepersepuluh belas kasihan yang dimiliki anak bodoh ini, ay, hidupku tidak akan sia-sia,” katanya dalam hati. Kemudian dia dengan lembut melafalkan, “’Empat mesin tenun, tenun bebek mandarin ingin segera terbang bersama. Itu sangat disayangkan; belum tua tapi rambut di kepala sudah memutih. Ketika rerumputan musim semi yang hijau beriak, di tengah dinginnya fajar, berdiri berhadap-hadapan mandi mengenakan pakaian merah.’”
+Guo Jing senang dan cemas pada saat bersamaan, mendengarkan caranya berbicara, sepertinya Huang Rong bisa diselamatkan. Tapi 
+kata-katanya telah menyinggung perasaannya, ia tidak yakin apakah dia masih mau memberikan bantuan. Ia ingin mengatakan sesuatu 
+untuk mengoreksi, tetapi tidak tahu harus bilang apa.
 
-Mendengarkannya membacakan puisi pendek ini, hati Guo Jing tergerak, dia diam-diam berpikir, "Kedengarannya tidak asing, aku pernah mendengarnya sebelumnya." Tetapi berusaha sekuat tenaga, dia tidak dapat mengingat siapa yang menulisnya. Itu bukan Er Shifu [Tuan Kedua] Zhu Cong, itu juga bukan Huang Rong; jadi dengan suara rendah dia bertanya, “Rong'er, siapa yang mengarang puisi yang dia bacakan? Apa artinya?"
+Ying Gu berbalik ke arahnya, melihatnya berkeringat deras, terlihat sangat tertekan, ada tikaman rasa sakit di hatinya. "Kalau 
+saja laki-lakiku menunjukkan sepersepuluh belas kasihan yang dimiliki anak bodoh ini, ah, hidupku tidak akan sia-sia," katanya 
+dalam hati. Kemudian ia dengan lembut melantunkan syair, "Empat mesin tenun, anyaman bebek mandarin ingin terbang bersama. 
+Sayang sekali, belum tua tapi rambut di kepala sudah memutih. Ketika rerumputan musim semi yang hijau beriak di tengah dinginnya 
+fajar, berdiri berhadap-hadapan mandi mengenakan pakaian merah."
 
-Huang Rong menggelengkan kepalanya, “Ini pertama kali saya mendengarnya, saya tidak tahu siapa yang membuatnya. Hmm, ‘Sayang belum tua tapi rambut di kepala sudah memutih.’ Itu bagus! Bebek mandarin selalu berkepala putih…” [Catatan penerjemah: 'bai tou' secara harfiah berarti 'kepala putih', tapi bisa juga diterjemahkan sebagai 'kepala berambut putih' atau 'usia tua'] Berbicara sampai di sini, matanya tanpa sadar menoleh ke arah mata Ying Gu. rambut beruban. "Tepat 'Sayang belum tua tapi rambut di kepala sudah memutih.'!" dia pikir.
+Mendengarnya membacakan puisi pendek ini, hati Guo Jing tergerak, ia diam-diam berpikir, "Kedengarannya tidak asing, aku pernah 
+mendengarnya sebelumnya." Tetapi berusaha sekuat tenaga, ia tidak dapat mengingat siapa yang menulisnya. Itu bukan Er Shifu Zhu 
+Cong, juga bukan Huang Rong, jadi dengan suara rendah ia bertanya, "Rong'er, siapa yang mengarang puisi yang dibacanya? Apa 
+artinya?"
 
-“Rong'er diajar oleh ayahnya, dia tahu segalanya. Jika itu adalah puisi terkenal, dia pasti tahu siapa yang menulisnya," pikir Guo Jing, "Lalu siapa yang membacakan puisi ini? Tidak mungkin dia, tidak mungkin ayahnya, juga saya yakin itu tidak mungkin Tuan Lu dari Cloud Village. Tapi saya yakin saya pernah mendengarnya sebelumnya. Ay, tidak masalah siapa yang membacakan puisi ini selama Senior ini benar-benar memiliki cara untuk menyelamatkan Rong'er. Dia mengajukan pertanyaan kepada saya dan saya memberinya jawaban yang salah. Saya berharap saya memiliki cara untuk menebus kesalahan. Saya tidak peduli apa yang akan dia minta saya lakukan … ”
+Huang Rong menggelengkan kepalanya, "Ini pertama kali aku mendengarnya, aku tidak tahu siapa yang membuatnya. Hmm, 'Sayang belum 
+tua tapi rambut di kepala sudah memutih.' Itu bagus! Bebek mandarin selalu berkepala putih..." Bicara sampai di sini, matanya 
+tanpa sadar menoleh ke arah mata Ying Gu, rambut beruban. "Tepat 'Sayang belum tua tapi rambut di kepala sudah memutih.'!" 
+pikirnya.
 
-Saat ini Ying Gu masih terbenam dalam memori masa lalunya; wajahnya terkadang menunjukkan kegembiraan, terkadang menunjukkan kesedihan. Dalam waktu singkat hatinya mengingat rasa terima kasih dan dendam puluhan tahun. Tiba-tiba dia mengangkat kepalanya dan berkata, “Adik seperguruanmu telah terkena Telapak Tangan Besi Qiu. Saya tidak tahu apakah dia menahan kekuatan telapak tangannya, atau apakah Anda yang memblokir telapak tangannya, sehingga dia tidak langsung mati. Either way, hanya dalam tiga hari yang singkat … Hmm, hanya ada satu pria di dunia luas ini yang bisa menyelamatkan hidupnya!
+"Rong'er diajar oleh ayahnya, ia tahu segalanya. Kalau itu adalah puisi terkenal, ia pasti tahu siapa yang menulisnya," pikir Guo 
+Jing, "Lalu siapa yang menulis puisi ini? Tidak mungkin dia, tidak mungkin ayahnya, juga aku yakin itu tidak mungkin Lu Zhuangzhu 
+dari Gui Yun Zhuang. Tapi aku yakin aku pernah mendengarnya sebelum ini. Ah, tidak masalah siapa yang membacakan puisi ini selama 
+orang tua ini benar-benar punya cara untuk menyelamatkan Rong'er. Ia mengajukan pertanyaan kepadaku dan aku memberinya jawaban 
+yang salah. Kuharap ada cara untuk menebus kesalahanku. Aku tidak peduli apa yang akan dia minta..."
 
-Guo Jing mendengarkan setiap kata yang diucapkannya, jantungnya berdebar kencang. Mendengar kalimat terakhirnya, dia berlutut dan 'bonk, bonk, bonk' membenturkan kepalanya ke tanah tiga kali sambil berteriak, “Tolong Sen … Tidak, tidak. Tolong bantu kami. Kami akan selamanya berterima kasih.”
+Saat ini Ying Gu masih ternggelam dalam kenangan masa lalunya, wajahnya kadang-kadang tampak gembira, kadang-kadang sedih. 
+Dalam waktu singkat hatinya mengingat rasa terima kasih dan dendam yang terpendam puluhan tahun lamanya. Tiba-tiba ia mengangkat 
+kepalanya dan berkata, "Adik seperguruanmu terkena Telapak Besi Qiu Qianren. Aku tidak tahu dia sanggup menahan tenaga telapak 
+tangannya atau tidak, atau mungkin kau yang menangkis telapak tangannya, jadi dia tidak langsung mati. Bagaimanapun juga, 
+hanya dalam tempo tiga hari yang singkat... Hmm, hanya ada satu orang di muka bumi ini yang bisa menyelamatkan hidupnya!"
 
-Ying Gu dengan dingin berkata, “Huh! Apakah saya memiliki keterampilan untuk menyelamatkan orang lain? Jika aku memang memiliki kekuatan suci ini, mengapa aku harus bertahan di tempat yang lembap dan sangat dingin seperti ini?” Guo Jing tidak berani membuka mulutnya. Sesaat kemudian Ying Gu melanjutkan, “Anggap saja dirimu beruntung bertemu denganku dan aku tahu keberadaan orang ini; juga anggap dirimu beruntung karena dia tinggal tidak terlalu jauh; Anda mungkin dapat mencapai tempatnya dalam tiga hari. Hanya apakah pria itu mau membantu atau tidak, sangat sulit untuk mengatakannya.”
+Guo Jing mendengarkan setiap kata yang diucapkannya, jantungnya berdebar kencang. Mendengar kalimat terakhirnya, ia berlutut dan 
+membenturkan kepalanya ke tanah tiga kali sambil berteriak, "Tolong Qian... Bukan, bukan. Tolong bantu kami. Kami akan selamanya 
+berterima kasih."
 
-Guo Jing merasa senang, "Saya akan dengan sungguh-sungguh memintanya untuk membantu," katanya, "Saya percaya dia tidak akan pergi sejauh melihat seseorang dalam kesulitan dan tidak ingin membantu."
+Ying Gu dengan dingin berkata, "Heh! Kau kira aku punya ilmu untuk menyelamatkan orang lain? Kalau aku memang punya kemampuan 
+suci ini, mengapa aku harus bertahan di tempat yang lembab dan sangat dingin seperti ini?" Guo Jing tidak berani membuka 
+mulutnya. Sesaat kemudian Ying Gu melanjutkan, "Anggap saja dirimu beruntung bertemu denganku, dan aku tahu keberadaan orang ini, 
+juga anggap dirimu beruntung karena dia tinggal tidak terlalu jauh, kau mungkin bisa mencapai tempatnya dalam tiga hari. Hanya 
+saja, orang itu mau membantu atau tidak, sangat sulit untuk mengatakannya."
 
-Ying Gu menyeringai, "Apa maksudmu 'tidak akan sejauh melihat seseorang dalam kesusahan dan tidak ingin membantu'? Melihat seseorang sekarat dan tidak melakukan apa-apa adalah perilaku alami manusia. Anda akan bertanya dengan sungguh-sungguh, apakah menurut Anda orang lain tidak? Apakah Anda pikir Anda dapat membujuknya untuk membantu Anda? Apa yang telah kamu lakukan padanya? Kenapa dia mau membantumu?” Suaranya penuh dengan kepahitan dan kebencian.
+Guo Jing merasa senang. "Aku akan dengan sungguh-sungguh memohon," katanya, "Aku percaya dia tidak akan berpangku tangan melihat 
+orang dalam kesulitan."
 
-Guo Jing tidak berani membuka mulutnya; saat ini ada secercah harapan untuk Huang Rong, dia takut dia akan membuat kesalahan bahkan untuk setengah kata dan dengan demikian merusak kesempatan ini. Dia melihat wanita itu berjalan keluar ke ruangan persegi, duduk di meja, mengambil pena dan mulai menulis.
+Ying Gu menyeringai, "Apa maksudmu 'tidak akan berpangku tangan melihat orang dalam kesusahan'? Melihat orang sekarat dan tidak 
+melakukan apa-apa adalah perilaku alami manusia. Kau akan memohon dengan sungguh-sungguh, apakah menurutmu orang lain tidak? 
+Apa kau pikir kau bisa membujuknya untuk membantumu? Apa yang sudah kau lakukan? Kenapa dia harus menolongmu?" Suaranya penuh 
+dengan kepahitan dan kebencian.
 
-Setelah menulis sebentar dia melipat kertas itu dan membungkusnya dengan kain, lalu dia mengambil jarum dan menjahit kain itu ke dalam kantong yang rapat. Dalam hal yang sama dia membuat tiga kantong, baru kemudian dia kembali ke ruang bundar. “Setelah meninggalkan hutan ini, hindari orang-orang Iron Palm Clan, lurus ke timur laut. Saat Anda tiba di perbatasan Kabupaten Taiyuan, buka kantong putihnya. Di dalamnya Anda akan menemukan apa yang harus Anda lakukan secara detail. Anda tidak boleh membuka kantong itu dengan alasan apa pun sebelum Anda tiba di sana.”
+Guo Jing tidak berani membuka mulutnya, saat ini ada secercah harapan untuk Huang Rong, ia membuat kesalahan bahkan setengah kata 
+sekalipun, dan dengan demikian merusak kesempatan ini. Ia melihat wanita itu berjalan keluar ke ruangan persegi, duduk di meja, 
+mengambil kuas, dan mulai menulis.
 
-Guo Jing sangat senang, dia memberikan janjinya berulang kali, dan mengulurkan tangannya untuk menerima kantong itu. Ying Gu menarik tangannya dan berkata, “Jangan terlalu cepat! Jika pria itu tidak mau membantu, biarlah. Tetapi jika dia bersedia dan dapat menyelamatkan nyawanya, saya memiliki permintaan untuk dibuat.
+Setelah menulis sebentar, ia melipat kertas itu dan membungkusnya dengan kain, lalu ia mengambil jarum dan menjahit kain itu ke 
+dalam kantong yang rapat. Dengan cara yang sama ia membuat tiga kantong, baru kemudian ia kembali ke ruang bundar. "Setelah 
+meninggalkan hutan ini, hindari orang-orang Telapak Besi, lurus ke timur laut. Ketika tiba di perbatasan Kabupaten Taiyuan, 
+buka kantong putih. Di dalamnya kau akan menemukan apa yang harus kau lakukan secara detail. Kau tidak boleh membuka kantong itu 
+dengan alasan apa pun sebelum tiba di sana."
 
-"Kami telah menerima kebaikanmu," kata Guo Jing, "Jika Senior memiliki sesuatu untuk kami lakukan, beri tahu kami."
+Guo Jing sangat senang, ia memberikan janjinya berulang kali, dan mengulurkan tangannya untuk menerima kantong itu. Ying Gu 
+menarik tangannya dan berkata, "Tidak secepat itu! Kalau orang itu tidak mau membantu, biarlah. Tetapikalau dia bersedia dan 
+bisa menyelamatkan nyawanya, aku punya satu permintaan yang harus kau lakukan."
 
-Ying Gu dengan dingin berkata, “Jika saudari seperguruanmu tidak mati, dalam sebulan dia harus kembali ke sini dan tinggal bersamaku selama setahun.”
+"Kami telah menerima kebaikanmu," kata Guo Jing, "Kalau Qianbei sesuatu untuk kami lakukan, beritahu kami."
+
+Ying Gu dengan dingin berkata, "Kalau adik seperguruanmu tidak mati, dalam sebulan dia harus kembali ke sini dan tinggal 
+bersamaku selama setahun."
 
 "Untuk apa?" Guo Jing bertanya-tanya.
 
-"Itu bukan urusanmu," kata Ying Gu dengan tegas, "Aku hanya bertanya padanya apakah dia mau atau tidak?"
+"Itu bukan urusanmu," kata Ying Gu dengan tegas. "Aku cuma bertanya, dia mau atau tidak?"
 
-Huang Rong menyela, “Kamu ingin aku mengajarimu ‘qi men shu shu’ [lit. metode penghitungan cara yang aneh/hebat/misterius]. Seberapa sulitkah itu? Baiklah, aku memberikan janjiku.”
+[^qi-men-shu-shu]: Cara berhitung cepat dan ajaib.
 
-Ying Gu melirik ke arah Guo Jing dan mengejek, “Tidak ada gunanya kamu menjadi laki-laki; kecerdasanmu bahkan tidak sepersepuluh dari saudara perempuanmu.” Tapi dia tetap membagikan tiga kantong kepadanya.
+Huang Rong menyela, "Kau ingin aku mengajarimu Qi Men Shu Shu[^qi-men-shu-shu]. Sesulit itukah? Baiklah, aku berjanji."
 
-Guo Jing mengulurkan tangannya. Selain kantong putih, dia melihat kantong lainnya berwarna merah dan kuning. Dia meletakkan semuanya dengan aman di sakunya dan kemudian membungkuk untuk mengungkapkan rasa terima kasihnya.
+Ying Gu melirik ke arah Guo Jing dan mengejek, "Tidak ada gunanya kau jadi laki-laki, kecerdasanmu bahkan tidak ada 
+sepersepuluhnya adik seperguruanmu." Tapi ia tetap memberikan ketiga kantong itu.
 
-Ying Gu dengan cepat menyingkir, tidak mau menerima rasa terima kasihnya. “Kamu tidak perlu berterima kasih padaku,” katanya, “Aku tidak membutuhkannya. Kalian berdua bukan keluargaku atau temanku, mengapa aku ingin menyelamatkannya? Bahkan jika kita berhubungan, kamu tetap tidak perlu berterima kasih padaku sebesar-besarnya! Izinkan saya berterus terang kepada Anda sebelumnya, saya membantunya untuk kepentingan saya sendiri. Huh, siapa pun yang tidak melakukan sesuatu untuk diri mereka sendiri, biarkan Surga menghukum mereka sampai mati.
+Guo Jing mengulurkan tangannya. Selain kantong putih, ia melihat kantong lainnya berwarna merah dan kuning. Ia meletakkan 
+semuanya dengan aman di sakunya dan kemudian membungkuk untuk mengungkapkan rasa terima kasihnya.
 
-Kata-katanya terdengar sangat kejam di telinga Guo Jing, tapi dia tidak pernah pandai berkata-kata, jadi dia tidak ingin membantahnya; selain itu, kali ini dia harus memikirkan Huang Rong, dia tidak berani mengatakan apa-apa lagi, dia hanya mendengarkan dengan hormat.
+Ying Gu dengan cepat menyingkir, tidak mau menerima rasa terima kasihnya. "Kau tidak perlu berterima kasih," katanya. "Aku tidak 
+membutuhkannya. Kalian berdua bukan keluargaku atau temanku, mengapa aku ingin menyelamatkannya? Bahkan jika kita berhubungan, 
+kau tetap tidak perlu berterima kasih kepadaku sebesar-besarnya! Terus terang saja, aku membantunya untuk kepentinganku sendiri. 
+Huh, biar Surga menghukum orang yang tidak melakukan sesuatu untuk diri sendiri sampai mati!"
 
-Ying Gu memandang mereka dengan merendahkan, dia berkata, “Kalian berdua pasti lelah malam ini, juga lapar. Makanlah bubur.”
+Kata-katanya terdengar sangat kejam di telinga Guo Jing, tapi ia tidak pernah pandai berkata-kata, jadi ia tidak ingin 
+membantahnya, selain itu sekali ini ia harus memikirkan Huang Rong, ia tidak berani mengatakan apa-apa lagi, ia hanya 
+mendengarkan dengan hormat.
 
-Huang Rong berbaring di sofa, setengah bangun dan setengah tidur. Guo Jing berdiri di sisinya dengan hati penuh dengan pikiran yang menggelisahkan. Sesaat kemudian Ying Gu kembali dengan nampan kayu di tangannya. Ada dua mangkuk besar bubur beras yang mengepul dan berbau harum di atas nampan, bersama dengan sepiring besar hidangan ayam liar dan sepiring kecil ikan yang diawetkan.
+Ying Gu memandang mereka dengan merendahkan, ia berkata, "Kalian berdua pasti lelah malam ini, dan juga lapar. Makanlah bubur."
 
-Guo Jing sudah lama lapar; sebelumnya ia lupa akan makanan karena sangat mengkhawatirkan kondisi Huang Rong. Saat ini suasana hatinya sedang lebih baik. Melihat ayam, ikan, dan bubur nasi ia terpaksa menelan ludah seteguk. Dengan lembut dia menepuk tangan Huang Rong dan berkata, "Rong'er, bangun dan makan bubur."
+Huang Rong berbaring di sofa, setengah bangun dan setengah tidur. Guo Jing berdiri di sisinya dengan hati penuh dengan pikiran 
+yang menggelisahkan. Sesaat kemudian Ying Gu kembali dengan nampan kayu di tangannya. Ada dua mangkuk besar bubur beras yang 
+mengepul dan berbau harum di atas nampan, bersama dengan sepiring besar hidangan ayam liar dan sepiring kecil ikan yang diawetkan.
+
+Guo Jing sudah lama lapar, sebelumnya ia lupa akan makanan karena sangat menguatirkan kondisi Huang Rong. Saat ini suasana 
+hatinya sedang lebih baik. Melihat ayam, ikan, dan bubur, ia terpaksa menelan ludah seteguk. Dengan lembut ia menepuk tangan 
+Huang Rong dan berkata, "Rong'er, bangun dan makan bubur."
 
 Huang Rong membuka matanya sedikit, menggelengkan kepalanya dan berkata, "Dadaku sangat sakit, aku tidak bisa makan."
 
-Ying Gu mencibir, "Aku punya obat untuk menghentikan rasa sakit, tapi kamu sangat curiga."
+Ying Gu mencibir, "Aku punya obat untuk menghentikan rasa sakit, tapi kau sangat curiga."
 
-Huang Rong mengabaikannya, "Jing Gege," katanya, "Ambil Pil Embun Giok Sembilan Bunga dan berikan padaku." Ini adalah pil yang diberikan oleh Lu Chengfeng di Cloud Village tempo hari. Huang Rong selalu membawanya di sakunya. Ketika Hong Qigong dan Guo Jing dilukai oleh Ouyang Feng, mereka meminum beberapa pil ini. Meski pil tidak bisa menyembuhkan luka mereka, tapi bisa menghentikan rasa sakit dan menyegarkan semangat mereka. Guo Jing menurut dan membuka ikatan kantongnya, mengeluarkan pil.
+Huang Rong mengabaikannya, "Jing Gege," katanya, "Ambil Pil Embun Sembilan Bunga Giok dan berikan padaku." Ini adalah pil yang 
+diberikan oleh Lu Chengfeng di Gui Yun Zhuang tempo hari. Huang Rong selalu membawanya di sakunya. Ketika Hong Qigong dan Guo 
+Jing dilukai oleh Ouyang Feng, mereka meminum beberapa pil ini. Meski pil ini tidak bisa menyembuhkan luka mereka, tapi bisa 
+menghentikan rasa sakit dan menyegarkan semangat mereka. Guo Jing menurut dan membuka ikatan kantongnya, mengeluarkan pil.
 
-Ketika Huang Rong menyebutkan 'Pil Embun Giok Sembilan Bunga', tiba-tiba tubuh Ying Gu sedikit bergetar; setelah dia melihat pil merah, dia dengan tegas berkata, “Apakah itu Pil Embun Giok Sembilan Bunga? Biarkan saya melihatnya.
+Ketika Huang Rong menyebutkan Pil Embun Giok Sembilan Bunga Giok, tiba-tiba tubuh Ying Gu sedikit tergetar, setelah ia melihat 
+pil merah, ia dengan tegas berkata, "Apakah itu Pil Embun Sembilan Bunga Giok? Coba kulihat!"
 
-Guo Jing berpikir cara dia berbicara sangat aneh, tanpa sadar dia mengangkat kepalanya untuk menatapnya. Dia melihat kilatan keganasan di matanya, dia merasa lebih aneh; tapi dia tetap memberikan kantong pil padanya.
+Guo Jing merasa cara bicaranya sangat aneh, tanpa sadar ia mengangkat kepala untuk menatapnya. Ia melihat kilatan kejam di 
+matanya, ia merasa lebih aneh, tapi ia tetap memberikan kantong pil padanya.
 
-Ying Gu mengambil pil itu dan membawanya ke hidungnya. Aroma wewangian menyerang lubang hidungnya, memberi mereka perasaan sejuk. Dia memandang Guo Jing dengan tatapan tajam dan bertanya, “Ini adalah obat khusus Pulau Bunga Persik. Di mana Anda mendapatkannya? Katakan padaku, katakan padaku!” Kalimat terakhirnya membawa nada yang sangat sengit.
+Ying Gu mengambil pil itu dan membawanya ke hidungnya. Aroma wewangian menyerang lubang hidungnya, memberinya perasaan sejuk.
+Ia memandang Guo Jing dengan tatapan tajam dan bertanya, "Ini adalah obat khusus Pulau Bunga Persik. Dari mana kalian 
+mendapatkannya? Cepat katakan, ayo cepat katakan!" Kalimat terakhirnya bernada yang sangat sengit.
 
-Hati Huang Rong tergerak, “Wanita ini mempelajari 'qi men wu xing' [gerbang lima jalur misterius]; apakah dia berhubungan dengan salah satu murid ayahku?” Dia mendengar Guo Jing menjawab, "Dia adalah putri dari Tuan Pulau Bunga Persik."
+Hati Huang Rong tergerak, "Wanita ini mempelajari Qi Men Wu Xing, apa dia punya hubungan dengan salah satu murid ayahku?" 
+Ia mendengar Guo Jing menjawab, "Dia putri dari Tao Hua Daozhu."
 
-Ying Gu melompat kaget, "Dia adalah putri Old Heretic Huang?" Matanya bersinar terang, satu lengan terulur, yang lain ditarik ke belakang, seolah-olah dia akan menyerang.
+Ying Gu melompat kaget, "Dia anak Huang Laoxie?" Matanya bersinar terang, satu lengannya terulur, yang lain ditarik ke belakang, 
+seolah-olah akan menyerang.
 
-"Jing Gege, kembalikan ketiga kantong itu padanya!" Huang Rong berkata, “Dia adalah musuh ayahku, kami tidak membutuhkan belas kasihannya.”
+"Jing Gege, kembalikan ketiga kantong itu!" kata Huang Rong. "Dia musuh ayahku, kita tidak butuh belas kasihannya."
 
-Guo Jing mengeluarkan kantongnya, tapi dia ragu untuk menyerahkannya. Huang Rong berkata, “Jing Gege, Letakkan saja! Saya belum tentu mati. Bahkan jika saya mati, jadi apa?
+Guo Jing mengeluarkan kantongnya, tapi ia ragu untuk menyerahkannya. Huang Rong berkata, "Jing Gege, sudahlah! Aku belum tentu 
+mati. Kalaupun aku mati, lalu kenapa?"
 
-Guo Jing tidak pernah tidak mematuhi Huang Rong sejak awal; dia meletakkan kantong di atas meja dengan air mata mengalir di pipinya.
+Guo Jing tidak pernah tidak mematuhi Huang Rong sejak awal, ia meletakkan kantong di atas meja dengan air mata mengalir di 
+pipinya.
 
-Ying Gu sedang melihat ke luar jendela, bergumam, "Surga, oh Surga!" Tiba-tiba dia berjalan ke kamar lain. Punggungnya menghadap mereka, jadi mereka tidak tahu apa yang dia lakukan.
+Ying Gu sedang melihat ke luar jendela, bergumam, "Surga, oh Surga!" Tiba-tiba ia berjalan ke kamar lain. Punggungnya menghadap 
+mereka, jadi mereka tidak tahu apa yang sedang dilakukannya.
 
-“Ayo kita pergi,” kata Huang Rong, “Aku muak melihat wanita ini.”
+"Ayo kita pergi," kata Huang Rong, "Aku muak melihat perempuan ini."
 
-Sebelum Guo Jing sempat menjawab, Ying Gu masuk dan berkata, “Aku rajin belajar matematika karena ingin masuk ke Pulau Bunga Persik. Tetapi menilai dari putri Old Heretic Huang, bahkan jika saya belajar selama seratus tahun lagi, itu tetap tidak berguna. Itu adalah takdir. Apa lagi yang bisa saya katakan? Pergi saja. Singkirkan kantong-kantong ini.” Sambil mengatakannya, dia mendorong kantong Pil Embun Giok Sembilan Bunga dan tiga kantong yang dia buat ke tangan Guo Jing. Kepada Huang Rong dia berkata, “Sembilan Pil Embun Giok Berbunga ini berbahaya bagi lukamu. Jangan ambil apapun yang terjadi. Setelah kamu sembuh, jangan lupa janjimu untuk tinggal bersamaku selama setahun. Ayahmu telah menghancurkan hidupku; Saya lebih suka memberikan semua makanan ini kepada anjing daripada membiarkan Anda memakannya.” Dia membuang bubur, ayam, dan ikan ke luar jendela.
+Sebelum Guo Jing sempat menjawab, Ying Gu masuk dan berkata, "Aku rajin belajar matematika karena ingin masuk ke Pulau Bunga 
+Persik. Tetapi menilai dari putri Huang Laoxie, bahkan jika aku belajar selama seratus tahun lagi, itu tetap tidak berguna. Ini 
+sudah takdir. Apa lagi yang bisa kukatakan? Pergi saja. Singkirkan kantong-kantong ini." Sambil mengatakannya, ia mendorong 
+kantong Pil Embun Sembilan Bunga Giok dan tiga kantong yang dibuatnya ke tangan Guo Jing. Kepada Huang Rong ia berkata, "Pil 
+Embun Sembilan Bunga Giok ini berbahaya bagi lukamu. Jangan diminum apapun yang terjadi. Setelah kau sembuh, jangan lupa janjimu 
+untuk tinggal bersamaku selama setahun. Ayahmu telah menghancurkan hidupku. Aku lebih suka memberikan semua makanan ini kepada 
+anjing daripada kau makan." Ia membuang bubur, ayam, dan ikan ke luar jendela.
 
-Huang Rong mendidih karena marah; dia ingin membalas dengan sinis, tapi kemudian dia berubah pikiran. Dia memegang tangan Guo Jing dan berdiri, lalu dengan tongkat bambunya dia menulis tiga soal matematika di tanah:
+Huang Rong mendidih karena marah, ia ingin membalas dengan sinis, tapi kemudian ia berubah pikiran. Ia memegang tangan Guo Jing 
+dan berdiri, lalu dengan tongkat bambunya ia menulis tiga soal matematika di tanah.
 
-Yang pertama termasuk koleksi 'ri, yue, shui, huo, mu, jin, tu' [matahari, bulan, air, api, kayu, logam, dan tanah] dari 'qi yao jiu zhi tian zhu bi suan' [tujuh sembilan metode perhitungan India yang memukau].
+[^koleksi-1]: Matahari, bulan, air, api, kayu, logam, dan tanah.
 
-Yang kedua adalah 'li fang zhao bing zhi yin gei mi ti' [lit. topik 'berdiri prajurit memasok perak']. [Catatan penulis: Ini adalah teori angka vertikal dalam matematika barat].
+[^teka-teki-2]: Prajurit memasok perak. Ini adalah teori angka vertikal dalam matematika barat.
 
-Yang ketiga adalah 'gui gu suan ti' [masalah matematika lembah hantu]: “Ada nomor yang tidak dikenal; tiga dan tiga memiliki dua sebagai sisa, lima dan lima memiliki tiga sebagai sisa, tujuh dan tujuh memiliki dua sebagai sisa, apakah operan matematika itu?” [Catatan penulis: masalah ini termasuk dalam teori bilangan matematika tingkat tinggi; cendekiawan Dinasti Song kami sangat mendalami studi semacam ini.]
+[^teka-teki-3]: Soal matematika lembah hantu.
 
-Setelah menulis tiga soal ini, Huang Rong perlahan berjalan keluar sambil memegangi lengan Guo Jing. Saat dia melangkah melewati pintu, Guo Jing menoleh dan melihat tangan Ying Gu menggenggam perangkat komputernya, matanya tertuju ke tanah seperti dia terpesona. Begitu mereka berada di luar, Guo Jing menggendong Huang Rong di punggungnya, masih mengikuti arah Huang Rong, berjalan selangkah demi selangkah keluar dari rawa. Guo Jing takut dia salah menghitung langkahnya, jadi dia tidak berani mengatakan apapun; tetapi begitu mereka meninggalkan hutan, dia bertanya, "Rong'er, apa yang kamu tulis di atas pasir?"
+Yang pertama mengikutsertakan koleksi Ri, Yue, Shui, Huo, Mu, Jin, Tu[^koleksi-1] dari Qi Yao Jiu Zhi Tian Zhu Bi Suan.
 
-Huang Rong tersenyum, “Saya memberikan tiga soal matematika kepadanya. Huh, aku ragu apakah dia bisa menyelesaikannya dalam setengah tahun. Biarkan semua ubannya memutih. Siapa yang menyuruhnya bersikap kasar?”
+Yang kedua adalah Li Fang Zhao Bing Zhi Yin Gei Mi Ti[^teka-teki-2].
 
-"Permusuhan apa yang dia miliki terhadap ayahmu?" tanya Guo Jing.
+Yang ketiga adalah Gui Gu Suan Ti[^teka-teki-3]. "Ada angka yang tidak diketahui. Tiga dan tiga bersisa dua, lima dan lima 
+bersisa tiga, tujuh dan tujuh bersisa dua, apakah operan matematika itu?"
 
-“Saya belum pernah mendengar Ayah menyebutkannya,” jawab Huang Rong. Setelah terdiam sekitar setengah hari, dia tiba-tiba berkata, “Dia pasti sangat cantik saat masih muda. Jing Gege, tidakkah kamu setuju?" Sebenarnya dia menyimpan rasa curiga di dalam hatinya, “Mungkinkah dulu ayahku dan dia adalah sepasang kekasih? Huh, kemungkinan besar dia ingin ayahku menikahinya tapi ayahku tidak menginginkannya.”
+Setelah menulis tiga soal ini, Huang Rong perlahan berjalan keluar sambil memegangi lengan Guo Jing. Saat melangkah melewati 
+pintu, Guo Jing menoleh dan melihat tangan Ying Gu menggenggam alat hitungnya, matanya tertuju ke tanah seperti terpesona. 
+Begitu mereka berada di luar, Guo Jing menggendong Huang Rong di punggungnya, masih mengikuti arahan Huang Rong, berjalan 
+selangkah demi selangkah keluar dari rawa. Guo Jing takut salah menghitung langkahnya, jadi ia tidak berani bicara, tetapi 
+begitu mereka meninggalkan hutan, ia bertanya, "Rong'er, apa yang kamu tulis di atas pasir?"
 
-Guo Jing menjawab, “Tidak masalah apakah dia cantik atau tidak; bahkan jika dia tidak bisa menyelesaikan masalahmu, dia tetap tidak akan bisa mengejar kita dan mengambil kantong itu kembali.”
+Huang Rong tersenyum, "Aku memberikan tiga soal matematika kepadanya. Huh, aku ragu apa dia bisa menyelesaikannya dalam setengah 
+tahun. Biarkan semua ubannya memutih. Siapa yang menyuruhnya bersikap kasar?"
 
-“Aku ingin tahu apa yang ada di dalam kantong-kantong itu. Saya ragu apakah dia memiliki kesejahteraan kita dalam pikirannya. Mari kita buka dan lihat,” kata Huang Rong.
+"Kenapa dia memusuhi ayahmu?" tanya Guo Jing.
 
-"Tidak tidak!" Guo Jing buru-buru berkata, "Kita harus mengikuti instruksinya, kita tidak boleh membukanya sampai kita tiba di Taoyuan."
+"Aku belum pernah dengar Ayah menyebutkannya," jawab Huang Rong. Setelah terdiam lama, ia tiba-tiba berkata, "Dia pasti sangat 
+cantik saat masih muda. Jing Gege, kau setuju?" Sebenarnya ia menyimpan rasa curiga di dalam hatinya, "Apa mungkin dulu ayahku 
+dan dia adalah sepasang kekasih? Huh, kemungkinan besar dia ingin ayahku menikahinya tapi ayahku tidak menginginkannya."
 
-Huang Rong sangat penasaran; dia membujuk Guo Jing untuk membukanya, tetapi Guo Jing dengan tegas menolak; akhirnya Huang Rong mengundurkan diri.
+Guo Jing menjawab, "Tidak masalah apakah dia cantik atau tidak, kalaupun dia tidak bisa menyelesaikan masalahmu, dia tetap tidak 
+akan bisa mengejar kita dan mengambil kantong ini kembali."
 
-Setelah sibuk sepanjang malam akhirnya langit berubah cerah. Guo Jing melompat ke atas pohon untuk melihat sekeliling; dia lega tidak melihat jejak murid Iron Palm Clan. Dia bersiul keras beberapa kali, dan kuda merah kecil itu berlari kencang. Tidak lama kemudian sepasang elangnya juga terlihat terbang di atas kepala mereka.
+"Aku ingin tahu apa yang ada di dalam kantong-kantong itu. Aku ragu apa dia sungguh memikirkan keselamatan kita. Ayo kita buka 
+dan lihat," kata Huang Rong.
 
-Dua orang baru saja menaiki kuda ketika tiba-tiba mereka mendengar teriakan keluar dari hutan. Lusinan murid Iron Palm Clan bergegas maju. Mereka telah menjaga di sekitar hutan selama setengah malam. Begitu mereka mendengar peluit Guo Jing, mereka keluar untuk menangkap mereka. Untungnya Qiu Qianren tidak termasuk orang-orang ini. Guo Jing berseru, "Kamu meleset!" Dia meremas kakinya di perut kuda dan kuda merah kecil itu berlari seperti angin; sesaat kemudian mereka tidak bisa melihat pengejar mereka lagi.
+"Tidak tidak!" kata Guo Jing buru-buru. "Kita harus mengikuti petunjuknya, kita tidak boleh membukanya sampai kita tiba di 
+Taoyuan."
 
-Menjelang siang hari itu kuda merah kecil itu telah berlari lebih dari seratus li; mereka berhenti di sebuah restoran kecil di pinggir jalan. Dada Huang Rong masih sakit, tetapi dia berhasil meminum setengah mangkuk sup nasi. Guo Jing bertanya-tanya dan menemukan bahwa mereka telah tiba di perbatasan Kabupaten Taoyuan. Dengan cepat dia mengambil kantong putih itu dan memotong benangnya. Di dalamnya ia menemukan peta dengan dua baris karakter yang berbunyi, “Ikuti rute yang ditunjukkan di peta. Di ujung jalan Anda akan menemukan air terjun dengan gubuk jerami di sebelahnya. Buka kantong merah saat Anda tiba di sana.” Guo Jing tidak tinggal lebih lama lagi; mereka memasang kembali kudanya dan berlari pergi.
+Huang Rong sangat penasaran, ia membujuk Guo Jing untuk membukanya, tetapi Guo Jing dengan tegas menolak, akhirnya Huang Rong 
+menyerah.
 
-Setelah menempuh perjalanan sekitar tujuh puluh delapan puluh li, jalan semakin menyempit. Delapan, sembilan 'li kemudian mereka memasuki lorong sempit dengan dinding gunung di kedua sisinya. Segera jalan itu berubah menjadi gang berliku yang begitu sempit sehingga satu orang hampir tidak bisa masuk. Mereka terpaksa meninggalkan kuda kecil berwarna merah itu untuk merumput sendiri di sisi bukit. Guo Jing membawa Huang Rong dan menggendongnya; bersama-sama mereka memasuki gang. Mengikuti jalur pegunungan yang curam, mereka berjalan sekitar dua jam. Kadang-kadang gang itu sangat sempit sehingga Guo Jing harus mengangkat Huang Rong ke atas dan dia berjalan menyamping, menyelip di antara dinding gunung.
+Setelah sibuk sepanjang malam akhirnya langit mulai terang. Guo Jing melompat ke atas pohon untuk melihat ke sekeliling, ia 
+lega tidak melihat jejak orang-orang Telapak Besi. Ia bersiul keras beberapa kali, dan kuda merah kecil itu berlari kencang. 
+Tidak lama kemudian sepasang elangnya juga terlihat terbang di atas kepala mereka.
 
-Sudah bulan ketujuh, cuaca panas terik dan rasanya panas cukup untuk melelehkan logam. Untungnya ada puncak gunung pencakar langit di sekitar mereka mendinginkan jalan mereka.
+Keduanya baru saja menaiki kuda, ketika tiba-tiba mereka mendengar teriakan dari dalam hutan. Lusinan murid Telapak Besi bergegas 
+maju. Mereka berjaga-jaga di sekitar hutan semalaman. Begitu mendengar siulan Guo Jing, mereka keluar untuk menangkap mereka. 
+Untungnya Qiu Qianren tidak termasuk orang-orang ini. Guo Jing berseru, "Kalian meleset!" Ia menekankan kakinya di perut kuda 
+dan kuda merah kecil itu berlari seperti angin, sesaat kemudian mereka tidak bisa melihat pengejar mereka lagi.
 
-Sesaat kemudian Guo Jing lapar; dia mengambil beberapa roti kering dari sakunya dan merobek beberapa potong untuk memberi makan Huang Rong. Namun dia tidak berhenti berjalan; dia sedang makan sambil berjalan ke depan. Setelah makan tiga roti dia haus. Tiba-tiba dia mendengar dari kejauhan suara air terjun yang samar. Semangatnya bangkit dan dia mempercepat langkahnya.
+Menjelang siang hari itu kuda merah kecil itu telah berlari lebih dari seratus li, mereka berhenti di sebuah restoran kecil di 
+pinggir jalan. Dada Huang Rong masih sakit, tetapi ia berhasil minum setengah mangkuk sup nasi. Guo Jing bertanya-tanya dan 
+menemukan bahwa mereka telah tiba di perbatasan Taoyuan. Ia buru-buru mengambil kantong putih itu dan memotong benangnya. Di 
+dalamnya ia menemukan peta dengan dua baris karakter yang berbunyi, "Ikuti rute yang ditunjukkan di peta. Di ujung jalan kalian 
+akan menemukan air terjun dengan gubuk jerami di sebelahnya. Buka kantong merah saat tiba di sana." Guo Jing tidak tinggal lebih 
+lama lagi, mereka kembali menaiki kudanya dan bergegas pergi.
 
-Dalam kesunyian gunung, air terjun itu bergema di lembah, menimbulkan suara gemuruh yang keras seperti banjir yang deras. Semakin dekat dia, semakin keras suara itu. Ketika dia sampai di puncak bukit, dia melihat air terjun besar seperti naga putih keluar dari antara sepasang puncak di seberang bukit tempat dia berdiri, jatuh ke kolam besar di bawah dengan kekuatan yang mencengangkan.
+Setelah menempuh perjalanan sekitar tujuh sampai delapan puluh li, jalan semakin menyempit. Delapan sampai sembilan li kemudian 
+mereka memasuki lorong sempit dengan dinding gunung di kedua sisinya. Segera jalan itu berubah menjadi gang berliku yang begitu 
+sempit sehingga satu orang hampir tidak bisa masuk. Mereka terpaksa meninggalkan kuda kecil berwarna merah itu untuk merumput 
+sendiri di sisi bukit. Guo Jing membawa Huang Rong dan menggendongnya, bersama-sama mereka memasuki gang. Mengikuti jalanan 
+pegunungan yang curam, mereka berjalan sekitar dua jam. Kadang-kadang gang itu sangat sempit sehingga Guo Jing harus mengangkat 
+Huang Rong ke atas dan berjalan menyamping, menyelip di antara dinding gunung.
 
-Dari puncak bukit, Guo Jing melihat ke bawah dan melihat sebuah gubuk jerami di sebelah air terjun. Guo Jing duduk di atas sebongkah batu dan mengambil kantong merah dari sakunya. Di dalamnya ada selembar kertas dengan kata-kata ini: 'Cedera yang diderita gadis ini hanya bisa disembuhkan oleh Kaisar Duan ...'
+Ini sudah bulan ketujuh, cuaca panas terik, seolah-olah panasnya cukup untuk melelehkan logam. Untungnya ada puncak gunung 
+pencakar langit di sekitar mereka yang menyejukkan jalan mereka.
 
-Melihat ketiga karakter 'Duan huang ye' [Kaisar Duan] Guo Jing terkejut, "Kaisar Duan, bukankah dia Kaisar Selatan yang memiliki ketenaran yang sama dengan ayahmu?" Dia bertanya.
+Sesaat kemudian Guo Jing lapar, dia mengambil beberapa roti kering dari sakunya dan menyobek beberapa potong untuk memberi 
+makan Huang Rong. Namun ia tidak berhenti berjalan, ia makan sambil berjalan. Setelah makan tiga potong roti ia haus. Tiba-tiba 
+ia mendengar dari kejauhan suara air terjun yang samar. Semangatnya bangkit dan ia mempercepat langkahnya.
 
-Huang Rong kelelahan, tetapi mendengarnya menyebut Kaisar Selatan, hatinya tergerak. "Kaisar Duan?" dia berkata, “Shifu juga mengatakan bahwa lukanya hanya dapat disembuhkan oleh Kaisar Duan. Saya mendengar ayah saya menyebutkan Kaisar Duan adalah kaisar Dali di Yunnan. Bukankah itu …” Tiba-tiba dia ingat bahwa tempat ini dipisahkan dengan Yunnan oleh ‘sepuluh ribu sungai dan seribu gunung’ [wan shui qian shan – artinya ‘jalan setapak dan kesengsaraan dari perjalanan panjang’]. Itu tidak mungkin dicapai dalam tiga hari. Tiba-tiba dadanya terasa dingin. Dia berusaha duduk dan bersandar pada Guo Jing, mereka membaca koran bersama.
+Dalam kesunyian gunung, air terjun itu bergema di lembah, menimbulkan suara gemuruh yang keras seperti banjir yang deras. 
+Semakin dekat, semakin keras suara itu. Ketika sampai di puncak bukit, ia melihat air terjun besar seperti naga putih keluar 
+dari antara sepasang puncak di seberang bukit tempatnya berdiri, jatuh ke kolam besar di bawah dengan kekuatan yang 
+mencengangkan.
 
-'Cedera yang diderita gadis ini hanya bisa disembuhkan oleh Kaisar Duan. Karena banyak perilakunya yang tidak lurus, dia menyembunyikan dirinya di Taoyuan dan mempersulit orang luar untuk melihatnya. Siapa pun yang mencari bantuan medis adalah hal yang tabu baginya; jika Anda menyebutkan niat Anda, sebelum Anda mencapai kediamannya, Anda akan dihentikan oleh tangan-tangan jahat seorang nelayan, penebang kayu, petani, dan sarjana. Oleh karena itu, Anda harus mengatakan bahwa Anda memiliki pesan penting dari guru Anda Hong Qigong dan ingin bertemu dengan Kaisar. Setelah Anda berada di hadapan Kaisar Selatan, berikan dia kantong kuning. Nasibmu bergantung pada ini.’
+Dari puncak bukit, Guo Jing melihat ke bawah dan melihat sebuah gubuk jerami di sebelah air terjun. Guo Jing duduk di atas 
+sebongkah batu dan mengambil kantong merah dari sakunya. Di dalamnya ada selembar kertas dengan kata-kata ini, "Cedera yang 
+diderita gadis ini hanya bisa disembuhkan oleh Kaisar Duan..."
 
-Selesai membaca, Guo Jing menoleh ke Huang Rong hanya untuk melihatnya mengerutkan kening dalam diam. “Ronger,” dia bertanya, “Mengapa Kaisar Duan melakukan banyak perbuatan tidak benar? Mengapa mencari bantuan medis adalah hal yang tabu baginya? Apa tangan jahat seorang nelayan, penebang kayu, petani, dan sarjana?”
+Melihat ketiga karakter 'Duan Huang Ye', Guo Jing terkejut, "Kaisar Duan, bukankah dia Kaisar Selatan  yang sama terkenalnya 
+dengan ayahmu?" tanyanya.
 
-Huang Rong menghela nafas, "Jing Gege, tolong jangan mengira aku sangat pintar sehingga aku tahu segalanya."
+[^sangat-jauh]: Wan Shui Qian Shan, secara umum artinya adalah 'Sangat jauh'.
 
-Guo Jing terkejut; dia mengulurkan tangannya dan memeluk Huang Rong. "Baiklah, mari kita turun," katanya. Melirik ke kejauhan, dia bisa melihat ada seorang pria duduk di bawah pohon willow di sebelah air terjun. Pria itu memakai topi bambu, namun karena jaraknya yang cukup jauh dia tidak bisa melihat dengan jelas apa yang dilakukan pria itu.
+Huang Rong kelelahan, tetapi mendengarnya menyebut Kaisar Selatan, hatinya tergerak. "Kaisar Duan?" katanya. "Shifu juga 
+mengatakan bahwa lukanya hanya dapat disembuhkan oleh Kaisar Duan. Aku mendengar ayahku menyebutkan Kaisar Duan adalah kaisar 
+Dali di Yunnan. Bukankah itu..." Tiba-tiba ia teringat bahwa tempat ini dengan Yunnan dipisahkan oleh 'puluhan ribu sungai dan 
+ribuan gunung[^sangat-jauh]. Tidak mungkin dicapai dalam tiga hari. Tiba-tiba dadanya terasa dingin. Ia berusaha duduk dan 
+bersandar pada Guo Jing, mereka membaca bersama.
 
-Pertama, dia sedang terburu-buru, kedua, jalan turun jauh lebih mudah, oleh karena itu, tanpa perlu banyak waktu, Guo Jing dengan Huang Rong di punggungnya dengan cepat tiba di dekat air terjun. Dia melihat pria itu memakai jas hujan, duduk di atas sebongkah batu, sedang memancing.
+"Cedera yang diderita gadis ini hanya bisa disembuhkan oleh Kaisar Duan. Karena banyak perilakunya yang tidak lurus, ia 
+menyembunyikan dirinya di Taoyuan, dan mempersulit orang luar untuk melihatnya. Siapa pun yang mencari bantuan pengobatan 
+adalah hal yang tabu baginya, kalau kau menyebutkan niatmu, sebelum kau mencapai kediamannya, kau akan dihentikan oleh 
+tangan-tangan jahat seorang nelayan, penebang kayu, petani, dan sastrawan. Oleh karena itu kau harus mengatakan bahwa kalian 
+punya pesan penting dari guru kalian Hong Qigong dan ingin bertemu dengan Kaisar. Setelah kalian berada di hadapan Kaisar 
+Selatan, berikan kantong kuning itu kepadanya. Nasib kalian bergantung pada hal ini."
 
-Air yang jatuh menciptakan jeram yang kuat, air mengalir terlalu cepat, bagaimana mungkin ada ikan? Kalaupun ada, bagaimana mungkin ikan punya waktu untuk mengambil umpannya?
+Selesai membaca, Guo Jing menoleh kepada Huang Rong hanya untuk melihatnya mengerutkan kening dalam diam. "Rong'er," tanyanya. 
+"Mengapa Kaisar Duan melakukan banyak perbuatan tidak benar? Mengapa mencari bantuan pengobatan adalah hal yang tabu baginya? 
+Apa tangan jahat seorang nelayan, penebang kayu, petani, dan sastrawan?"
 
-Guo Jing melihat pria itu berusia sekitar empat puluh tahun, wajahnya hitam seperti dasar pot, penuh dengan janggut dan kumis yang tumbuh seperti sikat kawat. Matanya menatap tak bergerak ke arah air. Melihat dia sedang memancing dengan konsentrasi penuh, Guo Jing tidak berani mengganggu, dia menurunkan Huang Rong di dekat pohon willow untuk beristirahat, sementara mereka menunggu untuk melihat jenis ikan apa yang hidup di air terjun itu.
+Huang Rong menghela nafas, "Jing Gege, tolong jangan mengira aku begitu pintar sehingga aku bisa tahu segalanya."
 
-Setelah menunggu lama, tiba-tiba seberkas cahaya keemasan keluar dari air; wajah nelayan itu menunjukkan kegembiraan, pancingnya ditekuk ke bawah. Mereka melihat sesuatu yang panjangnya sekitar satu kaki menggigit tali pancing. Sesuatu itu tidak terlihat seperti ikan atau ular, itu terlihat sangat aneh.
+Guo Jing terkejut, ia mengulurkan tangannya dan memeluk Huang Rong. "Baik, mari kita turun," katanya. Melirik ke kejauhan, 
+ia bisa melihat ada seorang laki-laki duduk di bawah pohon willow di sebelah air terjun. Laki-laki itu memakai topi bambu, 
+namun karena jaraknya yang cukup jauh ia tidak bisa melihat dengan jelas apa yang dilakukan orang itu.
 
-Guo Jing tercengang, dia tidak bisa menahan diri untuk tidak berteriak, "Ah! Apa itu?"
+Pertama, ia sedang terburu-buru, kedua, jalan turun jauh lebih mudah, oleh karena itu tanpa perlu banyak waktu Guo Jing dengan 
+Huang Rong di punggungnya dengan cepat tiba di dekat air terjun. Ia melihat orang itu memakai baju pelindung hujan, duduk di 
+atas sebongkah batu, sedang memancing.
 
-Pada saat itu garis emas lainnya melompat ke atas air untuk menggigit tali pancing. Nelayan itu senang, dia menjaga pancingnya tetap stabil. Tapi tiang itu semakin bengkok. Nelayan berjuang untuk membuatnya tetap lurus. 'Retak!' tiba-tiba tiang itu patah. Dua ikan aneh melepaskan pancingnya, lalu berenang pergi dengan puas. Arus airnya sangat kencang tapi sepertinya ikan-ikan itu berenang di air yang tenang. Dalam sekejap mereka menghilang di bawah batu.
+Air yang jatuh menciptakan jeram yang kuat, air mengalir terlalu cepat, bagaimana mungkin ada ikan? Kalaupun ada, bagaimana 
+mungkin ikan punya waktu untuk mengambil umpannya?
 
-Nelayan itu berbalik dengan mata melotot, melotot marah, berteriak keras, "Bocah bau, orang tuamu telah menunggu dengan susah payah selama setengah hari, dan kemudian kamu pencuri kecil datang dan menakuti mereka." Tangannya terentang dengan telapak tangan terbuka lebar, maju dua langkah siap menerkam. Tapi untuk alasan yang tidak diketahui dia berhasil mengendalikan amarahnya dan memegang tangannya yang besar; sendi jarinya mengeluarkan suara retak; wajahnya penuh amarah.
+Guo Jing melihat orang itu berusia sekitar empat puluh tahun, wajahnya hitam seperti dasar pot, penuh dengan janggut dan kumis 
+yang tumbuh seperti sikat kawat. Matanya menatap tak bergerak ke arah air. Melihat ia sedang memancing dengan penuh perhatian, 
+Guo Jing tidak berani mengganggu, ia menurunkan Huang Rong di dekat pohon willow untuk beristirahat, sementara mereka menunggu 
+untuk melihat jenis ikan apa yang hidup di air terjun itu.
 
-Guo Jing menyadari bahwa dia secara tidak sengaja menyebabkan masalah karena itu dia tidak berani berbicara balik. “Paman marah, itu salahku. Tapi ikan aneh macam apa mereka?” dia dengan rendah hati bertanya.
+Setelah menunggu lama, tiba-tiba seberkas cahaya keemasan keluar dari air, wajah nelayan itu tampak kegirangan, pancingnya 
+ditekuk ke bawah. Mereka melihat sesuatu yang panjangnya sekitar satu kaki menggigit tali pancing. Sesuatu itu tidak terlihat 
+seperti ikan atau ular, tampak sangat aneh.
 
-Nelayan itu memarahinya, “Apakah kamu buta? Itu bukan ikan, itu 'jin wawa' [bayi emas atau boneka bayi].”
+Guo Jing tercengang, ia tidak bisa menahan rasa ingin tahunya dan berteriak, "Ah! Apa itu?"
 
-Guo Jing tidak marah meski dimarahi; dia tersenyum dan bertanya lebih lanjut, "Maafkan ketidaktahuan saya, tapi apa itu 'jin wawa'?"
+Pada saat itu garis emas lainnya melompat ke atas air untuk menggigit tali pancing. Nelayan itu senang, ia menjaga pancingnya 
+tetap stabil. Tapi gagang itu semakin bengkok. Si Nelayan berjuang untuk membuatnya tetap lurus. 'Krekk!' tiba-tiba gagang itu 
+patah. Dua ekor ikan aneh melepaskan pancingnya, lalu berenang pergi dengan puas. Arus airnya sangat kencang tapi sepertinya 
+ikan-ikan itu berenang di air yang tenang. Dalam sekejap mereka menghilang di bawah batu.
 
-Nelayan itu menjadi marah, dia berteriak, "'Jin wawa' adalah 'jin wawa', mengapa kamu pencuri kecil yang bau ingin tahu?"
+Nelayan itu berbalik dengan mata melotot marah, berteriak keras, 
+"[Chou Xiaozi](referensi-karakter.md#bocah-tengik "Bocah Tengik"), Laofu menunggu dengan susah payah setengah harian, 
+lalu kau bangsat kecil ini datang dan menakuti-nakuti mereka." Tangannya terentang dengan telapak tangan terbuka lebar, 
+maju dua langkah siap menerkam. Tapi untuk alasan yang tidak jelas ia berhasil mengendalikan emosinya, dan menahan tangannya 
+yang besar itu, persendian jarinya mengeluarkan suara gemeretak, wajahnya penuh emosi.
 
-Karena Guo Jing dengan sungguh-sungguh ingin memintanya menunjukkan jalan untuk menemui Kaisar Duan, dia tidak berani mengatakan apa-apa, dia hanya mengangkat tinjunya untuk meminta maaf.
+Guo Jing menyadari bahwa ia secara tidak sengaja menyebabkan masalah, karena itu ia tidak berani balik berdebat. "Paman marah, 
+itu salahku. Tapi ikan aneh macam apa mereka?" tanyanya dengan rendah hati.
 
-Huang Rong tidak bisa menahan kesabarannya lebih lama lagi, dia menyela, “'Jin wawa' adalah salamander raksasa berwarna emas. Kami memelihara beberapa pasang di rumah saya. Apa yang aneh tentang itu?”
+[^jin-wawa]: Jin Wawa secara literal berarti 'Bayi Emas'.
 
-Mendengarkan Huang Rong dengan benar menjelaskan apa sebenarnya 'jin wawa' itu, nelayan itu sedikit bingung, dia memarahi, “Huh, kamu membunyikan klaksonmu dengan sangat keras! Meningkatkan beberapa pasang dari mereka! Izinkan saya bertanya kepada Anda, apa tujuan dari 'jin wawa'?
+Nelayan itu memarahinya, "Kau buta ya? Itu bukan ikan, itu Jin Wawa[^jin-wawa]."
 
-"Apa tujuannya?" Huang Rong bertanya, "Mereka menarik, bisa mengeluarkan suara 'ya ya ya' seperti bayi kecil, jadi kami membesarkan mereka untuk bermain dengan mereka."
+Guo Jing tidak marah meski dimarahi, ia tersenyum dan bertanya lebih lanjut, "Maafkan ketidaktahuanku, tapi apa itu Jin Wawa?"
 
-Mendengar dia mengatakan hal yang benar, wajah nelayan itu melembut, dia berkata, "Bayi kecil, jika kamu memelihara beberapa pasang di rumahmu, maka kamu harus memberiku sepasang untuk mengkompensasi kehilanganku."
+Nelayan itu jadi marah, ia berteriak, "Jin Wawa ya Jin Wawa, kau bocah tengik ini mau tahu saja!"
 
-"Mengapa saya harus memberikan kompensasi kepada Anda?" Huang Rong bertanya.
+Karena Guo Jing sungguh-sungguh ingin memintanya menunjukkan jalan untuk menemui Kaisar Duan, ia tidak berani mengatakan 
+apa-apa, ia hanya mengangkat dan merangkapkan tangannya untuk meminta maaf.
 
-Nelayan itu menunjuk ke arah Guo Jing dan berkata, “Saya kebetulan menangkap satu dengan alat pancing saya, tetapi dia datang dan berteriak dengan kasar, sehingga yang lain muncul dan menarik alat pancing saya. 'Jin wawa' ini sangat pintar; setelah lolos dari bahaya, jangan pernah berpikir untuk menangkapnya untuk kedua kalinya. Jika saya tidak meminta Anda untuk memberikan kompensasi kepada saya, kepada siapa saya harus meminta?”
+Huang Rong tidak bisa menahan kesabarannya lebih lama lagi, ia menyela, "Jin Wawa itu ikan raksasa berwarna emas. Kami 
+memelihara beberapa pasang di rumahku. Apa sih anehnya ikan itu?"
 
-Huang Rong tersenyum, “Bahkan jika kamu menangkapnya, kamu hanya menangkap satu. Cobalah sekuat tenaga, tetapi bagaimana mungkin yang kedua mau menerima umpan Anda?
+Mendengarkan Huang Rong dengan benar menjelaskan apa sebenarnya Jin Wawa itu, nelayan itu agak heran, ia mengomel, "Huh, 
+mulutmu terlalu besar! Memelihara beberapa pasang! Coba kutanya, tujuannya untuk apa?"
 
-Nelayan tidak dapat menemukan kata untuk menjawab ini; dia menggaruk kepalanya dan berkata, "Baiklah, berikan aku satu."
+"Apa tujuannya?" kata Huang Rong balik bertanya, "Mereka menarik, bisa mengeluarkan suara 'ya ya ya' seperti bayi kecil, jadi 
+kami membesarkan mereka untuk bermain-main dengan mereka."
 
-"Jika Anda memisahkan sepasang 'jin wawa', dalam tiga hari keduanya, laki-laki dan perempuan, akan mati," kata Huang Rong.
+Mendengar ia mengatakan hal yang benar, wajah nelayan itu melembut, ia berkata, "Xiao Wawa, kalau kau memelihara beberapa pasang 
+di rumahmu, maka kau harus memberiku sepasang untuk ganti rugi."
 
-Nelayan itu tidak ragu lagi; dia menangkupkan tinjunya dan membungkuk dengan hormat kepada Guo Jing dan Huang Rong, "Baiklah, anggap saja itu salahku," katanya, "Maukah kamu berbagi pasangan denganku?"
+"Wah, kenapa aku harus memberikan ganti rugi?" tanya Huang Rong.
 
-Huang Rong tersenyum. "Katakan padaku dulu, apa yang akan kamu lakukan dengan 'jin wawa'?" dia bertanya.
+Nelayan itu menunjuk ke arah Guo Jing dan berkata, "Aku kebetulan menangkap satu dengan alat pancingku, tapi dia datang dan 
+berteriak kasar, maka yang lain muncul dan menarik alat pancingku. Jin Wawa ini sangat pintar, setelah lolos dari bahaya, 
+jangan pernah berpikir untuk menangkapnya untuk kedua kalinya. Kalau aku tidak minta ganti rugi kepadamu, lalu aku harus minta
+kepada siapa?"
 
-Nelayan itu ragu-ragu sedikit, lalu menjelaskan, “Baiklah, akan saya beri tahu. Paman bela diri saya adalah orang India. Dia datang mengunjungi tuanku beberapa hari terakhir ini. Dalam perjalanan ke sini dia berhasil menangkap sepasang 'jin wawa'; dia sangat senang. Dia mengatakan ada serangga yang sangat beracun yang merugikan banyak orang di India. Tidak ada cara untuk memusnahkan serangga ini. 'Jin wawa' ini sebenarnya adalah musuh serangga. Dia meminta saya untuk merawat mereka selama beberapa hari, dan kemudian mengembalikannya kepadanya pada saat dia selesai berbicara dengan tuan saya dan siap untuk turun gunung. Dia akan membawa mereka kembali ke India dan membiakkan mereka. Siapa sangka …"
+Huang Rong tersenyum, "Kalaupun kau menangkapnya, kau hanya menangkap satu. Cobalah sekuat tenaga, tetapi mana mungkin yang 
+kedua mau menggigit umpanmu?"
 
-"Siapa sangka kamu tidak berhati-hati dan membiarkan 'jin wawa kabur ke air terjun ini," Huang Rong memotongnya.
+Nelayan itu tidak menemukan kata-kata untuk menjawab, ia menggaruk kepalanya dan berkata, "Baiklah, berikan aku satu."
 
-Nelayan itu terkejut, “Ah! Bagaimana kamu tahu?" Dia bertanya.
+"Kalau kau memisahkan sepasang Jin Wawa, dalam tiga hari keduanya akan mati," kata Huang Rong.
 
-Huang Rong cemberut dengan mulut kecilnya dan berkata, “Apakah itu sulit ditebak? 'Jin wawa' ini benar-benar tidak mudah dipertahankan. Awalnya kami memiliki lima pasang, kemudian dua pasang melarikan diri.”
+Nelayan itu tidak ragu lagi, ia merangkapkan tangannya dan membungkuk dengan hormat kepada Guo Jing dan Huang Rong, "Baiklah, 
+anggap saja itu salahku," katanya. "Maukah kau berbagi pasangan denganku?"
 
-Mata nelayan berbinar, wajahnya menunjukkan ekspresi bahagia. “Nona yang baik, tolong beri saya sepasang. Anda masih memiliki dua pasang. Atau paman bela diri saya akan marah kepada saya; Saya mungkin tidak bisa menerimanya, ”mohonnya.
+Huang Rong tersenyum. "Katakan dulu, apa yang akan kau lakukan dengan Jin Wawa?" tanyanya.
 
-Huang Rong tertawa. "Tidak sulit memberimu sepasang, tapi mengapa kamu begitu kejam kepada kami sebelumnya?" dia bertanya.
+Nelayan itu ragu-ragu sedikit, lalu menjelaskan, "Baiklah, akan kuberitahu. Paman guruku orang India. Dia datang mengunjungi 
+guruku beberapa hari terakhir ini. Dalam perjalanan ke sini dia berhasil menangkap sepasang Jin Wawa, dia sangat senang. Dia 
+bilang ada serangga yang sangat beracun yang merugikan banyak orang di India. Tidak ada cara untuk memusnahkan serangga ini. 
+Jin Wawa ini sebenarnya adalah musuh serangga. Dia memintaku untuk merawat mereka selama beberapa hari, dan kemudian 
+mengembalikannya kepadanya pada saat dia selesai bicara dengan guruku dan siap untuk turun gunung. Dia akan membawa mereka 
+pulang ke India dan mengembangbiakkan mereka. Siapa sangka..."
 
-Nelayan itu tersenyum canggung, dia dengan malu-malu berkata, “Ay! temperamen buruk saya; Saya benar-benar harus berubah. Nona yang baik, di mana rumahmu? Apakah tidak apa-apa jika saya mengikuti Anda? Apakah jauh dari sini?"
+"Siapa sangka kau tidak berhati-hati dan membiarkan Jin Wawa itu kabur ke air terjun ini," potong Huang Rong.
 
-Huang Rong dengan lembut menghela napas dalam-dalam dan berkata, “Jika kamu mengatakan sudah dekat, itu tidak benar; tetapi jika Anda mengatakan itu jauh, itu juga tidak. Mungkin sekitar tiga, empat ribu 'li dari sini.”
+Nelayan itu terkejut, "Wah! Bagaimana kau tahu?" tanyanya.
 
-Nelayan itu terkejut, kumis kawatnya berdiri, dia meraung, "Gadis kecil, kamu menipu saya!" Tinju seukuran mangkuk cuka terangkat, siap menghancurkan kepala Huang Rong; tetapi menyadari dia hanyalah seorang gadis muda dan lemah, dia takut dia akan membunuhnya. Tinjunya tetap di udara lalu perlahan-lahan jatuh ke sampingnya.
+Mulut kecil Huang Rong cemberut, ia berkata, "Masa itu sulit ditebak? Jin Wawa ini benar-benar tidak mudah dipertahankan. 
+Awalnya kami punya lima pasang, kemudian dua pasang melarikan diri."
 
-Guo Jing sudah siap, begitu nelayan itu menyerang, dia akan segera memblokir serangan itu. Huang Rong tersenyum dan berkata, “Mengapa khawatir? Saya sudah punya ide bagus sejak awal. Jing Gege, tolong panggil elang putih.”
+Mata nelayan berbinar, wajahnya tampak senang. "Nona yang baik, tolong beri aku sepasang. Kau masih punya dua pasang. Atau paman 
+guruku akan marah. Aku mungkin tidak bisa menerimanya," katanya memohon.
 
-Guo Jing tidak jelas tentang niatnya, tetapi dia tetap bersiul untuk memanggil elang. Nelayan itu diam-diam terkejut; Peluit Guo Jing bergema di seluruh lembah dan pegunungan, didukung oleh energi internal yang mendalam. “Untungnya saya tidak bertengkar dengannya lebih awal,” pikirnya, “Kalau tidak, anak kecil ini akan memukuli saya sampai mati.”
+Huang Rong tertawa. "Tidak sulit memberimu sepasang, tapi mengapa kau begitu kejam kepada kami sebelumnya?" Ia bertanya.
 
-Tidak lama kemudian, sepasang burung elang terbang melintas, mengikuti suara peluit. Huang Rong mengupas sepotong kulit pohon, lalu mengukir garis karakter dengan jarum, 'Ayah, saya ingin sepasang' jin wawa '. Biarkan elang membawa mereka kembali ke sini. Putri Anda, Rong, sangat menghormati.’
+Nelayan itu tersenyum canggung, ia dengan malu-malu berkata, "Ah! Temperamenku buruk! Aku benar-benar harus berubah. Nona yang 
+baik, di mana rumahmu? Apakah boleh aku mengikutimu? Apa jauh dari sini?"
 
-Guo Jing sangat senang; dia memotong dua potong kain dari ikat pinggangnya dan dengan kuat mengikat kulit kayu di kaki elang jantan. "Pergi ke Pulau Bunga Persik, cepat pergi dan cepat kembali," kata Huang Rong pada sepasang elang.
+Huang Rong dengan lembut menghela napas dalam-dalam dan berkata, "Kalau kau bilang sudah dekat, itu tidak benar, tetapi kalau 
+kau bilang jauh, juga tidak. Mungkin sekitar tiga-empat ribu li dari sini."
 
-Guo Jing takut elang tidak mengerti, dia menunjuk ke timur dan berkata tiga kali, "Pulau Bunga Persik." Sepasang elang menjerit panjang, mengangkat sayap mereka dan terbang menjauh. Mereka membuat lingkaran di udara, menuju ke timur dan kemudian menghilang di balik awan dalam waktu singkat.
+Nelayan itu terkejut, kumis kawatnya berdiri, ia meraung, "Nona cilik, kau menipuku!" Tinju seukuran mangkuk cuka itu terangkat, 
+siap menghancurkan kepala Huang Rong, tetapi menyadari ia hanya seorang anak perempuan kecil dan lemah, ia takut ia akan 
+membunuhnya. Tinjunya tetap di udara lalu perlahan-lahan turun ke sampingnya.
 
-Rahang nelayan jatuh dan tetap terbuka untuk sementara waktu; gumamnya, “Pulau Bunga Persik, Pulau Bunga Persik? Apa arti Huang Yaoshi, Yang Mulia Huang bagimu?”
+Guo Jing sudah siap, begitu nelayan itu menyerang, ia akan segera memblokir serangan itu. Huang Rong tersenyum dan berkata, 
+"Mengapa kuatir? Aku sudah punya ide bagus sejak awal. Jing Gege, tolong panggil elang putih."
 
-"Dia adalah ayahku, mengapa?" Huang Rong dengan bangga berkata.
+Guo Jing tidak tahu pasti apa niatnya, tetapi ia tetap bersiul untuk memanggil elang. Nelayan itu diam-diam terkejut. Siulan 
+Guo Jing bergema di seluruh lembah dan pegunungan, didukung oleh tenaga dalam yang kuat. "Untungnya aku tidak bertengkar 
+dengannya tadi," pikirnya. "Kalau tidak, bocah ini akan memukuli aku sampai mati."
 
-"Ah!" seru nelayan itu; dia kehilangan kata-kata.
+Tidak lama kemudian, sepasang burung elang terbang melintas, mengikuti suara siulan. Huang Rong mengupas sepotong kulit pohon, 
+lalu mengukir garis karakter dengan jarum, 'Ayah, aku ingin sepasang Jin Wawa. Biarkan elang membawa mereka kembali ke sini. 
+Putrimu, Rong, dengan sangat hormat.'
 
-Huang Rong berkata, “Elang putihku akan membawa 'jin wawa' ke sini dalam beberapa hari; tidak akan terlambat, kan?”
+Guo Jing sangat senang, ia memotong dua potong kain dari ikat pinggangnya, dan dengan kuat mengikat kulit kayu di kaki elang 
+jantan. "Pergi ke Taohua Dao, cepat, dan cepat kembali," kata Huang Rong kepada sepasang elang.
 
-“Kuharap tidak,” kata nelayan itu. Dia melihat ke atas dan ke bawah dua orang Jing dan Rong untuk menilai mereka dengan mata penuh kecurigaan.
+Guo Jing takut elang tidak mengerti, ia menunjuk ke timur dan berkata tiga kali, "Pulau Bunga Persik." Sepasang elang memekik 
+panjang, mengangkat sayap mereka dan terbang menjauh. Mereka membuat lingkaran di udara, menuju ke timur dan kemudian menghilang 
+di balik awan dalam waktu singkat.
 
-Guo Jing membungkuk dan bertanya, "Kami belum menemukan nama terhormat Paman."
+Rahang nelayan itu turun dan mulutnya tetap terbuka untuk sementara waktu, gumamnya, "Pulau Bunga Persik, Pulau Bunga Persik? 
+Apa arti Huang Yaoshi, Huang Daxia bagimu?"
 
-Nelayan itu tidak menjawab, malah dia bertanya, “Apa yang kamu lakukan di sini? Siapa yang menyuruhmu datang ke sini?”
+"Dia ayahku, kenapa?" kata Huang Rong dengan bangga.
 
-Guo Jing dengan hormat menjawab, "Junior datang untuk menemui Kaisar Duan." Awalnya dia ingin mengatakan seperti yang dikatakan Ying Gu kepada mereka, bahwa Hong Qigong telah mengirim mereka untuk datang; tapi dia tidak bisa berbohong, akhirnya dia tidak mengatakan apa-apa.
+"Ah!" seru nelayan itu, ia kehilangan kata-kata.
 
-Shifu saya tidak melihat orang luar, nelayan itu dengan tegas berkata, Apa yang kamu inginkan darinya?
+Huang Rong berkata, “Elang putihku akan membawa Jin Wawa ke sini dalam beberapa hari, tidak terlambat, kan?”
 
-Dengan watak alami Guo Jing, dia ingin mengatakan yang sebenarnya, tetapi dia takut mereka tidak akan dapat melihat Kaisar Selatan, dan dengan demikian membahayakan nyawa Huang Rong. Dia tidak bisa mengatakan yang sebenarnya, namun dia tidak memiliki kekuatan untuk berbohong; jadi dia ragu-ragu sebelum menjawab pertanyaan itu.
+"Kuharap tidak," kata nelayan itu. Ia melihat Guo Jing dan Huang Rong dari atas ke bawah untuk menilai mereka dengan mata 
+penuh kecurigaan.
 
-Nelayan itu memperhatikan ekspresinya yang tidak pasti, juga wajah Huang Rong yang kurus dan pucat; dia telah menebak 70, 80% dengan benar. "Kamu ingin Guruku menyembuhkan lukamu, bukan?" dia meraung.
+Guo Jing membungkuk dan bertanya, "Kami belum tahu nama kehormatan Paman."
 
-Guo Jing merasa seperti beban berat diambil dari pikirannya, dia tidak menyembunyikan apa pun lagi. Dia tidak punya pilihan lain selain menganggukkan kepala, tetapi hatinya dipenuhi dengan kecemasan dan penyesalan, dia membenci dirinya sendiri karena tidak bisa berbohong.
+Nelayan itu tidak menjawab, malah balik bertanya, "Apa yang kau lakukan di sini? Siapa yang menyuruhmu datang ke sini?"
 
-Nelayan itu hampir berteriak, “Jangan pernah berpikir untuk melihat Shifu saya. Bahkan jika saya harus menanggung omelan [paman bela diri] Shifu dan Shishu saya, saya tidak ingin 'jin wawa' atau 'yin wawa' [bayi perak] Anda lagi. Pergi saja ke gunung, cepat!”
+Guo Jing dengan hormat menjawab, "Wanbei datang untuk menemui Kaisar Duan." Awalnya ia ingin mengatakan seperti yang dikatakan 
+Ying Gu kepada mereka, bahwa Hong Qigong telah mengirim mereka untuk datang, tapi ia tidak bisa berbohong, akhirnya ia tidak 
+mengatakan apa-apa.
 
-Kata-katanya tanpa keraguan tidak memberi mereka keringanan sedikit pun. Guo Jing terdiam selama setengah hari, menghirup udara dingin. Sesaat kemudian dia melangkah maju dan membungkuk hormat. “Yang terluka adalah putri Huang Daozhu [Island Master Huang] dari Pulau Bunga Persik. Saat ini dia juga Bangzhu dari Klan Pengemis. Saya meminta Paman untuk mempertimbangkan wajah emas Master Pulau Huang dan Hong Bangzhu dan menunjukkan kepada kami jalan sehingga kami dapat mencari audiensi dengan Kaisar Duan.
+"Guruku tidak menemui orang luar," kata nelayan itu dengan tegas. "Apa yang kalian inginkan?"
 
-Mendengar tiga karakter 'Hong Bangzhu', wajah nelayan itu melunak; dia menggelengkan kepalanya dan berkata, “Nona muda ini adalah Bangzhu Klan Pengemis? Saya tidak percaya.”
+Dengan watak alamiah Guo Jing, ia ingin mengatakan yang sebenarnya, tetapi ia takut mereka tidak akan dapat menemui Kaisar 
+Selatan, dan dengan demikian membahayakan nyawa Huang Rong. Ia tidak bisa mengatakan yang sebenarnya, namun ia tidak punya 
+cara untuk berbohong, jadi ia ragu-ragu sebelum menjawab pertanyaan itu.
 
-Guo Jing mengarahkan jarinya ke tongkat bambu di tangan Huang Rong, dia berkata, "Ini adalah Tongkat Pemukul Anjing Pemimpin Klan Pengemis; pasti Paman mengenalinya.”
+Nelayan itu memperhatikan mukanya yang tidak pasti, juga wajah Huang Rong yang kurus dan pucat, ia telah menebak antara tujuh 
+sampai delapan puluh persen dengan benar. "Kau supaya ingin guruku menyembuhkan lukamu, kan?" tanyanya dengan suara serak.
 
-Nelayan itu mengangguk. “Kalau begitu, apakah Pengemis Ilahi Berjari Sembilan itu bagimu?” Dia bertanya.
+Guo Jing merasa seperti beban berat diambil dari pikirannya, ia tidak menyembunyikan apa pun lagi. Ia tidak punya pilihan lain 
+selain menganggukkan kepala, tetapi hatinya dipenuhi dengan kecemasan dan penyesalan, ia membenci dirinya sendiri karena tidak 
+bisa berbohong.
 
-"Dia adalah Guru Kebajikan kita," jawab Guo Jing.
+[^bayi-perak]: Yin Wawa secara literal berarti 'Bayi perak', istilah ini dikarang seenaknya.
 
-"Ah!" si nelayan berseru, “Begitukah? Apakah datang untuk melihat Shifu saya atas instruksi Pengemis Ilahi Berjari Sembilan?
+Nelayan itu hampir berteriak, "Jangan mimpi untuk ketemu guruku. Kalaupun aku harus menanggung omelan guru dan paman guruku, 
+aku tetap tidak menginginkan Jin Wawa atau Yin Wawa[^bayi-perak] lagi. Pergi saja ke gunung, cepat!"
+
+Kata-katanya tanpa tegas keraguan, tidak memberi mereka keringanan sedikit pun. Guo Jing terdiam lama, menghirup udara dingin. 
+Sesaat kemudian ia melangkah maju dan membungkuk hormat. "Yang terluka adalah putri Huang Daozhu dari Pulau Bunga Persik. 
+Saat ini dia juga Bangzhu dari Kai Pang. Aku mohon Paman untuk mempertimbangkan wajah emas Huang Daozhu dan Hong Bangzhu, dan 
+menunjukkan kepada kami jalan, supaya kami bisa bertemu dengan Kaisar Duan."
+
+Mendengar tiga karakter 'Hong Bangzhu', wajah nelayan itu melunak, ia menggelengkan kepalanya dan berkata, "Nona cilik ini Kai 
+Pang Bangzhu? Aku tidak percaya!"
+
+Guo Jing mengarahkan jarinya ke tongkat bambu di tangan Huang Rong, ia berkata, "Ini adalah Da Gou Bang milik Ketua Kai Pang, 
+pasti Paman mengenalinya."
+
+Nelayan itu mengangguk. "Kalau begitu, apa hubunganmu dengan Dewa Pengemis Sembilan Jari itu?" tanyanya.
+
+"Dia adalah guru kami," jawab Guo Jing.
+
+"Ah!" si nelayan berseru, "Begitukah? Apa datang untuk menemui guruku juga atas perintah Dewa Pengemis Sembilan Jari?"
 
 Guo Jing ragu-ragu sebelum menjawab, Huang Rong dengan cepat menjawab, "Tentu saja."
 
-Nelayan itu menundukkan kepalanya dengan ragu, dia berpikir, “Pengemis Dewa Sembilan Jari memiliki persahabatan yang luar biasa dengan Guruku. Bagaimana saya harus menangani masalah ini?”
+Nelayan itu menundukkan kepalanya dengan ragu, ia berpikir, "Dewa Pengemis Dewa Sembilan Jari punya hubungan persahabatan yang 
+luar biasa erat dengan guruku. Bagaimana aku harus menangani masalah ini?"
 
-Huang Rong memahami keraguannya, dia ingin memanfaatkan kesempatan ini; dia berkata, "Shifu kami mengirim kami ke sini untuk bertemu dengan Kaisar Duan, selain untuk memintanya mengobati cedera, juga untuk memberi tahu dia dengan hormat tentang masalah yang sangat penting."
+Huang Rong memahami keraguannya, ia ingin memanfaatkan kesempatan ini, ia berkata, "Guru kami mengirim kami ke sini untuk 
+bertemu dengan Kaisar Duan, selain untuk memintanya mengobati cedera, juga untuk memberitahu dia dengan hormat tentang masalah 
+yang sangat penting."
 
-Nelayan itu tiba-tiba mengangkat kepalanya, dengan mata berkobar seperti petir, dia mengarahkan pandangannya pada Huang Rong dan dengan tegas bertanya, "Pengemis Ilahi Berjari Sembilan menyuruhmu untuk menemui Kaisar Duan?"
+Nelayan itu tiba-tiba mengangkat kepalanya, dengan mata berkobar seperti petir, ia mengarahkan pandangannya pada Huang Rong dan dengan tegas bertanya, "Dewa Pengemis Sembilan Jari menyuruhmu untuk menemui Kaisar Duan?"
 
 "Itu benar!" kata Huang Rong.
 
-"Apakah dia benar-benar mengatakan 'Kaisar Duan' dan bukan nama lain?" desak nelayan.
+"Apa dia benar-benar menyebutkan 'Kaisar Duan' dan bukan nama lain?" desak nelayan itu.
 
-Huang Rong tahu pasti ada sesuatu dalam cara dia menyebut nama itu, tetapi dia tidak bisa mengoreksi dirinya sendiri; dia tidak punya pilihan selain mengangguk setuju.
+Huang Rong tahu pasti ada sesuatu dalam caranya menyebutkan nama itu, tetapi ia tidak bisa mengoreksi dirinya sendiri, ia tidak 
+punya pilihan selain mengangguk setuju.
 
 Nelayan itu bergerak dua langkah ke depan dan dengan suara nyaring berteriak, "Kaisar Duan sudah lama tidak ada di dunia ini!"
 
-Jing, Rong, dua orang terkejut; dengan suara gemetar mereka bertanya, “Dia meninggal?”
+Guo Jing dan Huang Rong terkejut, dengan suara gemetar mereka bertanya, "Dia meninggal?"
 
-Nelayan itu berkata, “Ketika Kaisar Duan meninggalkan dunia ini, Pengemis Dewa Sembilan Jari Senior ada di sisinya. Bagaimana dia bisa memberitahumu untuk mengunjungi Kaisar Duan? Siapa yang menyuruhmu datang ke sini? Skema jahat macam apa yang kamu mainkan? Cepat beritahu aku.” Sambil tetap berbicara dia mengambil langkah besar, tangan kirinya menepis, tangan kanannya direntangkan secara horizontal untuk meraih bahu Huang Rong.
+Nelayan itu berkata, "Ketika Kaisar Duan meninggalkan dunia ini, Dewa Pengemis Sembilan Jari Senior ada di sisinya. Bagaimana 
+dia bisa memberitahumu untuk mengunjungi Kaisar Duan? Siapa yang menyuruhmu datang ke sini? Rencana jahat macam apa yang kau 
+mainkan? Cepat katakan!" Sambil tetap berbicara ia melangkah lebar, tangan kirinya menepis, tangan kanannya direntangkan 
+secara horizontal untuk meraih bahu Huang Rong.
 
-Guo Jing sejak awal telah menjaga dari kemungkinan bahwa dia akan menggunakan kekerasan. Begitu tangan kanannya berada dalam jarak satu kaki dari tubuh Huang Rong, telapak tangan kiri Guo Jing membuat lingkaran, telapak tangan kanannya lurus ke depan, dalam postur 'jian long zai tian' [Melihat Naga di Lapangan], menghalangi di depan tubuh Huang Rong.
+Guo Jing sejak awal sudah mewaspadai kemungkinan bahwa ia akan menggunakan kekerasan. Begitu tangan kanannya berada dalam 
+jarak satu kaki dari tubuh Huang Rong, telapak tangan kiri Guo Jing membuat lingkaran, telapak tangan kanannya lurus ke depan, 
+melancarkan jurus Jian Long Zai Tian, menghalangi di depan tubuh Huang Rong.
 
-Langkah ini murni bersifat defensif, seperti dinding tak terlihat yang kuat tiba-tiba muncul di antara Huang Rong dan nelayan. Nelayan itu melihat bahwa meskipun Guo Jing mengulurkan telapak tangannya, tetapi dia condong ke satu sisi, maka dia tidak benar-benar menyerangnya; dia sedikit terkejut, tapi tangannya terus meraih bahu Huang Rong. Ketika tangannya berjarak sekitar setengah kaki dari targetnya, telapak tangan Guo Jing bertemu dengannya, dan dia merasakan rasa sakit di lengannya, mengalir ke dadanya, seperti kekuatan serangannya memantul dan menyerang tubuhnya sendiri. Dia takut Guo Jing akan memanfaatkan situasi yang tidak menguntungkan ini dan melancarkan serangan lagi; dia buru-buru melompat ke belakang dengan lengan yang terletak secara horizontal di depan dadanya. “Saya mendengarnya ketika Hong Qigong mendiskusikan seni bela diri dengan Shifu; ini tepatnya '18-Dragon Subduing Palms' miliknya. Maka kedua pemuda ini benar-benar muridnya; mereka tidak berbohong,” pikirnya.
+Langkah ini bersifat defensif, seperti dinding tak terlihat yang kuat tiba-tiba muncul di antara Huang Rong dan nelayan. 
+Nelayan itu melihat bahwa meskipun Guo Jing mengulurkan telapak tangannya, tetapi ia condong ke satu sisi, maka ia tidak 
+benar-benar menyerangnya, ia agak terkejut, tetapi tangannya terus meraih bahu Huang Rong. Ketika tangannya berjarak sekitar 
+setengah kaki dari sasaran, telapak tangan Guo Jing bertemu dengannya, dan ia merasakan rasa sakit di lengannya, mengalir ke 
+dadanya, seperti tenaga serangannya memantul dan menyerang tubuhnya sendiri. Ia takut Guo Jing akan memanfaatkan situasi yang 
+tidak menguntungkan ini dan melancarkan serangan lagi, ia buru-buru melompat mundur dengan lengan yang terletak secara 
+horizontal di depan dadanya. "Saya mendengarnya ketika Hong Qigong membicarakan kungfu dengan Shifu, ini ilmu Delapan 
+Belas Jurus Penakluk Naga. Maka kedua bocah ini benar-benar muridnya, mereka tidak berbohong," pikirnya.
 
-Dia melihat Guo Jing menangkupkan tinjunya di dadanya dengan sopan dan hormat; meskipun Guo Jing berada di atas angin, namun ekspresinya tidak menunjukkan rasa puas diri sedikit pun, membuat kesan yang baik di hati si nelayan. Dia berkata, "Meskipun kalian berdua benar-benar murid Pengemis Dewa Sembilan Jari Senior, tapi dia bukan orang yang mengirimmu ke sini, kan?"
+Ia melihat Guo Jing merangkapkan tinjunya di dadanya dengan sopan dan hormat, meskipun berada di atas angin, namun mukanya 
+tidak menunjukkan rasa puas diri sedikit pun, membuat kesan yang baik di hati si nelayan. Ia berkata, "Meskipun kalian berdua 
+benar-benar murid Hong Lao Qianbei, tapi dia bukan orang yang mengirimmu ke sini, kan?"
 
-Guo Jing tidak tahu bagaimana dia bisa menebak dengan benar, tetapi karena kebohongan mereka telah terungkap, dia tidak dapat menyangkal dan terpaksa menganggukkan kepalanya. Wajah nelayan itu tidak seganas dan penuh permusuhan seperti sebelumnya. “Bahkan jika yang terluka adalah Pengemis Ilahi Sembilan Jari itu sendiri, Xiao Ge [lit. 'kakak laki-laki' kecil, dia mengacu pada dirinya sendiri] masih tidak bisa membawa Senior untuk naik gunung dan melihat Shifu saya. Saya mohon pengampunan Anda.
+Guo Jing tidak tahu bagaimana ia bisa menebak dengan benar, tetapi karena kebohongan mereka telah terungkap, ia tidak bisa 
+menyangkal dan terpaksa menganggukkan kepalanya. Wajah nelayan itu tidak seganas dan penuh permusuhan seperti sebelumnya. "Sekalipun yang terluka adalah Dewa Pengemis Sembilan jari sendiri, Xiao Ge[^xiao-ge] masih tidak bisa membawa kalian naik gunung dan menemui guruku. Mohon maaf."
 
-"Bahkan jika Shifu saya ada di sini, Anda masih tidak bisa menerimanya?" Huang Rong bertanya.
+[^xiao-ge]: Istilah Xiao Ge (小哥) yang agak aneh ini dimaksudkan untuk merendahkan diri, dan menyebut diri sendiri dengan istilah 'kecil' (Xiao), meskipun dirinya juga bertindak sebagai kakak (Ge).
 
-Nelayan menggelengkan kepalanya, “Saya tidak bisa! Bahkan jika kamu membunuhku, aku tetap tidak bisa!” dia berkata.
+"Bahkan kalau guruku ada di sini, kau masih tidak bisa menerimanya?" tanya Huang Rong.
 
-Dalam hatinya, Huang Rong berpikir, “Dia dengan jelas mengakui bahwa Kaisar Duan adalah Shifu-nya; tetapi dia juga mengatakan bahwa Kaisar Duan telah meninggal, dan Guru Hong yang Baik hati ada di sisinya ketika dia meninggal. Ada terlalu banyak hal aneh di sini, tapi pria ini benar-benar sulit untuk diajak bicara.” Dia berpikir lebih jauh, “Shifu-nya ada di gunung ini, untuk itu saya yakin; apakah dia Kaisar Duan atau bukan, kita harus naik dan menemuinya.” Dia mengangkat matanya untuk melihat gunung itu begitu tinggi sehingga puncaknya menghilang ke dalam awan di atas; itu lebih tinggi dari Puncak Jari Tengah Telapak Besi, bebatuan gunung tampak licin, bahkan tidak ada sehelai rumput pun yang tumbuh. Sepertinya air terjun itu muncul entah dari mana. Tidak ada jalan yang terlihat naik gunung. Dia berpikir, “Li Bai [seorang penyair terkenal dari Dinasti Tang] mengatakan air Huang He [Sungai Kuning] naik ke langit; air ini benar-benar berasal dari langit.”
+Si Nelayan menggelengkan kepalanya, "Aku tidak bisa! Kalaupun kau membunuhku, aku tetap tidak bisa!" katanya.
 
-Mengikuti air terjun, pandangannya bergerak ke bawah; pikirannya masih berputar-putar mencari cara untuk mendaki gunung, tiba-tiba matanya menangkap cahaya keemasan yang berkilauan di bawah air, ada sesuatu yang bergerak di dalam air. Perlahan dia berjalan ke sisi air terjun untuk melihat lebih jelas. Ternyata itu adalah sepasang 'jin wawa' di bawah batu, ekor mereka bergoyang-goyang di luar. Dengan cepat dia memberi isyarat kepada Guo Jing untuk datang dan melihat.
+Dalam hatinya, Huang Rong berpikir, "Dia dengan jelas mengakui bahwa Kaisar Duan adalah gurunya, tetapi iia juga mengatakan 
+bahwa Kaisar Duan telah meninggal, dan Hong Shifu ada di sisinya ketika ia meninggal. Ada terlalu banyak hal aneh di sini, 
+tapi orang ini benar-benar sulit untuk diajak bicara." Ia berpikir lebih jauh, "Gurunya ada di gunung ini, soal itu aku yakin, 
+apakah dia Kaisar Duan atau bukan, kita harus naik dan menemuinya." Ia mengangkat matanya untuk melihat gunung itu begitu tinggi 
+sehingga puncaknya menghilang ke dalam awan, itu lebih tinggi dari Puncak Jari Tengah Telapak Besi, bebatuan gunung tampak 
+licin, bahkan tidak ada sehelai rumput pun yang tumbuh. Sepertinya air terjun itu muncul entah dari mana. Tidak tampak ada jalan 
+yang bisa membawa mereka naik ke gunung. Ia berpikir, "Li Bai[^li-bai] mengatakan air Huang He naik ke langit, air ini 
+benar-benar berasal dari langit."
 
-"Ah!" Guo Jing berseru, "Biarkan aku turun untuk menangkap mereka," katanya.
+[^li-bai]: Li Bai adalah penyair terkenal dari era Dinasti Tang.
 
-"TIDAK! Jangan!" Huang Rong berkata, “Arusnya terlalu kuat, bagaimana Anda bisa menginjakkan kaki? Jangan terlalu bodoh.”
+Mengikuti air terjun, pandangannya bergerak ke bawah, pikirannya masih berputar-putar mencari akal untuk mendaki gunung, 
+tiba-tiba matanya menangkap cahaya keemasan yang berkilauan di bawah air, ada sesuatu yang bergerak di dalam air. Perlahan ia 
+berjalan ke sisi air terjun untuk melihat lebih jelas. Ternyata itu adalah sepasang Jin Wawa di bawah batu, ekor mereka 
+bergoyang-goyang di luar. Dengan cepat ia memberi isyarat kepada Guo Jing untuk datang dan melihat.
 
-Tapi Guo Jing berpikir, “Jika aku mengambil resiko menangkap dua ikan aneh ini untuk nelayan, mungkin hatinya akan tergerak dan dia akan membawa kita menemui tuannya. Kalau tidak, apakah saya harus melihat Huang Rong menderita lukanya tanpa daya tanpa ada yang menyembuhkannya? Dia tahu Huang Rong akan menghentikannya, oleh karena itu, tanpa berkata apa-apa, bahkan tanpa melepas sepatu atau kaus kakinya, dia melompat ke air terjun di bawah.
+"Ah!" seru Guo Jing. "Biar aku turun untuk menangkap mereka," katanya.
 
-"Jinggege!" Huang Rong dengan cemas menelepon. Dia berdiri dan mencoba berlari ke depan, tetapi kakinya lemah, dia terhuyung-huyung.
+"Tidak! Jangan!" kata Huang Rong. "Arusnya terlalu kuat, bagaimana kau bisa menginjakkan kaki? Jangan terlalu bodoh."
 
-Nelayan itu juga tercengang, dia mengulurkan tangannya untuk memegang Huang Rong; kemudian segera bergegas menuju gubuk jerami. Sepertinya dia akan mengambil sesuatu untuk menyelamatkan Guo Jing.
+Tapi Guo Jing berpikir, "Kalau aku mengambil resiko menangkap dua ikan aneh ini, mungkin hatinya akan tergerak dan dia akan 
+membawa kita menemui gurunya. Kalau tidak, masa harus melihat Huang Rong menderita tanpa daya, tanpa ada yang menyembuhkannya? 
+Ia tahu Huang Rong akan menghentikannya, karena itu tanpa banyak bicara, bahkan tanpa melepas sepatu atau kaus kakinya, ia 
+melompat ke air terjun di bawah.
 
-Huang Rong duduk di atas batu untuk menonton Guo Jing. Dia melihat dia berdiri dengan mantap di dalam air; air terjun mengguyurnya dengan gila-gilaan, menyerangnya dengan ganas, tapi anehnya tubuhnya tidak goyah sama sekali. Perlahan menekuk pinggangnya, dia meraih 'jin wawa'. Dengan masing-masing tangan memegang ekor 'jin wawa, dia dengan lembut menariknya keluar. Dia takut melukai ikan aneh itu, karena itu dia tidak menggunakan terlalu banyak kekuatan; siapa sangka ternyata tubuh 'jin wawa itu licin banget. Dengan menggeliat-geliat, mereka berhasil melepaskan diri dari cengkeraman Guo Jing dan menyelinap kembali ke bawah batu. Guo Jing dengan cepat menjangkau, tapi dia masih agak lamban; dalam sekejap ikan itu menghilang tanpa bekas.
+"Jing Gege!" panggil Huang Rong dengan cemas. Ia berdiri dan mencoba berlari ke depan, tetapi kakinya lemah, ia terhuyung-huyung.
 
-Huang Rong berteriak cemas, tiba-tiba dia mendengar seseorang memanggil dengan waspada di belakang punggungnya. Dia berbalik dan melihat nelayan berdiri di belakangnya. Ada sebuah perahu kecil berwarna hitam mengkilat di bahu kirinya dan dua dayung besi di tangan kirinya; jelas dia siap untuk menyelamatkan Guo Jing.
+Nelayan itu juga tercengang, ia mengulurkan tangannya untuk memegang Huang Rong, kemudian segera bergegas ke gubuk jerami. 
+Sepertinya ia akan mengambil sesuatu untuk menyelamatkan Guo Jing.
 
-Guo Jing mengirim kekuatannya untuk berdiri, dengan 'qian jin zhui' [jatuh seribu kati] dia berdiri kokoh di atas batu, kokoh seperti pilar. Dia menahan napas dan mengulurkan tangan ke batu tempat ikan aneh itu melarikan diri, mencoba mengangkatnya. Yang membuatnya senang, batu itu sedikit bergerak. Menggunakan 'naga terbang ke langit' dari 18-Dragon Subduing Palms, tangannya menyentak batu itu ke atas; dengan suara keras, batu besar itu tiba-tiba terangkat.
+Huang Rong duduk di atas batu untuk menonton Guo Jing. Ia berdiri dengan mantap di dalam air, air terjun mengguyurnya dengan 
+gila-gilaan, menyerangnya dengan ganas, tapi anehnya tubuhnya tidak goyah sama sekali. Perlahan menekuk pinggangnya, ia meraih 
+Jin Wawa itu. Dengan masing-masing tangan memegang ekornya, ia dengan lembut menariknya keluar. Ia takut melukai ikan aneh itu, 
+karena itu ia tidak menggunakan terlalu banyak tenaga, siapa sangka ternyata tubuh ikan itu sangat licin. Dengan 
+menggeliat-geliat, mereka berhasil melepaskan diri dari cengkeraman Guo Jing dan menyelinap kembali ke bawah batu. Guo Jing 
+cepat-cepat menjangkau, tetapi ia masih agak terlambat, dalam sekejap ikan itu menghilang tanpa jejak.
 
-Guo Jing bergerak sangat cepat; dengan 'qian long wu yong' [naga tersembunyi tidak berguna (?)] dia mendorong batu itu secara horizontal. Batu itu terkena telapak tangannya dan air terjun; itu jatuh di samping tubuhnya, dengan suara gemuruh dan menggelegak itu menghilang ke dalam jurang yang dalam di bawah. Suara itu bergema di seluruh lembah untuk waktu yang lama. Guo Jing mengangkat tangannya dengan 'jin wawa' di masing-masing tangannya; selangkah demi selangkah dia keluar dari air terjun.
+Huang Rong berteriak cemas, tiba-tiba ia mendengar seseorang memanggil dengan waspada di belakang punggungnya. Ia berbalik dan 
+melihat si nelayan berdiri di belakangnya. Ada sebuah perahu kecil berwarna hitam mengkilat di bahu kirinya dan dua dayung besi 
+di tangan kirinya, jelas ia siap untuk menyelamatkan Guo Jing.
 
-Siang dan malam air jatuh, dengan berlalunya waktu telah menciptakan selokan sedalam sekitar dua zhang [1 zhang kira-kira 10 kaki atau 3 meter]. Nelayan itu melihat Guo Jing sedang berdiri di dasar parit ini; bagaimana dia bisa melompat? Oleh karena itu dia mengulurkan dayungnya untuk diambil Guo Jing, lalu dia akan mengangkatnya. Tapi tangan Guo Jing penuh dengan sepasang ikan aneh, dia takut jika dia melonggarkan cengkeramannya, ikan itu akan lepas. Mengumpulkan kekuatannya, kaki kanannya mendorong bagian bawah, diikuti kaki kirinya menendang tepi jurang; dia berhasil meminjam kekuatan untuk melompat ke darat.
+Guo Jing menghimpun tenaganya untuk berdiri, dengan Qian Jin Zhui ia berdiri kokoh di atas batu, kokoh seperti pilar. Ia 
+menahan napas dan mengulurkan tangan ke batu tempat ikan aneh itu melarikan diri, mencoba mengangkatnya. Yang membuatnya senang, 
+batu itu sedikit bergerak. Menggunakan Fei Long Zai Tian dari Delapan Belas Jurus Penakluk Naga, tangannya menyentak batu 
+itu ke atas, dengan suara keras batu besar itu tiba-tiba terangkat.
 
-Meskipun mereka telah bersama untuk sementara waktu, Huang Rong tidak menyangka keahliannya telah meningkat sebanyak ini. Dia senang dan kagum pada saat yang sama melihatnya berdiri kokoh di bawah air, mengangkat batu, meraih ikan, dan melompat dari bawah kekuatan air terjun yang kuat seolah-olah itu bukan apa-apa.
+Guo Jing bergerak sangat cepat, dengan Qian Long Wu Yong ia mendorong batu itu secara horizontal. Batu itu terkena telapak 
+tangannya, dan air terjun itu jatuh ke samping tubuhnya dengan suara gemuruh dan menggelegak, menghilang ke dalam jurang yang 
+dalam di bawahnya. Suara itu bergema di seluruh lembah sampai lama. Guo Jing mengangkat tangannya dengan Jin Wawa di 
+masing-masing tangannya, selangkah demi selangkah ia keluar dari air terjun.
 
-Sebenarnya, untuk menyelamatkan Huang Rong Guo Jing tidak berpikir tentang bagaimana dia dengan ceroboh menerjang bahaya, tetapi ketika dia berada di darat dia menoleh untuk melihat air yang deras memercik ke mana-mana, dia tidak bisa menahan perasaan pusing dan takut. Dia tidak percaya dia punya nyali seperti ini untuk pergi ke bawah air.
+Siang dan malam air jatuh, dengan berlalunya waktu telah menciptakan selokan sedalam sekitar dua zhang. Nelayan itu melihat Guo 
+Jing sedang berdiri di dasar parit itu, bagaimana ia bisa melompat? Oleh karena itu ia mengulurkan dayungnya untuk diambil Guo 
+Jing, lalu ia akan mengangkatnya. Tapi tangan Guo Jing penuh dengan sepasang ikan aneh, ia takut jika ia melonggarkan 
+cengkeramannya, ikan itu akan lepas. Mengumpulkan kekuatannya, kaki kanannya mendorong bagian bawah, diikuti kaki kirinya 
+menendang tepi jurang, ia berhasil meminjam tenaga untuk melompat ke darat.
 
-Nelayan itu mengaguminya tanpa henti; dia tahu bahwa jika energi internal, kungfu ringan, dan kekuatan eksternal Guo Jing kurang dari sangat baik tidak hanya dia tidak akan bisa menangkap ikan, tetapi dia pasti akan tenggelam ke dalam jurang yang dalam di bawah kejatuhan.
+Meskipun mereka telah bersama untuk sementara waktu, Huang Rong tidak menyangka keahliannya telah meningkat sejauh ini. Ia 
+senang dan sekaligus kagum ketika melihat Guo Jing berdiri kokoh di bawah air, mengangkat batu, meraih ikan, dan melompat dari 
+bawah kekuatan air terjun yang kuat seolah-olah itu bukan apa-apa.
 
-Kedua 'jin wawa' itu berjuang di tangan Guo Jing dengan panggilan 'wah wah' mereka, seperti tangisan bayi. Guo Jing tertawa, "Tidak heran mereka disebut ikan 'wawa', mereka terdengar seperti tangisan bayi." Dia mengulurkan tangannya untuk memberikan ikan kepada nelayan.
+Sebenarnya demi menyelamatkan Huang Rong, Guo Jing tidak berpikir tentang bagaimana ia dengan ceroboh menerjang bahaya, tetapi 
+setelah berada di darat ia menoleh untuk melihat air yang deras memercik ke mana-mana, ia merasa pusing dan takut. Ia tidak 
+percaya ia punya nyali seperti ini untuk pergi ke bawah air.
 
-Wajah nelayan itu menunjukkan ekspresi yang menyenangkan, dia menjatuhkan dayungnya dan mengulurkan tangannya untuk menerima ikan ketika tiba-tiba dia teringat sesuatu. Dia menarik tangannya dan berkata, "Buang saja kembali ke air, saya tidak bisa mengambilnya."
+Nelayan itu berdecak kagum tanpa henti, ia tahu bahwa jika tenaga dalam, Qinggong, dan otot-otot Guo Jing kurang bagus, tidak 
+hanya ia tidak akan bisa menangkap ikan, tetapi ia pasti akan jatuh tenggelam ke dalam jurang yang dalam.
 
-"Mengapa?" Guo Jing bertanya-tanya.
+Kedua Jin Wawa itu berjuang di tangan Guo Jing dengan panggilan 'wah wah' mereka, seperti tangisan bayi. Guo Jing tertawa, 
+"Tidak heran mereka disebut ikan Wawa, mereka terdengar seperti bayi menagis." Ia mengulurkan tangannya untuk memberikan ikan 
+itu kepada nelayan.
 
-“Bahkan jika saya menerima 'jin wawa' Anda, saya tetap tidak dapat membawa Anda untuk menemui Shifu saya,” kata nelayan itu, “Menerima bantuan dan tidak membayarnya kembali; bukankah aku akan menjadi bahan tertawaan para pahlawan dunia?”
+Wajah nelayan itu tampak senang, ia menjatuhkan dayungnya dan mengulurkan tangannya untuk menerima ikan ketika tiba-tiba ia 
+teringat sesuatu. Ia menarik tangannya dan berkata, "Buang saja kembali ke air, aku tidak bisa menerimanya."
 
-Guo Jing kaget, dengan wajah serius dia berkata, "Paman tidak bisa menerima kami, kamu pasti memiliki kesulitanmu sendiri, bagaimana bisa Junior memaksakan kehendak kita? Tapi sepasang ikan ini adalah masalah yang sepele, siapa yang mengatakan tentang kebaikan? Paman tidak perlu memikirkannya, tolong bawa mereka.” Sambil mengatakannya, dia menyodorkan ikan itu ke tangan si nelayan.
+"Mengapa?" kata Guo Jing bertanya-tanya.
 
-Nelayan itu akhirnya mengambil ikan itu, wajahnya tampak canggung. Guo Jing menoleh ke Huang Rong dan berkata, “Rong'er, seperti kata pepatah, hidup dan mati ada di tangan takdir, umur panjang sulit diprediksi; bahkan jika cedera Anda tidak dapat disembuhkan, di jalan kehidupan yang mendung Anda akan selalu memiliki Jing Gege untuk menemani Anda. Mari kita pergi!"
+"Kalaupun kuterima, aku tetap tidak bisa membawa kalian menemui guruku," kata nelayan itu. "Menerima bantuan dan tidak 
+membalasnya, aku akan jadi bahan tertawaan orang-orang di dunia persilatan."
 
-Mendengarkan Guo Jing mengungkapkan perasaannya yang sebenarnya, mata Huang Rong memerah; tapi dia masih memiliki sesuatu di hatinya. Dia menoleh ke nelayan dan berkata, “Paman, kamu tidak mau memimpin kami, tidak apa-apa. Tapi ada sesuatu yang saya tidak mengerti. Jika Anda tidak memberi tahu saya, maka saya akan mati dengan tidak puas.
+Guo Jing kaget, dengan wajah serius ia berkata, "Paman tidak bisa menerima kami, kau pasti punya kesulitanmu sendiri, 
+masa kami bisa memaksakan kehendak? Tapi sepasang ikan ini masalah sepele, siapa yang bilang soal bantuan sagala? Paman tidak 
+perlu memikirkannya, silakan ambil saja." Sambil mengatakannya, ia menyodorkan ikan itu ke tangan si nelayan.
+
+Nelayan itu akhirnya mengambil ikan itu, wajahnya tampak canggung. Guo Jing menoleh ke Huang Rong dan berkata, "Rong'er, 
+seperti kata pepatah, hidup dan mati ada di tangan takdir, umur manuasia sulit diduga, kalaupun kau tidak bisa sembuh, kau
+masih punya Jing gege yang akan menemanimu melewati hari-hari suram. Ayo kita pergi!"
+
+Mendengarkan Guo Jing mengungkapkan perasaannya yang sebenarnya, mata Huang Rong memerah, tapi di dalam hati ia masih penasaran. 
+Ia menoleh kepada si nelayan dan berkata, "Paman, kau tidak mau menunjukkan jalan ya tidak apa-apa. Tapi ada sesuatu yang tidak 
+kumengerti, kalau Paman tidak mengatakannya, aku pasti akan mati penasaran."
 
 "Apa itu?" tanya nelayan itu.
 
-“Puncak gunung ini sehalus cermin,” kata Huang Rong, “Tidak ada jalur menuju puncak. Bahkan jika Anda bersedia membawa kami, bagaimana Anda akan melakukannya?
+"Puncak gunung ini sehalus cermin," kata Huang Rong. "Tidak ada jalur menuju puncak. Kalaupun Paman mau membawa kami, bagaimana
+Paman akan melakukannya?"
 
-Nelayan itu berpikir, “Jika saya tidak mengangkat mereka, tidak mungkin mereka bisa mendaki gunung sendiri. Saya kira tidak ada salahnya untuk memberi tahu mereka. ” Kemudian dia berkata, “Jika menurutmu sulit, ya, tapi jika kau bilang mudah, sebenarnya sangat mudah. Di sekitar bukit berbentuk tanduk itu di sebelah kanan tidak ada air terjun, arusnya tidak sekuat itu. Saya bisa duduk di perahu besi ini dan mendayung melawan arus. Satu kali saya bisa membawa seseorang, kedua kalinya saya bisa membawa dua orang.
+Nelayan itu berpikir, "Kalau aku tidak membawa mereka naik, tidak mungkin mereka bisa mendaki gunung sendiri. Rasanya tidak ada
+salahnya memberitahu mereka." Kemudian ia berkata, "Kalau kau bilang sulit, memang sulit, tapi sebenarnya juga tidak sesulit 
+itu. Di sekitar bukit berbentuk tanduk itu di sebelah kanannya tidak ada air terjun, arusnya tidak sekuat itu. Aku bisa duduk 
+di perahu besi ini, dan mendayung melawan arus. Suatu kali aku bisa membawa seseorang, kedua kalinya aku bisa membawa dua orang."
 
-"Ah!" Huang Rong berseru, “Begitulah adanya. Perpisahan sekarang!” Dia berdiri dan bersandar pada Guo Jing untuk mendapat dukungan, dia berbalik dan pergi. Guo Jing menangkupkan tinjunya di dada, tetapi tidak mengatakan apa-apa.
+"Ah!" seru Huang Rong. "Rupanya begitu! Sampai jumpa kalau begitu!" Ia berdiri dan bersandar pada Guo Jing untuk menguatkan 
+diri, lalu berbalik dan pergi. Guo Jing merangkapkan kedua tangannya di dada, tetapi tidak mengatakan apa-apa.
 
-Nelayan itu melihat mereka sedang berjalan menuruni gunung, dia takut 'jin wawa' akan melarikan diri, dia berlari menuju gubuk jerami untuk menyingkirkan mereka untuk diamankan.
+Nelayan itu melihat mereka sedang berjalan menuruni gunung, ia takut Jin Wawa akan melarikan diri, ia berlari menuju gubuk 
+jerami untuk mengamankan mereka.
 
-"Cepat! Raih perahu besi dan dayung dan pergilah ke puncak berbentuk tanduk itu," kata Huang Rong,
+"Cepat! Ambil perahu besi dan dayungnya, kita pergi ke puncak berbentuk tanduk itu," kata Huang Rong.
 
-Guo Jing tertegun. "Ini ... bukankah ini tidak pantas?" dia tergagap.
+Guo Jing tertegun. "Ini... rasanya ini tidak pantas!" ia tergagap.
 
-"Bagus! Anda ingin menjadi seorang pria terhormat, maka jadilah seorang pria terhormat! kata Huang Rong.
+"Bagus! Kau ingin jadi pria terhormat, maka jadilah pria terhormat!" kata Huang Rong.
 
-“Mana yang lebih penting? Menyelamatkan nyawa Rong'er atau menjadi seorang pria terhormat?" Pikiran ini terlintas di benak Guo Jing beberapa kali; sulit baginya untuk memutuskan. Tapi kemudian dia melihat Huang Rong mulai berjalan cepat ke puncak; dia tidak punya waktu untuk merenung lebih lama lagi. Dia mengangkat perahu besi itu dan buru-buru pergi ke puncak. Dengan teriakan keras, "Naik!" dia melemparkan perahu ke hulu air terjun. Begitu perahu lepas dari tangannya, dia meraih dayung besi dan menahannya di bawah ketiak kirinya, sementara dengan tangan kanannya dia memeluk Huang Rong.
+"Mana yang lebih penting? Menyelamatkan nyawa Rong'er atau menjadi seorang pria terhormat?" Pikiran ini terlintas di benak Guo 
+Jing beberapa kali, sulit baginya untuk memutuskan. Tapi kemudian ia melihat Huang Rong mulai berjalan cepat ke puncak, ia 
+tidak punya waktu untuk merenung lebih lama lagi. Ia mengangkat perahu besi itu dan buru-buru pergi ke puncak. Dengan teriakan 
+keras, "Naik!" ia melemparkan perahu ke hulu air terjun. Begitu perahu lepas dari tangannya, ia meraih dayung besi dan 
+menahannya di bawah ketiak kirinya, sementara dengan tangan kanannya ia memeluk Huang Rong.
 
 Saat itu perahu besi sudah terapung ke hilir, terbawa arus. Tiba-tiba dia mendengar suara proyektil rahasia di belakang kepalanya; segera dia merunduk dan membiarkan proyektil rahasia itu terbang di atas kepalanya. Dia melompat ke depan dan dalam sekejap keduanya mendarat di dalam perahu. Sebuah proyektil rahasia mengenai punggung Huang Rong, untungnya mengenai armor lembut landak di dalam karung di punggungnya. Di tengah suara gemuruh air mereka mendengar suara auman nelayan yang keras, tetapi mereka tidak dapat mendengar dengan jelas apa yang dia katakan.
 

@@ -1068,6 +1068,13 @@ Squash the Dog's Back (壓扁狗背)
 No Dogs Under Heaven (天下無狗)
 ```
 
+### <a name="lu-shuang-bing-zhi" id="lu-shuang-bing-zhi">Lu Shuang Bing Zhi (履霜冰至)</a>
+
+Jurus keenam belas dari 18 Jurus Penakluk Naga.
+
+
+
+
 ### <a name="ya-bian-gou-bei" id="ya-bian-gou-bei">Ya Bian Gou Bei (压扁狗背)</a>
 
 Salah satu jurus dari rangkaian 
