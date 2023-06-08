@@ -1004,37 +1004,80 @@ tidak punya waktu untuk merenung lebih lama lagi. Ia mengangkat perahu besi itu 
 keras, "Naik!" ia melemparkan perahu ke hulu air terjun. Begitu perahu lepas dari tangannya, ia meraih dayung besi dan 
 menahannya di bawah ketiak kirinya, sementara dengan tangan kanannya ia memeluk Huang Rong.
 
-Saat itu perahu besi sudah terapung ke hilir, terbawa arus. Tiba-tiba dia mendengar suara proyektil rahasia di belakang kepalanya; segera dia merunduk dan membiarkan proyektil rahasia itu terbang di atas kepalanya. Dia melompat ke depan dan dalam sekejap keduanya mendarat di dalam perahu. Sebuah proyektil rahasia mengenai punggung Huang Rong, untungnya mengenai armor lembut landak di dalam karung di punggungnya. Di tengah suara gemuruh air mereka mendengar suara auman nelayan yang keras, tetapi mereka tidak dapat mendengar dengan jelas apa yang dia katakan.
+Saat itu perahu besi sudah terapung ke hilir, terbawa arus. Tiba-tiba ia mendengar suara senjata rahasia di belakang kepalanya, 
+segera ia merunduk dan membiarkan senjata rahasia itu terbang di atas kepalanya. Ia melompat ke depan dan dalam sekejap keduanya 
+mendarat di dalam perahu. Sebuah senjata rahasia mengenai punggung Huang Rong, untungnya mengenai rompi kulit landak di dalam 
+karung di punggungnya. Di tengah suara gemuruh air mereka mendengar suara omelan keras nelayan itu, tetapi mereka tidak dapat 
+mendengar dengan jelas apa yang dikatakannya.
 
-Segera perahu itu berada di ambang air terjun. Jika mereka jatuh ke tepi air terjun yang mengalir deras ini, tubuh mereka pasti akan hancur menjadi debu. Tangan kiri Guo Jing meraih dayung besi dan buru-buru mendayung dengan sekuat tenaga; perahu bergerak ke hulu beberapa kaki. Tangan kanannya melepaskan Huang Rong dan meraih dayung lainnya dan menariknya; sekali lagi perahu bergerak beberapa meter ke depan.
+Segera perahu itu berada di ambang air terjun. Jika mereka jatuh ke tepi air terjun yang mengalir deras ini, tubuh mereka pasti 
+akan hancur menjadi debu. Tangan kiri Guo Jing meraih dayung besi dan buru-buru mendayung dengan sekuat tenaga, perahu bergerak 
+ke hulu beberapa kaki. Tangan kanannya melepaskan Huang Rong dan meraih dayung lainnya dan menariknya, sekali lagi perahu 
+bergerak beberapa meter ke depan.
 
-Nelayan itu berdiri di tepi sungai, mengacungkan kedua jarinya, dengan marah memaki dan memarahi. Di tengah angin dan suara air, mereka bisa mendengar kata-kata 'gadis bau' dan 'bajingan rendahan'. Huang Rong terkikik dan berkata, “Dia masih berpikir kamu adalah orang yang baik. Dia hanya mengutukku.”
+Nelayan itu berdiri di tepi sungai, mengacungkan kedua jarinya, dengan marah memaki dan memarahi. Di tengah angin dan suara air, 
+mereka bisa mendengar kata-kata 'Chou Yatou' dan 'Chou Xiaozi'. Huang Rong terkikik dan berkata, "Dia masih berpikir kau orang 
+baik. Dia hanya mengutukku."
 
-Semua perhatian Guo Jing terfokus pada mendayung perahu; dia tidak mendengar apa yang dia katakan. Lengannya dengan panik mengayuh perahu melawan arus; lunas kapal besi perlahan memotong gelombang. Arus di tempat itu tidak sekuat air terjun, tapi cukup kuat dan cepat hingga membuat wajah Guo Jing memerah karena mengerahkan kekuatannya. Beberapa kali dia hampir terdorong ke hilir.
+Semua perhatian Guo Jing terfokus pada mendayung perahu, ia tidak mendengar apa yang dikatakannya. Lengannya dengan kuat
+mengayuh perahu melawan arus, lunas kapal besi perlahan memotong gelombang. Arus di tempat itu tidak sekuat air terjun, tapi 
+cukup kuat dan cepat hingga membuat wajah Guo Jing memerah karena mengerahkan kekuatannya. Beberapa kali ia hampir terdorong ke 
+hilir.
 
-Sesaat kemudian mereka tiba di bagian yang arusnya sedikit lebih lambat; saat itu Guo Jing sudah mulai mengerti bagaimana cara memegang dayung. Menggunakan teknik pertarungan tangan timbal balik, dia meluncurkan 'naga ilahi mengayunkan ekornya' berturut-turut. Setiap gerakan mengayuh didukung oleh kekuatan 18-Dragon Subduing Palms; kekuatan telapak tangannya ditransmisikan ke ujung dayung. Tangan kiri mendayung dengan 'naga sakti mengayunkan ekornya', diikuti tangan kanan dengan 'naga sakti mengayunkan ekornya', perahu besi itu perlahan bergerak ke hulu melalui jalur sungai yang berkelok-kelok.
+Sesaat kemudian mereka tiba di bagian yang arusnya sedikit lebih lambat, saat itu Guo Jing sudah mulai mengerti bagaimana cara 
+memegang dayung. Menggunakan Shuang Shou Hubo ajarakn Zou Botong, ia meluncurkan 'Sang naga Mengibaskan Ekor' berturut-turut. 
+Setiap gerakan mengayuh didukung oleh tenaga dari Delapan Belas Jurus Penakluk Naga, kekuatan telapak tangannya disalurkan 
+ke ujung dayung. Tangan kiri dan kanan mengayuh bergantian dengan dukungan teknik 'Sang naga Mengibaskan Ekor', perahu besi itu 
+perlahan bergerak ke hulu melalui jalur sungai yang berkelok-kelok.
 
-“Bahkan dengan pengayuh nelayan itu, perahunya belum tentu bergerak lebih cepat dari ini,” Huang Rong memuji.
+"Dengan dayung nelayan itupun perahunya belum tentu bergerak lebih cepat dari ini," puji Huang Rong.
 
-Sesaat kemudian ada pantai berpasir di kedua sisi sungai; dan setelah berbelok, pemandangannya sangat indah: anak sungai yang jernih bergumam pelan, sungai mengalir sangat lancar, di beberapa bagian bahkan tampak seperti air yang tenang. Sungai itu hanya selebar 'zhang', dengan pohon willow yang menangis di kedua sisinya, dedaunannya menyapu air. Tepat di belakang pohon willow hijau mereka bisa melihat pohon persik yang tak terhitung jumlahnya. Pasti sangat indah di musim semi ketika pohon persik mekar penuh. Saat ini tidak ada satu pun bunga persik yang terlihat, tetapi tepian sungai penuh dengan kumpulan kuntum bunga putih, udaranya kental dengan aromanya.
+Sesaat kemudian ada pantai berpasir di kedua sisi sungai, dan setelah berbelok pemandangannya sangat indah, anak sungai yang 
+jernih bersuara pelan, sungai mengalir sangat lancar, di beberapa bagian bahkan tampak seperti air yang tenang. Sungai itu hanya 
+selebar satu zhang, dengan pohon willow yang melambai di kedua sisinya, dedaunannya menyapu air. Tepat di belakang pohon willow 
+hijau mereka bisa melihat pohon persik yang tak terhitung jumlahnya. Pasti sangat indah di musim semi ketika pohon persik mekar 
+penuh. Saat ini tidak ada satu pun bunga persik yang terlihat, tetapi tepian sungai penuh dengan kumpulan kuntum bunga putih, 
+udaranya kental dengan aromanya.
 
-Guo Jing dan Huang Rong keduanya sangat santai; mereka tidak pernah menyangka bahwa di puncak gunung yang tinggi ini ada dunia yang sama sekali berbeda. Airnya berwarna hijau tua seperti batu giok, begitu dalam sehingga mereka tidak bisa melihat dasarnya. Guo Jing menurunkan dayung besinya, mencoba mengukur kedalaman sungai; tetapi dia terkejut karena dayung itu hampir terlepas dari genggamannya. Ternyata saat di permukaan airnya halus seperti cermin, ada arus kuat yang mengalir jauh di bawah permukaan.
+Guo Jing dan Huang Rong sangat santai, mereka tidak pernah menyangka bahwa di puncak gunung yang tinggi ini ada dunia yang sama 
+sekali berbeda. Airnya berwarna hijau tua seperti batu giok, begitu dalam sehingga mereka tidak bisa melihat dasarnya. Guo Jing 
+menurunkan dayung besinya, mencoba mengukur kedalaman sungai, tetapi ia terkejut karena dayung itu hampir terlepas dari 
+genggamannya. Ternyata saat di permukaan airnya halus seperti cermin, ada arus kuat yang mengalir jauh di bawah permukaan.
 
-Perahu besi itu perlahan bergerak maju; burung terbang dan berkicau di antara daun willow hijau. Huang Rong menghela nafas, “Jika luka saya tidak dapat disembuhkan, saya ingin dimakamkan di sini; Saya tidak mau turun lagi,” katanya.
+Perahu besi itu perlahan bergerak maju, burung terbang dan berkicau di antara dedaunan willow hijau. Huang Rong menghela nafas, "Kalau lukaku tidak bisa disembuhkan, aku ingin dikubur di sini. Aku tidak mau turun lagi," katanya.
 
-Guo Jing hendak mengatakan beberapa kata penyemangat ketika perahu besi itu tiba-tiba memasuki sebuah terowongan. Di dalam terowongan aromanya sangat kental sementara air mengalir lebih deras; mereka mendengar suara keras di depan. "Apa itu?" tanya Guo Jing.
+Guo Jing hendak mengatakan beberapa kata penyemangat ketika perahu besi itu tiba-tiba memasuki sebuah terowongan. Di dalam 
+terowongan aromanya sangat kental, sementara air mengalir lebih deras mereka mendengar suara keras di depan. "Apa itu?" tanya 
+Guo Jing.
 
-Huang Rong menggelengkan kepalanya, "Saya tidak tahu."
+Huang Rong menggelengkan kepalanya, "Aku tidak tahu."
 
-Segera mereka melihat cahaya, perahu besi itu keluar dari terowongan; dua orang tidak bisa menahan napas, "Cantik!"
+Segera mereka melihat cahaya, perahu besi itu keluar dari terowongan, kedua orang itu tidak bisa menahan napas, "Indah sekali!"
 
-Di luar terowongan mereka melihat air mancur yang sangat besar, mungkin tingginya mencapai dua zhang. Gelembung putih dan aliran hijau giok membentuk kolom air raksasa yang menyembur langsung ke langit dari tengah batu. Suara yang mereka dengar berasal dari air mancur ini. Anak sungai berhenti di sini; ternyata air mancur ini adalah mata air dari mana sungai dan air terjun itu berasal.
+Di luar terowongan mereka melihat air mancur yang sangat besar, mungkin tingginya mencapai dua zhang. Gelembung putih dan aliran 
+hijau giok membentuk kolom air raksasa yang menyembur langsung ke langit dari tengah batu. Suara yang mereka dengar berasal dari 
+air mancur ini. Anak sungai berhenti di sini, ternyata air mancur ini adalah mata air dari mana sungai dan air terjun itu 
+berasal.
 
-Guo Jing membantu Huang Rong datang ke darat. Dia menarik perahu besi itu ke atas batu dan memutar kepalanya. Dia melihat cahaya matahari bersinar menembus kolom air, menciptakan pelangi yang sangat indah. Pemandangannya luar biasa; bahkan jika mereka memiliki ratusan pujian, mereka tidak akan dapat menemukan satu yang cocok untuk menggambarkan apa yang mereka lihat. Yang bisa mereka lakukan hanyalah berpegangan tangan dan duduk berdampingan di atas batu; hati mereka cerah dan bersih, tanpa perlu khawatir.
+Guo Jing membantu Huang Rong datang ke darat. Dia menarik perahu besi itu ke atas batu dan memutar kepalanya. Ia melihat cahaya 
+matahari bersinar menembus kolom air, menciptakan pelangi yang sangat indah. Pemandangannya luar biasa, bahkan jika mereka 
+punya ratusan kata pujian, mereka tidak akan dapat menemukan satu pun yang cocok untuk menggambarkan apa yang mereka lihat. Yang 
+bisa mereka lakukan hanyalah berpegangan tangan dan duduk berdampingan di atas batu, hati mereka cerah dan bersih, tanpa 
+kekuatiran.
 
-Setelah menikmati pemandangan ini selama setengah hari, tiba-tiba mereka mendengar suara nyanyian dari balik pelangi. Lagunya adalah 'shan po yang' [domba lereng bukit]:
+Setelah menikmati pemandangan ini agak lama, tiba-tiba mereka mendengar suara nyanyian dari balik pelangi. Lagunya adalah Shan Po Yang.
 
-“Kota-kota menjadi buruk, di mana para pahlawan? Bisakah naga di awan menjelaskan? Berpikir tentang kemakmuran dan kemunduran, menyempitkan dada. Dinasti Tang muncul Dinasti Sui menurun, jalan dunia seperti awan yang terus berubah. Cepat, adalah kesalahan langit dan bumi; lambat, juga salah langit dan bumi!”
+```
+Kota-kota menjadi buruk, 
+di mana para pahlawan? 
+Bisakah naga di awan menjelaskan? 
+Berpikir tentang kemakmuran dan kemunduran, 
+menyempitkan dada. 
+Dinasti Tang muncul Dinasti Sui menurun, 
+jalan dunia seperti awan yang terus berubah. 
+Cepat, adalah kesalahan langit dan bumi, 
+lambat, juga salah langit dan bumi!
+```
 
 'Domba lereng bukit' adalah lagu populer dari akhir Dinasti Song, semua orang di mana pun bisa menyanyikan lagu itu. Lagunya hanya satu, tapi liriknya bisa diubah sesuai keinginan penyanyi, jadi mau tidak mau ada ratusan ribu variasi di luar sana, hanya sebagian besar kasar dan vulgar.
 

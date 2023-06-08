@@ -343,7 +343,13 @@ wu bu li 无不利 “nothing not beneficial” (13×)
 The negative bu 不 always negates verbs, while you 攸 is the standard pre-verbal object substitute of early archaic Chinese, which later came to be replaced by the word suo 所. In both of these expressions, li must be understood as a verb; i.e., “it benefits to do something; beneficial to do something.” Thus, in all of these uses, li is understood by everyone to mean something like “it benefits” to do something.32
 
 
+### Yan Luo Wang
 
+Yan Luo Wang (阎罗王), atau 'Raja Gerbang Akhirat'.
+
+Yan (阎) adalah 'Pintu Gerbang' sebuah perkampungan atau kota.
+
+Gabungan ketiga karakter ini tidak bisa diterjemahkan secara literal, karena ini adalah sebuah istilah.
 
 ***
 
