@@ -283,7 +283,7 @@ Sastrawan itu memimpin kedua orang itu memasuki kuil, meminta mereka duduk di sa
 menyajikan teh. "Tolong tunggu sebentar di sini," kata sastrawan itu, "Aku akan melapor kepada Shifu."
 
 "Tunggu!" kata Guo Jing. "Paman Petani itu masih mengangkat batu besar di lereng bukit, dia tidak bisa pergi sendiri. Paman 
-tolong bantu dia dulu." Sarjana itu terkejut dan berlari keluar.
+tolong bantu dia dulu." Sastrawan itu terkejut dan berlari keluar.
 
 "Sekarang kita bisa membuka kantong kuning itu," kata Huang Rong.
 
@@ -332,7 +332,7 @@ dalamnya akan membuang pikiran kotor mereka.
 Ada tiga rumah batu yang tersembunyi di antara pohon bambu. Biksu muda itu dengan ringan mendorong pintu terbuka, lalu melangkah 
 ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
 
-**Batas Last Line, Page 11 di PDF**
+**Batas Last Line, Page 11 di PDF. Setelah ini semuanya Draft.**
 
 Guo Jing memiliki kesan yang sangat baik terhadap biksu yang sopan dan santun ini; dia tersenyum untuk mengungkapkan rasa terima kasihnya, lalu berdampingan dengan Huang Rong dia masuk.
 
