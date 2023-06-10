@@ -280,7 +280,7 @@ Saat melewati kolam teratai pandangannya terpana oleh daun teratai di kolam, ia 
 ke arah Huang Rong. Huang Rong menahan tawanya dan menoleh ke arah lain.
 
 Sastrawan itu memimpin kedua orang itu memasuki kuil, meminta mereka duduk di sayap timur dan menyuruh seorang biksu muda 
-menyajikan teh. "Tolong tunggu sebentar di sini," kata sastrawan itu, "ku akan melapor kepada Shifu."
+menyajikan teh. "Tolong tunggu sebentar di sini," kata sastrawan itu, "Aku akan melapor kepada Shifu."
 
 "Tunggu!" kata Guo Jing. "Paman Petani itu masih mengangkat batu besar di lereng bukit, dia tidak bisa pergi sendiri. Paman 
 tolong bantu dia dulu." Sarjana itu terkejut dan berlari keluar.
