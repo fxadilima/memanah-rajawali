@@ -9,29 +9,58 @@
 
 **WARNING: Sebagian besar isi Bab ini masih dalam bentuk Draft**
 
-Dua orang berjalan maju mengikuti jalur gunung dan tak lama kemudian jalur itu berakhir. Di depan ada jembatan batu selebar satu kaki, bertengger di antara dua puncak gunung, tertutup awan yang ujung lainnya tidak terlihat. Jika jembatan batu ini diletakkan di atas tanah, itu akan berfungsi seperti gang sempit, tidak ada yang perlu ditakuti; tapi di bawah jembatan batu ada ngarai yang dalam. Melihatnya saja sudah membuat hati gemetar ketakutan, apalagi berjalan melewatinya.
+Kedua orang itu berjalan maju mengikuti jalan setapak pegunungan, dan tak lama kemudian jalur itu berakhir. Di depan ada jembatan 
+batu selebar satu kaki, bertengger di antara dua puncak gunung, tertutup awan yang ujung lainnya tidak terlihat. Jika jembatan 
+batu ini diletakkan di atas tanah, maka akan berfungsi seperti gang sempit, tidak ada yang perlu ditakuti, tetapi di bawah 
+jembatan batu itu ada jurang yang sangat dalam. Melihatnya saja sudah membuat hati gemetar ketakutan, apalagi berjalan 
+melewatinya.
 
-Huang Rong menghela nafas, “Kaisar Duan ini menyembunyikan dirinya dengan sangat baik. Jika musuh datang penuh permusuhan tiba di tempat ini, setengah dari kebenciannya akan hilang lebih dulu,” katanya.
+Huang Rong menghela nafas, "Kaisar Duan ini menyembunyikan diri dengan sangat baik. Kalau musuh yang penuh dendam tiba di tempat 
+ini, setengah dari kebenciannya akan hilang lebih dulu," katanya.
 
-Mengapa nelayan itu mengatakan bahwa Kaisar Duan telah meninggalkan dunia fana ini? Guo Jing bertanya, "Dia benar-benar membuat hatiku gelisah."
+"Mengapa nelayan itu mengatakan bahwa Kaisar Duan telah meninggalkan dunia fana ini?" tanya Guo Jing. "Dia benar-benar membuat 
+hatiku gelisah."
 
-“Aku benar-benar tidak bisa menebak apa yang dia maksud dengan itu,” jawab Huang Rong, “Melihat wajahnya dia sepertinya tidak berbohong. Dia juga mengatakan bahwa Shifu kita melihatnya dengan matanya sendiri ketika Kaisar Duan meninggal.”
+"Aku benar-benar tidak bisa menebak apa maksudnya bilang begitu," jawab Huang Rong, "Melihat wajahnya dia sepertinya tidak 
+berbohong. Dia juga bilang Shifu melihatnya dengan matanya sendiri waktu Kaisar Duan meninggal."
 
-"Semuanya sudah sejauh ini, kita hanya bisa bergerak maju dan tidak mundur," kata Guo Jing. Dia berjongkok untuk menggendong Huang Rong di punggungnya, dan kemudian dengan kungfu ringannya berjalan menuju jembatan batu itu.
+"Semuanya sudah sampai sejauh ini, kita hanya bisa bergerak maju, tidak mundur lagi," kata Guo Jing. Ia berjongkok untuk menggendong Huang Rong di punggungnya, dan kemudian dengan ilmu meringankan tubuhnya berjalan menuju jembatan batu itu.
 
-Permukaan jembatan batu bergelombang, ditambah diselimuti awan tebal sepanjang tahun, yang membuatnya sangat licin. Semakin lambat mereka berjalan, semakin tinggi kesempatan mereka untuk jatuh. Oleh karena itu Guo Jing berlari ke depan dengan cepat. Setelah sekitar tujuh, delapan 'zhang kemudian tiba-tiba Huang Rong berseru, "Hati-hati, jembatannya rusak di depan."
+Permukaan jembatan batu itu bergelombang, ditambah diselimuti awan tebal sepanjang tahun, yang membuatnya sangat licin. Semakin 
+lambat mereka berjalan, semakin besar kesempatan mereka untuk jatuh. Oleh karena itu Guo Jing berlari ke depan dengan cepat. 
+Setelah sekitar tujuh, delapan zhang kemudian tiba-tiba Huang Rong berseru, "Hati-hati, jembatannya rusak di depan."
 
-Guo Jing juga melihat bahwa jembatan batu itu tiba-tiba putus dengan jarak sekitar tujuh, delapan kaki di antaranya. Alih-alih melambat, dia berlari lebih cepat dan meminjam momentum, dia melompati celah.
+Guo Jing juga melihat bahwa jembatan batu itu tiba-tiba putus dengan jarak sekitar tujuh, delapan kaki di antaranya. Alih-alih 
+melambat, ia berlari lebih cepat dan meminjam momentum melompati celah.
 
-Huang Rong telah melewati bahaya yang mengerikan; sejak awal dia sudah mengabaikan hidup dan mati. Dia tertawa dan berkata, "Jing Gege, terbangmu tidak semantap elang putih."
+Huang Rong telah melewati bahaya yang mengerikan, sejak awal ia sudah mengabaikan hidup dan mati. Ia tertawa dan berkata, "Jing 
+Gege, terbangmu tidak semantap elang putih."
 
-Melewati satu bagian, melompati celah, segera mereka melewati tujuh celah seperti itu. Di seberang gunung di depan mereka melihat hamparan tanah datar. Tiba-tiba mereka mendengar seseorang sedang membaca dengan suara keras. Sepertinya mereka telah sampai di ujung jembatan batu, tetapi di ujung jembatan sebenarnya ada celah yang sangat panjang, lebarnya hampir 'zhang' [sekitar 10 kaki atau 3 meter]. Di sisi lain celah, seorang sarjana sedang duduk bersila, sebuah buku di tangannya, dari mana dia membaca dengan suara keras. Di belakang cendekiawan itu ada celah pendek lainnya.
+Melewati satu bagian, melompati celah, segera mereka melewati tujuh celah seperti itu. Di seberang gunung di depan mereka melihat 
+hamparan tanah datar. Tiba-tiba mereka mendengar seseorang sedang membaca doa dengan suara keras. Sepertinya mereka telah sampai 
+di ujung jembatan batu, tetapi di ujung jembatan sebenarnya ada celah yang sangat panjang, lebarnya hampir 
+[satu zhang](referensi-unit.md#satuan-zhang "sekitar 10 kaki atau 3 meter"). Di sisi lain celah, seorang sastrawan sedang duduk 
+bersila, sebuah buku ada di tangannya, ia sedang membacanya dengan suara keras. Di belakang sastrawan itu ada celah pendek 
+lainnya.
 
-Guo Jing berhenti, dia berdiri kokoh di jembatan, dia tidak tahu apa yang harus dilakukan selanjutnya, “Melompati celah ini tidak terlalu sulit,” pikirnya, “Tapi cendekiawan itu duduk tepat di tengah jembatan; selain tempat yang dia tempati, tidak ada tempat yang bisa kuinjak.” Kemudian dengan suara nyaring dia berseru, "Para Junior sedang mencari audiensi dengan Guru Anda yang Terhormat, kami meminta Paman untuk menunjukkan jalannya kepada kami."
+Guo Jing berhenti, ia berdiri kokoh di jembatan, tidak tahu apa yang harus dilakukan selanjutnya, "Melompati celah ini tidak 
+terlalu sulit," pikirnya. "Tapi sastrawan itu duduk tepat di tengah jembatan, selain tempat yang ditempatinya, tidak ada tempat 
+lain yang bisa kuinjak." Kemudian dengan suara nyaring ia berseru, "Kami berdua ingin bertemu dengan guru Qianbei yang terhormat, 
+kami meminta Paman untuk menunjukkan jalannya kepada kami."
 
-Kepala cendekiawan itu bergoyang saat dia membaca dengan penuh perhatian, seolah dia tidak mendengar Guo Jing. Guo Jing mengangkat suaranya dan memanggil sekali lagi, cendekiawan itu masih menutup telinga padanya. “Ronger, apa yang harus kita lakukan?” Guo Jing berkata dengan suara rendah.
+Kepala sastrawan itu bergoyang saat membaca dengan penuh perhatian, seolah tidak mendengar seruan Guo Jing. Guo Jing mengangkat 
+suaranya dan memanggil sekali lagi, sastrawanwan itu masih menutup telinganya. "Rong'er, apa yang harus kita lakukan?" tanya Guo 
+Jing dengan suara rendah.
 
-Huang Rong mengerutkan kening tanpa berkata apa-apa, dia melihat ke tempat cendekiawan itu duduk dan menyadari masalah ini bisa menjadi rumit. Jembatan batu itu sangat sempit sehingga pertempuran di atasnya berarti situasi hidup dan mati. Bahkan jika Guo Jing menang, mereka datang untuk mencari bantuan, bagaimana mungkin mereka menyakiti orang lain? Dia menatap cendekiawan itu lagi, yang masih tidak memperhatikan, dan diam-diam merasa khawatir. Dia mencoba untuk mendengarkan apa yang sedang dibaca oleh cendekiawan itu, dan menemukan bahwa itu adalah buku 'lun yu' [Analects of Confucius] yang sangat umum. Dia sedang membaca: “Suatu malam di musim semi, pakaian musim semi sudah siap. Lima, enam orang memakai topi, enam, tujuh orang masih muda. Mandi di tepi sungai, angin sepoi-sepoi membuat air mancur menari, dan lagu terbawa angin.”
+Huang Rong mengerutkan kening tanpa berkata apa-apa, ia melihat ke tempat sastrawan itu duduk dan menyadari masalah ini bisa 
+menjadi rumit. Jembatan batu itu sangat sempit sehingga pertempuran di atasnya berarti situasi hidup dan mati. Kalaupun Guo 
+Jing menang, mereka justru datang untuk mencari bantuan, bagaimana mungkin mereka menyakiti orang lain? Ia menatap sastrawan itu 
+lagi, yang masih tidak memperhatikan, dan diam-diam merasa kuatir. Ia mencoba untuk mendengarkan apa yang sedang dibacanya, 
+dan tahu bahwa itu adalah isi Kitab Lun Yu[^lun-yu] yang sangat umum. Ia sedang membaca, "Suatu malam di musim semi, pakaian 
+musim semi sudah siap. Lima, enam orang memakai topi, enam, tujuh orang masih muda. Mandi di tepi sungai, angin sepoi-sepoi 
+membuat air mancur menari, dan lagu terbawa angin."
+
+[^lun-yu]: Kitab Lun Yu adalah salah satu kitab yang berisi ajaran dasar Konfusius.
 
 Dia sedang membaca dengan penuh semangat dan penuh minat, mendesah tiga kali, menyerupai angin musim semi yang membawa lagu itu jauh-jauh, seperti dia sangat menikmati buku itu. Huang Rong berpikir, “Jika saya ingin dia membuka mulutnya, saya harus memprovokasi dia.” Kemudian dia mencibir dan berkata, "Tidak ada gunanya bahkan jika Anda membaca Analek Konfusianisme ribuan kali tetapi tidak memahami kata-kata luhur Guru dengan makna yang dalam."
 
