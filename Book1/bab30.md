@@ -43,6 +43,7 @@ di ujung jembatan batu, tetapi di ujung jembatan sebenarnya ada celah yang sanga
 bersila, sebuah buku ada di tangannya, ia sedang membacanya dengan suara keras. Di belakang sastrawan itu ada celah pendek 
 lainnya.
 
+
 Guo Jing berhenti, ia berdiri kokoh di jembatan, tidak tahu apa yang harus dilakukan selanjutnya, "Melompati celah ini tidak 
 terlalu sulit," pikirnya. "Tapi sastrawan itu duduk tepat di tengah jembatan, selain tempat yang ditempatinya, tidak ada tempat 
 lain yang bisa kuinjak." Kemudian dengan suara nyaring ia berseru, "Kami berdua ingin bertemu dengan guru Qianbei yang terhormat, 
@@ -62,75 +63,153 @@ membuat air mancur menari, dan lagu terbawa angin."
 
 [^lun-yu]: Kitab Lun Yu adalah salah satu kitab yang berisi ajaran dasar Konfusius.
 
-Dia sedang membaca dengan penuh semangat dan penuh minat, mendesah tiga kali, menyerupai angin musim semi yang membawa lagu itu jauh-jauh, seperti dia sangat menikmati buku itu. Huang Rong berpikir, “Jika saya ingin dia membuka mulutnya, saya harus memprovokasi dia.” Kemudian dia mencibir dan berkata, "Tidak ada gunanya bahkan jika Anda membaca Analek Konfusianisme ribuan kali tetapi tidak memahami kata-kata luhur Guru dengan makna yang dalam."
 
-Sarjana itu terkejut dan segera berhenti membaca. Dia mengangkat kepalanya dan berkata, “Kata-kata luhur apa dengan makna yang dalam? Tolong beri saya pencerahan.”
+Ia sedang membaca dengan penuh minat dan semangat, mendesah tiga kali, seperti angin musim semi yang membawa lagu itu jauh-jauh, 
+sepertinya ia sangat menikmati buku itu. Huang Rong berpikir, "Kalau ingin membuka mulutnya, aku harus menantangnya." Kemudian 
+ia mencibir dan berkata, "Tidak ada gunanya membaca Lun Yu ribuan kali, tapi tidak memahami kata-kata luhur Sang Guru yang 
+maknanya sangat dalam itu."
 
-Huang Rong memperhatikan cendekiawan itu; dia tampak berusia sekitar empat puluh tahun, 'xiao yao jin' [topi sarjana] di kepalanya, kipas lipat di tangannya, janggut hitam panjang di bawah dagunya, dia benar-benar memiliki penampilan seorang sarjana. Dia dengan dingin tertawa dan bertanya, "Tuan, apakah Anda tahu berapa banyak murid yang dimiliki Konfusius?"
+Sastrawan itu terkejut dan segera berhenti membaca. Ia mengangkat kepalanya dan berkata, "Kata-kata luhur apa dengan makna yang 
+dalam? Tolong beri aku pencerahan."
 
-Sarjana itu tersenyum, "Apa yang begitu sulit tentang itu?" dia berkata, "Konfusius memiliki 3000 murid secara keseluruhan, di antara mereka, 72 adalah murid terbaiknya."
+Huang Rong memperhatikan sastrawan itu, ia tampak berusia sekitar empat puluh tahun, Xiao Yao Jin[^topi-sarjana] di kepalanya, 
+kipas lipat di tangannya, janggut hitam panjang di bawah dagunya, ia benar-benar memiliki penampilan seorang sastrawan. Ia dengan 
+dingin tertawa dan bertanya, "Xiansheng, apakah Xiansheng tahu berapa banyak murid yang dimiliki 
+[Kong Zi](nama-tokoh.md#konfusius "Kong Zi (孔子) adalah nama populer Konfusius dalam bahasa mandarin.")?"
 
-“Dari 72 murid, ada yang tua dan ada yang muda,” lanjut Huang Rong, “Tahukah kamu berapa banyak murid yang memakai topi [artinya ‘lebih tua’] dan berapa banyak yang muda?”
+[^xiao-yao-jin]: Xiao Yao Jin = Topi sarjana yang dikenakan oleh para cendekiawan dan sastrawan di masa itu.
 
-Cendekiawan itu terkejut dan berkata, “Itu tidak dicatat dalam Analek Konfusius; klasik dan komentar lainnya juga tidak memiliki informasi yang direkam.
+Sastrawan itu tersenyum, "Apa yang sulit tentang itu?" katanya. "Konfusius punya 3000 murid, di antara mereka, 72 adalah murid 
+terbaiknya."
 
-“Saya bilang tidak ada gunanya jika Anda tidak memahami kata-kata luhur Guru dengan makna yang dalam, apakah saya mengatakan sesuatu yang salah?” Huang Rong bertanya. “Saya dengan jelas mendengar Anda membaca beberapa saat yang lalu, 'Lima, enam orang memakai topi; enam, tujuh orang masih muda.’ Lima kali enam adalah tiga puluh, ada 30 murid yang lebih tua; enam kali tujuh adalah empat puluh dua, ada 42 murid yang lebih muda. Anda menjumlahkan dua angka dan Anda akan mendapatkan tepat 72 orang. Saya melihat Anda membaca tanpa pemahaman. Hai! Berbahaya! Sangat berbahaya!”
+"Dari 72 murid, ada yang tua dan ada yang muda," lanjut Huang Rong. "Xiansheng tahu berapa banyak murid yang memakai topi[^pakai-topi] dan berapa banyak yang muda?"
 
-Sarjana itu mendengar bagaimana dia membuat argumen yang kuat tentang masalah yang tidak jelas di buku klasik, dia tidak bisa menahan tawanya, tetapi di dalam hatinya dia juga mengakui kecerdasan dan kecerdasannya. Dia tersenyum dan berkata, “Nona Muda benar-benar memiliki pikiran yang dipenuhi dengan buku puisi. Kekaguman saya yang terbesar. Anda ingin melihat Shifu saya, bolehkah saya tahu untuk urusan apa?
+[^pakai-topi]: Memakai topi sastrawan menandakan murid itu dari generasi yang lebih tua.
 
-Huang berpikir, “Jika saya mengatakan kita di sini untuk mencari pengobatan, dia pasti akan melakukan yang terbaik untuk mempersulit kita. Tapi pertanyaannya tidak bisa dibiarkan tidak terjawab. Bagus. Dia sedang membaca 'Analek Konfusius', saya juga akan mengutip dari Konfusius untuk menghindari pertanyaannya." Setelah itu dia berkata, “Seorang Sage yang tidak perlu saya lihat! Seorang pria, saya mungkin melihat. Seorang teman datang dari jauh, bukankah itu menyenangkan hati?”
+Si Sastrawan terkejut dan berkata, "Itu tidak dicatat dalam Lun Yu dan komentar lainnya."
 
-Sarjana itu memandang ke langit dan tertawa terbahak-bahak selama setengah hari. “Baiklah, baiklah,” katanya, “Saya punya tiga tes mata pelajaran untuk Anda. Jika Anda lulus, saya akan membawa Anda untuk melihat Shifu saya. Tetapi jika Anda gagal bahkan satu, saya harus meminta Anda berdua untuk kembali ke tempat asal Anda.
+"Wanbei bilang tidak ada gunanya kalau Xiansheng tidak memahami kata-kata luhur Guru dengan makna yang dalam, apa Wanbei 
+mengatakan sesuatu yang salah?" tanya Huang Rong. "Wanbei dengan jelas mendengar Xiansheng membaca beberapa saat yang lalu, 
+'Lima, enam orang memakai topi, enam, tujuh orang masih muda.' Lima kali enam adalah tiga puluh, ada 30 murid yang lebih tua, 
+enam kali tujuh adalah empat puluh dua, ada 42 murid yang lebih muda. Xiansheng menjumlahkan kedua angka itu, maka akan 
+mendapatkan tepatnya 72 orang. Wanbei lihat Xiansheng membaca tanpa pemahaman. Hai! Ini berbahaya! Sangat berbahaya!"
 
-"Aiyo!" Huang Rong berkata, "Saya belum membaca terlalu banyak buku, jika terlalu sulit saya mungkin tidak dapat menjawabnya."
+Sastrawan itu mendengar bagaimana ia membuat argumen yang kuat tentang masalah yang tidak jelas di buku klasik, ia tidak bisa 
+menahan tawanya, tetapi di dalam hati ia juga mengakui kecerdasan dan kecerdikannya. Ia tersenyum dan berkata, "Xiao Guniang 
+benar-benar punya pikiran yang dipenuhi isi buku puisi. Zaixia sungguh kagum. Guniang ingin ketemu guruku, boleh Zaixia tahu 
+untuk urusan apa?"
 
-“Tidak sulit, tidak sulit,” kata sarjana itu, “Saya punya puisi di sini, di dalamnya tersembunyi asal saya dalam empat karakter. Mari kita lihat apakah Anda bisa menebaknya.
+Huang berpikir, "Kalau aku bilang kita ke sini untuk minta pengobatan, dia pasti akan mempersulit kita sebisa-bisanya. Tapi 
+pertanyaannya tidak bisa dibiarkan tidak terjawab. Bagus. Dia sedang membaca Lun Yu, aku juga akan mengutip dari Konfusius untuk 
+menghindari pertanyaannya." Setelah itu ia berkata, "Seorang bijak, aku tidak perlu menemuinya! Seorang terhormat, aku mungkin menemuinya. 
+[Seorang teman datang dari jauh, bukankah itu menyenangkan hati](nama-tokoh.md#kutipan-lunyu "Ini adalah salah satu kutipan langsung dari Kitab Lun Yu. Klik untuk membaca lebih lengkap.")?"
 
-"Bagus, teka-teki!" Huang Rong berkata, “Itu pasti menarik. Tolong katakan itu.”
+**Last line was in Page 3 in PDF**
 
-Cendekiawan itu memelintir janggutnya dan mulai melafalkan, "Enam kitab suci telah berada di peti untuk waktu yang lama, satu pedang selama sepuluh tahun telah diasah di tangan ..."
+Sastrawan itu memandang ke langit dan tertawa terbahak-bahak. "Baiklah, baiklah," katanya. "Aku punya tiga tes untuk kalian. 
+Kalau kau lulus, aku akan membawamu untuk menemui guruku. Tapi kalau sampai kau gagal, meskipun hanya satu, aku harus meminta 
+kalian berdua untuk kembali ke tempat asal kalian."
 
-Huang Rong menjulurkan lidahnya dan berkata, “Terampil dalam pena dan pedang [wen wu quan cai – lit. literatur dan keterampilan lengkap seni bela diri], itu luar biasa!
+"Aiyo!" kata Huang Rong. "Aku belum membaca terlalu banyak buku, kalau terlalu sulit aku mungkin tidak bisa menjawab."
 
-Cendekiawan itu tersenyum dan melanjutkan, “Di atas bunga aprikot, sebuah cabang tergantung secara horizontal; jika Anda takut membocorkan rahasia surga, jangan buka mulut. Satu titik meningkat menjadi pertarungan besar, namun bahkan tidak bisa menutupi setengah tempat tidur. Nama selesai, topi digantung, waktunya pulang. Identitas saya yang sebenarnya, apakah Tuan tahu?
+"Tidak sulit, tidak sulit," kata si sastrawan. "Aku punya puisi, di dalamnya tersembunyi asalku dalam empat karakter. Mari kita 
+lihat apa kau bisa menebaknya."
 
-Huang Rong berpikir, “Nama sudah selesai, topi digantung, waktunya pulang. Identitas saya yang sebenarnya, apakah Tuan tahu? ' Melihat penampilan Anda, Anda harus menjadi menteri Kaisar Duan di masa lalu; gantung topimu mengikuti tuanmu, kembali ke gunung berhutan yang tersembunyi ini. Apa yang begitu sulit ditebak?” Kemudian dia berkata, “Ketika Anda menambahkan karakter 'satu' ( 一 ) dan 'sepuluh' ( 十 ) di bawah karakter 'enam' ( 六 ), itu menjadi karakter 'xin' ( 辛 ). Tambahkan garis horizontal ke karakter 'aprikot' ( 杏 ), dan hapus karakter 'mulut' ( 口 ), menjadi karakter 'wei' ( 未 ). Tambahkan karakter 'besar' ( 大 ) ke setengah tempat tidur ( 床 ) dan beri titik di atasnya, itu menjadi karakter 'zhuang' ( 状 ). Lepaskan karakter 'lengkap' ( 完 ), itu menjadi karakter 'yuan' ( 元 ). Xin Wei Zhuangyuan; tolong terima rasa hormat saya. Ternyata Tuan adalah Zhuang Yuan [cendekiawan nomor satu, gelar yang diberikan kepada seseorang yang keluar pertama dalam ujian kekaisaran tertinggi] pada tahun Xin Wei.”
+"Bagus, teka-teki!" kata Huang Rong. "Itu pasti menarik. Coba katakan."
 
-Sarjana itu terkejut; dia pikir teka-tekinya sangat sulit. Bahkan jika seseorang akhirnya bisa memberikan jawaban, itu seharusnya memakan waktu setidaknya setengah hari. Keterampilan seni bela diri kedua anak muda ini mungkin tinggi, tetapi mereka tidak akan bisa berdiri terlalu lama di jembatan batu yang sempit ini. Dia pikir dia akan menasihati mereka untuk menyerah dan dengan baik kembali menuruni gunung. Siapa sangka hampir tanpa pikir panjang Huang Rong bisa memberinya jawaban yang benar. Dia tidak bisa membantu tetapi merasa sangat terkejut. Dia sekarang tahu gadis ini sangat pintar; dia harus menemukan pertanyaan yang lebih sulit untuknya.
+Cendekiawan itu memelintir janggutnya dan mulai melafalkan, "Enam kitab suci telah berada di peti untuk waktu yang lama, satu 
+pedang selama sepuluh tahun telah diasah di tangan..."
 
-Dia mengalihkan pandangannya ke sekeliling dan melihat deretan pohon palem di lereng bukit, daunnya bergoyang lembut tertiup angin sepoi-sepoi, menyerupai gerakan kipas. Dia adalah seorang zhongyuan, tentu saja dia lebih berbakat daripada seorang sarjana pada umumnya. Dia melambaikan kipas di tangannya dan berkata, "Saya memiliki bagian atas bait, meminta Nona untuk melengkapinya."
+Huang Rong menjulurkan lidahnya dan berkata, "Wen Wu Quan Cai[^wen-wu-quan-cai], sungguh luar biasa!"
 
-“Menyelesaikan bait tidak semenarik teka-teki,” kata Huang Rong, “Baiklah, sepertinya jika saya tidak bisa menyelesaikannya, Anda tidak akan membiarkan kami lewat. Ayo!"
+[^wen-wu-quan-cai]: Wen Wu Quan Cai (文武全才) bisa diterjemahkan menjadi 'Orang yang serba bisa', dimana Wen (文) berarti 'Ilmu Sastra' dan Wu (武) berarti 'Ilmu Silat'. Sedangkan Quan (全) berarti 'Seluruhnya' atau 'Keseluruhan', dan Cai (才) berarti 'bakat' atau 'kemampuan'. 
 
-Sarjana itu melambaikan kipasnya, menunjuk ke deretan pohon palem dan berkata, “Angin mengayunkan pohon palem, seperti seribu tangan melambaikan kipas lipat.” Bagian atas ini tidak hanya menggambarkan pemandangan, tetapi juga dengan jelas mengangkat posisinya.
+Sastrawan itu tersenyum dan melanjutkan, "Di atas bunga aprikot, sebuah cabang tergantung secara horizontal, jika kau takut 
+membocorkan rahasia surga, jangan buka mulut. Satu titik meningkat menjadi pertarungan besar, namun bahkan tidak bisa menutupi 
+setengah tempat tidur. Semuanya selesai, topi digantung, waktunya pulang. Identitasku yang sebenarnya, apakah Zhuangzhu tahu?"
 
-Huang Rong berpikir, “Jika saya hanya menyebutkan objek apapun tanpa korelasi yang berarti, kemenangan saya tidak akan lengkap.” Dia juga mengalihkan pandangannya ke sekeliling dan melihat sebuah kuil kecil dengan kolam teratai di depannya. Saat itu bulan ketujuh, pertengahan musim panas, tetapi di gunung yang tinggi ini pagi hari terasa dingin; sebagian besar daun teratai sudah layu oleh embun beku. Hatinya tergerak, dia tersenyum dan berkata, “Saya memiliki bagian kedua dari bait itu, tetapi itu akan menyinggung perasaan Paman; tidak nyaman bagi saya untuk mengatakannya.
+Huang Rong berpikir, "Nama sudah selesai, topi digantung, waktunya pulang. Identitas saya yang sebenarnya, apakah Zhuangzhu 
+tahu?' Melihat penampilanmu, seharusnya kau adalah menteri Kaisar Duan di masa lalu, gantung topimu mengikuti 
+majikanmu, kembali ke gunung berhutan yang tersembunyi ini. Apa sulitnya ditebak?" Kemudian ia berkata, "Ketika Xiansheng 
+menambahkan karakter 'satu' (一) dan 'sepuluh' (十) di bawah karakter 'enam' (六), maka jadilah karakter 'xin' (辛). Tambahkan 
+garis horizontal ke karakter Xing (aprikot, 杏), dan hapus karakter 'mulut' (口), menjadi karakter 'wei' (未). Tambahkan karakter 
+'besar' (大) ke setengah dari karakter Chuang (床, tempat tidur) dan beri titik di atasnya, maka menjadi karakter 'zhuang' (状). 
+Lepaskan karakter 'selesai' (Wan, 完), maka menjadi karakter 'yuan' (元). Xin Wei Zhuang Yuan (辛未状元),  tolong terima rasa 
+hormat Wanbei. Ternyata Xiansheng adalah Zhuang Yuan[^zhuang-yuan] pada tahun Xin Wei."
 
-"Sebaiknya Anda mengatakannya," jawab cendekiawan itu.
+[^zhuang-yuan]: Zuang Yuan (状元) adalah gelar yang diberikan kepada seorang pelajar yang lulus secara gemilang dalam ujian negara.
 
-“Kamu harus berjanji tidak akan marah,” kata Huang Rong.
+Sastrawan itu terkejut, ia mengira teka-tekinya sangat sulit. Bahkan jika seseorang akhirnya bisa memberikan jawaban, itu 
+seharusnya memakan waktu setidaknya setengah hari. Kungfu kedua anak muda ini mungkin tinggi, tetapi mereka tidak akan bisa 
+berdiri terlalu lama di jembatan batu yang sempit ini. Ia pikir ia akan menasihati mereka untuk menyerah, dan secara baik-baik 
+kembali menuruni gunung. Siapa sangka hampir tanpa pikir panjang Huang Rong bisa memberinya jawaban yang benar. Ia mau tidak mau 
+jadi sangat terkejut. Ia sekarang tahu gadis cilik ini sangat pintar, ia harus menemukan pertanyaan yang lebih sulit untuknya.
 
-“Aku tidak akan melakukannya,” cendekiawan itu berjanji.
+Ia mengalihkan pandangannya ke sekeliling dan melihat deretan pohon palem di lereng bukit, daunnya bergoyang lembut tertiup angin 
+sepoi-sepoi, menyerupai gerakan kipas. Ia adalah seorang Zhuangyuan, tentu saja ia lebih berbakat daripada seorang pelajar pada 
+umumnya. Ia melambaikan kipas di tangannya dan berkata, "Aku punya bagian atas bait, kuminta Guniang untuk melengkapinya."
 
-Huang Rong menunjuk ke 'xiao yao jin' di kepalanya dan berkata, “Baiklah. Baris kedua saya adalah: Embun beku membuat daun teratai layu, seperti iblis berkaki satu yang memakai 'xiao yao jin'.”
+"Menyelesaikan bait tidak semenarik teka-teki," kata Huang Rong. "Baiklah, sepertinya kalau Wanbei tidak bisa menyelesaikannya, 
+maka Xiansheng tidak akan membiarkan kami lewat. Ayo!"
 
-Pada baris kedua ini, cendekiawan itu tertawa terbahak-bahak. "Luar biasa! Luar biasa!" dia berkata, "Tidak hanya garisnya yang sangat tepat, itu juga datang dengan sangat cepat!"
+Sastrawan itu melambaikan kipasnya, menunjuk ke deretan pohon palem dan berkata, "Angin mengayunkan pohon palem, seperti seribu 
+tangan melambaikan kipas lipat." Bagian atas ini tidak hanya menggambarkan pemandangan, tetapi juga dengan jelas mengangkat 
+posisinya.
 
-Guo Jing melihat batang teratai memang menopang daun yang layu, tampak seperti hantu berkaki satu yang mengenakan 'xiao yao jin'; dia juga tidak bisa menahan tawa. Huang Rong tersenyum, "Jangan tertawa, jangan tertawa!" dia berkata, "Begitu kita jatuh, kita akan menjadi sepasang hantu tanpa 'xiao yao jin'!"
+[^xiao-yao-jin]: Nama penutup kepala untuk para cendekiawan (pria) pada umumnya adalah Mian Guan (冕冠), Pi Bian (皮弁), Liang Guan (梁冠), Shufa Guan (束发冠), Chang Guan (长冠), Pingshanze (平上幘), Longguan (籠冠), Lianhua Guan (莲花冠), semua jenis Putou (襆頭), semua jenis Mao (帽, Topi), atau Jin (巾), yang terbagi menjadi banyak sub-kategori. Saya belum menemukan referensi untuk 'Xiao Yao Jin' yang disebutkan itu, tetapi mengingat Huang Rong sudah menyebutkan bahwa sastrawan itu adalah seorang Zhuang Yuan, maka kemungkinan topi tersebut adalah apa yang di Wikipedia disebut sebagai Zhuangyuan Mao (状元帽), alias 'Topi Zhuang Yuan', yang beredar dari jaman Dinasti Song sampai jaman yang lebih modern. Tetapi topi ini disebut sebagai topi untuk anak-anak. Sedangkan untuk dewasa di era Dinasti Song yang saya temukan hanya Zhouzi Jin (周子巾) dan Dongpo Jin (東坡巾), keduanya punya bentuk sedikit berbeda. Zhuangyuan Mao pernah saya lihat dipakai oleh aktor yang memerankan Zhuge Liang di salah satu drama, entah pemakaian aksesori ini tepat atau tidak. Ketepatan istilah ini barangkali tidak terlalu berpengaruh pada inti cerita, tetapi terasa sangat penting untuk memahami arti jawaban Huang Rong untuk menjawab pertanyaan si sastrawan yang kedua. Mengenai istilah Xiao Yao Jin ini sendiri, karakter Yao yang dimaksud bisa jadi adalah (妖), yang bermakna 'iblis'. Lucunya, istilah 'Little Demon' adalah Xiao Yao Jing (小妖精).
 
-Cendekiawan itu berpikir, “Kuplet biasa tidak akan membuatnya bingung; Saya harus menggunakan yang terakhir. Tiba-tiba dia ingat ketika dia masih seorang siswa muda, gurunya menyebutkan bait yang selama puluhan tahun tidak pernah bisa diselesaikan oleh siapa pun; dia memutuskan untuk mempersulitnya; setelah itu dia berkata, “Saya memiliki bait lain, meminta Nona untuk menyelesaikannya: 'qin se pi pa ( 琴 瑟 琵 琶 ) [qin, se dan pi pa semuanya adalah alat musik petik], semua kepala dihiasi oleh delapan raja besar'. ”
+Huang Rong berpikir, "Kalau aku hanya menyebutkan nama benda apapun tanpa hubungan yang berarti, kemenanganku tidak akan 
+lengkap." Ia juga mengalihkan pandangannya ke sekeliling dan melihat sebuah kuil kecil dengan kolam teratai di depannya. Saat 
+itu bulan ketujuh, pertengahan musim panas, tetapi di gunung yang tinggi ini pagi hari terasa dingin, sebagian besar daun teratai 
+sudah layu oleh embun beku. Hatinya tergerak, ia tersenyum dan berkata, "Wanbei punya bagian kedua dari bait itu, tetapi ini akan 
+menyinggung perasaan Paman, tidak nyaman untuk mengatakannya."
 
-Mendengarkan hal ini, Huang Rong sangat senang, “Qin se pi pa empat karakter semuanya memiliki delapan karakter 'raja' ( 王 ) pada mereka; awalnya itu adalah bait yang sangat sulit. Sayang sekali bait ini bukan ciptaan Anda sendiri. Ayah telah memecahkan bait ini bertahun-tahun yang lalu di Pulau Bunga Persik ketika dia tidak punya pekerjaan lain. Saya akan berpura-pura kesulitan menyelesaikannya untuk menggodanya.
+"Sebaiknya kau mengatakannya," jawab sastrawan itu.
 
-Dia mengerutkan alisnya dan membuat wajahnya tampak tertekan. Sarjana itu senang dia akhirnya bingung; dia merasa sangat sombong. Tapi kemudian dia takut Huang Rong akan memintanya kembali, jadi dia berkata di depan, “Ini adalah bait yang sangat sulit, saya juga tidak punya jawabannya. Tetapi kami telah sepakat bahwa jika Nona tidak dapat menjawabnya maka Anda harus kembali.”
+"Tapi Paman harus berjanji tidak akan marah," kata Huang Rong.
 
-Huang Rong tersenyum, “Apa yang begitu sulit untuk menyelesaikan bait? Hanya saya yang baru saja menyinggung Paman, sekarang dengan jawaban saya, saya akan menyinggung Anda berempat, nelayan, penebang kayu, petani, dan sarjana; itu sebabnya aku sangat ragu untuk mengatakannya.”
+"Aku tidak akan marah," janji sastrawan itu.
 
-Cendekiawan itu tidak mempercayainya, pikirnya, “Menyelesaikan kuplet saja sudah merupakan tugas yang sangat sulit untuk dilakukan; bagaimana Anda bisa menyinggung kami empat saudara bela diri pada saat yang sama? Oleh karena itu dia berkata, "Jika kamu benar-benar bisa menyelesaikan bait, apa salahnya dengan sedikit lelucon?"
+Huang Rong menunjuk ke Xiao Yao Jin di kepalanya dan berkata, "Baiklah. Baris kedua Wanbei adalah, Embun beku membuat daun 
+teratai layu, seperti iblis berkaki satu yang memakai Xiao Yao Jin."
 
-Huang Rong tersenyum, “Jika demikian, izinkan saya meminta maaf kepada Anda terlebih dahulu. Baris kedua adalah, 'chi mei wang liang ( 魑 魅 魍 魉 ) [peri gunung, iblis, peri, peri – semuanya adalah karakter supernatural dongeng; semua karakter memiliki 'setan' ( 鬼 ) di sisinya], empat setan kecil dengan perut dan ususnya'."
+Pada baris kedua ini, sastrawan itu tertawa terbahak-bahak. "Luar biasa! Luar biasa!" katanya. "Tidak hanya kalimatnya sangat 
+tepat, itu juga sangat cepat!"
 
-Sarjana itu tercengang, dia melompat untuk berdiri; dengan lengan panjangnya berkibar dia berlari ke arah Huang Rong, "Aku menyerah dengan penuh kekaguman," katanya.
+Guo Jing melihat batang teratai memang menopang daun yang layu, tampak seperti hantu berkaki satu yang mengenakan 'xiao yao jin', 
+ia juga tidak bisa menahan tawa. Huang Rong tersenyum. "Jangan tertawa, jangan tertawa!" katanya. "Begitu jatuh, kita akan 
+menjadi sepasang hantu tanpa 'xiao yao jin'!"
+
+Sastrawan itu berpikir, "Kutipan biasa tidak akan membuatnya bingung. Aku harus menggunakan yang terakhir. Tiba-tiba ia ingat 
+ketika masih seorang siswa muda, gurunya menyebutkan bait yang selama puluhan tahun tidak pernah bisa diselesaikan oleh siapa pun, ia memutuskan untuk mempersulitnya, setelah itu ia berkata, "Aku punya bait lain, kuminta Nona menyelesaikannya, 
+Qin Se Pi Pa[^qin-se-pipa], semua kepalanya dihiasi oleh delapan raja besar."
+
+[^qin-se-pipa]: Qin Se Pi Pa (琴瑟琵琶), Qin, Se, dan Pipa (琵琶) semuanya adalah alat musik petik.
+
+Mendengarkan hal ini, Huang Rong sangat senang, "Qin se pi pa empat karakter itu semuanya punya delapan karakter 'raja' (王), 
+awalnya itu adalah bait yang sangat sulit. Sayang sekali bait ini bukan ciptaanmu sendiri. Ayah telah memecahkan bait ini 
+bertahun-tahun yang lalu di Pulau Bunga Persik waktu dia tidak punya pekerjaan lain. Aku akan pura-pura kesulitan 
+menyelesaikannya untuk menggodanya."
+
+Ia mengerutkan alisnya dan membuat wajahnya tampak tertekan. Sastrawan itu senang, ia akhirnya bingung, ia merasa sangat bangga. 
+Tapi kemudian ia takut Huang Rong akan balas menanyainya, jadi ia berkata di depan, "Ini adalah bait yang sangat sulit, aku juga 
+tidak punya jawabannya. Tetapi kita sudah sepakat bahwa, kalau Nona tidak bisa menjawabnya maka kalian harus kembali."
+
+Huang Rong tersenyum, "Apa yang sulitnya sih menyelesaikan bait? Hanya saja Wanbei baru saja menyinggung Paman, sekarang dengan 
+menjawab, maka Wanbei akan menyinggung kalian berempat, nelayan, penebang kayu, petani, dan sastrawan, itu sebabnya Wanbei sangat 
+ragu untuk mengatakannya."
+
+Sastrawan itu tidak percaya, pikirnya, "Menyelesaikan kutipan itu saja sudah sangat sulit untuk dilakukan, bagaimana kau bisa 
+menyinggung kami berempat sekaligus?" Oleh karena itu ia berkata, "Kalau kau benar-benar bisa menyelesaikan bait ini, apa 
+salahnya dengan sedikit lelucon?"
+
+Huang Rong tersenyum, "Kalau begitu, ijinkan Wanbei minta maaf kepada Paman terlebih dahulu. Baris kedua adalah, Chi Mei Wang 
+Liang (魑魅魍魉)[^chi-mei-wang-liang], empat setan kecil dengan perut dan ususnya'."
+
+[^chi-mei-wang-liang]: Keempat karakter Chi Mei Wang Liang (魑魅魍魉) itu masing-masing mengandung karakter Gui (鬼), alias 'Hantu'. Karakter Chi (魑) berarti 'Peri Gunung', Mei (魅) bisa berarti Monster/Tukang sihir/Magic, Wang (魍) berarti Peri atau Malaikat, sedangkan Liang (魉) hampir sama dengan Wang, bisa berarti Bidadari atau makhluk dari negeri dongeng.
+
+Sarjana itu tercengang, ia melompat untuk berdiri, dengan lengan jubah panjangnya berkibar ia berlari ke arah Huang Rong, "Aku 
+menyerah dengan penuh kekaguman," katanya.
 
 Huang Rong membalas hormatnya dan berkata sambil tersenyum, "Jika empat Paman yang terhormat tidak melakukan yang terbaik untuk menghalangi kami mendaki gunung, bait Anda benar-benar sulit untuk diselesaikan."
 

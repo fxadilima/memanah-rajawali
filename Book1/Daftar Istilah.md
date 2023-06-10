@@ -75,8 +75,9 @@ Umumnya Yatou digunakan dalam panggilan lebih akrab, karena juga bisa berarti 'b
 Nu Wawa (女娃娃) = anak perempuan kecil
 
 Gong Zi (公子), istilah umum untuk 'Tuan Muda', perhatikan, ini bukan ditulis Gong Zhi
-Gong Zhu (公主), Tuan Putri (Princess)
-Jin Zhu (进主), juga 'Tuan Putri', dalam konteks lain. Zhao Min dipanggil Jin Zhu, bukang Gong Zhu.
+Gong Zhu (公主), Tuan Putri (Princess).
+Jin Zhu (君主), juga 'Tuan Putri', dalam konteks lain. Zhao Min dipanggil Jin Zhu, bukan Gong Zhu.
+Jin Zi (君子), sama seperti Jin Zhu, tetapi ditujukan bagi laki-laki.
 
 Jiao Zhu (教主), 'Ketua Umum', atau orang yang punya jabatan tertinggi. Zhang Wuji dipanggil Jiao Zhu.
 

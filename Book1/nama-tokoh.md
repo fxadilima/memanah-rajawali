@@ -62,3 +62,67 @@ Shangguan Jiannan adalah mantan Ketua Kelompok Telapak Besi, yang adalah mantan 
 Dinasti Song. Ia juga adalah guru dari ketua saat ini, Qiu Qianren.
 
 
+### <a name="kong-zi" id="kong-zi">Konfusius (孔子)</a>
+
+Konfusius, atau dalam bahasa mandarin adalah Kong Fu Zi (孔夫子), atau disingkat Kong Zi (孔子), adalah seorang filsuf populer
+sepanjang masa dari era Dinasti Zhou di masa Peperangan Antar Negara (_Warring States Period_). Ia dilahirkan di negara bagian Lu,
+propinsi Shandong, pada tahun 551 SM, dan meninggal juga di wilayah tersebut di sekitar Sungai Si, pada tahun 479 SM, di usianya
+yang ke 71, menjelang 72 tahun.
+
+Nama yang diberikan ketika masih kecil adalah Qiu (丘), dengan demikian menjadi Kong Qiu. Setelah beranjak dewasa, ia diberi
+nama Zhong Ni (仲尼), yang menandakan bahwa ia adalah seorang anak tengah.
+
+Ayahnya meninggal ketika ia masih berusia tiga tahun, karena itu ia dibesarkan oleh ibunya Yan Zhengzai (顏徵在), yang akhirnya
+juga meninggal sebelum usia 40 tahun. Ketika berusia 19 tahun, Konfusius menikah dengan Qi Guan Shi (亓官氏), dan mereka 
+mendapatkan putra pertama setahun kemudian, yang diberi nama Kong Li (孔鯉). Selanjutnya pasangan itu mendapatkan 2 orang
+putri, yang mana salah seorang di antaranya meninggal karena sakit di usia muda, dan yang satunya bernama Kong Jiao (孔姣).
+
+Konfusius terlahir di lingkungan antara para bangsawan dan rakyat jelata, yaitu lingkungan Shi (士), yang menandakan para pelajar
+dan sastrawan. Di masa mudanya, ketika berusia 20 tahunan, ia tercatat bekerja sebagai penjaga perpustakaan dan juga pernah 
+bekerja untuk merawat ternak demi mengupayakan upacara pemakaman yang layak bagi ibunya, yang meninggal ketika Konfisius berusia
+sekitar 23 tahun. Ketika itu ia berkabung selama tiga tahun, sesuai tradisi yang berlaku saat itu.
+
+Konfusius memiliki karir politik yang serius, dan pernah diasingkan ke negara bagian Qi.
+
+Salah satu artis di dunia modern ini yang diketahui sebagai keturunan generasi ke-76 dari Konfusius adalah Kong Lin (孔琳), yang
+memerankan Huang Rong dalam serial legendaris Return of The Condor Heroes versi 2006.
+
+#### <a name="kutipan-lunyu" id="kutipan-lunyu">Kutipan-kutipan Yang Dipakai</a>
+
+Kutipan dari Xue'er (學而) pasal 1:1 adalah sebagai berikut:
+
+```
+Disederhanakan:
+
+子曰。学而时习之、不亦说乎。有朋自远方来、不亦乐乎。人不知而不愠、不亦君子乎。
+
+Tradisional:
+
+子曰。學而時習之、不亦說乎。 有朋自遠方來、不亦樂乎。人不知而不慍、不亦君子乎。
+
+Zǐ yuē. 
+Xué ér shí xí zhī, bù yì shuō hū. 
+Yǒupéng zì yuǎnfāng lái, bù yì lè hū. 
+Rén bùzhī ér bù yùn, bù yì jūnzǐ hū.
+
+Sang Guru bersabda:
+"Bukankah sangat menyenangkan belajar dan melatih apa yang kau pelajari?
+Bukankah menyenangkan juga dikunjungi kawan-kawan dari jauh?
+Kalau masyarakat tidak mengenali aku dan hal itu tidak menggangguku,
+bukankah itu berarti aku seorang terhormat?"
+
+```
+
+Dalam kutipan di atas, 'Orang terhormat' yang dimaksud adalah Jun Zi (君子), yang secara umum adalah sebutan bagi seorang putra 
+bangsawan. Karakter Zi (子) ini dipakai untuk laki-laki, kalau perempuan akan menjadi Jun Zhu (君主). Misalnya, dalam Trilogi
+Rajawali buku ketiga, Zhao Min dipanggil Jun Zhu, yang sekaligus gelar kebangsawanannya. Tetapi dalam konteks ini, Konfusius
+memakai sebutan ini dengan makna lain, yaitu ditujukan bagi seseorang yang memiliki _karakter_ terhormat, orang telah mencapai
+tingkat yang cukup tinggi dalam pengembangan karakternya, dalam arti punya rasa keadilan, atau Yi (義). Juga mencintai orang
+tua, atau Xiao (孝), dalam arti 'berbakti'. Hubungan baik seara horizontal, atau Xin (信), dalam arti jujur dan bisa dipercaya.
+Dan masih banyak lagi aspek lainnya. Meskipun Jun Zi atau Jun Zhu adalah sosok yang punya karakter istimewa, tetapi ia masih
+dibedakan dari Shangren (聖人), yang dalam Kitab Lun Yu dianggap sebagai pribadi yang 'Agung', menjurus ke sifat-sifat 'ilahi',
+atau layak diagungkan, biasanya adalah sosok tokoh kuno yang menjadi model bagi sebuah kebenaran.
+
+Huang Rong mengutip ucapan Konfusius tersebut pada baris kedua, yaitu yang bicara tentang 'kunjungan kawan-kawan dari jauh',
+meskipun pemahamannya sendiri tidak mendalam.
+
