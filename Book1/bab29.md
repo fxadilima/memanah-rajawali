@@ -1127,7 +1127,7 @@ Huang Rong hendak menjawab, tetapi kemudian ia berpikir, "Dia suka menyanyi, men
 menjawabnya?" Setelah itu ia tersenyum sedikit, menundukkan kepalanya dan bernyanyi, "Pegunungan hijau saling menunggu, awan 
 putih saling mencintai, bahkan tidak memimpikan jubah ungu dan sabuk emas. Satu gubuk jerami di antara bunga liar yang 
 bermekaran, mengapa kuatir tentang siapa yang berkembang dan siapa yang binasa? Cukuplah satu jalan kecil dan satu sendok 
-sayur. Miskin, semangat tidak berubah, sukses, kemauan tidak berubah!"
+sayur. Miskin, semangat tidak berubah, sukses, kemauan tidak berubah[^catatan-syair]!"
 
 Ia telah menyimpulkan bahwa penebang kayu ini pasti jendral yang mengikuti Kaisar Selatan ke tempat terpencil ini, sebelumnya 
 ia harus memimpin seluruh pasukan, yang pernah memegang tempat terkemuka di kerajaan. Oleh karena itu, lagu yang dinyanyikannya 
@@ -1270,44 +1270,78 @@ Qigong yang akan dikirimkan kepada gurumu. Bisa sekalian kau bawa?"
 "Ah!" mendengar nama Hong Qigong, petani itu berseru kaget, "Ternyata Nona adalah murid Dewa Pengemis Sembilan Jari. Apa Xiao Ge 
 ini juga murid Hong Lao Qianbei? Tidak heran dia sebagus ini." Ia kembali untuk mengambil surat itu.
 
-Huang Rong mengangguk, "Hei, dia kakak seperjuanganku, mampu mengangkat beberapa ratus kati. Berbicara tentang kungfu, dia tidak 
+Huang Rong mengangguk, "Hei, dia kakak seperguruanku, mampu mengangkat beberapa ratus kati. Berbicara tentang kungfu, dia tidak 
 terlalu jauh di bawah Paman." Perlahan ia membuka bungkusannya, pura-pura mencari surat itu, tapi pertama-tama ia mengambil 
 rompi kulit landak yang lembut, dan kemudian mengalihkan pandangannya ke arah Guo Jing, wajahnya terlihat ketakutan. "Aiyo! 
 Celaka!" serunya. "Telapak tangannya akan hancur. Paman, cepat cari cara untuk membantunya."
 
-**Bagian setelah ini masih Draft**
+Petani itu terkejut, tetapi kemudian tertawa, "Dia baik-baik saja," katanya, "Di mana surat itu?" Ia mengulurkan tangannya untuk 
+mengambil surat itu.
 
-Petani itu terkejut, tetapi kemudian dia tertawa, “Dia baik-baik saja,” katanya, “Di mana surat itu?” Dia mengulurkan tangannya untuk mengambil surat itu.
+"Paman tidak tahu," kata Huang Rong dengan cemas. "Saudaraku sedang berlatih Pi Kong Zhang[^pi-kong-zhang]. Telapak tangannya 
+direndam dalam cuka tadi malam, tapi latihannya belum selesai. Kalau ditekan terlalu lama, telapak tangannya akan hancur." Di 
+Pulau Bunga Persik ia telah dilatih Pi Kong Zhang oleh ayahnya, karena itu ia tidak asing dengan metode latihannya.
 
-“Kamu tidak tahu,” Huang Rong dengan cemas berkata, “Saudaraku sedang berlatih 'pi kong zhang' [meretas/mengiris/membelah teknik kelapa sawit kosong]. Telapak tangannya direndam dalam cuka tadi malam, tapi latihannya belum selesai. Jika telapak tangannya ditekan untuk waktu yang lama, telapak tangannya akan hancur.” Di Pulau Bunga Persik ayahnya telah melatihnya di 'pi kong zhang' sehingga dia terbiasa dengan metode pelatihan.
+[^pi-kong-zhang]: Ilmu membelah objek dengan tangan kosong.
 
-Meskipun petani itu tidak mengetahui seni bela diri ini, tetapi dia adalah murid seorang ahli seni bela diri, pengetahuannya sangat luas; dia telah mendengar tentang seni bela diri khusus ini, dia berpikir, “Jika tanpa alasan yang jelas saya menyebabkan cedera pada murid Pengemis Dewa Sembilan Jari, tidak hanya Shifu saya yang akan menegur saya, tetapi saya juga akan menyesalinya selama sisa hidup saya. . Selain itu, dia cukup baik untuk membantu saya. Hanya saya tidak tahu apakah yang dikatakan nona muda ini benar atau bohong. Saya khawatir dia hanya menipu saya untuk melepaskannya dari bawah batu.”
+Meskipun petani itu tidak mengerti kungfu ini, tetapi ia adalah murid seorang ahli silat, pengetahuannya sangat luas, ia telah 
+mendengar tentang kungfu ini sebelumnya, ia berpikir, "Kalau aku tanpa alasan yang jelas membuat murid Pengemis Tua itu cedera, 
+tidak hanya Shifu akan menegurku, tetapi aku juga akan menyesalinya selama sisaku. Selain itu dia cukup baik mau membantuku. 
+Hanya saja aku tidak tahu apakah yang dikatakan nona cilik ini benar atau bohong. Takutnya dia hanya menipuku untuk 
+melepaskan kakaknya dari bawah batu."
 
-Huang Rong memahami keragu-raguannya, dia mengeluarkan baju besi landak yang lembut dan mengguncangnya. “Ini adalah harta paling berharga di Pulau Bunga Persik, baju besi landak yang lembut; pisau dan pedang tidak bisa melukainya. Saya meminta Paman untuk meletakkannya di bahunya sebagai bantalan dan membiarkannya menopang batu dengan bahunya. Dengan begitu dia tidak akan bisa pergi, tapi dia tidak akan mengalami cedera, bukankah itu memuaskan kedua belah pihak? Atau jika tidak, Anda akan melukai telapak tangannya dan Shifu saya tidak akan menganggap Anda tidak bersalah dan akan menemukan Shifu Anda untuk menyelesaikan masalah.
+Huang Rong memahami keragu-raguannya, ia mengeluarkan Ruan Wei Jia dan mengguncangnya. "Ini adalah harta paling berharga di 
+Pulau Bunga Persik, rompi kulit landak yang lembut, pisau dan pedang tidak bisa melukainya. Kuminta Paman meletakkannya di 
+bahunya sebagai bantalan dan membiarkannya menopang batu dengan bahunya. Dengan begitu dia tidak akan bisa pergi, tapi dia 
+juga tidak akan cedera, cara ini cukup adil untuk kedua pihak, kan? Kalau tidak, takutnya Shifu akan menganggap Paman sengaja
+melukai dia, dan nanti akan mencari gurumu untuk menyelesaikan masalah ini."
 
-Petani itu juga mendengar tentang baju besi lembut landak; setengah percaya dan setengah ragu dia mengambil baju zirah itu. Huang Rong melihat bahwa dia belum yakin, jadi dia berkata, “Guru saya mengajari saya untuk tidak berbohong kepada orang lain, bagaimana saya bisa menipu Paman? Jika Paman tidak mempercayaiku, maka cobalah memotong armor ini beberapa kali.”
+Petani itu juga mendengar tentang Ruan Wei Jia, setengah percaya dan setengah ragu ia mengambil rompi unik itu. Huang Rong 
+melihat bahwa ia belum yakin, jadi ia berkata, "Guruku mengajarkan supaya kita tidak membohongi orang lain, masa aku bisa 
+menipu Paman? Kalau Paman tidak percaya, cobalah memotong rompi ini beberapa kali."
 
-Petani itu melihat wajahnya yang lugu, pikirnya, “Pengemis Dewa Sembilan Jari adalah Senior terhormat dengan keterampilan tinggi, kata-katanya seperti emas dan batu giok; setiap kali Shifu saya menyebutkan namanya, dia selalu melakukannya dengan sangat hormat dan kagum. Nona muda ini juga tidak terlihat seperti pembohong.” Itu karena dia memikirkan keselamatan dan kesejahteraan tuannya sehingga dia tidak berani bertindak sembarangan. Oleh karena itu dia mencabut pedang pendek dari pinggangnya dan memotong armor lembut landak beberapa kali. Benar saja, armor itu tidak menunjukkan bekas kerusakan; itu benar-benar salah satu harta dunia Wulin. Semua keraguannya hilang, “Baiklah, saya akan meletakkan ini di pundaknya sebagai bantalan,” katanya.
+Petani itu melihat wajahnya yang lugu, pikirnya, "Pengemis Utara adalah orang tua terhormat yang berilmu tinggi, kata-katanya 
+seperti emas dan batu giok, setiap kali Shifu menyebutkan namanya, ia selalu tampak sangat hormat dan kagum. Nona cilik ini 
+juga tidak terlihat seperti pembohong." Karena memikirkan keselamatan dan kesejahteraan gurunya, maka ia tidak berani bertindak 
+sembarangan. Oleh karena itu ia mencabut pedang pendek dari pinggangnya dan menebas rompi kulit landak itu beberapa kali. Benar 
+saja, baju itu tidak menunjukkan tanda-tanda kerusakan, ini benar-benar salah satu harta dunia persilatan. Semua keraguannya 
+lenyap. "Baik, aku akan meletakkan benda ini di pundaknya sebagai bantalan," katanya.
 
-Tidak dalam sejuta tahun dia tahu bahwa di balik wajah polos dan kekanak-kanakan Huang Rong menyembunyikan hati dan pikiran yang penuh tipu daya. Dia mengambil baju besi landak yang lembut dan pergi ke arah Guo Jing. Dia melemparkan baju zirah ke bahu Guo Jing dan mengerahkan kekuatannya ke lengannya, dia mengangkat batu itu dan berkata, "Lepaskan tanganmu, topang batu ini dengan bahumu."
+Ia sama sekali tidak pernah bermimpi bahwa di balik wajah polos dan kekanak-kanakan Huang Rong, tersembunyi hati dan pikiran 
+yang penuh tipu daya. Ia mengambil rompi kulit landak yang lembut itu, dan pergi ke arah Guo Jing. Ia melemparkan baju itu ke 
+bahu Guo Jing dan mengerahkan tenaga ke lengannya, ia mengangkat batu itu dan berkata, "Lepaskan tanganmu, topang batu ini 
+dengan bahumu."
 
-Bersandar pada batu gunung, Huang Rong terus memperhatikan kedua pria itu. Segera setelah petani mengambil batu besar, dia berteriak, "Jing Gege, 'fei long zai tian' [naga terbang ke langit]!"
+Bersandar pada batu gunung, Huang Rong terus memperhatikan kedua orang itu. Segera setelah si petani mengambil batu besar, ia 
+berteriak, "Jing Gege, Fei Long Zai Tian!"
 
-Guo Jing merasa tangannya bebas, dia juga mendengar teriakan Huang Rong; hampir tanpa berpikir telapak tangan kanannya mendorong ke depan, telapak tangan kirinya berbelok dari pergelangan tangan kanan, meluncurkan 'fei long zai tian' dari 18-Dragon Subduing Palms. Dia melompat ke udara, sekali lagi telapak tangan kanannya menghadap ke depan dari telapak tangan kirinya dan mendorong ke depan; dia mendarat di sisi Huang Rong, dengan baju besi landak yang lembut masih bertengger dengan baik di bahunya. Dia mendengar petani meneriakkan kutukan; jadi dia menoleh untuk melihat petani dengan tangan terangkat tinggi, menopang batu besar dan tidak bisa bergerak.
+Guo Jing merasa tangannya bebas, ia juga mendengar teriakan Huang Rong, hampir tanpa berpikir telapak tangan kanannya mendorong 
+ke depan, telapak tangan kirinya berbelok dari pergelangan tangan kanan, meluncurkan Fei Long Zai Tian ajaran Hong Qigong. Ia 
+melompat ke udara, sekali lagi telapak tangan kanannya menghadap ke depan dari telapak tangan kirinya dan mendorong ke depan, 
+ia mendarat di sisi Huang Rong, dengan rompi kulit landak itu masih bertengger dengan baik di bahunya. Ia mendengar petani 
+itu berteriak mengutuk, jadi ia menoleh untuk melihat petani itu dengan tangan terangkat tinggi, menopang batu besar dan tidak 
+bisa bergerak.
 
-Huang Rong sangat bangga pada dirinya sendiri, dia berkata, "Jing Gege, ayo pergi." Sambil menoleh ke arah petani dia berkata, “Kamu memiliki kekuatan yang luar biasa; tidak ada hal buruk yang akan terjadi pada Anda dalam waktu tiga perempat atau satu jam, jangan khawatir.
+Huang Rong sangat bangga pada dirinya sendiri, ia berkata, "Jing Gege, ayo pergi." Sambil menoleh ke arah petani itu ia berkata, 
+"Kau punya tenaga yang luar biasa, tidak akan ada hal buruk yang terjadi kepadamu dalam setengah sampai satu jam, jangan
+kuatir."
 
-Petani itu mengutuknya, “Gadis kecil, kamu menipu orang tua ini! Katamu Pengemis Dewa Sembilan Jari selalu menepati janjinya. Huh! Nama termasyhur Senior yang terhormat ini dirusak oleh seorang gadis kecil.”
+Petani itu mengutuknya, "Chou Yatou, kau menipu Laofu! Katamu Pengemis Utara selalu menepati janji. Huh! Nama besar Hong Lao 
+Qianbei ini dirusak seorang bocah perempuan."
 
-Huang Rong tersenyum, "Apa yang telah saya hancurkan?" dia berkata, “Guru saya mengajari saya untuk tidak pernah berbohong, tetapi ayah saya berkata bahwa sesekali menipu orang bukanlah masalah besar. Saya suka mendengarkan ayah saya, Shifu saya tidak bisa berbuat apa-apa tentang itu.”
+Huang Rong tersenyum, "Apa yang kuhancurkan?" katanya. "Guruku mengajariku supaya tidak pernah berbohong, tetapi ayahku bilang 
+bahwa sesekali menipu orang bukan masalah besar. Aku suka mendengarkan ayahku, guruku tidak bisa berbuat apa-apa soal ini."
 
 "Siapa ayahmu?" petani itu marah.
 
-"Ah! Bukankah aku membiarkanmu menguji armor soft hedgehog?” Huang Rong bertanya.
+"Ah! Bukankah aku tadi memberimu Ruan Wei Jia?" tanya Huang Rong.
 
-Petani itu semakin mengutuk, “Saya pantas mati! Aku pantas mati! Ternyata gadis kecil yang licik ini adalah putri dari Old Heretic Huang. Mengapa saya begitu kacau?”
+Petani itu semakin mengutuk, "Aku pantas mati! Aku pantas mati! Ternyata bocah licik ini anak Huang Laoxie. Mengapa aku sebodoh 
+ini?"
 
-Huang Rong tertawa, “Benar! Kata-kata Shifu saya seperti gunung, dia tidak pernah menipu siapa pun. Ini sangat sulit dipelajari, saya tidak mau mengikuti ajarannya. Menurutku ajaran ayahku lebih baik!” Dia terkikik dan menarik tangan Guo Jing, menuntunnya untuk mengikuti jalan setapak.
+Huang Rong tertawa, “Benar! Kata-kata Shifu seperti gunung, dia tidak akan pernah menipu siapa pun. Ini sangat sulit dipelajari, 
+aku tidak mau mengikuti ajarannya. Menurutku ajaran ayahku lebih baik!" Ia terkikik dan menarik tangan Guo Jing, menuntunnya 
+untuk mengikuti jalan setapak.
 
-Catatan penulis: lagu populer ini berasal dari Dinasti Song Utara selama tahun-tahun damainya. Sejak kemunculannya, lagu tersebut telah menjadi lagu rakyat yang populer selama era Song dan Jin. Sumber dari "Hillside Sheep" yang dinyanyikan oleh penebang kayu dan Huang Rong sebenarnya adalah versi terbaru dari lagu tersebut.
+[^catatan-syair]: Lagu Shan Po Yang ini dari era ke era akan tetap sama, tetapi syairnya bisa diubah-ubah menurut si penyanyi atau orang yang sedang berpuisi, atau apa yang sedang berkembang di era tersebut. Menurut novel ini awalnya populer di era Dinasti Song Selatan, tetapi kalau kita menggunakan Google Search yang kita dapatkan adalah sejumlah besar referensi yang mengatakan bahwa ini adalah lagu dari era Dinasti Yuan, yang didirikan oleh cucu dari Genghis Khan, yaitu Kubilai Khan, anak keempat Tolui, yang baru akan muncul di buku kedua Trilogi Rajawali ini.
 
