@@ -104,8 +104,6 @@ pertanyaannya tidak bisa dibiarkan tidak terjawab. Bagus. Dia sedang membaca Lun
 menghindari pertanyaannya." Setelah itu ia berkata, "Seorang bijak, aku tidak perlu menemuinya! Seorang terhormat, aku mungkin menemuinya. 
 [Seorang teman datang dari jauh, bukankah itu menyenangkan hati](nama-tokoh.md#kutipan-lunyu "Ini adalah salah satu kutipan langsung dari Kitab Lun Yu. Klik untuk membaca lebih lengkap.")?"
 
-**Last line was in Page 3 in PDF**
-
 Sastrawan itu memandang ke langit dan tertawa terbahak-bahak. "Baiklah, baiklah," katanya. "Aku punya tiga tes untuk kalian. 
 Kalau kau lulus, aku akan membawamu untuk menemui guruku. Tapi kalau sampai kau gagal, meskipun hanya satu, aku harus meminta 
 kalian berdua untuk kembali ke tempat asal kalian."
@@ -128,7 +126,7 @@ Sastrawan itu tersenyum dan melanjutkan, "Di atas bunga aprikot, sebuah cabang t
 membocorkan rahasia surga, jangan buka mulut. Satu titik meningkat menjadi pertarungan besar, namun bahkan tidak bisa menutupi 
 setengah tempat tidur. Semuanya selesai, topi digantung, waktunya pulang. Identitasku yang sebenarnya, apakah Zhuangzhu tahu?"
 
-Huang Rong berpikir, "Nama sudah selesai, topi digantung, waktunya pulang. Identitas saya yang sebenarnya, apakah Zhuangzhu 
+Huang Rong berpikir, "Semuanya selesai, topi digantung, waktunya pulang. Identitasku yang sebenarnya, apakah Zhuangzhu 
 tahu?' Melihat penampilanmu, seharusnya kau adalah menteri Kaisar Duan di masa lalu, gantung topimu mengikuti 
 majikanmu, kembali ke gunung berhutan yang tersembunyi ini. Apa sulitnya ditebak?" Kemudian ia berkata, "Ketika Xiansheng 
 menambahkan karakter 'satu' (一) dan 'sepuluh' (十) di bawah karakter 'enam' (六), maka jadilah karakter 'xin' (辛). Tambahkan 
@@ -206,70 +204,134 @@ salahnya dengan sedikit lelucon?"
 Huang Rong tersenyum, "Kalau begitu, ijinkan Wanbei minta maaf kepada Paman terlebih dahulu. Baris kedua adalah, Chi Mei Wang 
 Liang (魑魅魍魉)[^chi-mei-wang-liang], empat setan kecil dengan perut dan ususnya'."
 
-[^chi-mei-wang-liang]: Keempat karakter Chi Mei Wang Liang (魑魅魍魉) itu masing-masing mengandung karakter Gui (鬼), alias 'Hantu'. Karakter Chi (魑) berarti 'Peri Gunung', Mei (魅) bisa berarti Monster/Tukang sihir/Magic, Wang (魍) berarti Peri atau Malaikat, sedangkan Liang (魉) hampir sama dengan Wang, bisa berarti Bidadari atau makhluk dari negeri dongeng.
+[^chi-mei-wang-liang]: Keempat karakter Chi Mei Wang Liang (魑魅魍魉) itu masing-masing mengandung karakter Gui (鬼), alias 'Hantu'. Karakter Chi (魑) berarti 'Peri Gunung', Mei (魅) bisa berarti Monster/Tukang sihir/Magic, Wang (魍) berarti Peri atau Malaikat, sedangkan Liang (魉) hampir sama dengan Wang, bisa berarti Bidadari atau makhluk dari negeri dongeng. Dalam hal ini keempat karakter Gui (鬼) ini bertindak sebagai Hantu atau Setan 'kecil', karena semuanya hanya sebagian dari karakter sepenuhnya, dan karakter pendamping itu semuanya berfungsi sebagai 'perut dan usus' dalam kalimat karangan Huang Rong. Atau lebih tepatnya karangan Huang Yaoshi.
 
-Sarjana itu tercengang, ia melompat untuk berdiri, dengan lengan jubah panjangnya berkibar ia berlari ke arah Huang Rong, "Aku 
+Sastrawan itu tercengang, ia melompat untuk berdiri, dengan lengan jubah panjangnya berkibar ia berlari ke arah Huang Rong, "Aku 
 menyerah dengan penuh kekaguman," katanya.
 
-Huang Rong membalas hormatnya dan berkata sambil tersenyum, "Jika empat Paman yang terhormat tidak melakukan yang terbaik untuk menghalangi kami mendaki gunung, bait Anda benar-benar sulit untuk diselesaikan."
+Huang Rong membalas hormatnya dan berkata sambil tersenyum, "Kalau Paman berempat yang terhormat tidak melakukan hal terbaik 
+untuk menghalangi kami mendaki gunung, bait Paman tadi benar-benar sulit untuk diselesaikan."
 
-Ternyata ketika Huang Yaoshi memecahkan teka-teki ini, Chen Xuanfeng, Qu Lingfeng, Lu Chengfeng dan Feng Mofeng, empat murid ada di sisinya; Huang Yaoshi memaksudkan baris kedua ini sebagai lelucon bagi keempat muridnya. Waktu itu Huang Rong bahkan belum lahir. Kemudian dia mendengar ayahnya mengingat cerita ini dan hari ini dia berhasil menggunakan kalimat yang sama untuk mengolok-olok nelayan, penebang kayu, petani, dan sarjana.
+Ternyata ketika Huang Yaoshi memecahkan teka-teki ini, Chen Xuanfeng, Qu Lingfeng, Lu Chengfeng dan Feng Mofeng, empat murid itu 
+ada di sisinya. Huang Yaoshi memaksudkan baris kedua ini sebagai lelucon bagi keempat muridnya. Waktu itu Huang Rong bahkan belum 
+lahir. Kemudian ia mendengar ayahnya mengingat cerita ini, dan hari ini ia berhasil menggunakan kalimat yang sama untuk 
+mengolok-olok nelayan, penebang kayu, petani, dan sarjana.
 
-"Huh," cendekiawan itu mendengus. Dia berbalik untuk membuat celah kecil dan berkata, "Tolong."
+"Huh," dengus sastrawan itu. Ia berbalik untuk membuat celah kecil dan berkata, "Silakan."
 
-Guo Jing berdiri dengan tenang mendengarkan dua serangan sastra yang saling bertukar ini; dia takut Huang Rong tidak akan bisa menjawab dan dengan demikian menyia-nyiakan semua upaya sebelumnya. Melihat cendekiawan itu menyingkir untuk memberi jalan bagi mereka, dia sangat senang. Dia mengerahkan kekuatannya dan melompati celah; mendarat di tempat di mana sarjana sebelumnya duduk. Akhirnya dia melompati celah terakhir.
+Guo Jing berdiri dengan tenang mendengarkan kedua orang itu saling bertukar kata dan saling mengejek, ia takut Huang Rong tidak 
+akan bisa menjawab dan dengan demikian menyia-nyiakan semua upaya sebelumnya. Melihat sastrawan itu menyingkir untuk memberi 
+jalan bagi mereka, ia sangat senang. Ia mengerahkan tenaganya dan melompati celah, mendarat di tempat di mana si sastrawan 
+sebelumnya duduk. Akhirnya ia melompati celah terakhir.
 
-Sarjana itu memperhatikan bagaimana Guo Jing melompati celah dengan mudah bahkan sambil menggendong Huang Rong di punggungnya; dia menghela nafas dan berkata dalam hatinya, “Saya bangga pada diri saya sebagai orang yang sangat ahli dalam sastra dan seni bela diri; sebenarnya dalam literatur saya lebih rendah dari gadis muda ini, dan dalam seni bela diri saya bukan tandingan anak muda ini. Malu, aku benar-benar malu.” Dia melirik ke samping untuk melihat ekspresi gembira Huang Rong; dia pikir gadis ini baru saja mengalahkan 'zhuang yuan' yang terhormat dan berpendidikan tinggi, tidak heran dia tidak bisa menyembunyikan perasaan optimisnya. Dia berpikir, "Biarkan aku menggodanya, mengajarinya untuk tidak terlalu berpuas diri!" Kemudian dia berkata, "Bakat sastra Nona luar biasa, tetapi perilaku Anda kurang."
+Sastrawan itu memperhatikan bagaimana Guo Jing melompati celah dengan mudah bahkan sambil menggendong Huang Rong di punggungnya, 
+ia menghela nafas dan berkata dalam hatinya, "Aku membanggakan diri sebagai orang yang sangat ahli dalam sastra dan ilmu silat, 
+sebenarnya dalam sastra aku lebih rendah dari gadis cilik ini, dan dalam hal kungfu aku bukan tandingan anak muda ini. Malu, aku 
+benar-benar malu." Ia melirik ke samping untuk melihat ekspresi gembira Huang Rong, ia mengira gadis ini baru saja mengalahkan 
+seorang Zhuangyuan yang terhormat dan berpendidikan tinggi, tidak heran ia tidak bisa menyembunyikan perasaan optimisnya. Ia 
+berpikir, "Aku ingin menggodanya, mengajarinya untuk tidak terlalu berpuas diri!" Kemudian ia berkata, "Bakat sastra Nona luar 
+biasa, tapi kelakuanmu kurang."
 
-"Saya mohon penjelasan Anda," kata Huang Rong.
+"Mohon penjelasan Paman," kata Huang Rong.
 
-Cendekiawan itu menjawab, "Mengzi [Mencius] menulis dalam bukunya: 'Pria dan wanita tidak berhubungan intim, itu hanya pantas.' suami; bagaimana dia bisa menggendongmu di punggungnya? Mengzi mengatakan seorang saudara laki-laki dapat membantu adik iparnya yang tenggelam, atau seorang paman membantu keponakannya. Nona belum jatuh ke air, 'Xiao Ge' ini juga bukan iparmu. Menggendong dan berpelukan seperti ini benar-benar melanggar ajaran agama.”
+Sastrawan itu menjawab, "Mengzi[^mengzi] menulis dalam bukunya, 'Pria dan wanita tidak berhubungan intim, itu hanya pantas 
+dilakukan oleh suami-istri', bagaimana dia bisa menggendongmu di punggungnya? Mengzi mengatakan seorang saudara laki-laki bisa 
+membantu adik iparnya yang tenggelam, atau seorang paman membantu keponakannya. Nona belum jatuh ke air, Xiao Ge ini juga bukan 
+iparmu. Menggendong dan berpelukan seperti ini benar-benar melanggar ajaran agama."
 
-“Huh,” pikir Huang Rong, “Kakak Jing baik padaku, namun orang lain selalu mempermasalahkan fakta bahwa dia bukan suamiku. Shige [kakak laki-laki] Lu Chengfeng juga mengatakan hal yang sama dengan cendekiawan ini.” Setelah itu dia berkata dengan blak-blakan, “Mengzi suka berbicara omong kosong; bagaimana Anda bisa percaya apa yang dia katakan?
+[^mengzi]: Mengzi (孟子) adalah seorang penganut ajaran Konfusius, Mensius, dalam bahasa mandarin. Nama ini juga dipakai untuk nama buku yang ditulisnya. Mengzi adalah murid Konfusius generasi keempat. Bukunya penuh dengan percakapan, anekdot, dan wawancara baik yang nyata maupun hanya imajiner dari Mensius. Standar mengenai moral dan etika dalam pergaulan umum serta politik banyak yang berdasarkan kitab Mensius ini. Banyak ahli sastra dan sejarah berpendapat beberapa bagian dari kitab tersebut bukan ditulis oleh Mensius sendiri, tetapi ditulis di era yang lebih kemudian oleh murid-muridnya atau penganut pandangannya. Mensius seringkali disebut sebagai Konfusius yang kedua. Seperti semua ajaran lain, akhirnya ajaran Konfusius juga berkembang menjadi lebih rumit dan banyak variasi, serta mendapat kritik pedas oleh orang-orang yang kurang menyetujuinya, tanpa sepenuhnya tahu bahwa ajaran tertentu _mungkin_ bahkan bukan datang dari Konfusius sendiri, dan bahkan juga _mungkin_ bukan dari Mengzi.
 
-Sarjana itu tersinggung, “Mengzi adalah orang bijak yang hebat dan layak; mengapa kita tidak bisa mempercayai apa yang dia katakan?”
+"Huh," pikir Huang Rong. "Jing Gege baik kepadaku, tapi orang lain selalu mempermasalahkan bahwa dia bukan suamiku. Lu Shige 
+juga mengatakan hal yang sama." Setelah itu ia berkata dengan terang-terangan, "Mengzi suka bicara omong kosong, bagaimana 
+Xiansheng bisa percaya apa yang dikatakannya begitu saja?"
 
-Huang Rong tersenyum dan melafalkan, “Bagaimana bisa seorang pengemis punya dua istri? Dari mana tetangga memiliki begitu banyak ayam? Zhou (dinasti) masih memiliki seorang kaisar, mengapa mendiskusikan banyak hal dengan Wei dan Qi (dinasti)?”
+Sastrawan itu tersinggung, "Mengzi adalah orang bijak yang hebat dan layak, mengapa kita tidak bisa mempercayai apa yang dia 
+katakan?"
 
-Semakin sarjana berpikir, semakin dia menyadari kebenaran dalam apa yang dia katakan. Dia berdiri di sana menatap kosong, tidak bisa mengatakan sepatah kata pun.
+Huang Rong tersenyum dan melafalkan, "Bagaimana bisa seorang pengemis punya dua istri? Dari mana tetangga memiliki begitu banyak ayam? Dinasti Zhou masih punya seorang raja, mengapa mendiskusikan banyak hal dengan Wei dan Qi?"[^kritik-1]
 
-Sebenarnya Huang Yaoshi yang menulis pepatah itu. Dia membenci tradisi dan membenci sedekah kosong; dia suka meneliti, menyanggah, mengejek, dan menyindir makna kosong dari perkataan lama yang diturunkan dari orang bijak yang agung dan layak. Suatu kali dia membuat banyak puisi dan lagu untuk menyindir Konfusius dan Mencius.
+[^kritik-1]: Kerajaan Wei dan Qi adalah negara yang seharusnya menjadi bagian dari Dinasti Zhou, tetapi di era Konfusius dan akhirnya Mengzi, semua kerajaan seperti ini akhirnya hanya menghormati Dinasti Zhou sebagai formalitas, pada kenyataannya mereka memikirkan wilayah masing-masing, sama sekali tidak memikirkan Dinasti Zhou, sampai akhirnya semuanya, termasuk wilayah Qin, mendeklarasikan diri sebagai sebuah Kerajaan yang berdiri sendiri. Semua kerajaan ini akhirnya saling berperang, sebelum semuanya, termasuk Dinasti Zhou, ditaklukkan oleh Qin, yang akhirnya mendeklarasikan sebuah Kekaisaran, dengan Ying Zheng sebagai kaisar pertama bergelar Qin Shi Huang atau Shi Huangdi. Peristiwa itu mengawali 2 milenium lebih kekaisaran Tiongkok hingga akhir era Dinasti Qing, sebelum akhirnya digantikan oleh Republik. Kritik yang dilontarkan melalui ucapan Huang Rong mengenai Wei dan Qi itu ditujukan kepada Mengzi, yang pergi mencari jabatan di kedua negara baru itu.
 
-Mencius bercerita tentang seorang pria dari dinasti Qi yang memiliki seorang istri dan seorang selir namun dia meminta nasi dingin dan sup basi; juga tentang seorang laki-laki yang setiap hari mencuri ayam milik tetangganya. Huang Yaoshi berkata bahwa kedua cerita ini digunakan untuk menipu orang lain. Tentang ucapan selanjutnya ceritanya seperti ini: Selama periode Negara-Negara Berperang (475 – 221 SM) Kaisar Zhou masih bertahta, namun mengapa Mencius tidak mendukung keluarga kerajaan; tetapi pergi ke Pangeran Liang Hui dan Pangeran Qi Xuan kepada siapa dia meminta posisi pemerintahan? Huang Yaoshi menganggap tindakan ini sangat tidak mematuhi cara orang suci dan orang bijak.
+Semakin sastrawan itu berpikir, semakin ia menyadari kebenaran di dalam kata-kata Huang Rong. Ia berdiri di sana menatap kosong, 
+tidak bisa mengatakan sepatah kata pun.
 
-Cendekiawan itu berpikir, “Orang Qi yang mencuri ayam adalah metafora, tidak layak untuk dipelajari lebih dalam; tetapi kalimat terakhir, saya khawatir bahkan Mengzi sendiri di bawah tanah akan kesulitan menyangkal. Dia menatap mata Huang Rong dan berpikir, "Dia masih sangat muda, bagaimana dia bisa memiliki kecerdasan yang begitu aneh?" Tanpa berkata apa-apa lagi dia memimpin dua orang berjalan ke depan.
+Sebenarnya Huang Yaoshi yang menulis pepatah itu. Ia membenci tradisi dan membenci sedekah kosong, ia suka meneliti, menyanggah, 
+mengejek, dan menyindir makna kosong dari perkataan lama yang diturunkan dari orang-orang bijak yang dipandang agung dan layak. 
+Suatu kali ia membuat banyak puisi dan lagu untuk menyindir Konfusius dan Mengzi.
 
-Saat melewati kolam teratai pandangannya tertangkap oleh daun teratai di kolam; dia tidak bisa menahan diri untuk mencuri pandang ke arah Huang Rong. Huang Rong menahan tawanya dan menoleh ke arah lain.
+Mengzi bercerita tentang seorang pria dari Dinasti Qi yang punya seorang istri dan seorang selir, namun ia mengemis ke sana-sini 
+untuk minta nasi dingin dan sup basi, juga tentang seorang laki-laki yang setiap hari mencuri ayam milik tetangganya. Huang 
+Yaoshi berkata bahwa kedua cerita ini digunakan untuk menipu orang lain. Tentang ucapan selanjutnya, masalahnya adalah, selama 
+periode Peperangan Antar Negara (475 – 221 SM), Raja Zhou masih bertahta, namun demikian Mengzi tidak mendukung keluarga 
+kerajaan, tetapi malah pergi ke Pangeran Hui[^pangeran-hui] dari Liang, dan Pangeran Xuan[^pangeran-xuan] dari Qi, dan ia 
+meminta posisi dalam pemerintahan. Huang Yaoshi menganggap tindakan ini sangat tidak mematuhi cara orang suci dan orang bijak 
+yang ortodoks.
 
-Cendekiawan itu memimpin kedua orang itu memasuki kuil, meminta mereka duduk di sayap timur dan menyuruh seorang biksu muda menyajikan teh. “Tolong tunggu sebentar di sini,” kata cendekiawan itu, “Saya akan melapor kepada Guru.”
+[^pangeran-hui]: Raja Hui dari Liang (梁惠王, Liang Hui Wang), adalah gelar dari Raja Hui dari Kerajaan Wei, yang sebelum negeri tersebut mendeklarasikan diri sebagai kerajaan, ia adalah seorang Hou (侯), yaitu Kepala Daerah setingkat Adipati atau Marquess di Eropa. Jabatan tersebut adalah sama dengan yang disandang oleh ayah Ji Fa, yang akhirnya mendirikan Dinasti Zhou, yaitu Ji Chang, mengingat di era sebelum Kekaisaran Qin, tidak ada pemimpin negara yang menggunakan istilah 'Kaisar' atau Huangdi.
 
-"Tunggu!" Guo Jing berkata, “Paman Petani itu masih mengangkat batu besar di lereng bukit; dia tidak bisa pergi sendiri. Paman tolong bantu dia dulu.” Sarjana itu terkejut dan berlari keluar.
+[^pangeran-xuan]: Raja Xuan dari Qi, atau Qi Xuan Wang (齊宣王), adalah gelar Tian Bijiang (田辟疆) dari Kerajaan Qi, yang diberikan sebagai gelar kehormatan setelah ia meninggal. Kemungkinan besar ketika ia masih hidup ia hanya seorang Gong (公), yang kurang lebih punya peringkat sama seperti Kepala Daerah Qin sebelum menjadi Kerajaan. Dalam hirarki kepemimpinan menurut Mengzi, terdapat lima peringkat berdasarkan luas wilayah, yaitu Gong, Hou, Bo (伯), Zi (子) dan Nan (男). Agak anehnya, Gong dan Hou punya luas wilayah yang sama, yaitu minimal seratus li persegi, Bo memiliki minimal tujuh puluh, sedangkan Zi dan Nan sama-sama harus punya minimal lima puluh li persegi. Tidak terlalu jelas apa yang membedakan peringkat yang punya luas wilayah sama itu.
 
-“Sekarang kita bisa membuka kantong kuning itu,” kata Huang Rong.
+Sastrawan itu berpikir, "Orang Qi yang mencuri ayam itu adalah sebuah perumpamaan, tidak layak untuk dipelajari lebih dalam, 
+tetapi kalimat terakhir, aku kuatir bahkan Mengzi sendiri di dalam kuburannya akan kesulitan menyangkal." Ia menatap mata Huang 
+Rong dan berpikir, "Dia masih sangat muda, bagaimana bisa punya kecerdasan yang seaneh ini?" Tanpa berkata apa-apa lagi ia 
+memimpin kedua orang itu berjalan ke depan.
 
-"Ah, jika kamu tidak menyebutkannya, aku akan benar-benar lupa," kata Guo Jing. Dengan tergesa-gesa dia mengeluarkan kantong kuning itu dan merobeknya. Di dalam kantong itu ada selembar kertas polos tanpa tulisan apa pun, hanya sebuah gambar.
+Saat melewati kolam teratai pandangannya terpana oleh daun teratai di kolam, ia tidak bisa menahan diri untuk mencuri pandang 
+ke arah Huang Rong. Huang Rong menahan tawanya dan menoleh ke arah lain.
 
-Gambar tersebut menggambarkan seorang pria yang mengenakan pakaian kerajaan India. Pria itu memotong dagingnya sendiri dengan pisau; seluruh tubuhnya dipenuhi luka dan memar, berlumuran darah. Ada skala di depannya; di salah satu ujung timbangan berdiri seekor merpati putih, di ujung lainnya menumpuk potongan dagingnya. Merpati itu tampak kecil, tetapi lebih berat daripada tumpukan daging di ujung sana. Seekor elang yang tampak garang berdiri di samping timbangan.
+Sastrawan itu memimpin kedua orang itu memasuki kuil, meminta mereka duduk di sayap timur dan menyuruh seorang biksu muda 
+menyajikan teh. "Tolong tunggu sebentar di sini," kata sastrawan itu, "ku akan melapor kepada Shifu."
 
-Goresan pena dari gambar itu cukup jelek. Huang Rong berpikir, “Ternyata Ying Gu belum belajar cara menggambar; tulisan tangannya tidak buruk, tapi gambar ini seperti coretan anak kecil.” Dia melihat gambar itu selama setengah hari, tetapi tidak bisa menguraikan apa artinya.
+"Tunggu!" kata Guo Jing. "Paman Petani itu masih mengangkat batu besar di lereng bukit, dia tidak bisa pergi sendiri. Paman 
+tolong bantu dia dulu." Sarjana itu terkejut dan berlari keluar.
 
-Melihat Huang Rong tidak dapat menebak tentang apa gambar itu, Guo Jing berpikir tidak ada gunanya dia mencoba. Dia melipat gambar itu dan memegangnya di tangannya.
+"Sekarang kita bisa membuka kantong kuning itu," kata Huang Rong.
 
-Tidak lama kemudian mereka mendengar langkah kaki memasuki aula; petani masuk, terbakar amarah, didukung oleh sarjana. Dia sangat lelah mendukung batu besar itu untuk waktu yang lama.
+"Ah, kalau kau tidak bilang, aku benar-benar lupa," kata Guo Jing. Dengan tergesa-gesa ia mengeluarkan kantong kuning itu dan 
+merobeknya. Di dalam kantong itu ada selembar kertas polos tanpa tulisan apa pun, hanya sebuah gambar.
 
-Tentang waktu yang dibutuhkan untuk minum secangkir teh kemudian seorang biksu muda masuk; sambil mengatupkan tangannya di depan dada, dia berkata, “Tuan dan nyonya datang dari jauh; Saya ingin tahu apa perhatian mulia Anda?
+Gambar tersebut menggambarkan seorang laki-laki yang mengenakan pakaian kerajaan India. Pria itu memotong dagingnya sendiri 
+dengan pisau, seluruh tubuhnya dipenuhi luka dan memar, berlumuran darah. Ada neraca di depannya, di salah satu ujung timbangan 
+berdiri seekor merpati putih, di ujung lainnya menumpuk potongan dagingnya. Merpati itu tampak kecil, tetapi lebih berat daripada 
+tumpukan daging di ujung sana. Seekor elang yang tampak garang berdiri di samping timbangan.
 
-"Kami sedang mencari audiensi dengan Kaisar Duan," jawab Guo Jing, "Kami harus merepotkanmu untuk mengumumkan kunjungan kami."
+Goresan pena dari gambar itu cukup jelek. Huang Rong berpikir, "Ternyata Ying Gu belum belajar cara menggambar, tulisan tangannya 
+tidak buruk, tapi gambar ini seperti coretan anak kecil." Ia melihat gambar itu sampai lama, tetapi tidak bisa menguraikan apa 
+artinya.
 
-“Kaisar Duan tidak lagi berada di dunia fana ini, perjalananmu yang melelahkan sia-sia,” biksu muda itu menggenggam tangannya lagi, “Silakan makan sayur, dan kemudian Biksu Kecil akan melihatmu menuruni gunung.”
+Melihat Huang Rong tidak dapat menebak tentang apa makna gambar itu, Guo Jing berpikir tidak ada gunanya ia mencoba. Ia melipat gambar itu dan memegangnya di tangannya.
 
-Guo Jing sangat kecewa; dia memikirkan kesulitan mereka yang tak terhitung untuk sampai ke tempat ini, dan sekarang mereka harus kembali menuruni gunung, bagaimana mungkin hal ini baik? Tapi ketika Huang Rong melihat kuil dia 30% yakin, sekarang melihat biksu muda ini, dia 50, 60% yakin. Dia mengambil gambar itu dari tangan Guo Jing dan berkata, “Murid Guo Jing dan Huang Rong ada di sini, berharap tuanmu yang terhormat akan menghormati hubungan masa lalu dengan Pengemis Ilahi Sembilan Jari dan Pulau Bunga Persik, dan memberi kami audiensi. Kami akan sangat menghargai jika Anda dapat memberikan selembar kertas ini kepada tuan Anda.”
+Tidak lama kemudian mereka mendengar langkah kaki memasuki ruangan. Petani masuk, terbakar amarah, didukung oleh si sastrawan. 
+Ia sangat lelah karena terlalu lama harus menahan batu besar itu.
 
-Biksu muda itu menerima lukisan itu. Dia tidak berani membukanya; dia hanya menggenggam tangannya dan berbalik untuk masuk ke dalam. Tak lama kemudian dia kembali, menundukkan kepalanya dan mengatupkan tangannya, dia berkata, “Dengan hormat mengundangmu untuk datang.” Guo Jing sangat gembira, dia membantu Huang Rong berdiri dan bersama-sama mereka mengikuti biksu muda itu masuk ke dalam.
+Sekitar waktu yang dibutuhkan untuk minum secangkir teh kemudian, seorang biksu muda masuk, sambil mengatupkan tangannya di depan 
+dada, ia berkata, "Gongzi dan Guniang datang dari jauh. Xiaosheng[^xiao-sheng] ingin tahu apa maksud kedatangan kalian berdua?"
 
-Meskipun candi itu tampak kecil, namun sangat dalam. Tiga orang berjalan melewati gang kecil yang dilapisi batu ubin hijau, melewati rerimbunan bambu kecil yang lebat dan rindang. Tempat itu sangat sunyi dan tenteram, menyebabkan siapa pun yang masuk ke dalamnya akan membuang pikiran kotor mereka.
+[^xiao-sheng]: Xiaosheng (小生) umumnya dipakai oleh para biksu muda untuk memanggil diri mereka sendiri dengan tujuan merendah.
+
+"Kami ingin bertemu dengan Kaisar Duan," jawab Guo Jing, "Kami harus merepotkanmu untuk mengumumkan kunjungan kami."
+
+"Kaisar Duan tidak lagi berada di dunia fana ini, perjalananmu yang melelahkan ini sia-sia," kata biksu muda itu sambil menggenggam tangannya lagi, "Silakan makan sayur, dan kemudian Xiaosheng akan mengantar kalian turun gunung."
+
+Guo Jing sangat kecewa, ia memikirkan kesulitan mereka yang tak terhitung untuk sampai ke tempat ini, dan sekarang mereka harus 
+kembali menuruni gunung, masa hal semacam ini baik? Tapi ketika Huang Rong melihat kuil itu, ia tiga puluh persen yakin, 
+sekarang melihat biksu muda ini, ia lima sampai enam puluh persen yakin. Ia mengambil gambar itu dari tangan Guo Jing dan 
+berkata, "Dizi Guo Jing dan Huang Rong ada di sini, berharap gurumu yang terhormat akan menghormati hubungan masa lalu dengan 
+Jiu Zhi Shen Gai dan Pulau Bunga Persik, dan memberi kami kesempatan bertemu. Kami akan sangat menghargai kalau Xiao Shifu bisa 
+memberikan selembar kertas ini kepada gurumu."
+
+Biksu muda itu menerima lukisan itu. Ia tidak berani membukanya, ia hanya menggenggam tangannya dan berbalik untuk masuk ke 
+dalam ruangan. Tak lama kemudian ia kembali, menundukkan kepalanya dan mengatupkan tangannya, ia berkata, "Dengan hormat 
+mengundang kalian masuk." Guo Jing sangat gembira, ia membantu Huang Rong berdiri dan bersama-sama mereka mengikuti biksu muda 
+itu masuk.
+
+Meskipun juil itu tampak kecil, namun sangat dalam. Ketiga orang itu berjalan melewati gang kecil yang dilapisi batu ubin hijau, 
+melewati rerimbunan bambu kecil yang lebat dan rindang. Tempat itu sangat sunyi dan tenteram, menyebabkan siapa pun yang masuk ke 
+dalamnya akan membuang pikiran kotor mereka.
 
 Ada tiga rumah batu yang tersembunyi di antara pohon bambu. Biksu muda itu dengan ringan mendorong pintu terbuka dan melangkah ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
+
+**Batas Last Line, Page 11 di PDF**
 
 Guo Jing memiliki kesan yang sangat baik terhadap biksu yang sopan dan santun ini; dia tersenyum untuk mengungkapkan rasa terima kasihnya, lalu berdampingan dengan Huang Rong dia masuk.
 
