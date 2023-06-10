@@ -325,11 +325,12 @@ dalam ruangan. Tak lama kemudian ia kembali, menundukkan kepalanya dan mengatupk
 mengundang kalian masuk." Guo Jing sangat gembira, ia membantu Huang Rong berdiri dan bersama-sama mereka mengikuti biksu muda 
 itu masuk.
 
-Meskipun juil itu tampak kecil, namun sangat dalam. Ketiga orang itu berjalan melewati gang kecil yang dilapisi batu ubin hijau, 
+Meskipun kuil itu tampak kecil, namun sangat dalam. Ketiga orang itu berjalan melewati gang kecil yang dilapisi batu ubin hijau, 
 melewati rerimbunan bambu kecil yang lebat dan rindang. Tempat itu sangat sunyi dan tenteram, menyebabkan siapa pun yang masuk ke 
 dalamnya akan membuang pikiran kotor mereka.
 
-Ada tiga rumah batu yang tersembunyi di antara pohon bambu. Biksu muda itu dengan ringan mendorong pintu terbuka dan melangkah ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
+Ada tiga rumah batu yang tersembunyi di antara pohon bambu. Biksu muda itu dengan ringan mendorong pintu terbuka, lalu melangkah 
+ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
 
 **Batas Last Line, Page 11 di PDF**
 
