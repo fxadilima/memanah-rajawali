@@ -334,6 +334,8 @@ ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
 
 **Batas Last Line, Page 11 di PDF. Setelah ini semuanya Draft.**
 
+***
+
 Guo Jing memiliki kesan yang sangat baik terhadap biksu yang sopan dan santun ini; dia tersenyum untuk mengungkapkan rasa terima kasihnya, lalu berdampingan dengan Huang Rong dia masuk.
 
 Di dalam ruangan dia melihat sebuah meja kecil dengan pembakar dupa kayu cendana di atasnya; di sebelah meja dua biksu Buddha duduk di atas tikar meditasi bundar. Seorang biksu berkulit gelap dengan hidung mancung dan mata yang dalam; rupanya dia adalah seorang biksu India. Bhikkhu lainnya mengenakan jubah yang terbuat dari kain kasar; alis putihnya begitu panjang sehingga terkulai dari sudut matanya. Wajahnya lembut; meskipun matanya menunjukkan jejak kesedihan, sekilas ekspresinya secara keseluruhan adalah orang yang anggun dan agung. Sarjana dan petani itu berdiri di belakangnya.
