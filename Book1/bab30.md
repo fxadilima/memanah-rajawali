@@ -7,6 +7,8 @@
 
 ***
 
+**WARNING: Sebagian besar isi Bab ini masih dalam bentuk Draft**
+
 Dua orang berjalan maju mengikuti jalur gunung dan tak lama kemudian jalur itu berakhir. Di depan ada jembatan batu selebar satu kaki, bertengger di antara dua puncak gunung, tertutup awan yang ujung lainnya tidak terlihat. Jika jembatan batu ini diletakkan di atas tanah, itu akan berfungsi seperti gang sempit, tidak ada yang perlu ditakuti; tapi di bawah jembatan batu ada ngarai yang dalam. Melihatnya saja sudah membuat hati gemetar ketakutan, apalagi berjalan melewatinya.
 
 Huang Rong menghela nafas, “Kaisar Duan ini menyembunyikan dirinya dengan sangat baik. Jika musuh datang penuh permusuhan tiba di tempat ini, setengah dari kebenciannya akan hilang lebih dulu,” katanya.
