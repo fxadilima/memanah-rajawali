@@ -336,15 +336,26 @@ ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
 
 ***
 
-Guo Jing memiliki kesan yang sangat baik terhadap biksu yang sopan dan santun ini; dia tersenyum untuk mengungkapkan rasa terima kasihnya, lalu berdampingan dengan Huang Rong dia masuk.
+Guo Jing punya kesan yang sangat baik terhadap biksu muda yang sopan dan santun ini, ia tersenyum untuk mengungkapkan rasa terima 
+kasihnya, lalu ia masuk berdampingan dengan Huang Rong.
 
-Di dalam ruangan dia melihat sebuah meja kecil dengan pembakar dupa kayu cendana di atasnya; di sebelah meja dua biksu Buddha duduk di atas tikar meditasi bundar. Seorang biksu berkulit gelap dengan hidung mancung dan mata yang dalam; rupanya dia adalah seorang biksu India. Bhikkhu lainnya mengenakan jubah yang terbuat dari kain kasar; alis putihnya begitu panjang sehingga terkulai dari sudut matanya. Wajahnya lembut; meskipun matanya menunjukkan jejak kesedihan, sekilas ekspresinya secara keseluruhan adalah orang yang anggun dan agung. Sarjana dan petani itu berdiri di belakangnya.
+Di dalam ruangan ia melihat sebuah meja kecil dengan pembakar dupa kayu cendana di atasnya, di sebelah meja dua biksu Buddha 
+duduk di atas tikar meditasi bundar. Seorang biksu berkulit gelap dengan hidung mancung dan mata yang dalam, rupanya ia adalah 
+seorang biksu India. Biksu lainnya mengenakan jubah yang terbuat dari kain kasar, alis putihnya begitu panjang sehingga terkulai 
+dari sudut matanya. Wajahnya lembut, meskipun sorot matanya menyiratkan kesedihan, sekilas ekspresinya secara keseluruhan adalah 
+orang yang anggun dan agung. Sastrawan dan petani itu berdiri di belakangnya.
 
-Semua kecurigaan Huang Rong lenyap; dia dengan ringan menarik tangan Guo Jing dan berjalan ke biksu dengan alis panjang; dia berlutut dan membungkuk ke tanah dan berkata, "Murid Guo Jing dan Huang Rong menyapa Shibo." [Catatan penerjemah: Shibo – paman bela diri, karakter 'bo' di sini menunjukkan 'lebih tua dari ayah seseorang' atau 'kakak laki-laki ayah', tetapi karena bahasa Inggris tidak membedakan antara paman 'lebih tua' dan 'lebih muda', kata umum dari ' Paman' akan digunakan di seluruh bab.]
+Semua kecurigaan Huang Rong lenyap, ia dengan ringan menarik tangan Guo Jing dan berjalan ke biksu dengan alis panjang, ia 
+berlutut dan membungkuk ke tanah dan berkata, "Murid Guo Jing dan Huang Rong menyapa Shibo[^shibo]."
 
-Guo Jing terkejut, tetapi tanpa pikir panjang dia hanya mengikuti teladan Huang Rong dan membungkuk ke tanah, bersujud empat kali.
+[^shibo]: Shibo dan Shisu dalam bahasa Inggris dan bahasa Indonesia sama-sama bisa diterjemahkan menjadi 'Paman' atau 'Uncle', dan dalam hal ini adalah 'Paman Guru'. Tetapi dalam istilah bahasa mandarin keduanya agak berbeda. Shibo adalah Paman atau Bibi Guru yang punya peringkat lebih tinggi, entah dalam usia maupun senioritas, dari Guru atau Shifu dari si murid terkait, sebaliknya Shisu entah lebih muda atau lebih belakangan masuk ke perguruan dibandingkan dengan Sang Guru. Dalam bahasa mandarin kedua istilah ini tidak membedakan jenis kelamin dari orang yang dimaksud, jadi seorang Shibo atau Shisu bisa jadi adalah 'Bibi Guru'. Dalam konteks Huang Rong dan Guo Jing juga agak berbeda jika panggilan ini dipakai untuk memanggil Kaisar Duan. Bagi Guo Jing kaitannya hanya dengan Hong Qigong, tetapi bagi Huang Rong terkait baik dengan Hong Qigong maupun Huang Yaoshi. Persoalannya menjadi agak sederhana karena baik Huang Yaoshi maupun Hong Qigong sendiri boleh dipandang punya peringkat sedikit di bawah Kaisar Duan, maka bagi mereka Kaisar Duan memang tetap adalah Shibo.
 
-Biksu dengan alis panjang itu tersenyum tipis; dia berdiri dan mengulurkan tangannya untuk mengangkat kedua orang itu. Dia berkata sambil tersenyum, “Qi Xiong [Saudara Qi] telah menerima seorang murid yang baik, dan Yao Xiong [Saudara Yao] telah mendapatkan seorang putri yang baik. Saya mendengar mereka berkata, dia menunjuk jarinya ke petani dan sarjana, Seni bela diri Anda jauh lebih unggul dari murid-murid saya. Ha… ha… selamat, selamat!”
+Guo Jing terkejut, tetapi tanpa pikir panjang ia hanya mencontoh sikap Huang Rong dan membungkuk ke tanah, bersujud empat kali.
+
+Biksu dengan alis panjang itu tersenyum tipis, ia berdiri dan mengulurkan tangannya untuk mengangkat kedua orang itu. Ia berkata 
+sambil tersenyum, "Qi Xiong menerima seorang murid yang baik, dan Yao Xiong mendapatkan seorang putri yang baik. 
+[Pinseng](panggilan.md#pinseng) mendengar mereka berkata," ia menunjuk ke si petani dan si sastrawan, "Kungfumu jauh lebih unggul 
+dari murid-murid Pinseng. Haha... selamat, selamat!"
 
 Mendengarkan dia berbicara, Guo Jing berpikir, “Pidato ini jelas milik Kaisar Duan; pas posisinya sebagai seorang kaisar, tapi kenapa dia berubah menjadi seorang biarawan? Ini sangat membingungkan. Mengapa mereka mengatakan bahwa dia tidak lagi berada di dunia fana ini? Bagaimana Rong'er tahu dia adalah Kaisar Duan?"
 

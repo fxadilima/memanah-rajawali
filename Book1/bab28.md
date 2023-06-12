@@ -501,8 +501,8 @@ Qiu Qianren meronta dengan panik, tetapi ia tidak bisa berkutik. Tapi setelah ia
 Guo Jing tahu tidak ada bahaya dan membebaskannya. Qiu Qianren terhuyung-huyung ke arahnya, dan memberi Guo Jing kesempatan 
 untuk menotok 
 [titik akupuntur Yin Du](acupoints.md#yin-du "Titik ini terletak di tengah-tengah perut, sedikit di atas pusar")-nya. Qiu Qianren 
-jatuh tak bergerak di tanah dan berkata, "Gongzi, ini situasi yang berbahaya, jangan main-main denganku?" Sekarang teriakan dan 
-bentakan semakin keras — anggota Telapak Besi lainnya bergegas ke tempat kejadian. Guo Jing berkata, "Bawa kami turun gunung 
+jatuh tak bergerak di tanah dan berkata, "Aduh, Shaoye, ini situasi yang berbahaya, jangan main-main denganku?" Sekarang teriakan 
+dan bentakan semakin keras — anggota Telapak Besi lainnya bergegas ke tempat kejadian. Guo Jing berkata, "Bawa kami turun gunung 
 dengan selamat." Qiu Qianren dengan kaku menggelengkan kepalanya sambil berkata, "Hidupku sendiri dalam bahaya, masa aku masih 
 bisa membantumu?" Guo Jing berkata, "Suruh muridmu memberi jalan. Saat kita mencapai kaki gunung, aku akan membebaskan 
 totokanmu." Qiu Qianren mengerutkan kening, "Gongzi, kenapa kau menyiksaku? Pergi ke pintu masuk dan lihat sendiri."
@@ -516,9 +516,10 @@ yah begitulah. Kami ini kembar dan aku yang lebih tua. Tadinya kungfuku lebih ba
 drastis." Guo Jing berkata, "Lalu siapa yang Qiu Qianren?" Ia menjawab, “Apa bedanya? Bukannya sama saja entah aku yang Qianren 
 atau dia? Kami cukup dekat sejak muda, jadi kami punya nama yang sama." Guo Jing berkata, "Cepat, beritahu aku." Huang Rong 
 berkata, "Bukannya sudah jelas? Dia itu yang meniru." Guo Jing berkata, "Eh, pak tua, lalu siapa namamu?" Ia tidak bisa 
-menghindari pertanyaan itu, maka ia berkata, "Aku ingat ayah memanggilku sesuatu seperti Qian Zhang. Aku merasa nama itu kedengarannya tidak bagus, jadi aku tidak memakainya." Guo Jing tertawa, "Hah, kau Qiu Qianzhang." Ia menjawab, "Lalu kau 
-bisa apa soal itu? Sepuluh 'chi' jadi satu 'zhang', dan tujuh 'chi' menjadi satu 'ren', maka 1000 'zhang' lebih panjang dari 
-seribu 'ren' kali tiga ribu 'chi'[^tentang-nama]." Huang Rong berkata, "Rasanya kau harus ganti nama jadi Qian Fen."
+menghindari pertanyaan itu, maka ia berkata, "Aku ingat ayah memanggilku sesuatu seperti Qian Zhang. Aku merasa nama itu 
+kedengarannya tidak bagus, jadi aku tidak memakainya." Guo Jing tertawa, "Hah, kau Qiu Qianzhang." Ia menjawab, "Lalu kenapa?
+Sepuluh 'chi' jadi satu 'zhang', dan tujuh 'chi' menjadi satu 'ren', maka 1000 'zhang' lebih panjang dari seribu 'ren' kali tiga 
+ribu 'chi'[^tentang-nama]." Huang Rong berkata, "Rasanya kau harus ganti nama jadi Qian Fen[^qian-fen]."
 
 [^tentang-nama]: Qiu Qianzhang main kata-kata dengan memakai nama mereka. Namanya, Qian Zhang (千丈), yang berarti 'Seribu Zhang', di mana 1 Zhang setara dengan 10 Chi, sedangkan 7 Chi setara dengan 1 Ren. Dengan begitu 1000 Zhang pastilah lebih panjang dari 1000 Ren, yaitu nama Qiu Qianren (千仞). Zhang, Ren dan Chi adalah satuan panjang, karena itu Huang Rong bercanda lebih jauh dan meledeknya dengan istilah Qian Fen, yang berarti 1000 Fen. Fen adalah satuan panjang terkecil, yang kurang lebih sama dengan sentimeter. 
 
