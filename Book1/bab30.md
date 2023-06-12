@@ -193,7 +193,7 @@ Ia mengerutkan alisnya dan membuat wajahnya tampak tertekan. Sastrawan itu senan
 Tapi kemudian ia takut Huang Rong akan balas menanyainya, jadi ia berkata di depan, "Ini adalah bait yang sangat sulit, aku juga 
 tidak punya jawabannya. Tetapi kita sudah sepakat bahwa, kalau Nona tidak bisa menjawabnya maka kalian harus kembali."
 
-Huang Rong tersenyum, "Apa yang sulitnya sih menyelesaikan bait? Hanya saja Wanbei baru saja menyinggung Paman, sekarang dengan 
+Huang Rong tersenyum, "Apa sulitnya sih menyelesaikan bait? Hanya saja Wanbei baru saja menyinggung Paman, sekarang dengan 
 menjawab, maka Wanbei akan menyinggung kalian berempat, nelayan, penebang kayu, petani, dan sastrawan, itu sebabnya Wanbei sangat 
 ragu untuk mengatakannya."
 
