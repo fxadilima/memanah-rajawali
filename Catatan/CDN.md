@@ -88,3 +88,6 @@ Dari Yi Tian Du Long Ji (倚天屠龙记) versi 2019.
 
 [Ending To Liong To](https://youtube.com/clip/UgkxZbrKYhxLeTZV8ktJTEDdHsl9ZIrt0q1Z)
 
+
+[Entah apa isi video ini](https://www.youtube.com/watch?v=q_GfbcRNRbU&list=PL4P1OCiJ7Wk8KM17AFxl8Fmk7sY5uhFyg&index=22)
+

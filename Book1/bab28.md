@@ -395,7 +395,7 @@ di gunung itu punya tiga ruas, sama seperti jari kita." Huang Rong melompat dan 
 Jing berteriak gembira, "Benar! Tepat sekali!" Pelayan itu tidak tahu apa yang sedang terjadi, dan menatap pasangan itu dengan 
 tatapan kosong. Huang Rong menanyakan lebih detail dan menyerahkan perak itu kepadanya. Pelayan itu pergi dengan gembira.
 
-[^ruas]: Di Er Guan Jie (第二关节) bararti 'Ruas Jari Kedua'.
+[^ruas]: Dalam bahasa mandarin, Huang Rong mengucapkan 'Di Er Zhi Jie (第二指节)', yang artinya adalah 'Ruas Kedua' dari sebuah jari, _bukan Ruas Jari Kedua_.
 
 Huang Rong berdiri dan berkata, "Jing Gege, cepat kita pergi." Guo Jing berkata, "Jaraknya kurang dari 30 km dari sini. Kita 
 bisa naik Kuda Merah untuk ke sana sekarang, dan kita bisa mengunjungi mereka besok pagi." Huang Rong tertawa, "Mengunjungi 

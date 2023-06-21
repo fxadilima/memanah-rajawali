@@ -361,3 +361,8 @@ Gabungan ketiga karakter ini tidak bisa diterjemahkan secara literal, karena ini
 Karakter _dash_ pendek: —
                 Panjang: —
 
+
+## Harus Dicari
+
+1. Peribahasa "Di atas langit ada langit, di atas manusia ada manusia". Tian ... You Tian, Ren ... You Ren
+2. Tautkan sekalian daftar panggilan _wuxia_ untuk Shifu, Shibo, dsb ke halaman ini, supaya mudah dicari, kalau perlu bahkan print menjadi PDF.

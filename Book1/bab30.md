@@ -357,113 +357,302 @@ sambil tersenyum, "Qi Xiong menerima seorang murid yang baik, dan Yao Xiong mend
 [Pinseng](panggilan.md#pinseng) mendengar mereka berkata," ia menunjuk ke si petani dan si sastrawan, "Kungfumu jauh lebih unggul 
 dari murid-murid Pinseng. Haha... selamat, selamat!"
 
-Mendengarkan dia berbicara, Guo Jing berpikir, “Pidato ini jelas milik Kaisar Duan; pas posisinya sebagai seorang kaisar, tapi kenapa dia berubah menjadi seorang biarawan? Ini sangat membingungkan. Mengapa mereka mengatakan bahwa dia tidak lagi berada di dunia fana ini? Bagaimana Rong'er tahu dia adalah Kaisar Duan?"
+Mendengarkan ia berbicara, Guo Jing berpikir, "Pidato semacam ini jelas milik Kaisar Duan, pas sekali dengan posisinya sebagai 
+seorang kaisar, tapi kenapa dia berubah menjadi seorang biarawan? Ini sangat membingungkan. Mengapa mereka mengatakan bahwa dia 
+tidak lagi berada di dunia fana ini? Bagaimana Rong'er tahu dia adalah Kaisar Duan?"
 
-Dia mendengar biksu itu berkata kepada Huang Rong, “Apakah ayahmu dan Shifu baik-baik saja? Saat kita bertemu saat Pertemuan Pedang di Gunung Hua, ayahmu belum menikah. Tak disangka sudah dua puluh tahun dan dia mendapatkan putri cantik ini. Apakah Anda memiliki saudara atau saudari? Pahlawan senior mana yang merupakan ayah ibumu?”
+Ia mendengar biksu itu berkata kepada Huang Rong, "Apakah ayahmu dan Shifu baik-baik saja? Waktu kami bertemu saat pertandingan 
+di Hua Shan, ayahmu belum menikah. Tak disangka sudah dua puluh tahun dan dia mendapatkan putri cantik ini. Kau punya saudara 
+perempuan atau laki-laki? Entah pendekar senior yang mana yang jadi ayah dari ibumu?"
 
-Mata Huang Rong memerah, dia berkata, “Ibuku hanya melahirkanku; dia sudah lama meninggal. Aku bahkan tidak mengenal keluarganya.”
+Mata Huang Rong memerah, ia berkata, "Ibu hanya sempat melahirkan aku, dia sudah lama meninggal. Aku bahkan tidak mengenal 
+keluarganya."
 
-"Ah!" seru biksu itu, dengan ringan menepuk pundaknya untuk menghibur. “Saya telah bermeditasi selama tiga hari tiga malam, dan berakhir beberapa saat yang lalu,” katanya, “Apakah Anda sudah menunggu lama?”
+"Ah!" seru biksu itu, lalu dengan ringan menepuk pundaknya untuk menghibur. "Aku bermeditasi selama tiga hari tiga malam, dan 
+berakhir beberapa saat yang lalu," katanya. "Kalian sudah menunggu lama?"
 
-Huang Rong merenung, “Melihat wajahnya, dia sangat senang melihat kita. Jika itu masalahnya, maka menghentikan kami dan tidak membiarkan kami naik gunung adalah ide murid-muridnya.” Oleh karena itu, dia menjawab, “Murid baru saja tiba. Untungnya para Paman ini melakukan yang terbaik untuk mempersulit kami; jika tidak, kami akan tiba jauh lebih awal, Duan Shibo masih akan bermeditasi dan kunjungan kami akan sia-sia.”
+Huang Rong berpikir, "Melihat wajahnya, dia sangat senang melihat kita. Jika itu masalahnya, maka menghentikan kami dan tidak 
+membiarkan kami naik gunung adalah ide murid-muridnya." Oleh karena itu ia menjawab, "Dizi baru saja tiba. Untungnya para Paman 
+ini melakukan yang terbaik untuk mempersulit kami, kalau tidak kami akan tiba jauh lebih awal, dan Duan Shibo masih dalam 
+meditasi, dan kunjungan kami akan sia-sia."
 
-Biksu itu terkekeh dan berkata, “Mereka takut saya melihat terlalu banyak orang luar. Tapi sebenarnya bagaimana kami bisa menganggap Anda sebagai orang luar? Lidah tajam Nona Muda pasti berasal dari keluargamu. Kaisar Duan sejak awal telah meninggalkan dunia fana ini; Saya sekarang dipanggil Biksu Yideng. ['yi deng he shang' – biksu (Buddhis) 'satu lampu'] Shifu Anda hadir saat saya mengikuti tiga harta karun; tapi aku khawatir ayahmu tidak tahu.”
+Biksu itu terkekeh dan berkata, "Mereka takut aku bertemu terlalu banyak orang luar. Tapi sebenarnya bagaimana kami bisa 
+menganggapmu sebagai orang luar? Lidah tajam Xiao Guniang pasti berasal dari keluargamu. Kaisar Duan sejak awal _memang_ sudah 
+meninggalkan dunia fana ini. Pinseng sekarang dipanggil Biksu Yideng.[^biksu-yideng] Shifu kalian hadir saat aku mengikuti tiga 
+harta karun[^tiga-harta-karun], tapi aku kuatir ayahmu tidak tahu."
 
-Baru pada saat itulah Guo Jing akhirnya mengerti, “Ternyata Kaisar Duan mencukur rambutnya dan menjadi biksu. Dia meninggalkan kehidupan orang biasa; itu sebabnya murid-muridnya mengatakan Kaisar Duan telah meninggalkan dunia fana ini. Shifu menyaksikannya saat dia menjadi biksu; jika dia yang menyuruh kami datang ke sini, tentu saja dia tidak akan menyuruh kami untuk menemukan Kaisar Duan, tetapi untuk menemui Pendeta Yideng [yi deng da shi – guru agung Yideng; 'da shi' adalah istilah terhormat yang umum untuk memanggil seorang biksu Buddha]. Rong'er sangat pintar; hanya dengan melihatnya dia mengerti segalanya.
+[^biksu-yideng]: Mantan Kaisar Duan menggunakan sebutan Yi Deng He Shang (一灯和尚) untuk dirinya sendiri. He Shang (和尚) adalah sebutan umum bagi para biksu, sedangkan istilah Dashi (大师) digunakan oleh pihak lain untuk menghormati dirinya sebagai guru besar. Panggilan Yi Deng (一灯) itu sendiri bermakna 'Satu Lampu'. Sepanjang cerita ia lebih dikenal sebagai Yideng Dashi (一灯大师), atau dalam dialek Hokkian adalah It Teng Taysu. Istilah Biksu Yideng dan Yideng Dashi akan digunakan dalam buku versi bahasa Indonesia ini secara bergantian.
 
-Dia mendengar Huang Rong berkata, “Ayahku tidak tahu apa-apa tentang itu; Shifu saya juga tidak memberi tahu para murid.”
+[^tiga-harta-karun]: Yang dimaksud 'tiga harta karun' di sini adalah San Bao (三宝), yang secara singkat bisa kita pahami sebagai Budha, Dharma, dan Sangha. Budha yang dimaksud di sini adalah Siddharta Gautama, dan jajaran orang lain yang dianggap telah menerima pencerahan dan memasuki Nirwana, sedangkan Dharma adalah doktrin dari agama Budha itu sendiri. Sangha adalah komunitas para penganut agama Budha, yang seringkali dimengerti sebagai sebuah biara. San Bao yang dimaksud adalah sebuah prosesi yang merupakan inisiasi bagi seorang murid baru ke dalam agama Budha, dan menerima ketiga 'harta karun' tersebut.
 
-Yideng tersenyum, “Tentu saja. Ada lebih banyak hal yang masuk ke mulut Shifu Anda daripada hal-hal yang keluar darinya. Dia makan banyak, dia berbicara sedikit. Dia tidak akan membicarakan bisnis Biksu Tua dengan orang lain. Anda telah melalui banyak kesulitan; Apakah kamu sudah makan? Ah!" Berbicara sampai titik ini dia tiba-tiba terkejut. Dia menarik tangan Huang Rong dan membawanya ke pintu untuk melihat wajahnya di bawah sinar matahari yang cerah. Dia dengan hati-hati memeriksanya dengan ekspresi bingung di wajahnya sendiri.
+Baru pada saat itulah Guo Jing akhirnya mengerti, "Ternyata Kaisar Duan mencukur rambutnya dan menjadi biksu. Dia meninggalkan 
+kehidupan orang biasa, itu sebabnya murid-muridnya mengatakan Kaisar Duan telah meninggalkan dunia fana ini. Shifu menyaksikannya 
+saat dia menjadi biksu, kalau dia yang menyuruh kami datang ke sini, tentu saja dia tidak akan menyuruh kami untuk mencari Kaisar 
+Duan, tetapi untuk menemui Biksu Yideng. Rong'er sangat pintar, hanya dengan melihatnya dia mengerti semuanya."
 
-Meskipun Guo Jing lamban, dia sadar bahwa Pendeta Yideng telah menemukan luka Huang Rong. Hatinya hancur; tiba-tiba dia menekuk lututnya dan bersujud beberapa kali. Yideng mengulurkan tangannya di bawah lengan Guo Jing untuk mengangkatnya. Guo Jing merasakan semburan energi mengangkat tubuhnya. Dia tidak berani menggunakan kekuatannya untuk melawan; mengendarai kekuatan dia perlahan berdiri dan berkata, "Saya mohon Pendeta untuk menyelamatkan hidupnya!"
+Ia mendengar Huang Rong berkata, "Ayahku tidak tahu apa-apa tentang itu, Shifu juga tidak memberitahu kami."
 
-Ketika Yideng mengangkat Guo Jing, dia tidak hanya meminta Guo Jing untuk tidak melakukan terlalu banyak ritual, tetapi juga menguji kekuatan Guo Jing. Yideng hanya menggunakan 50% dari kekuatannya; jika dia merasa bahwa Guo Jing tidak mampu melawan, dia akan menarik kembali kekuatannya. Dia tidak punya niat untuk menggunakan kekerasan terhadap Guo Jing, jika Guo Jing tetap diam, dia tidak akan menambah kekuatan lagi. Namun, dalam satu pertemuan ini dia menemukan seni bela diri Guo Jing sangat dalam. Dia tidak menyangka Guo Jing bisa menunggangi kekuatannya dan berdiri, secara otomatis menyebarkan energinya. Hal ini lebih mengejutkan Yideng daripada jika Guo Jing hanya melawan dengan tidak bergerak di tanah. Yideng diam-diam berpikir, “Qi Xiong benar-benar telah menerima seorang murid yang sangat baik; tidak heran murid-muridku sendiri dengan jujur mengakui kekalahan mereka.”
+Yideng tersenyum, “Tentu saja. Ada lebih banyak hal yang masuk ke mulut Shifu kalian daripada hal-hal yang keluar dari mulutnya. 
+Dia makan banyak, tapi berbicara sedikit. Dia tidak akan membicarakan urusan Laona[^lao-na] dengan orang lain. Kalian sudah 
+melewati banyak rintangan. Kalian sudah makan? Ah!" Berbicara sampai di titik ini ia tiba-tiba terkejut. Ia menarik tangan Huang 
+Rong dan membawanya ke pintu untuk melihat wajahnya di bawah sinar matahari yang cerah. Ia dengan hati-hati memeriksanya dengan 
+ekspresi bingung di wajahnya sendiri.
 
-Pada saat itulah Guo Jing berkata, "Saya mohon kepada Pendeta untuk menyelamatkan nyawanya!" Dia baru saja selesai berbicara ketika tiba-tiba dia merasakan kakinya goyah, tubuhnya tanpa sadar bergerak maju satu langkah. Dengan cepat dia mengerahkan kekuatannya untuk melawan tetapi tubuhnya menolak untuk menuruti pikirannya; mukanya jadi merah semua. Dia terkejut. “Pasukan Pendeta Yideng bisa bertahan begitu lama!” dia berpikir, “Saya sudah mencoba membubarkannya; tiba-tiba itu terus mengangkat saya. Kekuatan yang masuk telah dipatahkan, tetapi sesaat kemudian kekuatan lawan saya sendiri secara tak terkendali mendorong diri saya ke depan. Jika itu adalah pertarungan nyata, bukankah hidup kecilku akan hilang? Bidat Timur, Racun Barat, Kaisar Selatan, dan Pengemis Utara benar-benar pantas mendapatkan reputasi mereka.” Kali ini dia membungkuk dan bersujud dengan lebih banyak kekaguman; apa yang dia rasakan di dalam hatinya terlihat di wajahnya.
+[^lao-na]: Lao Na (老衲), adalah sebutan yang sudah umum digunakan para biksu tua untuk memanggil diri mereka sendiri sebagai orang ketiga tunggal ketika berbicara dengan orang lain. Karakter Na (衲) berdiri sendiri bermakna 'jubah', dengan begitu secara literal istilah ini berarti 'Jubah Tua Ini'. Dalam dialek Hokkian atau buku-buku karya Kho Ping Hoo/Gan KL istilah ini adalah 'Lolap'.
 
-Yideng melihat wajah Guo Jing menunjukkan ekspresi ketakutan dan kagum, dia mengulurkan tangannya untuk menepuk bahu Guo Jing dengan lembut dan berkata sambil tersenyum, "Kamu telah berlatih sampai tingkat ini, itu benar-benar tidak mudah." Sementara itu dia belum melepaskan tangan Huang Rong; dia menoleh dan tersenyum, "Nak, jangan takut, tenangkan hatimu," katanya dengan suara lembut. Kemudian dia membantunya duduk di atas tikar meditasi.
+Meskipun Guo Jing lamban, ia sadar bahwa Biksu Yideng telah melihat bahwa Huang Rong terluka. Hatinya hancur, tiba-tiba ia 
+menekuk lututnya dan bersujud beberapa kali. Yideng Dashi mengulurkan tangannya di bawah lengan Guo Jing untuk mengangkatnya. Guo 
+Jing merasakan aliran tenaga mengangkat tubuhnya. Ia tidak berani menggunakan kekuatannya untuk melawan, mengikuti aliran tenaga itu ia perlahan berdiri dan berkata, "Dizi mohon Dashi sudi menyelamatkan hidupnya!"
 
-Sepanjang hidupnya, Huang Rong tidak pernah ada orang yang memperlakukannya dengan belas kasih seperti itu. Ayahnya sangat mencintainya, tetapi sikapnya sedikit eksentrik. Biasanya dia akan memperlakukannya sebagai teman, tanpa mengungkapkan cinta mendalam seorang ayah untuk putrinya. Kali ini mendengarkan kata-kata hangat Yideng tiba-tiba Huang Rong kewalahan seolah-olah dia tiba-tiba merasakan cinta ibunya yang lembut; cinta yang belum pernah dia rasakan. Semua rasa sakit dan penderitaan yang dia alami selama beberapa waktu sejak dia terluka tiba-tiba meledak tak terkendali. "Wah!" dia menangis.
+Ketika Yideng Dashi mengangkat Guo Jing, ia tidak hanya meminta Guo Jing untuk tidak melakukan terlalu banyak ritual, tetapi juga 
+menguji kekuatan Guo Jing. Yideng Dashi hanya menggunakan setengah dari kekuatannya, jika ia merasa bahwa Guo Jing tidak mampu 
+melawan, ia akan menarik kembali kekuatannya. Ia tidak punya niat untuk menggunakan kekerasan terhadap Guo Jing, jika Guo Jing 
+tetap diam, ia tidak akan menambah kekuatan lagi. Namun dalam satu pertemuan ini ia menemukan kungfu Guo Jing sangat dalam. Ia 
+tidak menyangka Guo Jing bisa memakai tenaganya dan berdiri, secara otomatis menyalurkan tenaga dalamnya. Hal ini lebih 
+mengejutkan Yideng daripada jika Guo Jing hanya melawan dengan tidak bergerak di tanah. Yideng diam-diam berpikir, "Qi Xiong 
+benar-benar telah menerima seorang murid yang sangat baik, tidak heran murid-muridku sendiri dengan jujur mengakui kekalahan 
+mereka."
 
-Pendeta Yideng berkata dengan suara menghibur, “Anak baik, jangan menangis, jangan menangis! Paman pasti akan memperbaiki semua rasa sakit yang kamu rasakan.” Siapa yang mengira bahwa semakin lembut dan menghibur kata-katanya, semakin Huang Rong kewalahan dan dia menangis semakin keras. Tidak lama kemudian tangisannya akhirnya menjadi isak tangis ketika dia mencoba untuk mendapatkan kembali ketenangannya.
+Pada saat itulah Guo Jing berkata, "Dizi mohon kepada Dashi untuk menyelamatkan nyawanya!" Ia baru saja selesai berbicara ketika 
+tiba-tiba ia merasakan kakinya goyah, tubuhnya tanpa sadar bergerak maju satu langkah. Dengan cepat ia mengerahkan kekuatannya 
+untuk melawan tetapi tubuhnya menolak untuk menuruti pikirannya, mukanya jadi merah semua. Ia terkejut. "Aliran tenaga Biksu 
+Yideng bisa bertahan begitu lama!" pikirnya. "Aku sudah mencoba membubarkannya, tapi tiba-tiba tenaga itu mengangkatku. Tenaga 
+yang masuk sudah dinetralkan, tapi sesaat kemudian tenaga lawan secara tak terkendali mendorong diriku ke depan. Kalau ini 
+pertarungan nyata, rasanya nyawaku akan melayang. Sesat Timur, Racun Barat, Kaisar Selatan, dan Pengemis Utara benar-benar pantas 
+mendapatkan nama besar mereka." Kali ini ia membungkuk dan bersujud dengan lebih kagum, apa yang dirasakannya di dalam hati 
+terlihat di wajahnya.
 
-Mendengar janjinya, Guo Jing sangat gembira, tetapi setelah menoleh ke belakang, dia melihat cendekiawan dan petani itu memiliki alis kaku dan mata melotot; mereka menatapnya dengan ekspresi marah di wajah mereka. Guo Jing merasa tidak enak sambil berpikir, “Kita bisa mencapai tempat ini sepenuhnya karena kelicikan Rong'er, tidak heran mereka gila. Bhikkhu Yideng begitu welas asih, namun murid-muridnya bertekad menghalangi kami. Kenapa ya?"
+Yideng melihat air muka Guo Jing dipenuhi rasa takut dan kagum, ia mengulurkan tangannya untuk menepuk bahu Guo Jing dengan 
+lembut dan berkata sambil tersenyum, "Kau sudah melatih diri sampai ke tingkat ini, itu benar-benar tidak mudah." Sementara itu 
+ia belum melepaskan tangan Huang Rong, ia menoleh dan tersenyum, "Nak, jangan takut, tenangkan hatimu," katanya dengan suara 
+lembut. Kemudian ia membantunya duduk di atas tikar meditasi.
 
-Dia mendengar Pendeta Yideng berkata, “Nak, bagaimana kamu bisa terluka? Bagaimana Anda bisa sampai ke tempat ini? Kenapa kamu tidak menceritakan semuanya pada pamanmu?” Maka Huang Rong menyeka air matanya dan memberitahunya bagaimana dia salah mengira Qiu Qianren sebagai Qiu Qianzhang, bagaimana dia menerima serangan telapak tangannya dan semua yang terjadi.
+Sepanjang hidupnya Huang Rong tidak pernah merasakan kasih sayang seperti itu. Ayahnya sangat mencintainya, tetapi sikapnya 
+sedikit eksentrik. Biasanya ayahnya akan memperlakukannya sebagai teman, tanpa mengungkapkan cinta mendalam seorang ayah untuk 
+putrinya. Kali ini mendengarkan kata-kata hangat Yideng tiba-tiba Huang Rong seolah-olah merasakan cinta kasih ibunya yang 
+lembut, cinta yang belum pernah dirasakannya. Semua rasa sakit dan penderitaan yang dialaminya selama beberapa waktu sejak ia 
+terluka tiba-tiba meledak tak terkendali. "Wah!" ia menangis.
 
-Ketika Yideng mendengar nama Iron Palm Qiu Qianren, dia sedikit mengernyit, tapi segera kembali mendengarkan Huang Rong dengan penuh perhatian. Saat berbicara, Huang Rong tetap membuka matanya untuk melihat wajah Yideng; meskipun cemberutnya sangat tipis, hal itu tidak luput dari pandangan Huang Rong. Ketika dia sampai pada titik di mana mereka bertemu Ying Gu di hutan Black Marsh dan bagaimana dia memberi mereka petunjuk untuk menemukan tempat ini, wajah Pendeta Yideng sekali lagi berubah sesaat; dia menundukkan kepalanya dalam pemikiran yang dalam, sepertinya dia mengenang peristiwa masa lalu, dan berduka dan sedih karenanya.
+Biksu Yideng berkata dengan suara menghibur, "Anak baik, jangan menangis, jangan menangis! Paman pasti akan mencoba sekuat tenaga 
+untuk menyembuhkan sakitmu." Tak disangka semakin lembut dan menghibur kata-katanya, Huang Rong malah menangis semakin keras. 
+Tidak lama kemudian tangisannya mereda dan tersisa hanya isak tangis. Ia mencoba menenangkan diri.
 
-Sesaat setelah Huang Rong menutup mulutnya, Pendeta Yideng menghela nafas dan bertanya, “Lalu apa yang terjadi?”
+Mendengar janjinya, Guo Jing sangat gembira, tetapi setelah menoleh ke belakang, ia melihat air muka si sastrawan dan petani itu 
+berubah, alis mereka kaku dan mata mereka melotot, mereka menatapnya dengan tatapan marah. Guo Jing merasa tidak enak sambil 
+berpikir, "Kami bisa mencapai tempat ini sepenuhnya karena kelicikan Rong'er, tidak heran mereka marah. Biksi Yideng begitu welas 
+asih, tapi murid-muridnya selalu bertekad menghalangi kami. Kenapa ya?"
 
-Huang Rong melanjutkan dengan menceritakan bagaimana nelayan, penebang kayu, petani, dan cendekiawan telah menggunakan segala cara yang mungkin untuk mempersulit mereka. Penebang kayu dengan mudah membiarkan mereka naik gunung, oleh karena itu, dia mengucapkan beberapa kata pujian atas namanya; tetapi kepada mereka yang lain dia menambahkan beberapa bumbu untuk membuat pelanggaran mereka lebih buruk daripada sebelumnya. Dengan sengaja dia membuat sarjana dan petani itu marah.
+Ia mendengar Pendeta Yideng berkata, "Nak, bagaimana kau bisa terluka? Bagaimana kalian bisa sampai ke tempat ini? Kenapa kalian 
+tidak menceritakan semuanya pada pamanmu ini?" Maka Huang Rong menyeka air matanya dan memberitahunya bagaimana ia salah mengira 
+Qiu Qianren sebagai Qiu Qianzhang, bagaimana ia menerima serangan telapak tangannya dan semua yang terjadi.
 
-Beberapa kali Guo Jing memotongnya, berkata, "Rong'er, jangan bicara omong kosong; Paman ini tidak seburuk itu!” Tapi Huang Rong terus berbicara seperti anak manja di depan Pendeta Yideng, memberitahunya segala macam hal, membuat wajah kedua murid yang berdiri di belakang Yideng menjadi merah dan biru. Mereka tidak berani membuka mulut di hadapan tuannya.
+Ketika Yideng mendengar nama Telapak Besi Qiu Qianren, ia mengernyitkan dahinya sedikit, tapi segera kembali mendengarkan Huang 
+Rong dengan penuh perhatian. Saat berbicara, Huang Rong tetap membuka matanya untuk melihat wajah Yideng, meskipun cemberutnya 
+sangat tipis, hal itu tidak luput dari pandangan Huang Rong. Ketika sampai pada titik di mana mereka bertemu Ying Gu di hutan 
+Rawa Hitam, dan bagaimana ia memberi mereka petunjuk untuk menemukan tempat ini, wajah Biksu Yideng sekali lagi berubah sesaat, 
+sepertinya ia mengenang peristiwa masa lalu sambil menundukkan kepala sambil berpikir dalam, dan berduka karenanya.
 
-Pendeta Yideng berulang kali menganggukkan kepalanya, “(Huh), bagaimana Anda bisa memperlakukan tamu yang datang dari jauh seperti itu? Anak-anak ini sangat kasar terhadap teman; Aku akan memberitahu mereka untuk meminta maaf kepada kalian berdua nanti.”
+Sesaat setelah Huang Rong menutup mulutnya, Biksu Yideng menghela nafas dan bertanya, "Lalu apa yang terjadi?"
 
-Huang Rong menatap sarjana dan petani dengan ekspresi sombong; sementara mulutnya tidak berhenti; dia menceritakan semuanya sampai bagaimana mereka berakhir di gerbang kuil. “Setelah itu saya memberikan gambar itu untuk Anda lihat, dan Anda meminta saya masuk; kemudian mereka tidak berani menghalangi kami lagi,” katanya.
+Huang Rong melanjutkan dengan menceritakan bagaimana si nelayan, penebang kayu, petani, dan sastrawan telah menggunakan segala 
+cara yang mungkin untuk mempersulit mereka. Penebang kayu dengan mudah membiarkan mereka naik gunung, oleh karena itu, ia 
+mengucapkan beberapa kata pujian atas namanya, tetapi kepada mereka yang lain ia menambahkan beberapa bumbu untuk membuat 
+pelanggaran mereka tampak lebih buruk dari apa yang sebenarnya. Dengan sengaja ia membuat si sastrawan dan petani itu marah.
+
+Beberapa kali Guo Jing memotongnya dan berkata, "Rong'er, jangan bicara omong kosong. Paman ini tidak seburuk itu!" Tapi Huang 
+Rong terus berbicara seperti anak manja di depan Biksu Yideng, memberitahunya segala macam hal, membuat wajah kedua murid yang 
+berdiri di belakang Yideng menjadi merah dan biru. Mereka tidak berani membuka mulut di hadapan Sang Guru.
+
+Biksu Yideng berulang kali menganggukkan kepalanya, "Huh, bagaimana kalian bisa memperlakukan tamu yang datang dari jauh seperti 
+itu? Anak-anak ini sangat kasar kepada teman. Aku akan memberitahu mereka untuk meminta maaf kepada kalian berdua nanti."
+
+Huang Rong menatap sastrawan dan petani itu dengan ekspresi sombong, sementara mulutnya tidak berhenti, ia menceritakan semuanya 
+sampai bagaimana mereka berakhir di gerbang kuil. "Setelah itu Wanbei memberikan gambar itu untuk Paman lihat, dan Paman meminta 
+Wanbei masuk, kemudian mereka tidak berani menghalangi kami lagi," katanya.
 
 "Gambar apa?" Yideng terkejut.
 
-“Ini tentang elang, merpati, dan seseorang memotong dagingnya sendiri,” jawab Huang Rong.
+"Ini tentang elang, merpati, dan seseorang memotong dagingnya sendiri," jawab Huang Rong.
 
 "Kepada siapa kamu memberikannya?" tanya Yideng.
 
-Sebelum Huang Rong dapat menjawab, cendekiawan mengambil gambar dari sakunya dan menyerahkannya dengan kedua tangan. "Murid memilikinya," katanya, "Shifu belum menyelesaikan meditasi sekarang, saya belum memberikannya kepada Shifu."
+Sebelum Huang Rong dapat menjawab, si sastrawan mengambil gambar dari sakunya dan menyerahkannya dengan kedua tangan. "Ada di tangan Dizi," katanya, "Shifu tadi belum selesai meditasi, Dizi belum memberikannya kepada Shifu."
 
-Yideng mengulurkan tangannya untuk mengambil gambar itu, dia tersenyum kepada Huang Rong dan berkata, "Kamu tahu, jika kamu tidak menyebutkannya, aku tidak akan tahu apa-apa." Perlahan dia membuka gambar itu dan melihatnya; dia tahu apa arti gambar itu. Dia tersenyum dan berkata, “Ternyata orang lain takut saya tidak akan membantu Anda dan mengirimkan gambar ini untuk menggugah saya. Tidakkah menurutmu mereka terlalu meremehkan Biksu Tua?”
+Yideng mengulurkan tangannya untuk mengambil gambar itu, ia tersenyum kepada Huang Rong dan berkata, "Kau tahu, kalau kau tidak 
+menyebutkannya, aku tidak akan tahu apa-apa." Perlahan ia membuka gambar itu dan melihatnya, dia tahu apa arti gambar itu. Ia 
+tersenyum dan berkata, "Ternyata orang itu takut Pinseng tidak akan membantumu, dan mengirimkan gambar ini untuk mengusik 
+Pinseng. Apa menurut kalian mereka tidak terlalu meremehkan Biksu Tua ini?"
 
-Huang Rong menoleh untuk melihat kecemasan dan keprihatinan mendalam pada wajah sarjana dan petani itu; dia merasa aneh. “Mengapa ketika mereka mendengar janji Shifu mereka untuk merawatku, mereka terlihat seperti kehilangan nyawa? Apakah obatnya adalah pil paling berharga yang mereka benci untuk menyerah?” Dia menoleh ke belakang untuk melihat Yideng dengan hati-hati memeriksa gambar itu. Dia membawanya di bawah sinar matahari untuk melihat kualitas kertasnya, dia menjentikkannya beberapa kali; wajahnya menunjukkan kecurigaan.
+Huang Rong menoleh untuk melihat kecemasan dan keprihatinan mendalam pada wajah sastrawan dan petani itu, ia merasa aneh. 
+"Mengapa ketika mereka mendengar janji Shifu mereka untuk merawatku, mereka terlihat seperti kehilangan nyawa? Apakah obatnya 
+begitu berharga sampai-sampai mereka benci terpaksa menyerahkannya?" Ia menoleh ke belakang untuk melihat Yideng dengan hati-hati 
+memeriksa gambar itu. Ia membawanya di bawah sinar matahari untuk melihat kualitas kertasnya, ia menjentikkannya beberapa kali, 
+wajahnya tampak curiga.
 
-"Apakah Ying Gu menggambar gambar ini?" dia bertanya pada Huang Rong.
+"Apakah Ying Gu yang menggambar gambar ini?" tanyanya kepada Huang Rong.
 
-“Ya,” jawab Huang Rong.
+"Ya," jawab Huang Rong.
 
-Yideng terdiam selama setengah hari lalu bertanya lagi, “Apakah kamu melihatnya dengan mata kepala sendiri ketika dia melakukannya?”
+Yideng terdiam setengah harian, lalu bertanya lagi, "Apa kau melihatnya dengan mata kepala sendiri ketika dia melakukannya?"
 
-Huang Rong tahu ada yang tidak beres; dia mencoba mengingat apa yang terjadi saat itu dan berkata, “Ketika Ying Gu menulis itu, punggungnya menghadap kita. Saya melihat penanya bergerak, tetapi saya tidak melihat dengan mata kepala sendiri apakah dia sedang menulis atau menggambar.”
+Huang Rong tahu ada yang tidak beres, dia mencoba mengingat apa yang terjadi saat itu dan berkata, "Waktu Ying Gu menulis, 
+punggungnya menghadap kita. Wanbei melihat penanya bergerak, tetapi Wanbei tidak melihat dengan mata kepala sendiri apakah dia 
+sedang menulis atau menggambar."
 
-“Kamu bilang dia memberimu dua kantong lagi; biarkan saya melihat isi kantong lainnya, ”kata Yideng.
+"Kamu bilang dia memberimu dua kantong lagi, biar kulihat apa isi kantong lainnya," kata Yideng.
 
-Guo Jing mengambil kantong dari sakunya dan Yideng memeriksanya; wajahnya sedikit berubah. "Memang begitu," gumamnya pelan. Dia memberikan tiga lembar kertas itu kepada Huang Rong dan berkata, “Yao Xiong adalah seorang ahli kaligrafi dan lukisan; latar belakang pendidikan Anda berasal dari keluarga Anda, tentu Anda memahami connoisseurship. Mengapa Anda tidak melihat ketiga lembar ini dan memberi tahu saya pendapat Anda.
+Guo Jing mengambil kantong dari sakunya dan Yideng memeriksanya, wajahnya sedikit berubah. "Memang begitu," gumamnya pelan. Ia 
+memberikan tiga lembar kertas itu kepada Huang Rong dan berkata, "Yao Xiong adalah seorang ahli kaligrafi dan lukisan, latar 
+belakang pendidikanmu berasal dari keluargamu, kau tentu mengerti soal selera. Mengapa kau tidak melihat ketiga lembar ini dan 
+memberitahu aku pendapatmu."
 
-Huang Rong mengambil kertas untuk melihatnya dan segera berkata, “Kedua lembar ini adalah 'yu ban zhi' [kertas register giok] biasa, tetapi gambarnya dibuat di atas 'jiu jian zhi' [kertas kepompong tua], jarang melihat jenis kertas.”
+Huang Rong mengambil kertas untuk melihatnya dan segera berkata, "Kedua lembar ini adalah Yu Ban Zhi[^yu-ban-zhi] biasa, tetapi 
+gambarnya dibuat di atas Jiu Jian Zhi[^jiu-jian-zhi], jenis kertas yang agak langka."
 
-Yideng menganggukkan kepalanya, “Hmm, dalam kaligrafi dan lukisan aku orang awam, bagaimana menurutmu tentang gambar ini?”
+[^yu-ban-zhi]: Tidak menemukan karakter yang menggambarkan jenis kertas ini, tetapi karena mengandung YU (玉), yang berarti Giok, maka kemungkinan yang dimaksud adalah kertas putih yang sudah umum, karena Huang Rong menambahkan kata 'biasa'.
 
-Huang Rong memeriksa gambar itu dengan cermat; dia tersenyum dan berkata, “Paman hanya berpura-pura menjadi orang awam! Anda sudah tahu sejak awal bahwa bukan Ying Gu yang menggambar gambar ini.”
+[^jiu-jian-zhi]: Jiu Jian Zhi (旧茧纸) secara literal berarti 'Kertas Kepompong Tua', tidak jelas kepompong apa yang dimaksud, tetapi karena Huang Rong mengatakan bahwa ini adalah jenis kertas yang tidak umum, berarti bisa kita anggap sebagai kertas yang jauh lebih mahal.
 
-Raut wajah Yideng sedikit berubah, “Jadi benar itu bukan lukisannya? Saya hanya menebak berdasarkan logika, saya benar-benar tidak melihat gambarnya.”
+Yideng menganggukkan kepalanya, "Hmm, dalam kaligrafi dan lukisan aku orang awam, bagaimana menurutmu tentang gambar ini?"
 
-Huang Rong menarik lengannya, berkata, “Paman, lihat, tulisan pada dua lembar kertas ini sangat halus dan elegan sementara coretan pada gambar ini sangat kaku. Hmm, gambar ini dibuat oleh seorang pria. Ya, saya yakin itu adalah goresan pena pria. Pria ini tidak tahu apa-apa tentang kaligrafi atau lukisan, tetapi sapuan penanya sangat kuat, bahkan menembus kertas sampai ke punggungnya… Tinta ini terlihat sangat tua, saya kira bahkan lebih tua dari usia saya sendiri.”
+Huang Rong memeriksa gambar itu dengan cermat, ia tersenyum dan berkata, "Paman hanya pura-pura jadi orang awam! Paman sudah tahu 
+sejak awal bahwa bukan Ying Gu yang menggambar lukisan ini."
 
-Pendeta Yideng menghela napas berat; dia mengarahkan jarinya ke sebuah buku di atas meja bambu, memberi isyarat kepada sarjana untuk mengambilnya. Sarjana itu berjalan mendekat dan mengambilnya, dan menyerahkannya kepada tuannya. Huang Rong melihat di halaman yang menguning dari sampul dua baris tulisan yang bertuliskan, 'Kitab Buddhis Agung oleh Maming Bodhisattva. Diterjemahkan dengan ‘san cang jiu mo luo shen’ [nama orang suci] dari Guizi di Wilayah Barat.’ Dia berpikir, “Saya tidak akan mengerti apa-apa jika dia mulai berkhotbah kepada saya.”
+Raut wajah Yideng sedikit berubah, "Jadi benar itu bukan lukisannya? Aku hanya menebak berdasarkan logika, aku benar-benar tidak 
+melihat gambarnya."
+
+Huang Rong menarik lengannya, berkata, "Paman, lihat, tulisan pada dua lembar kertas ini sangat halus dan elegan sementara 
+coretan pada gambar ini sangat kaku. Hmm, gambar ini dibuat oleh seorang pria. Ya, aku yakin itu adalah goresan pena pria. Pria 
+ini tidak tahu apa-apa tentang kaligrafi atau lukisan, tetapi sapuan penanya sangat kuat, bahkan menembus kertas sampai ke 
+baliknya... Tinta ini terlihat sangat tua, kukira bahkan lebih tua dari usiaku sendiri."
+
+Biksu Yideng menghela napas berat, ia mengarahkan jarinya ke sebuah buku di atas meja bambu, memberi isyarat kepada si sastrawan 
+untuk mengambilnya. Sastrawan itu berjalan mendekat dan mengambilnya, dan menyerahkannya kepada gurunya. Huang Rong melihat di 
+halaman yang menguning dari sampul dua baris tulisan yang bertuliskan, 'Kitab Buddhis Agung oleh Maming Bodhisattva. 
+Diterjemahkan oleh San Cang Jiu Mo Luo Shen[^nama-orang-suci] dari Guizi di Wilayah Barat.' Ia berpikir, "Aku tidak akan mengerti 
+apa-apa kalau dia mulai berkhotbah."
+
+[^nama-orang-suci]: Kumarajiva atau Jiu Mo Luo Shi (鸠摩罗什) adalah seorang penerjemah ajaran Budha yang aslinya ditulis dalam bahasa Sansekerta menjadi bahasa mandarin tradisional. Ia berasal dari Kerajaan Kucha, yang di jaman modern adalah propinsi Xinjiang, di wilayah Barat Tiongkok.
 
 Yideng dengan santai membuka sampul buku itu, meletakkan gambar di sebelahnya dan berkata, "Coba lihat."
 
 "Ah!" Huang Rong dengan lembut berseru, "Kualitas kertas yang sama." Yideng mengangguk.
 
-Guo Jing tidak mengerti, dia berbisik, "Kualitas kertas apa yang sama?"
+Guo Jing tidak mengerti, ia berbisik, "Kualitas kertas apa yang sama?"
 
 Huang Rong berkata, "Perhatikan baik-baik, bukankah kualitas kertas buku ini sama dengan gambar itu?"
 
-Guo Jing melihat dengan hati-hati; kertas buku itu kasar dan tebal, bercampur dengan untaian benang sutera kuning, persis sama dengan kertas gambar. "Mereka sama," katanya, "Jadi apa?"
+Guo Jing melihat dengan hati-hati; kertas buku itu kasar dan tebal, bercampur dengan untaian benang sutera kuning, persis sama 
+dengan kertas gambar. "Memang sama," katanya, "Jadi apa?"
 
-Huang Rong tidak menjawab, dia menatap Pendeta Yideng, menunggu penjelasan.
+Huang Rong tidak menjawab, ia menatap Biksu Yideng, menunggu penjelasan.
 
-Pendeta Yideng berkata, “Buku ini dibawa oleh saudara seperguruan saya dari wilayah barat.”
+Biksu Yideng berkata, "Buku ini dibawa oleh saudara seperguruanku dari wilayah barat."
 
-Selama Guo Jing dan Huang Rong berbicara dengan Yideng, mereka sama sekali tidak memperhatikan biksu India itu; baru sekarang mereka mengalihkan pandangan mereka kepadanya. Dia sedang duduk bersila di atas tikar meditasi, seolah-olah dia tidak menyadari pembicaraan orang-orang ini.
+Selama Guo Jing dan Huang Rong berbicara dengan Yideng, mereka sama sekali tidak memperhatikan biksu India itu, baru sekarang 
+mereka mengalihkan pandangan mereka kepadanya. Ia sedang duduk bersila di atas tikar meditasi, seolah-olah tidak menyadari 
+pembicaraan orang-orang ini.
 
-“Buku ini berasal dari wilayah barat, gambar ini juga berasal dari wilayah barat,” Yideng melanjutkan, “Pernahkah Anda mendengar tentang Gunung Unta Putih di wilayah barat?”
+"Buku ini berasal dari wilayah barat, gambar ini juga berasal dari wilayah barat," Yideng melanjutkan, "Pernahkah kalian 
+mendengar tentang Gunung Onta Putih[^bai-tuo-shan] di wilayah barat?"
 
-Huang Rong terkejut, "Western Poison Ouyang Feng?" dia bertanya.
+Huang Rong terkejut, "Xi Du[^xi-du] Ouyang Feng?" tanyanya.
 
-Yideng perlahan mengangguk, "Benar," katanya, "Gambar ini digambar oleh Ouyang Feng." Mendengar ini Guo Jing dan Huang Rong kaget dan tidak bisa berkata apa-apa untuk sementara waktu.
+[^xi-du]: Xi Du (西毒) artinya adalah 'Racun Barat'.
 
-Yideng tersenyum dan berkata, “Orang Ouyang ini telah merencanakan ini sejak lama; dia benar-benar mengantisipasi jauh ke depan.
+[^bai-tuo-shan]: [Baca lagi soal Bai Tuo Shan](referensi-karakter.md#baituo-shan-shao-zhu"), yang adalah wilayah kekuasaan Ouyang Feng. Ia dijuluki Majikan Gunung Onta Putih, atau Bai Tuo Shan Zhuangzhu.
 
-“Paman,” kata Huang Rong, “Saya tidak tahu gambar ini berasal dari Racun Tua; pria ini selalu memendam niat jahat.”
+Yideng perlahan mengangguk, "Benar," katanya. "Gambar ini digambar oleh Ouyang Feng." Mendengar ini Guo Jing dan Huang Rong kaget 
+dan tidak bisa berkata apa-apa untuk sementara waktu.
 
-Yideng tersenyum dan berkata, "Untuk seorang pria Pedoman Sembilan Yin dapat melakukan hal-hal besar."
+Yideng tersenyum dan berkata, "Orang bermarga Ouyang ini sudah merencanakan hal ini sejak lama, dia benar-benar mengantisipasi 
+jauh ke depan."
+
+"Paman," kata Huang Rong. "Wanbei tidak tahu gambar ini berasal dari Lao Du, orang ini selalu memendam niat jahat."
+
+Yideng tersenyum dan berkata, "Demi Jiu Yin Zhen Jing, orang bisa melakukan hal-hal besar."
+
+"Gambar ini ada hubungannya dengan Jiu Yin Zhen Jing," kata Huang Rong.
+
+Tetapi Yideng berkata, "Kita akan membicarakan soal ini _nanti_. Saat ini ada hal lain yang jauh lebih penting, aku harus segera 
+menyembuhkan lukamu." Ia melihat Huang Rong tampak terkejut setelah mendengar soal gambar itu, dan juga terlihat bersemangat. Ia 
+mencoba menahan rasa sakitnya dan berhasil menguasai diri karena tenaga dalamnya yang cukup kuat. Karena itu sambil mengulurkan 
+tangan muntuk menopang lengan kanannya, Yideng mengembalikan fokus mereka untuk mengobati lukanya.
+
+Yideng membantunya bangkit berdiri, lalu berjalan ke bangunan sebelah. Ketika tiba di depan pintu, si sastrawan dan petani 
+bertukar pandang, lalu mereka buru-buru maju ke pintu seraya berlutut dan berkata, "Shifu, biarkan kami mencoba mengobati luka
+nona ini."
+
+Yideng menggelengkan kepala dan berkata, "Kalian pikir kungfu kalian cukup memadai? Kalian sanggup menangani sampai dia 
+betul-betul sembuh?"
+
+Si sastrawan dan petani berkata, "Kami akan berusaha sebaik-baiknya."
+
+Air muka Yideng berubah menjadi sangat serius. "Nyawa manusia adalah hal yang sangat penting, bagaimana kalian bisa sekedar
+_berusaha_?"
+
+Si sastrawan berkata, "Kedua orang ini datang atas saran orang jahat. Meskipun belas kasihan Shifu sungguh tak terbatas, tapi
+tidak boleh termakan rencana licik orang-orang jahat."
+
+Yideng menghela nafas dan berkata, "Apa yang kuajarkan dengan susah-payah kepada kalian setiap hari? Coba kalian pelajari 
+baik-baik apa makna gambar ini." Sambil bicara ia menyodorkan gambar di tangannya. Si petani membenturkan dahinya di lantai
+dan berkata, "Gambar ini dibuat oleh Ouyang Feng. Shifu, ini rencana jahat Ouyang Feng." Sambil mengatakan hal ini, kecemasannya
+tampak makin nyata, air mata mulai turun membasahi pipinya.
+
+Guo Jing dan Huang Rong agak heran. "Apa kaitannya rencana jahat itu dengan mengobati luka?" pikir mereka.
+
+Biksu Yideng berkata dengan lembut, "Ayo bangun, bangun. Jangan buat tamu kita merasa tidak enak." Suaranya halus, tetapi 
+sangat berwibawa. Mereka berdua tahu bahwa tidak ada gunanya lagi berdebat dengan guru mereka. Mereka pun bangkit berdiri
+sambil menundukkan kepala dalam-dalam.
+
+Biksu Yideng membawa Huang Rong ke dalam ruangan itu. Kepada Guo Jing ia berkata, "Kau juga ikut masuk." Guo Jing dengan patuh
+ikut masuk.
+
+Yideng menurunkan tirai bambu yang berada di atas pintu masuk. Ia lalu membakar sebatang dupa dan menancapkannya di perangkat
+yang sesuai, yang terletak di atas sebuah meja bambu.
+
+Keempat dinding ruangan itu tampak membosankan, selain meja bambu kecil di mana Yideng baru saja menancapkan dupanya hanya ada
+tiga alas meditasi. Yideng menyuruh Huang Rong duduk di alas meditasi yang di tegah, sementara ia sendiri duduk bersila 
+di sebelahnya. Ia berpaling ke arah tirai bambu di pintu masuk dan berkata kepada Guo Jing, "Kau diam dan berjaga di pintu,
+jangan biarkan seorang pun masuk, termasuk murid-muridku sendiri." Guo Jing menurut.
+
+Yideng memejamkan matanya, tetapi tiba-tiba ia membuka matanya kembali dan menambahkan. "Kalau mereka mencoba masuk dengan
+paksa kau harus melawan. Nyawa adik seperguruanmu sangat tergantung pada hal ini. Ingat baik-baik, ini sangat penting."
+
+"Ya," kata Guo Jing, tetapi sebenarnya ia bingung. "Murid-muridnya sangat menghormati dia, masa mereka akan melanggar perintah
+dan memaksa masuk?" pikirnya.
+
+Yideng berpaling kepada Huang Rong dan berkata, "Lemaskan sekujur tubuhmu, tak peduli seberapa sakit atau gatal nantinya, kau
+tidak boleh melawan."
+
+Huang Rong tersenyum. "Aku menganggap diriku sudah mati."
+
+Yideng juga tersenyum. "Kau ini betul-betul anak pintar." Ia segera memejamkan matanya, alis matanya turun, ia menghimpun tenaga.
+Ketika dupa terbakar kira-kira satu inci, tiba-tiba ia melompat, tangan kiri di depan dadanya, jari telunjuk kanan terulur,
+perlahan ia mengarahkan telunjuknya ke 
+[titik darah Bai Hui](acupoints.md#bai-hui "Titik akupuntur Bai Hui (百会) terletak di bagian atas kepala.") di kepala Huang Rong.
+Tubuh Huang Rong terangkat sedikit, ia merasakan aliran hawa panas turun dari atas kepalanya.
+
+Biksu Yideng  segera menarik jarinya, tanpa menggerakkan tubuhnya jari keduanya menotok 
+[titik darah Hou Ding](acupoints.md#hou-ding "Hou Ding (後頂), lokasinya berdekatan, agak ke belakang, dari titik sebelumnya, yaitu Bai Hui.") yang terletak sekitar satu [cun](referensi-unit.md#satuan-cun "1 cun setara dengan 1 inci, karena itu satuan ini seringkali disebut Chinese Inch.") lima [fen](referensi-unit.md#satuan-fen "Secara umum dan untuk menyederhanakan persoalan, 1 fen kita anggap setara dengan 3 mm") di belakang titik Bai Hui. Secara berturut-turut ia menotok 
+[Qiang Jian](https://thumbs.dreamstime.com/b/acupuncture-point-gv-qiangjian-d-illustration-points-meridians-80282628.jpg "Qiang Jian (強間) berada di belakang Hou Ding"), Nao Hu, Feng Yu, DaZhui, Tao Dao, Shen Zhu, Shen Dao, sampai ke 
+[titik Ling Tai](https://www.mastertungacupuncture.org/sites/default/files/img/acup/tung/GV_10.jpg) di paling bawah, dan ketika 
+dupa yang dipasang terbakar setengahnya, ia telah menotok berturut-turut tiga puluh titik akupuntur utama yang termasuk dalam 
+golongan Du Mai Xue[^du-mai] di tubuh Huang Rong.
+
+[^du-mai]: Du Mai Xue (督脉穴) adalah titik-titik darah yang disebut sebagai 'Pengendali', atau Governing Vessel. Kalau tertarik pada akupuntur atau pijat refleksi, daftar titik-titik ini selengkapnya bisa dibaca di [Wikipedia](https://en.wikipedia.org/wiki/List_of_acupuncture_points#Governing_vessel).
+
+
+**Halaman 21 di PDF**
+
+By this time Guo Jing’s martial art knowledge and experience was already incompara-
+ble to the past. He stood on the side watching Yideng’s finger move slowly, his arm
+floating in the air. He hit these thirty acupoints with thirty different acupoint sealing
+techniques. Each one was a mind opening technique; admittedly the Six Freaks of
+Jiangnan had never taught him this kind of technique, the ‘sealing acupoint section’ in
+the Nine Yin Manual also did not contain this technique. He had never seen anything
+like this before, he had never even heard about it. He was having a blurred vision just
+by watching; his tongue tied. He only knew that Reverend Yideng was demonstrating
+an upper class martial art; it never crossed Guo Jing’s mind that Yideng was using his
+lifetime cultivated energy to open up Huang Rong’s eight main arteries.
 

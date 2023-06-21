@@ -56,8 +56,27 @@ supaya bisa diakses dari bab manapun.
         <img src="https://res.cloudinary.com/drzjshskk/image/upload/v1685629103/misc/zuj8hu4h0jljnhql9d01.jpg"
             alt="titik Akupuntur Shen Feng">
     </dd>
+    <dt id="bai-hui">Titik Akupuntur Bai Hui (百会)</dt>
+    <dd>
+        <img src="https://www.selbyacupuncture.com/wp-content/uploads/2013/09/baihui.jpg"
+            alt="titik Akupuntur Bai Hui">
+        <br/>
+        <p>
+            Bagi kita orang awam, memijat sendiri titik akupuntur ini akan terasa sangat bermanfaat, khususnya kalau
+            kita punya kecenderungan insomnia atau sakit kepala. Ini akan menimbulkan sensasi ringan yang cenderung membuat kita 
+            rileks. Titik ini diberi label GV-20.
+        </p>
+    </dd>
+    <dt id="hou-ding">Titik Akupuntur Hou Ding (後頂)</dt>
+    <dd>
+        <img src="https://thumbs.dreamstime.com/b/acupuncture-point-gv-houding-d-illustration-points-meridians-80282750.jpg"
+            alt="titik Akupuntur Hou Ding">
+        <br/>
+        <p>
+            Titik akupuntur ini terletak di dekat <a href="#bai-hui" title="Bai Hui">titik akupuntur Bai Hui</a>, dalam garis 
+            lurus ke arah belakang kepala. Titik ini diberi label GV-19. 
+        </p>
+    </dd>
 </dl>
 
-
-
-
+https://yinyanghouse.com/yyhmedia/yyh/img/acupoints/gv_meridian_15-20.gif

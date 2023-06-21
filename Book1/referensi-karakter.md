@@ -1271,6 +1271,15 @@ If there are few friends, who will listen to the broken string?
 
 ### <a name="shan-po-yang" id="shan-po-yang">Shan Po Yang (山坡羊)</a>
 
+Kelihatannya lagu ini adalah lagu rakyat, yang syairnya bisa berubah-ubah.
+
+
+### <a name="ren-wai-you-ren" id="ren-wai-you-ren">Ren Wai You Ren, Tian Wai You Tian (人外有人，天外有天)</a>
+
+Ini sebuah peribahasa, 'Di atas langit ada langit, di atas manusia ada manusia lain', yang ingin mengungkapkan
+bahwa di dunia ini tak seorang pun sungguh-sungguh nomor satu di atas segalanya.
+
+
 
 
 
