@@ -664,6 +664,8 @@ ada ilmu semacam ini!"
 
 [^yin-wei]: Yin Wei Mai (阴维脉) adalah kelompok titik akupuntur yang termasuk dalam 8 kelompok luar biasa, yang biasanya hanya dikenal oleh para praktisi ilmu tenaga dalam, Tai Chi, atau alkimia. Dalam konteks cerita ini adalah para praktisi ilmu silat. Sesuai namanya, Yin (阴), yang adalah simbol negatif, dingin, atau feminin, maka bagi kelompok ini berhubungan erat dengan aliran ilmu Yin, seperti Jiu Yin Zhen Jing.
 
+[^yang-wei]: Yang Wei Mai (阳维脉) seperti Yin Wei Mai, termasuk dalam 8 kelompok istimewa, tetapi punya sifat berlawanan, yaitu _positif_, panas, atau maskulin. Dalam cerita silat atau ilmu bela diri, kelompok ini berhubungan erat dengan aliran ilmu seperti yang dipelajari oleh Zhang Wuji dalam buku ketiga Trilogi ini, yaitu Jiu Yang Shen Gong.
+
 Sementara itu Yideng telah mulai dengan kelompok Yin Wei Mai[^yin-wei] yang terdiri dari empat belas titik akupuntur. Sekali lagi 
 ia menggunakan teknik yang berbeda. Kali ini ia gerakannya kuat bertenaga seperti naga terbang atau barisan harimau. Meskipun
 Yideng memakai kassaya[^kassaya], tetapi di mata Guo Jing ia tidak nampak seperti seorang Biksu, dan malah lebih mirip seorang 
