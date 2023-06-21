@@ -671,12 +671,11 @@ kaisar, yang memerintah puluhan ribu manusia.
 
 [^kassaya]: Kassaya adalah jubah merah yang biasa dipakai oleh para biksu.
 
-The ‘yin wei mai’ group finished, without taking a rest Reverend Yideng continued with
-the ‘yang wei mai’ [positive preserved arteries/channels] consisting of thirty-two acu-
-points. This time he did it long distance; for instance, he moved about a ‘zhang’ away
-from Huang Rong, then suddenly pounced forward and hit the ‘feng chi’ [wind reser-
-voir] acupoint on Huang Rong’s neck, followed by leaping backward. He did this in suc-
-cession, without any perceivable pause.
+Setelah menyelesaikan kelompok titik akupuntur Yin Wei Mai, Biksu Yideng langsung melanjutkan dengan Yang Wei Mai[^yang-wei] 
+tanpa beristirahat. Kali ini ia melakukannya dari jarak jauh, ia melangkah sekitar satu [zhang](referensi-unit.md#satuan-zhang "Sekitar 3 meter.") dari Huang Rong, lalu mendadak menusuk ke depan dan menotok 
+[titik akupuntur Feng Chi](acupoints.md#feng-chi "Feng Chi (风池) terletak di antara bagian bawah tempurung kepala dan leher bagian belakang.") di leher Huang Rong, diikuti dengan lompatan mundur. Kelompok titik akupuntur Yang Wei Mai ini terdiri dari 
+tiga puluh dua titik, ia melakukannya secara berturut-turut tanpa istirahat.
+
 
 
 

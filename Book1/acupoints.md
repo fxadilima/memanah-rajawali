@@ -77,6 +77,22 @@ supaya bisa diakses dari bab manapun.
             lurus ke arah belakang kepala. Titik ini diberi label GV-19. 
         </p>
     </dd>
+    <dt id="feng-chi">Titik Akupuntur Feng Chi (风池)</dt>
+    <dd>
+        <img src="https://balancedenergywellness.com/wp-content/uploads/2020/03/GB20.png"
+            alt="titik Akupuntur Feng Chi">
+        <br/>
+        <p>
+            Titik ini adalah sepasang, yaitu bagian kiri dan kanan. Kalau Anda tertarik, titik ini bisa kita pijit ketika
+            sedang menderita sakit kepala berat, dan pasti akan membantu meredakannya. Pasien yang menderita tekanan darah tinggi atau rendah akan mengalami perubahan yang cukup signifikan setelah pijatan pada titik ini.
+        </p>
+    </dd>
 </dl>
 
-https://yinyanghouse.com/yyhmedia/yyh/img/acupoints/gv_meridian_15-20.gif
+## Ekstra
+
+Barangkali [referensi GIF](https://yinyanghouse.com/yyhmedia/yyh/img/acupoints/gv_meridian_15-20.gif) berikut cukup berharga
+sebagai ilustrasi mengenai titik-titik akupuntur di kelompok Du Mai Xue, yang terletak di kepala. mulai dari GV 15-20.
+
+
+
