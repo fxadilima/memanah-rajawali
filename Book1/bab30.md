@@ -664,7 +664,7 @@ ada ilmu semacam ini!"
 
 [^yin-wei]: Yin Wei Mai (阴维脉) adalah kelompok titik akupuntur yang termasuk dalam 8 kelompok luar biasa, yang biasanya hanya dikenal oleh para praktisi ilmu tenaga dalam, Tai Chi, atau alkimia. Dalam konteks cerita ini adalah para praktisi ilmu silat. Sesuai namanya, Yin (阴), yang adalah simbol negatif, dingin, atau feminin, maka bagi kelompok ini berhubungan erat dengan aliran ilmu Yin, seperti Jiu Yin Zhen Jing.
 
-Sementara itu Yideng telah mulai dengan kelompok Yin Mei Mai[^yin-mei] yang terdiri dari empat belas titik akupuntur. Sekali lagi 
+Sementara itu Yideng telah mulai dengan kelompok Yin Wei Mai[^yin-mei] yang terdiri dari empat belas titik akupuntur. Sekali lagi 
 ia menggunakan teknik yang berbeda. Kali ini ia gerakannya kuat bertenaga seperti naga terbang atau barisan harimau. Meskipun
 Yideng memakai kassaya[^kassaya], tetapi di mata Guo Jing ia tidak nampak seperti seorang Biksu, dan malah lebih mirip seorang 
 kaisar, yang memerintah puluhan ribu manusia.
