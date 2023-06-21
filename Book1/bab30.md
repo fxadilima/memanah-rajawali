@@ -612,7 +612,7 @@ Yideng menurunkan tirai bambu yang berada di atas pintu masuk. Ia lalu membakar 
 yang sesuai, yang terletak di atas sebuah meja bambu.
 
 Keempat dinding ruangan itu tampak membosankan, selain meja bambu kecil di mana Yideng baru saja menancapkan dupanya hanya ada
-tiga alas meditasi. Yideng menyuruh Huang Rong duduk di alas meditasi yang di tegah, sementara ia sendiri duduk bersila 
+tiga alas meditasi. Yideng menyuruh Huang Rong duduk di alas meditasi yang di tengah, sementara ia sendiri duduk bersila 
 di sebelahnya. Ia berpaling ke arah tirai bambu di pintu masuk dan berkata kepada Guo Jing, "Kau diam dan berjaga di pintu,
 jangan biarkan seorang pun masuk, termasuk murid-muridku sendiri." Guo Jing menurut.
 
@@ -640,19 +640,44 @@ Biksu Yideng  segera menarik jarinya, tanpa menggerakkan tubuhnya jari keduanya 
 dupa yang dipasang terbakar setengahnya, ia telah menotok berturut-turut tiga puluh titik akupuntur utama yang termasuk dalam 
 golongan Du Mai Xue[^du-mai] di tubuh Huang Rong.
 
-[^du-mai]: Du Mai Xue (督脉穴) adalah titik-titik darah yang disebut sebagai 'Pengendali', atau Governing Vessel. Kalau tertarik pada akupuntur atau pijat refleksi, daftar titik-titik ini selengkapnya bisa dibaca di [Wikipedia](https://en.wikipedia.org/wiki/List_of_acupuncture_points#Governing_vessel).
+[^du-mai]: Du Mai Xue (督脉穴) adalah titik-titik darah yang disebut sebagai 'Pengatur', atau Governing Vessel. Kalau tertarik pada akupuntur atau pijat refleksi, daftar titik-titik ini selengkapnya bisa dibaca di [Wikipedia](https://en.wikipedia.org/wiki/List_of_acupuncture_points#Governing_vessel).
+
+Pada saat itu baik ilmu bela diri maupun pengalaman Guo Jing sudah tidak bisa dibandingkan lagi dengan apa yang dimilikinya
+di Mongolia. Ia berdiri di samping sambil mengawasi jari Yideng Dashi bergerak perlahan, lengannya mengambang di udara. Ia 
+menotok tiga puluh titik akupuntur itu dengan teknik-teknik yang berbeda. Setiap teknik yang dipakainya sungguh-sungguh
+membuka wawasan. Harus diakui bahwa baik Enam Orang Aneh dari Jiangnan maupun isi Kitab Jiu Yin Zhen Jing sama-sama tidak
+mengajarkan teknik-teknik tersebut. Ia belum pernah menyaksikan maupun mendengar hal seperti ini sebelumnya. Ia merasa 
+pandangannya kabur hanya dengan menyaksikannya, lidahnya kelu. Ia hanya tahu bahwa Biksu Yideng tengah mendemonstrasikan
+ilmu tingkat tinggi, sama sekali tak pernah terbayang oleh Guo Jing bahwa Yideng sedang menggunakan tenaga dalam yang telah
+dilatihnya seumur hidup untuk membuka enam jalan darah utama Huang Rong.
+
+Setelah menyelesaikan kelompok Du Mai Xue, Yideng duduk untuk beristirahat sebentar. Setelah Guo Jing menyalakan dupa berikutnya,
+ia kembali melompat untuk menotok kelompok titim akupuntur Ren Mai Xue[^ren-mai], yang terdiri dari dua puluh lima titik. Kali 
+ini gerakan tangannya sangat cepat, tangannya bergetar, seperti capung melayang di atas air. Dalam satu tarikan nafas ia telah
+menyelesaikan dua puluh lima totokan di kelompok Ren Mai tersebut. Semuanya dilakukan secepat kilat, tetapi tidak ada yang
+meleset selebar helaian rambut pun.
+
+[^ren-mai]: Ren Mai Xue (任脉穴) adalah kelompok titik akupuntur yang berfungsi sebagai 'Penunjuk' atau 'Pengarah', atau Directing Vessel. Dalam literatur nama kelompok ini disingkat menjadi CV, alias 'Conception Vessel'.
+
+Guo Jing merasa ngeri sekaligus kagum melihat aksi tersebut, ia berpikir sambil mendesah, "Ternyata di dunia ini sungguh
+ada ilmu semacam ini!"
+
+[^yin-wei]: Yin Wei Mai (阴维脉) adalah kelompok titik akupuntur yang termasuk dalam 8 kelompok luar biasa, yang biasanya hanya dikenal oleh para praktisi ilmu tenaga dalam, Tai Chi, atau alkimia. Dalam konteks cerita ini adalah para praktisi ilmu silat. Sesuai namanya, Yin (阴), yang adalah simbol negatif, dingin, atau feminin, maka bagi kelompok ini berhubungan erat dengan aliran ilmu Yin, seperti Jiu Yin Zhen Jing.
+
+Sementara itu Yideng telah mulai dengan kelompok Yin Mei Mai[^yin-mei] yang terdiri dari empat belas titik akupuntur. Sekali lagi 
+ia menggunakan teknik yang berbeda. Kali ini ia gerakannya kuat bertenaga seperti naga terbang atau barisan harimau. Meskipun
+Yideng memakai kassaya[^kassaya], tetapi di mata Guo Jing ia tidak nampak seperti seorang Biksu, dan malah lebih mirip seorang 
+kaisar, yang memerintah puluhan ribu manusia.
+
+[^kassaya]: Kassaya adalah jubah merah yang biasa dipakai oleh para biksu.
+
+The ‘yin wei mai’ group finished, without taking a rest Reverend Yideng continued with
+the ‘yang wei mai’ [positive preserved arteries/channels] consisting of thirty-two acu-
+points. This time he did it long distance; for instance, he moved about a ‘zhang’ away
+from Huang Rong, then suddenly pounced forward and hit the ‘feng chi’ [wind reser-
+voir] acupoint on Huang Rong’s neck, followed by leaping backward. He did this in suc-
+cession, without any perceivable pause.
 
 
-**Halaman 21 di PDF**
 
-By this time Guo Jing’s martial art knowledge and experience was already incompara-
-ble to the past. He stood on the side watching Yideng’s finger move slowly, his arm
-floating in the air. He hit these thirty acupoints with thirty different acupoint sealing
-techniques. Each one was a mind opening technique; admittedly the Six Freaks of
-Jiangnan had never taught him this kind of technique, the ‘sealing acupoint section’ in
-the Nine Yin Manual also did not contain this technique. He had never seen anything
-like this before, he had never even heard about it. He was having a blurred vision just
-by watching; his tongue tied. He only knew that Reverend Yideng was demonstrating
-an upper class martial art; it never crossed Guo Jing’s mind that Yideng was using his
-lifetime cultivated energy to open up Huang Rong’s eight main arteries.
 
