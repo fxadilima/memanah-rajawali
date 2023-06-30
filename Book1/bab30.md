@@ -730,4 +730,23 @@ yang keluar dari lubang hidung Huang Rong. Ia melihat mukanya dan mendapati keny
 mengandung darah dan pucat membiru seperti mayat, tetapi bayangan semu hitam di mukanya telah menghilang. Ia memeriksa 
 pernafasannya dan merasa sangat lega setelah merasakan denyut yang stabil meskipun sangat lemah.
 
+**Page 24 in PDF**
 
+The fisherman, the woodcutter, the farmer and the scholar were sitting around their
+master in silence, with apprehensive looks on their faces. Guo Jing kept his eyes on
+Huang Rong. He saw her face gradually turn pink, he was ecstatic; who would have
+thought that the pink turned to red and very soon her cheeks were fiery hot. A short
+moment later beads of perspiration started to form on her forehead while her countenance 
+was gradually turning back to white. This cycle happened three times, everytime she was 
+sweating profusely.
+
+“Mmm,” Huang Rong moaned softly then she opened her eyes. “Jing Gege, where is the
+stove, uh, the ice?” she asked.
+
+Hearing her voice Guo Jing’s delight was unspeakable, with a trembling voice he said,
+“What stove? What ice?”
+
+Huang Rong looked around, shook her head and smiled, “Ah, I was having a night-
+mare,” she said, “I saw Ouyang Feng, Ouyang Ke and Qiu Qianren. They put me inside
+the stove to be roasted; and when I was hot, they put ice to cool me down. Once I cool
+down they put me back into the stove. (Sigh), it was really scary. Uh, how is Uncle?”
