@@ -678,7 +678,56 @@ tanpa beristirahat. Kali ini ia melakukannya dari jarak jauh, ia melangkah sekit
 [titik akupuntur Feng Chi](acupoints.md#feng-chi "Feng Chi (风池) terletak di antara bagian bawah tempurung kepala dan leher bagian belakang.") di leher Huang Rong, diikuti dengan lompatan mundur. Kelompok titik akupuntur Yang Wei Mai ini terdiri dari 
 tiga puluh dua titik, ia melakukannya secara berturut-turut tanpa istirahat.
 
+Guo Jing berpikir, "Pertempuran jarak dekat dengan seorang ahli sangat berbahaya, memakai teknik ini aku bukan hanya bisa
+mengatasi lawan, tapi sekaligus juga membangun benteng pertahanan yang kuat. Ini teknik yang luar biasa." Dengan penuh perhatian 
+ia mengamati Yideng bergerak ke depan dan belakang. Pergerakannya sungguh luar biasa. Sangat sulit menyerang dan mundur secepat
+itu, dengan kegesitan seekor ikan yang bergerak di air atau kelinci yang melarikan diri dari kejaran pemburu. Mendadak sebuah
+pikiran melintas di benaknya, "Waktu aku melawan Ying Gu, tubuhnya sangat licin. Bagian ketiga dari teknik yang dipakainya
+nampak agak mirip dengan gerakan Yideng pada saat melakukan totokan, sepertinya ia terinspirasi oleh Biksu ini, tapi kemampuannya
+terlalu jauh di bawah Yideng Dashi."
 
+Dua batang dupa berikutnya, Yideng Dashi telah menyelesaikan semua totokannya pada kelompok Yin Wei maupun Yang Wei Mai. Ketika
+ia mulai dengan 
+[titik akupuntur Ju Gu](acupoints.md#ju-gu "Titik akupuntur Ju Gu (巨骨)") di leher Huang Rong, Guo Jing tiba-tiba terusik, "Ah! 
+Sepertinya Jiu Yin Zhen Jing punya yang satu ini. Aku sungguh bodoh tidak bisa memahaminya sebelum ini." Dalam hati ia mulai 
+menghafalkan isi kitab itu sambil mengamati Biksu Yideng dan membandingkan tekniknya dengan isi kitab tersebut. Ia menemukan 
+kenyataan bahwa variasi teknik totokan Yideng Dashi tak terbatas. Guo Jing belum belajar terlalu jauh, dan ia tidak berani 
+mempelajari ilmu Totokan Satu Jari Yideng Dashi, tetapi dengan pengetahuannya tentang Jiu Yin Zhen Jing, ia punya dasar yang 
+cukup kuat untuk memahami ilmu yang unik ini.
 
+Akhirnya kelompok jalan darah Dai Mai berhasil dibuka. Darah mengalir tanpa rintangan melalui ketujuh kelompok titik akupuntur
+yang dirangkum dalam kitab Jiu Yin Zhen Jing. Dai Mai adalah kelompok titik akupuntur yang melingkari pinggang seperti sebuah
+sabuk. Saat itu Yideng Dashi sedang berada di belakang Huang Rong, berjalan mundur dengan jari-jarinya terarah ke belakang
+secara perlahan menotok titik akupuntur Zhang Men.
+
+Dai Mai terdiri dari delapan titik akupuntur. Yideng perlahan-lahan merentangkan tangannya, seolah-olah hal ini dilakukannya 
+dengan kesulitan besar, mulutnya terbuka untuk menghirup udara segar, tubuhnya terayun, seolah tak kuasa menahan berat badannya
+sendiri.
+
+Guo Jing terkesiap, ia melihat butiran keringat menitik di dahi Yideng, keringat menetes seperti hujan dari ujung alisnya yang
+panjang. Guo Jing ingin maju dan membantu, tetapi ia takut mengacaukan semuanya. Ia berpaling dan melihat kondisi Huang Rong dan
+melihat bajunya basah kuyup oleh keringat. Ia mengernyitkan alisnya dan menggigit bibirnya sendiri, seolah sedang menahan rasa
+sakit yang tak terperikan sekuat tenaga.
+
+Tiba-tiba Guo Jing mendengar suara, tirai bambu di belakangnya dibuka dan seseorang berseru dengan lantang, "Shifu!" dan orang
+itu bergegas masuk melalui pintu.
+
+Nyaris tanpa berpikir Guo Jing melancarkan Sang Naga Mengibaskan Ekor, telapak tangan kanannya terayun ke belakang dan mengenai
+bahu orang itu. Guo Jing berpaling dan melihat seseorang terhuyung mundur dua langkah, ternyata si nelayan.
+
+Karena dayung besinya dicuri, ia tidak bisa mendayung ke atas melalui air, ia harus mengambil jalan berputar sejauh lebih
+dari dua puluh li dari belakang gunung. Ketika tiba di situ, ia mendengar gurunya sudah mulai mengobati luka dalam si nona cilik,
+ia sangat cemas dan menerjang maju ke arah ruangan dengan maksud mencegah gurunya melakukan hal itu. Tak disangka ia terdorong
+mundur oleh serangan Guo Jing. Ia bangkit untuk mulai mencoba lagi. Sementara itu si penebang kayu, petani, dan sastrawan telah
+tiba di luar pintu masuk.
+
+"Ini sudah selesai, apa lagi yang bisa kita lakukan?" kata si sastrawan dengan marah.
+
+Guo Jing berpaling untuk melihat Biksu Yideng duduk bersila di atas tikar meditasinya, mukanya pucat seperti mayat, jubah biksu
+yang dikenakannya basah kuyup oleh keringat. Huang Rong berbaring di lantai, tidak bergerak. Tidak jelas apakah ia masih hidup
+atau sudah mati. Guo Jing sangat terkejut, ia bergegas maju untuk mengangkatnya. Hal pertama yang diperhatikannya adalah bau amis
+yang keluar dari lubang hidung Huang Rong. Ia melihat mukanya dan mendapati kenyataan bahwa muka itu seolah sama sekali tidak 
+mengandung darah dan pucat membiru seperti mayat, tetapi bayangan semu hitam di mukanya telah menghilang. Ia memeriksa 
+pernafasannya dan merasa sangat lega setelah merasakan denyut yang stabil meskipun sangat lemah.
 
 

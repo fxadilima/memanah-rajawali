@@ -95,4 +95,24 @@ Barangkali [referensi GIF](https://yinyanghouse.com/yyhmedia/yyh/img/acupoints/g
 sebagai ilustrasi mengenai titik-titik akupuntur di kelompok Du Mai Xue, yang terletak di kepala. mulai dari GV 15-20.
 
 
+### <a name="ju-gu" id="ju-gu">Ju Gu (巨骨)</a>
+
+[Titik akupuntur Ju Gu](https://www.meandqi.com/media/ho0izfz0/jugu-li-16-2.jpg?mode=crop&anchor=center&height=600&format=webp&quality=80) terletak di antara bahu dan leher. Titik ini umumnya dipakai untuk mengobati pasien yang mengalami muntah darah
+dan, atau, epilepsi.
+
+[Referensi lebih lanjut](https://www.peakmassager.com/li-16-acupuncture-point/).
+
+Titik ini termasuk dalam kelompok titik akupuntur Shou Yang Ming Dachang Jing Xue (手阳明大肠经穴), yang secara literal bisa
+diartikan Kelompok Usus Besar yang bersifat 'Yang'.
+
+Dalam literatur-literatur kelompok ini diberi label LI (large Intestine) atau CO (Colon), terdiri dari 20 titik akupuntur.
+
+
+### <a name="da-mai" id="da-mai">Da Mai (带脉)</a>
+
+Kelompok titik akupuntur Da Mai ini termasuk dalam 8 kelompok luar biasa, yang tidak terlalu umum dikenal, kecuali oleh
+para praktisi ilmu bela diri dan alkimia.
+
+
+
 
