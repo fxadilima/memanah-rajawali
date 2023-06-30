@@ -730,23 +730,130 @@ yang keluar dari lubang hidung Huang Rong. Ia melihat mukanya dan mendapati keny
 mengandung darah dan pucat membiru seperti mayat, tetapi bayangan semu hitam di mukanya telah menghilang. Ia memeriksa 
 pernafasannya dan merasa sangat lega setelah merasakan denyut yang stabil meskipun sangat lemah.
 
-**Page 24 in PDF**
+Si nelayan, penebang kayum petani dan sastrawan duduk di sekeliling guru mereka dalam diam, dengan muka penuh perhatian. Guo Jing 
+terus mengamati Huang Rong. Ia melihat mukanya secara berangsur-angsur berubah menjadi kemerahan, ia sangat girang. Tapi di luar 
+dugaan warna kemerahan itu kemudian berubah menjadi merah padam dan dengan segera pipinya menjadi sangat panas. Dalam waktu 
+singkat butiran keringat mulai menitik di dahinya sementara mukanya berangsur-angsur kembali berubah sepucat kertas. Siklus ini 
+terjadi tiga kali, setiap kali ia selalu basah kuyup oleh keringat.
 
-The fisherman, the woodcutter, the farmer and the scholar were sitting around their
-master in silence, with apprehensive looks on their faces. Guo Jing kept his eyes on
-Huang Rong. He saw her face gradually turn pink, he was ecstatic; who would have
-thought that the pink turned to red and very soon her cheeks were fiery hot. A short
-moment later beads of perspiration started to form on her forehead while her countenance 
-was gradually turning back to white. This cycle happened three times, everytime she was 
-sweating profusely.
+"Mmm," Huang Rong mendesah pelan, lalu membuka matanya. "Jing Gege, mana kompornya, uh, mana esnya?" tanyanya.
 
-“Mmm,” Huang Rong moaned softly then she opened her eyes. “Jing Gege, where is the
-stove, uh, the ice?” she asked.
+Mendengar suaranya hati Guo Jing girang tak terkira, dengan suara gemetar ia berkata, "Kompor apa? Es apa?"
 
-Hearing her voice Guo Jing’s delight was unspeakable, with a trembling voice he said,
-“What stove? What ice?”
+Huang Rong memandang ke sekelilingnya, menggelengkan kepalanya dan tersenyum. "Ah, aku cuma mimpi buruk," katanya. "Aku tadi 
+melihat Ouyang Feng, Ouyang Ke dan Qiu Qianren. Mereka memasukkan aku ke tungku untuk dipanggang, dan sewaktu aku panas, mereka 
+menaruh es untuk mendinginkan aku. Setelah aku dingin mereka mengembalikan aku ke tungku." Ia mendesah. "Betul-betul mengerikan. 
+Uh, iya, bagaimana dengan Paman?"
 
-Huang Rong looked around, shook her head and smiled, “Ah, I was having a night-
-mare,” she said, “I saw Ouyang Feng, Ouyang Ke and Qiu Qianren. They put me inside
-the stove to be roasted; and when I was hot, they put ice to cool me down. Once I cool
-down they put me back into the stove. (Sigh), it was really scary. Uh, how is Uncle?”
+Yideng pelan-pelan membuka mata dan tersenyum. "Lukamu sudah sembuh, yang kau butuhkan adalah satu-dua hari istirahat total, 
+jangan bergerak tanpa perlu, dan kau akan baik-baik saja."
+
+"Aku tidak punya kekuatan lagi sama sekali," kata Huang rong. "Aku bahkan tidak sanggup menggerakkan jari." Si petani menatapnya
+dengan marah. Huang Rong mengabaikannya, ia berpaling kepada Yideng dan berkata, "Paman, kau menghabiskan begitu banyak tenaga 
+untuk menyembuhkan aku, kau pasti sangat lelah. Aku punya Pil Embun Sembilan Bunga Giok, dibuat berdasarkan resep dari ayah. 
+Bagaimana kalau Paman minum pil itu?"
+
+Yideng berkata dengan gembira, "Bagus, aku tidak menyangka kau juga membawa pil ajaib penambah tenaga itu. Pada saat kami
+mengadakan pertemuan di Hua Shan itu, kami semua sungguh-sungguh sudah kehabisan tenaga setelah berkompetisi, ayahmu memberi
+kami beberapa butir pil itu, manfaatnya sungguh-sungguh luar biasa."
+
+Guo Jing segera mengambil kantong kecil yang berisi pil dari bungkusan yang dibawa Huang Rong, lalu memberikannya kepada
+Yideng Dashi. Si penebang kayu pergi ke dapur untuk mengambilkan semangkuk air minum, sementara si sastrawan menuangkan
+pil-pil itu di telapak tangannya dan memberikannya kepada gurunya. Yideng tertawa. "Kenapa sebanyak itu? Pil-pil ini tidak 
+mudah dibuat, kita hanya akan mengambil setengahnya."
+
+Si sastrawan menjawab dengan cemas, "Shifu, semua pil ajaib di dunia ini tidak akan cukup."
+
+Yideng menurut karena ia merasa sangat kelelahan, ia mengambil beberapa lusin pil itu dari tangan muridnya dan langsung
+menelan semuanya sekaligus, dan kemudian ia minum air untuk membantunya menelan. Ia berpalig kepada Guo Jing dan berkata,
+"Bawa Shimei-mu untuk beristirahat beberapa hari dan kemudian kalian berdua bisa turun gunung. Kalian tidak perlu datang 
+untuk menemuiku lagi. Hmm, tapi kalian harus berjanji satu hal."
+
+Guo Jing bersujud di lantai dan membenturkan dahinya berkali-kali ke lantai itu. Huang Rong biasanya sangat suka bercanda
+dan selalu bersikap santai ke semua orang. Bahkan di hadapan ayah dan gurunya ia juga tidak mengikuti aturan umum tentang
+anak dan orang tua dengan patuh. Tetapi saat itu ia sungguh-sungguh ikut bersujud dengan serius dan berkata dengan suara
+rendah, "Paman telah menyelamatkan nyawaku, aku tidak berani melupakannya bahkan hanya untuk sesaat."
+
+Yideng tersenyum dan berkata, "Lebih baik kau melupakan semua itu, jangan biarkan hal ini terus ada di benakmu." Berpaling
+kepada Guo Jing ia berkata, "Jangan katakan kepada siapa pun bahwa kalian sudah naik ke gunung ini, jangan sekali pun 
+mengatakannya, bahkan juga kepada gurumu."
+
+Guo Jing baru saja berpikir untuk membawa Hong Qigong naik ke gunung ini dan memohon Yideng Dashi untuk menyembuhkannya,
+ketika mendengar hal itu, ia agak terkejut dan tidak tahu apa yang harus dikatakannya.
+
+Yideng tersenyum dan melanjutkan, "Setelah ini juga jangan repot-repot berpikir untuk kembali ke sini, karena kami akan 
+segera pindah dari sini."
+
+"Ke mana Dashi akan pergi?" tanya Guo Jing buru-buru. Yideng tersenyum tanpa mengatakan apa-apa.
+
+Huang Rong berkata dalam hati, "Sha Gege, karena keberadaan mereka sudah kita bongkar maka mereka harus segera pindah, mana
+mungkin kau diberitahu?" Ia berpikir tentang bagaimana Biksu Yideng dan murid-muridnya dengan susah-payah membangun tempat ini,
+dan sekarang hanya karena dia mereka semua harus segera meninggalkannya. Ia merasa bersalah dan berpikir bahwa akan sangat sulit
+baginya membalas kebaikan mereka. Tak heran betapa kerasnya usaha si petani, nelayan, penebang kayu maupun sastrawan untuk
+mencegah mereka naik. Berpikir sampai di sini ia memalingkan pandangannya ke arah keempat murid Biksu Yideng itu, ingin 
+mengucapkan sesuatu untuk mengungkapkan penyesalan dan rasa terima kasihnya, tetapi ia tidak menemukan sepatah kata pun yang 
+cukup layak untuk diucapkan.
+
+Tiba-tiba muka Biksu Yideng berubah, tubuhnya goyah dan ia jatuh ke lantai. Keempat muridnya, bersama dengan Guo Jing dan Huang 
+Rong sangat terkejut. Mereka bergegas maju untuk menolongnya. Mereka melihat mukanya berkedut beberapa kali seolah ia sedang
+menahan rasa sakit yang tak terperikan. Mereka berenam sangat cemas, mereka berdiri mengelilingi Biksu Yideng dengan kedua 
+tangan terkulai, tak seorang pun berani bersuara.
+
+Sekitar waktu yang diperlukan untuk minum secangkir teh, muka Yideng memperlihatkan senyum samar, ia berkata kepada Huang Rong,
+"Nak, apakah ayahmu sendiri yang membuat Pil Embun Sembilan Bunga Giok ini?" 
+
+"Bukan," jawab Huang Rong. "Kakak seperguruanku Lu Chengfeng yang membuatnya sesuai resep dari ayah."
+
+"Apa kau pernah mendengar ayahmu bilang bahwa pil ini akan menjadi berbahaya kalau diminum secara berlebihan?" tanya Yideng 
+lebih lanjut.
+
+Huang Rong terpana, ia berpikir, "Apa ada sesuatu yang salah dengan pil-pil ini?" Ia buru-buru berkata, "Kata ayah makin banyak 
+makin baik. Hanya saja karena pil-pil ini tidak mudah dibuat, dia juga tidak ingin minum terlalu banyak."
+
+Yideng menundukkan kepala dan mengerutkan keningnya agak lama. Akhirnya ia menggelengkan kepalanya dan berkata, "Ayahmu boleh 
+dibilang seorang jenius, tetapi tindakannya sangat tidak terduga, mana mungkin aku bisa menebak niatnya? Apa mungkin dia 
+mencoba menekan kakak seperguruanmu dengan cara memberinya resep palsu? Ataukah kakak seperguruanmu yang menyimpan dendam
+kepadamu, dan mencampur sejenis racun ke dalam pil-pil ini?"
+
+Ketika mendengar kata 'racun' semua orang berseru penuh kekuatiran, "Shifu, kau diracuni?" tanya si sastrawan.
+
+Yideng tersenyum dan berkata, "Sungguh beruntung Paman gurumu ada di sini, jadi racun paling mematikan pun tidak akan bisa
+membunuh siapa pun."
+
+Keempat muridnya tidak llagi bisa menahan amarah, mereka mengutuk Huang Rong, "Guru kami sudah berbaik hati menyelamatkan 
+nyawamu, tapi kau sungguh punya nyali untuk mencelakai orang dengan racun?" Mereka mengepung Guo Jing dan Huang Rong dalam
+lingkaran, siap untuk menyerang.
+
+Perubahan situasi ini terjadi begitu mendadak sehingga Guo Jing terkesima, ia tidak tahu harus berbuat apa. Sejak Yideng 
+menanyakan pertanyaan pertama, Huang Rong sudah menebak dengan tepat bahwa pil-pil itu telah menimbulkan masalah besar. Otaknya 
+dengan segera berputar untuk mengingat urutan peristiwa yang terjadi sejak mereka menerimanya di Gui Yun Zhuang[^rumah-awan]. 
+Ketika mereka tiba di Rawa Hitam ia teringat bagaimana Ying Gu membawa pil-pil itu ke dalam ruangan lain dan menelitinya agak 
+lama sebelum akhirnya muncul lagi. Mendadak sebuah pikiran melintas di benaknya seperti cahaya terang. "Paman, aku tahu!"
+serunya. "Ini ulah Ying Gu!"
+
+"Ulah Ying Gu?" tanya Yideng.
+
+[^rumah-awan]: Gui Yun Zhuang (归云庄) adalah tempat kediaman Lu Chengfeng, Rumah Awan.
+
+**Page 27 in PDF**
+
+Immediately Huang Rong told him everything that happened inside the thatched hut in
+the Black Marsh forest. She furthermore said, “She repeatedly warned me not to take
+any of these pills; apparently it was because she had already mixed some poison in
+them.”
+
+“Hmm,” the farmer sneered angrily, “She was really good to you; she was afraid you
+might die.”
+
+Ever since she learned that Yideng was poisoned Huang Rong’s heart was full of re-
+grets; she did not feel like arguing. She lowered her head and said, “She was not afraid
+to kill me, but she was afraid that if I take the pill then Uncle would not be poisoned.”
+
+Yideng could only sigh, “Karma, karma,” he said. His face turned gentle. He turned to-
+ward Guo Jing and Huang Rong and said, “This is the result of my own sin; it has noth-
+ing to do with you. It was that Ying Gu; and I am reaping what I sow. You go ahead and
+take some rest, then you can go down the mountain, there is no need to worry over me.
+Although I am poisoned, my martial brother is here and he is an expert in healing poi-
+son related sickness.” He finished speaking; he closed his eyes and did not say another
+word.
+
