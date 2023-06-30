@@ -835,25 +835,130 @@ serunya. "Ini ulah Ying Gu!"
 
 [^rumah-awan]: Gui Yun Zhuang (归云庄) adalah tempat kediaman Lu Chengfeng, Rumah Awan.
 
-**Page 27 in PDF**
+Dengan segera Huang Rong menceritakan semua yang terjadi di dalam gubuk di tengah Rawa Hitam. Ia lebih lanjut berkata, "Dia 
+berkali-kali memperingatkan aku supaya tidak minum pil ini, rupanya itu karena dia sudah mencampur racun ke dalam pil-pil ini."
 
-Immediately Huang Rong told him everything that happened inside the thatched hut in
-the Black Marsh forest. She furthermore said, “She repeatedly warned me not to take
-any of these pills; apparently it was because she had already mixed some poison in
-them.”
+"Hmm," dengus si petani dengan marah. "Dia sangat baik kepadamu. Dia takut kau akan mati."
 
-“Hmm,” the farmer sneered angrily, “She was really good to you; she was afraid you
-might die.”
+Sejak mengetahui bahwa Yideng diracuni, hati Huang Rong dipenuhi penyesalan, ia tidak tertarik untuk berdebat. Ia menundukkan
+kepalanya dan berkata, "Dia tidak takut membunuhku. Dia cuma takut setelah aku minum pil ini, maka Paman tidak bisa diracuni."
 
-Ever since she learned that Yideng was poisoned Huang Rong’s heart was full of re-
-grets; she did not feel like arguing. She lowered her head and said, “She was not afraid
-to kill me, but she was afraid that if I take the pill then Uncle would not be poisoned.”
+Yideng hanya bisa mendesah. "Karma, karma," katanya. Mukanya berubah lembut. Ia menoleh kepada Guo Jing dan Huang Rong dan
+berkata, "Inilah akibat dari dosaku sendiri, tidak ada kaitannya dengan kalian berdua. Ini perbuatan Ying Gu, dan aku sedang 
+memetik hasil dari benih yang kutanam. Kalian boleh beristirahat, lalu turun gunung, tak perlu kuatir tentang aku. Meskipun aku 
+diracuni, tetapi adik seperguruanku ada di sini dan dia ahli dalam mengobati semua jenis keracunan." Ia selesai bicara, dan
+memejamkan matanya. Ia tidak mengatakan sepatah katapun lainnya.
 
-Yideng could only sigh, “Karma, karma,” he said. His face turned gentle. He turned to-
-ward Guo Jing and Huang Rong and said, “This is the result of my own sin; it has noth-
-ing to do with you. It was that Ying Gu; and I am reaping what I sow. You go ahead and
-take some rest, then you can go down the mountain, there is no need to worry over me.
-Although I am poisoned, my martial brother is here and he is an expert in healing poi-
-son related sickness.” He finished speaking; he closed his eyes and did not say another
-word.
+Guo Jing dan Huang Rong membungkuk hormat. Mereka melihat muka Yideng yang tersenyum, ia melambaikan tangannya dengan ringan.
+Keduanya tidak berani tetap tinggal lebih lama, mereka pelan-pelan berbalik dan berjalan keluar. Si biksu muda sedang menunggu 
+di luar ruangan, ia mengantar keduanya untuk beristirahat di sebuah bangunan kecil di belakang halaman. Bangunan kecil itu juga 
+kosong kecuali beberapa dipan bambu dan sebuah meja kecil tidak ada perabot lain di situ. Tak lama kemudian kedua biksu yang 
+lebih tua datang untuk mengantarkan beberapa jenis hidangan vegetarian. "Silakan makan," kata mereka.
+
+Huang Rong masih menguatirkan keadaan Yideng. "Apakah Dashi baik-baik saja?" tanyanya.
+
+"Xiao Seng tidak tahu," jawab si biksu tua dengan suara agak melengking tajam. Ia membungkuk dan berjalan keluar.
+
+"Mendengar suaranya kupikir mereka perempuan," kata Guo Jing.
+
+"Mereka kasim istana," kata Huang Rong. "Mereka pastilah mantan pelayan pribadi Kaisar Duan."
+
+"Oh," gumam Guo Jing. Pikiran mereka dipenuhi kekuatiran, mana mungkin mereka berselera makan.
+
+Halaman itu terpencil dan sangat tenang, dengan angin sepoi-sepoi kadang-kadang berhembus menggoyangkan dedaunan bambu. Setelah 
+agak lama Guo Jing memecahkan keheningan, "Rong'er, kungfu Yideng Dashi sangat tinggi."
+
+"Hmm," gumam Huang Rong. Guo Jing melanjutkan, "Guru kita, ayahmu, Zhou Dage, Ouyang Feng dan Qiu Qianren, kungfu mereka berlima 
+juga tinggi, tapi mereka belum tentu lebih hebat dibandingkan Yideng Dashi."
+
+"Menurut pendapatmu, siapa di antara keenam orang itu yang adalah 'Nomor Satu Di Dunia'?" tanya Huang Rong.
+
+Guo Jing ragu-ragu agak lama sebelum menjawab, "Kupikir masing-masing dari mereka punya kelebihan dan kekurangan sendiri, sangat 
+sulit untuk menilai siapa yang terbaik. Yang satu lebih kuat dari yang lain, tapi satunya lebih cerdik dari yang lain."
+
+"Bagaimana dengan Wen Wu Quan Cai[^wen-wu-quan-cai]? Siapa yang terbaik?" tanya Huang Rong.
+
+[^wen-wu-quan-cai]: Wen Wu Quan Cai adalah sebuah pepatah yang secara umum bermakna 'Serba Bisa'. Secara literal artinya adalah seseorang yang ahli baik dalam ilmu sastra dan juga ilmu silat.
+
+"Tak diragukan lagi, ayahmulah yang terbaik," jawab Gua Jing.
+
+Huang Rong sangat bangga, ia tersenyum menampakkan lesung pipitnya, secantik bunga. Tetapi kemudian ia mendadak mendesah dan 
+berkata, "Itulah sebabnya hal ini sangat aneh."
+
+"Apa maksudmu 'aneh'?" tanya Guo Jing buru-buru.
+
+"Coba kau pikir baik-baik," jawab Huang Rong. "Biksu Yideng yang punya kungfu setinggi itu, si petani, nelayan, penebang kayu 
+dan juga sastrawan itu juga bukan orang sembarangan. Mengapa mereka harus menyembunyikan diri dengan ketakutan di pegunungan 
+terpencil ini? Mengapa setiap kali mendengar ada orang datang mereka selalu gemetar ketakutan? Di antara keenam ahli kungfu itu 
+barangkali hanya Ouyang Feng dan Qiu Qianren yang jadi musuh mereka, tapi mereka juga orang-orang yang punya nama besar. Apa 
+mungkin mereka mengabaikan nama besar itu dan sengaja bekerja sama untuk mempersulit dia?"
+
+"Rong'er," kata Guo Jing. "Meskipun Ouyang Feng dan Qiu Qianren bekerja sama, kita juga tidak perlu takut."
+
+"Kenapa?" tanya Huang Rong agak heran. Muka Guo Jing terlihat agak malu, ia tersipu. Huang Rong tertawa. "Ah! Kenapa kau
+tiba-tiba malu-malu?"
+
+Guo Jing answered, “Reverend Yideng’s martial art is not inferior to the Western
+Poison. To say the least they are even. I think his backhand acupoint sealing technique
+is the Toad Stance’s black star.”
+
+“What about Qiu Qianren?” Huang Rong asked, “The fisherman, the woodcutter, the
+farmer and the scholar are certainly not his match.”
+
+“That’s right,” Guo Jing said, “I have exchanged a palm with him at Dongting Lake,
+Mount Jun and the Iron Palm Peak. If it is fifty stances or less, I think I can fight him
+evenly; but after a hundred stances I don’t think I can block his attack. Today I saw the
+way Reverend Yideng’ acupoint sealing method to treat your injury ...”
+
+Huang Rong was delighted, “You learned his skill? Now you can defeat that scoundrel
+Qiu the Iron Palm?” she interrupted.
+
+“You know I am dim-witted,” Guo Jing said, “This acupoint sealing technique is so deep,
+how can I learn it? Moreover, Reverend did not pass the theory to me, naturally I can’t
+learn his skill. But looking at his technique, some things from the Nine Yin Manual that
+I did not understand before become clearer. Defeating him, I can’t do; but I believe I
+can hold against him for a moment longer.”
+
+Huang Rong sighed, “Too bad you have forgotten one thing,” she said.
+
+“What is it?” Guo Jing asked.
+
+“That the Reverend is poisoned and we don’t know when he is going to be well,” Huang
+Rong replied.
+
+Guo Jing was silent. After a while he hatefully said, “That Ying Gu is so evil.” Suddenly
+he called out, “Ah, this is bad!”
+
+Huang Rong jumped up in surprise. “What is it?” she asked.
+
+“You have promised Ying Gu that after your recovery you will accompany her for a
+year. Shall we fulfill this promise or not?” Guo Jing said.
+
+“What do you say?” Huang Rong asked.
+
+Guo Jing replied, “If she did not give us direction then we would not be able to find
+Reverend Yideng. It would be difficult to say what your injury’s condition will be ...”
+
+**Page 30 in PDF**
+
+“What would be difficult to say?” Huang Rong cut him off, “Just say it plainly that my
+little life could not be preserved. You are a gentleman whose words are as a mountain;
+you certainly want me to abide by mine.” She was thinking about how Guo Jing was not
+willing to cancel his engagement with Huazheng; she could not help dejectedly hang
+down her head.
+
+Guo Jing did not have the slightest idea his girl was pouring out her heart’s contents;
+Huang Rong was on the verge of tears, but he was oblivious. He said, “Ying Gu said
+your father possesses divine mathematical skill and he is a hundred times superior to
+her. Let’s just say you are willing to teach her some mathematical skill, in the end it will
+still be difficult to her to even scratch your father’s skin; then why would she still want
+you to accompany her for a year?”
+
+Huang Rong covered her face and did not answer. Guo Jing was indifferent, he re-
+peated his question. Huang Rong was angry, “You are so dumb that you don’t know
+anything!” she scolded him.
+
+Guo Jing did not understand why she suddenly lost her patience and scolded him; he
+could only scratch his head and said, “Rong’er! I am dumb, that’s why I am asking you
+to explain it to me.”
 
