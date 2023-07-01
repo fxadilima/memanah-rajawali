@@ -1029,13 +1029,6 @@ sambil minum dan mencambuknya pada saat yang bersamaan. Setelah para kawanan itu
 mabuk, Temujin membuat penjaganya pingsan dengan belenggunya dan melarikan diri ke hutan 
 terdekat.
 
-<div align="center">
-  <img src="images/temujin-kecil-dibelenggu.jpg" alt="Temujin Kecil Dibelenggu"/>
-  <div align="center">
-    <p><em>Temujin kecil dibelenggu dengan belenggu kayu di lehernya</em></p>
-  </div>
-</div>
-
 Taijiuts melakukan pencarian besar-besaran untuk menemukannya. Saat itulah ia 
 bertemu dengan seorang pemuda bernama Tchila'un, yang mengambil resiko yang 
 sangat besar, membawanya ke rumahnya. Tchila'un-lah yang menghancurkan belenggunya

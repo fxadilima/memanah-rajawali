@@ -111,6 +111,7 @@ Xiao Zi 小子 = Bocah
 Sha 傻 = Bodoh
 Chou 臭 = Busuk/Bau/Rusak
 
+Wu Gong Tian Xia Di Yi (武功天下第一) ataukah (武公天下第一) yang lebih tepat?
 
 ## Istilah Lain
 

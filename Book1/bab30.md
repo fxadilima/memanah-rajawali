@@ -326,18 +326,12 @@ mengundang kalian masuk." Guo Jing sangat gembira, ia membantu Huang Rong berdir
 itu masuk.
 
 Meskipun kuil itu tampak kecil, namun sangat dalam. Ketiga orang itu berjalan melewati gang kecil yang dilapisi batu ubin hijau, 
-melewati rerimbunan bambu kecil yang lebat dan rindang. Tempat itu sangat sunyi dan tenteram, menyebabkan siapa pun yang masuk ke 
-dalamnya akan membuang pikiran kotor mereka.
+melewati rerimbunan bambu kecil yang lebat dan rindang. Tempat itu sangat sunyi dan tenteram, menyebabkan siapa pun yang masuk ke dalamnya akan membuang pikiran kotor mereka.
 
 Ada tiga rumah batu yang tersembunyi di antara pohon bambu. Biksu muda itu dengan ringan mendorong pintu terbuka, lalu melangkah 
 ke samping, membungkukkan tubuhnya untuk membiarkan keduanya masuk.
 
-**Batas Last Line, Page 11 di PDF. Setelah ini semuanya Draft.**
-
-***
-
-Guo Jing punya kesan yang sangat baik terhadap biksu muda yang sopan dan santun ini, ia tersenyum untuk mengungkapkan rasa terima 
-kasihnya, lalu ia masuk berdampingan dengan Huang Rong.
+Guo Jing punya kesan yang sangat baik terhadap biksu muda yang sopan dan santun ini, ia tersenyum untuk mengungkapkan rasa terima kasihnya, lalu ia masuk berdampingan dengan Huang Rong.
 
 Di dalam ruangan ia melihat sebuah meja kecil dengan pembakar dupa kayu cendana di atasnya, di sebelah meja dua biksu Buddha 
 duduk di atas tikar meditasi bundar. Seorang biksu berkulit gelap dengan hidung mancung dan mata yang dalam, rupanya ia adalah 
@@ -898,67 +892,309 @@ mungkin mereka mengabaikan nama besar itu dan sengaja bekerja sama untuk mempers
 "Kenapa?" tanya Huang Rong agak heran. Muka Guo Jing terlihat agak malu, ia tersipu. Huang Rong tertawa. "Ah! Kenapa kau
 tiba-tiba malu-malu?"
 
-Guo Jing answered, “Reverend Yideng’s martial art is not inferior to the Western
-Poison. To say the least they are even. I think his backhand acupoint sealing technique
-is the Toad Stance’s black star.”
+Guo Jing menjawab, "Kungfu Yideng Dashi sama sekali tidak kalah dari Racun Barat. Setidaknya mereka seimbang. Menurutku teknik
+totokannya yang menggunakan punggung tangan adalah batu sandungan bagi Jurus Kodok."
 
-“What about Qiu Qianren?” Huang Rong asked, “The fisherman, the woodcutter, the
-farmer and the scholar are certainly not his match.”
+"Bagaimana dengan Qiu Qianren?" tanya Huang Rong. "Si nelayan, penebang kayu, petani dan sastrawan itu sudah pasti bukan 
+tandingannya."
 
-“That’s right,” Guo Jing said, “I have exchanged a palm with him at Dongting Lake,
-Mount Jun and the Iron Palm Peak. If it is fifty stances or less, I think I can fight him
-evenly; but after a hundred stances I don’t think I can block his attack. Today I saw the
-way Reverend Yideng’ acupoint sealing method to treat your injury ...”
+"Itu memang benar," kata Guo Jing. "Aku sempat bergebrak dengan dia di Danau Dongting, Jun Shan dan juga Puncak Telapak Besi.
+Kalau di bawah lima puluh jurus kurasa aku akan bisa mengimbanginya, tapi setelah seratus jurus kurasa aku tidak akan sanggup 
+menahan serangannya. Hari ini aku melihat teknik totokan Yideng Dashi waktu dia mengobati lukamu..."
 
-Huang Rong was delighted, “You learned his skill? Now you can defeat that scoundrel
-Qiu the Iron Palm?” she interrupted.
+Huang Rong sangat gembira. "Kau mempelajari ilmunya? Sekarang kau bisa mengalahkan se keparat Qiu dari Telapak Besi itu?"
+selanya.
 
-“You know I am dim-witted,” Guo Jing said, “This acupoint sealing technique is so deep,
-how can I learn it? Moreover, Reverend did not pass the theory to me, naturally I can’t
-learn his skill. But looking at his technique, some things from the Nine Yin Manual that
-I did not understand before become clearer. Defeating him, I can’t do; but I believe I
-can hold against him for a moment longer.”
+"Kau kan tahu aku ini lamban," kata Guo Jing. "Teknik totokan ini sangat mendalam, mana mungkin aku bisa mempelajarinya? Lebih 
+jauh lagi, Dashi tidak mengajarkan teorinya kepadaku, sewajarnya aku juga tidak akan bisa belajar. Tapi kalau melihat tekniknya,
+beberapa hal di dalam Jiu Yin Zhen Jing yang sebelumnya tidak bisa kupahami sekarang menjadi lebih jelas. Mengalahkan dia, 
+rasanya aku tidak sanggup, tapi aku yakin bisa menahannya lebih lama lagi."
 
-Huang Rong sighed, “Too bad you have forgotten one thing,” she said.
+Huang Rong mengeluh. "Sayangnya kau melupakan satu hal penting," katanya.
 
-“What is it?” Guo Jing asked.
+"Apa itu?" tanya Guo Jing.
 
-“That the Reverend is poisoned and we don’t know when he is going to be well,” Huang
-Rong replied.
+"Sekarang ini Dashi diracuni dan kita tidak tahu berapa lama dia akan pulih," jawab Huang Rong.
 
-Guo Jing was silent. After a while he hatefully said, “That Ying Gu is so evil.” Suddenly
-he called out, “Ah, this is bad!”
+Guo Jing terdiam. Setelah beberapa saat ia berkata dengan gusar, "Si Ying Gu itu sungguh jahat." Mendadak ia menjerit, "Wah,
+celaka!"
 
-Huang Rong jumped up in surprise. “What is it?” she asked.
+Huang Rong terlompat kaget. "Apa?" tanyanya.
 
-“You have promised Ying Gu that after your recovery you will accompany her for a
-year. Shall we fulfill this promise or not?” Guo Jing said.
+"Kau berjanji kepada Ying Gu bahwa setelah sembuh kau akan menemani dia selama setahun. Kita akan menepati janji itu atau tidak?"
 
-“What do you say?” Huang Rong asked.
+"Menurutmu bagaimana?" tanya Huang Rong.
 
-Guo Jing replied, “If she did not give us direction then we would not be able to find
-Reverend Yideng. It would be difficult to say what your injury’s condition will be ...”
+Guo Jing menjawab, "Kalau kita tidak memberikan arahan, maka mustahil bagi kita untuk menemukan Yideng Dashi. Dan sangat sulit 
+untuk meramalkan bagaimana jadinya dengan cederamu..."
 
-**Page 30 in PDF**
+"Apanya yang sulit?" potong Huang Rong. "Katakan saja terus terang, nyawaku tidak akan bisa diselamatkan. Kau ini seorang 
+pria sejati yang ucapannya seperti gunung, tak tergoyahkan. Kau pastilah ingin supaya aku juga menepati janjiku." Ia berpikir
+betapa Guo Jing juga tidak bersedia membatalkan pertunangannya dengan Huazheng. Mau tidak mau ia menundukkan kepalanya dengan 
+kecewa.
 
-“What would be difficult to say?” Huang Rong cut him off, “Just say it plainly that my
-little life could not be preserved. You are a gentleman whose words are as a mountain;
-you certainly want me to abide by mine.” She was thinking about how Guo Jing was not
-willing to cancel his engagement with Huazheng; she could not help dejectedly hang
-down her head.
+Guo Jing sama sekali tidak punya pikiran bahwa kekasihnya sedang mencurahkan isi hatinya. Huang Rong sebetulnya sedang menahan
+air matanya, tapi ia sama sekali tidak sadar. Ia berkata, "Ying Gu bilang ayahmu punya kemampuan berhitung tingkat dewa, dan 
+akhirnya akan tetap sulit bagi dia untuk menyentuh kulit ayahmu, lalu kenapa dia masih juga ingin supaya kau menemaninya selama 
+setahun?"
 
-Guo Jing did not have the slightest idea his girl was pouring out her heart’s contents;
-Huang Rong was on the verge of tears, but he was oblivious. He said, “Ying Gu said
-your father possesses divine mathematical skill and he is a hundred times superior to
-her. Let’s just say you are willing to teach her some mathematical skill, in the end it will
-still be difficult to her to even scratch your father’s skin; then why would she still want
-you to accompany her for a year?”
+Huang Rong menutupi mukanya tanpa menjawab. Guo Jing tetap tidak mengerti dan mengulangi pertanyaannya. Huang Rong jadi marah.
+"Kau sungguh bodoh, sampai tidak tahu apa-apa!" omelnya.
 
-Huang Rong covered her face and did not answer. Guo Jing was indifferent, he re-
-peated his question. Huang Rong was angry, “You are so dumb that you don’t know
-anything!” she scolded him.
+Guo Jing sama sekali tidak mengerti kenapa ia tiba-tiba kehilangan kesabaran dan mengomelinya. Ia hanya bisa menggaruk kepala 
+dan berkata, "Rong'er! Aku memang bodoh, justru karena itulah aku ingin supaya kau menjelaskan."
 
-Guo Jing did not understand why she suddenly lost her patience and scolded him; he
-could only scratch his head and said, “Rong’er! I am dumb, that’s why I am asking you
-to explain it to me.”
+Huang Rong sudah menyesali ucapannya begitu meluncur dari mulutnya, sekarang mendengar Guo Jing dengan polos mengakui 
+kebodohannya ia tidak bisa menahan diri lagi. Ia melemparkan diri ke dadanya dan menangis. Guo Jing semakin bingung, ia hanya 
+bisa dengan lembut menepuk-nepuk punggungnya untuk menghibur. Huang Rong menarik jubah Guo Jing dan menggunakannya untuk 
+menghapus air mata. Ia tersenyum dan berkata, "Jing Gege, aku yang salah, lain kali aku pasti tidak akan mengomelimu lagi."
+
+"Aku bodoh, jadi apa salahnya kalau kau mengatakannya keras-keras?" kata Guo Jing.
+
+"Ah, kau orang baik, akulah yang jahat," kata Huang Rong. "Baiklah, sekarang kuberitahu. Si Ying Gu itu punya permusuhan 
+dengan ayahku. Dia ingin belajar berhitung supaya bisa pergi ke Pulau Bunga Persik untuk membalas dendam. Setelah itu dia 
+menemukan kenyataan bahwa dalam hal matematika dia kalah dari aku, jadi dia merasa tidak ada gunanya berusaha membalas dendam.
+Karena itulah dia mau menggunakan aku sebagai sandera dan bilang kepada ayahku supaya menyelamatkan aku. Dengan cara itu dari 
+tamu dia malah berubah menjadi tuan rumah, dan bisa membangun rencana baru untuk mencelakai ayahku."
+
+Tiba-tiba Guo Jig mengerti, ia menepuk lututnya sendiri keras-keras dan berkata, "Ah, itu yang benar! Kalau begitu kau tidak 
+usah menepati janjimu."
+
+"Apa maksudmu tidak menepati janji? Aku harus menepati janji," kata Huang Rong.
+
+"Hah?" sahut Guo Jing, heran.
+
+Huang Rong berkata, "Si Ying Gu itu sangat licik, lihat saja bagaimana dia berhasil mencampur sejenis racun ke butiran Pil 
+Embun Sembilan Bunga Giok untuk mencelakai Yideng Dashi. Dia bisa saja mengulangi perbuatannya. Kalau kita tidak menyingkirkan 
+dia, maka dia akan menjadi duri dalam daging bagi ayahku di masa depan. Dia ingin kutemani, maka aku harus menemaninya.
+Sekarang aku tahu, maka aku bisa mewaspadai kelicikannya. Tak peduli apapun rencana jahatnya, aku yakin aku akan bisa membacanya 
+satu persatu."
+
+"Ah! Tapi itu berarti kau seperti hidup bersama harimau," kata Guo Jing.
+
+Huang Rong baru saja hendak menjawab ketika mereka tiba-tiba mendengar suara berisik dari arah rumah di mana Yideng tinggal.
+Guo Jing dan Huang Rong berpandangan. Mereka memasang telinga baik-baik untuk mendengarkan, tapi sepertinya suara berisik 
+itu berhenti.
+
+"Aku ingin tahu bagaimana keadaan Dashi sekarang," kata Guo Jing. Huang Rong menggelengkan kepalanya. Guo Jing melanjutkan,
+"Makan sesuatu, lalu kau harus beristirahat." Huang Rong menggelengkan kepalanya lagi. Tiba-tiba ia berseru, "Ada orang datang!"
+Dan memang benar, mereka mendengar suara langkah kaki mendatangi tempat itu dari halaman depan.
+
+"Gadis kecil itu sangat licik, kita harus membunuhnya dulu," kata sebuah suara, sepertinya suara si petani.
+
+Guo Jing dan Huang Rong sangat terkejut. Mereka mendengar si penebang kayu berkata, "Jangan buru-buru, kita harus menanyai 
+mereka dulu supaya lebih jelas."
+
+"Apa lagi yang harus ditanyakan?" kata si petani. "Kedua bajingan cilik itu pasti dikirim oleh musuh Shifu. Kita bunuh satu
+dan biarkan yang lainnya hidup. Kalau harus bertanya, cukuplah kita tanyai bocah tolol itu." Sambil bicara si nelayan, penebang 
+kayu, petani dan sastrawan itu sudah tiba dan berhenti di depan pintu. Kelihatannya mereka tidak takut Guo Jing dan Huang Rong 
+mendengar pembicaraan mereka.
+
+Tanpa ragu-ragu Guo Jing meluncurkan Kang Long You Hui, telapak tangannya memukul tembok di belakang mereka. Dengan suara keras 
+sebuah lubang menganga di tebok batu itu. Ia membungkuk supaya Huang Rong bisa naik ke punggungnya dan dengan cepat melompat 
+keluar melalui lubang tembok. Sementara mereka masih di udara, si petani mengulurkan tangannya, secepat angin, berusaha untuk
+mencekal kaki Guo Jing.
+
+Tangan kiri Huang Rong menyapu ringan, mengebas titik akupuntur Yang Chi di bagian belakang telapak tangan si petani. Itu
+ilmu totokan Lan Hua Fu Xue Shou milik keluarganya. Meskipun ia lemah karena cedera tetapi pukulannya yang ringan dan cepat 
+melayang dengan anggun, menyerang titik akupuntur dengan cara yang aneh, sungguh tidak mudah dihindari.
+
+Si petani itu sama sekali tidak asing dengan teknik totokan, ia melihat jarinya meluncur secepat kilat, ia terkejut dan 
+buru-buru menarik tangannya untuk mengangkis. Titik akupunturnya selamat, tetapi serangan itu memperlambat cekalannya 
+sehingga Guo Jing berhasil melompat keluar tembok sambil menggendong Huang Rong di punggungnya.
+
+Guo Jing berjingkat ke depan beberapa langkah. Mendadak ia menjerit kaget, ternyata di belakang bangunan itu ada semak duri
+setinggi manusia, padat dan banyak, dipenuhi duri yang menutupi jalan sangat panjang, tak ada jalan bagi mereka untuk 
+melewati semak itu. Ia terpaksa berbalik dan melihat si nelayan, penebang kayu, petani dan sastrawan itu tiba, menghalangi 
+jalan mereka.
+
+Guo Jing berkata dengan lantang, "Dashi sudah mengijinkan kami turun gunung. Kalian sudah mendengarnya sendiri. Kenapa kalian 
+melanggar perintah dan menahan kami di sini?"
+
+Si nelayan menatap mereka dan dengan suara seperti halilintar berkata, "Guruku sudah menunjukkan belas kasihan yang begitu
+besar, sampai bersedia mengorbankan hidupnya untuk menolong kalian, tapi kalian..."
+
+Guo Jing dan Huang Rong terperanjat. "Apa maksudmu mengorbankan hidupnya untuk menolong kami?" tanya mereka, hampir serempak.
+
+"Buihh!" si nelayan itu meludah. Si sastrawan mendengus dan berkata, "Guru kami mengorbankan hidupnya untuk menyelamatkan
+nyawa nona ini, kalian betul-betul tidak tahu?"
+
+"Kami sungguh tidak tahu. Kami mohon penjelasan," sahut Guo Jing dan Huang Rong terkejut.
+
+Si sastrawan melihat ketulusan di wajah mereka, tampaknya mereka tidak berpura-pura. Ia memandang si penebang kayu, dan penebang 
+kayu itu mengangguk. Si sastrawan berkata, "Nona menderita luka dalam yang sangat serius. Shifu harus menggunakan Yi Yang Zhi[^yi-yang-zhi] dan 
+Xian Tian Gong[^xian-tian-gong] untuk membuka delapan jalan darah utama dan menyembuhkan luka itu. Setelah wafatnya pendiri 
+Quanzhen, Wang Zhenren, hanya Shifu yang menguasai kedua ilmu itu. Tapi dengan mengobati luka memakai cara ini tubuhnya sendiri 
+akan mengalami cedera yang sangat serius, dia akan kehilangan _semua_ kungfunya sampai lima tahun ke depan."
+
+"Ah!" seru Huang Rong, ia merasa sangat bersalah dan malu.
+
+Si sastrawan melanjutkan, "Sejak saat ini sampai lima tahun ke depan Shifu harus dengan sabar dan berat menghimpun kembali 
+tenaganya siang dan malam. Seandainya dia membuat sedikit saja kesalahan, bukan hanya tenaga dalamnya tidak akan pulih, bahkan 
+dia setidaknya akan lumpuh, dan yang terburuk adalah dia akan kehilangan nyawa. Guruku sudah begitu baik kepada kalian, kenapa 
+kalian sampai hati membalas kebaikan dengan kejahatan?"
+
+Huang Rong membungkuk dalam-dalam dan berlutut di tanah, menghadap ke arah rumah di mana Biksu Yideng tinggal. Ia _kowtow_ 
+empat kali dan terisak. "Paman dengan begitu tulusnya menyelamatkan nyawaku, aku bahkan tidak tahu pengorbananmu sampai 
+sedalam ini."
+
+Si nelayan, penebang kayu, petani dan sastrawan melihatnya membungkuk, muka mereka berubah agak lembut. Si nelayan bertanya,
+"Ayahmu menyuruhmu mencelakai Shifu, dan kau sungguh tidak tahu?"
+
+Huang Rong sangat gusar. "Bagaimana mungkin ayahku menyuruhku mencelakai Paman? Ayahku, pemilik Pulau Bunga Persik, adalah
+orang macam apa? Masa dia melakukan hal yang begitu tercela?"
+
+Si nelayan merangkapkan tangannya dan berkata, "Kalau nona bukan dikirim oleh ayahmu, maka kami mohon maaf atas ucapan
+yang terlalu lancang tadi."
+
+"Hmm," dengus Huang Rong. "Kalau ayahku mendengar ucapanmu, meskipun kau adalah murid terbaik Yideng Dashi, dia tetap masih akan 
+membuatmu sedikit menderita."
+
+Si nelayan tersenyum dan berkata, "Dia dikenal sebagai Si Sesat Timur, tindakannya... tindakannya... hehehe... Kami pikir 
+apapun yang sanggup dilakukan Racun Barat, ayahmu juga pasti akan sanggup melakukannya. Sekarang kelihatannya pikiran 
+kami itu salah."
+
+Huang Rong berkata, "Bagaimana kalian bisa membandingkan ayahku dengan Racun Barat? Lagipula, apa sih yang sudah dilakukan 
+Si Keparat Tua Ouyang Feng itu?"
+
+Si sastrawan berkata, "Baiklah, sekarang setelah semuanya jelas, mari kita kembali ke rumah dan bicara lebih lanjut."
+
+Dengan segera keenam orang itu kembali ke ruang meditasi dan duduk. Si nelayan, penebang kayu, petani dan sastrawan duduk
+sedemikian rup sehingga mereka semua menghalangi jalan keluar dan jendela. Huang Rong tahu keempat orang itu sedang menjaga 
+kemungkinan bagi mereka berdua untuk melarikan diri, ia tersenyum sedikit tetapi tidak menunjukkan hal itu.
+
+"Kalian tahu sesuatu tentang Jiu Yin Zhen Jing?" tanya si sastrawan.
+
+"Kami tahu," jawab Huang Rong. "Tapi apa hubungannya Jiu Yin Zhen Jing dengan urusan ini? Aih, buku ini sungguh berbahaya."
+Ia mau tak mau jadi teringat betapa ibunya meninggal gara-gara kelelahan pada saat berusaha menulis ulang seluruh isi kitab 
+itu dari ingatannya.
+
+Si sastrawan berkata, "Pada saat pertemuan pertama di Hua Shan, pendiri Perguruan Quanzhen dinobatkan sebagai Pendekar 
+Nomor Satu Di Dunia[^nomor-satu], karenanya kitab itu jatuh ke tangannya. Tak perlu dikatakan lagi, keempat pendekar besar 
+lainnya merasa sangat kagum kepadanya. Dalam pertandingan di Hua Shan semua orang mendemonstrasikan kebolehan masing-masing,
+Chongyang Zhenren sangat terkesan melihat Totokan Satu Jari[^yi-yang-zhi] Shifu. Tahun berikutnya dia datang ke Dali ditemani 
+oleh adik seperguruannya untuk mengunjungi Shifu dan mendiskusikan ilmu silat."
+
+[^yi-yang-zhi]: Yi Yang Zhi atau dalam dialek Hokkian It Yang Chi adalah ilmu andalan keluarga Duan dari Tayli (Dali), yang diturunkan langsung dari orang tua ke anak atau keponakannya, atau generasi yang lebih muda.
+
+[^xian-tian-gong]: Xian Tian Gong adalah ilmu tenaga dalam beraliran Taoisme yang menjadi ciri khas dari Wang Chongyang. Ilmu tersebut tidak sempat diturunkan ke murid-muridnya, tetapi malah diajarkannya kepada Kaisar Duan Zhixing atau Biksu Yideng untuk mencegah kemungkinan Ouyang Feng merajalela dengan segala akal bulusnya setelah Wang Chongyang sendiri meninggal. Ia memandang Kaisar Duan Zhixing sebagai orang terkuat dari keempat pendekar besar lainnya, yang lebih bisa diandalkan untuk menguasai ilmu itu dengan baik.
+
+[^nomor-satu]: Wu Gong Tian Xia Di Yi (武功天下第一), secara literal istilah ini berarti 'Pendekar Berilmu Nomor Satu Di Bawah Langit'. Secara umum bisa kita terjemahkan sesuai konteks cerita silat menjadi 'Pendekar Nomor Satu Di Dunia'. Kutipan karakter bahasa mandarin saya ada kemungkinan salah, bisa jadi adalah (武公天下第一).
+
+"Adik seperguruannya?" sela Huang Rong. "Bukankah itu Si Bocah Tua Nakal — Zhou Botong?"
+
+"Betul," jawab si sastrawan. "Nona masih sangat muda, tapi sudah mengenal begitu banyak orang."
+
+"Tidak perlu memujiku," kata Huang Rong.
+
+Si sastrawan melanjutkan, "Zhou Shishu orang yang sangat lucu, tapi aku tidak tahu bahwa ia dijuluki Bocah Tua Nakal. Pada 
+saat itu guruku masih belum menjadi biksu."
+
+"Ah," seru Huang Rong. "Dia masih seorang kaisar."
+
+"Tepat sekali," kata si sastrawan. "Pendiri Perguruan Quanzhen dan adik seperguruannya tinggal di istana selama beberapa 
+puluh hari, kami berempat selalu berada di dekat mereka untuk menemani. Guru kami menerangkan tentang intisari ilmu 
+Totokan Satu Jari — Yi Yang Zhi — dan segala hal yang perlu diketahui kepada Chongyang Zhenren. Chongyang Zhenren sangat 
+senang, setelah itu ia balas mengajarkan ilmu Xian Tian Gong kepada Shifu. Kami ada ikut hadir pada saat itu, tetapi karena 
+keterbatasan pengalaman dan pengetahuan kami, maka kami hanya mendengar tanpa bisa memahami apapun."
+
+"Bagaimana dengan Lao Wan Tong?" tanya Huang Rong. "Kungfunya sama sekali tidak rendah."
+
+Si sastrawan menjawab, "Zhou Shishu suka berkeliling ke semua tempat dan tidak suka tinggal diam. Beberapa hari di Istana Dali 
+ia bertualang ke sana-sini, ia bermain-main ke semua tempat sesukanya, bahkan istana Ratu dan harem juga tidak luput dari 
+perhatiannya. Para kasim kekaisaran semuanya tahu bahwa ia adalah tamu kehormatan, jadi mereka tidak berani berbuat sesuatu 
+untuk mencegahnya." Huang Rong dan Guo Jing tersenyum.
+
+Si sastrawan melanjutkan, "Tepat sebelum Chongyang Zhenren meninggalkan istana, ia berkata kepada Shifu, 'Belakangan ini 
+penyakit lamaku kambuh, kurasa aku tidak akan hidup terlalu lama lagi. Untungnya aku menemukan pewaris Xian Tian Gong. Itu 
+akan memperkuat Totokan Satu Jari Kaisar. Akan ada orang di dunia ini yang mampu mengendalikan _dia_. Aku tidak takut lagi 
+dia akan mengacaukan semua orang dengan tingkah-lakunya yang tak terduga lagi.' Pada saat itulah Shifu tahu bahwa tujuan utama 
+Chongyang Zhenren menempuh perjalanan ribuan _li_ ke Dali adalah untuk mewariskan Xian Tian Gong kepada Shifu, supaya setelah 
+ia sendiri wafat akan ada orang yang sanggup mengendalikan Racun Barat Ouyang Feng. Tetapi karena pada masa ini Sesat Timur, 
+Racun Barat, Kaisar Selatan, Pengemis Utara dan Dewa Pusat punya kedudukan yang sama dalam dunia persilatan, kalau ia 
+mengatakan bahwa maksud kedatangannya adalah untuk mewariskan ilmunya, maka itu akan sangat tidak hormat kepada Shifu, maka 
+dari itu ia mula-mula minta supaya Shifu mengajarkan Yi Yang Zhi kepadanya, lalu sebagai balasannya ia sendiri mengajarkan 
+Xian Tian Gong. Ketika Shifu menyadari maksudnya, dia merasa sangat berterima kasih dan langsung dengan tekun melatih ilmu 
+itu. Chongyang Zhenren tidak hidup lama setelah mempelajari Yi Yang Zhi, ia tidak punya cukup waktu untuk belajar lebih dalam.
+Kudengar ia juga tidak mengajarkannya kepada para muridnya. Setelah itu terjadi sesuatu yang tidak menguntungkan bagi Kerajaan 
+Dali, guruku sungguh patah hati. Iamencukur rambutnya dan menjadi biksu."
+
+Huang Rong berpikir, "Kaisar Duan tidak ingin lagi menjadi kaisar, tapi menjadi biksu. Ini pasti akibat pukulan batin yang 
+sangat berat. Mereka semua tidak menceritakannya, dan kelihatannya sangat tidak pantas kalau kita bertanya." Melirik ke sisinya,
+ia melihat Guo Jing hendak membuka mulut untuk bertanya, buru-buru ia memberi isyarat dengan matanya. "Oh!" gumam Guo Jing,
+lalu menutup mulutnya.
+
+Muka si sastrawan berubah gelap, ia sedang mengenang peristiwa masa lalu itu. Setelah sesaat ia membuka mulut dan melanjutkan,
+"Dengan salah satu cara, berita tentang Shifu sedang melatih ilmu Xian Tian Gong bocor. Suatu hari saudara seperguruanku," ia 
+menunjuk ke arah si petani, "menerima perintah untuk mengumpulkan obat-obatan herbal. Dia pergi ke Da Xue Shan[^da-xue-shan] 
+di wilayah barat perbatasan Yunnan, di mana seseorang mencederainya menggunakan Jurus Kodok."
+
+[^da-xue-shan]: Da Xue Shan () = Gunung Salju Besar.
+
+"Itu pasti Si Racun Tua," kata Huang Rong.
+
+"Siapa lagi kalau bukan dia," kata si petani dengan marah. "Mula-mula seorang anak muda secara tidak masuk akal mengajakku 
+berkelahi, dia bilang Da Xue Shan itu milik keluarganya. Dia tidak akan membiarkan siapa pun lewat dan mengumpulkan obat 
+tanpa ijin. Da Xue Shan seluas ribuan _li_, masa semuanya milik keluarganya? Tak ragu lagi orang itu pasti sengaja ingin 
+menantangku. Aku ingat ajaran Shifu untuk bersabar, maka aku berusaha mengalah berkali-kali. Tak kuduga anak muda ini diberi 
+hati malah minta jantung! Dia menyuruhku _kowtow_ tiga ratus kali di hadapannya sebelum mengijinkan aku naik gunung. Akhirnya 
+aku tidak bisa menahan diri lagi, dan kami berkelahi. Kungfu anak muda itu sungguh tidak buruk, kami bertarung lama tanpa 
+ada tanda-tanda siapa yang lebih unggul. Tak kuduga Si Racun Tua tiba-tiba muncul dari sebuah lembah dan tanpa mengatakan 
+apa-apa langsung menyerangku, melukai aku dengan parah. Anak muda itu kemudian menggendong aku di punggungnya dan membawaku 
+ke Tian Long Si — tempat Shifu tinggal."
+
+"Seseorang sudah membalaskan dendammu," kata Huang Rong. "Ouyang Shaoye itu sudah tewas sekarang."
+
+Si petani itu sangat marah. "Ah, jadi dia mati? Siapa yang membunuhnya?"
+
+"Hei, ada orang membalaskan dendammu, kenapa kau malah marah?" tanya Huang Rong.
+
+"Aku ingin membalas dendam sendiri, aku mau membunuhnya dengan tanganku sendiri," jawab di petani.
+
+Huang Rong mendesah. "Sayangnya sekarang kau sudah tidak bisa melakukannya lagi."
+
+"Siapa yang membunuhnya?" tanya si petani.
+
+"Orang jahat yang lain lagi," jawab Huang Rong. "Kungfunya masih di bawah tingkat Ouyang Shaoye itu, tapi dia memakai 
+cara licik untuk membunuhnya."
+
+"Bagus sekali," kata si sastrawan. "Nona, kau tahu _mengapa_ Ouyang Feng melukai saudara seperguruanku?"
+
+"Masa hal itu sulit ditebak?" kata Huang Rong. "Berdasarkan kungfu Ouyang Feng, dia bisa saja membunuh saudara 
+seperguruanmu dengan sekali pukul, tapi dia justru _hanya_ melukainya dengan berat, lalu mengirimnya kepada gurumu.
+Tak diragukan lagi, dia ingin supaya Dashi menguras tenaga untuk menyembuhkan luka muridnya. Kau bilang kepadaku bahwa 
+pengobatan semacam ini menguras banyak tenaga dalam, maka Dashi akan membutuhkan lima tahun untuk memulihkan tenaganya.
+Dengan demikian pada saat pertemuan Hua Shan yang kedua Dashi pasti tidak bisa hadir untuk ikut bertanding."
+
+"Nona sungguh cerdas," desah si sastrawan. "Tapi tebakanmu hanya setengahnya benar. Niat jahat Ouyang Feng ini sungguh
+sulit dicari tandingannya. Setelah Shifu mengobati luka saudara seperguruanku, sebelum Shifu pulih, dia melancarkan 
+serangan maut secara diam-diam dengan niat membunuh Shifu..."
+
+Guo Jing menyela, "Yideng Dashi penuh kasih dan baik hati, mengapa dia bisa bermusuhan dengan Ouyang Feng?"
+
+"Xiao Ge," jawab si sastrawan. "Kata-katamu itu tidak benar. Pertama, orang baik yang berbelas kasihan dan pengampunan 
+tidak hidup bersama dengan penjahat kejam yang licik. Kedua, setiap kali Ouyang Feng ingin mencelakai orang, tidak jadi 
+soal apakah orang itu punya permusuhan dengan dia atau tidak. Hanya karena dia tahu bahwa Xian Tian Gong adalah 
+_kartu mati_ bagi Jurus Kodoknya, maka dia merasa harus membunuh Shifu dengan segala cara yang mungkin."
+
+Guo Jing menganggukkan kepalanya berkali-kali. "Apakah Dashi berhasil dilukainya?" tanyanya lagi.
+
+The scholar replied, “Shifu saw through Ouyang Feng’s evil scheme as soon as he saw
+my martial brother’s injury; that very night we moved away and the Western Poison
+lost our track. We know he has failed once, he would not give up that easily. He has
+looked for us everywhere until finally he found this secret place of ours. After Shifu re-
+covered his strength we martial brothers proposed to go to the White Camel Mountain
+and settled this account with the Western Poison, but Shifu prohibits us to take any re-
+venge; we must not allow ourselves to create any trouble. With great difficulty we man-
+aged to live peacefully all these years, who would have thought that with your crafti-
+ness you managed to go up the mountain. We only know you are the Nine-fingered
+Divine Beggar’s disciples; we did not know you meant to do our Shifu harm, hence we
+did not stop you with all of our strengths. Otherwise we would put our four lives at
+stake and in no way would allow you to enter the temple. Who would have thought that
+the man did not have any intention to harm the tiger, but the tiger is harming the man.
+Ay! In the end my Shifu still fall under your evil hands.” Speaking thus his face turned
+fierce, with a tiger like power he slowly stood up. With a ‘shua’ sound the sword on his
+waist went out its sheath, glimmering cold, dazzling the eye.
+
+**Page 38 in PDF**
 

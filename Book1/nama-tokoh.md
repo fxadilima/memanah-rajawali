@@ -126,3 +126,21 @@ atau layak diagungkan, biasanya adalah sosok tokoh kuno yang menjadi model bagi 
 Huang Rong mengutip ucapan Konfusius tersebut pada baris kedua, yaitu yang bicara tentang 'kunjungan kawan-kawan dari jauh',
 meskipun pemahamannya sendiri tidak mendalam.
 
+## Sekilas Tentang Dali
+
+Kaisar Selatan, Duan Zhixing baik dalam cerita ini maupun dalam sejarah nyata adalah cucu dari Duan Yu, atau Duan Heyu, yang
+adalah salah satu karakter utama dalam cerita **Demi Gods and Semi Devils**. Tak ada keterangan lengkap mengenai struktur
+keluarga Duan Yu sampai ke Duan Zhixing, yang bisa dipakai untuk menerangkan sebetulnya ia berasal dari selir Duan Yu yang 
+mana. 
+
+Dalam sejarah _real_, ayah Duan Yu adalah Duan Zhengchun, yang dalam novel Jin Yong diceritakan sebagai ayah kandung dari
+semua adik perempuannya, meskipun awalnya tampil sebagai ayah kandungnya. Konflik internal Negeri Tayli dalam hal ini 
+memang sungguh ada, tetapi dengan kalangan keluarga Gao yang memang berambisi untuk berkuasa, dan bukan dengan sesama Duan.
+
+Secara tradisional para Raja Negeri Tayli memang punya kebiasaan untuk mengundurkan diri menjadi biksu.
+
+Duan Yu sendiri bertahta selama 49 tahun sebelum mengundurkan diri menjadi biksu. Ia meninggal di usia 92-93 tahun.
+
+Duan Zhixing bertahta selama 28 tahun, sampai ia meninggal pada tahun 1200. Tak ada catatan bahwa ia menjadi biksu mengikuti
+jejak leluhurnya.
+
