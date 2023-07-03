@@ -1129,7 +1129,7 @@ Muka si sastrawan berubah gelap, ia sedang mengenang peristiwa masa lalu itu. Se
 menunjuk ke arah si petani, "menerima perintah untuk mengumpulkan obat-obatan herbal. Dia pergi ke Da Xue Shan[^da-xue-shan] 
 di wilayah barat perbatasan Yunnan, di mana seseorang mencederainya menggunakan Jurus Kodok."
 
-[^da-xue-shan]: Da Xue Shan () = Gunung Salju Besar.
+[^da-xue-shan]: Da Xue Shan (大雪山) = Gunung Salju Besar.
 
 "Itu pasti Si Racun Tua," kata Huang Rong.
 
@@ -1179,22 +1179,217 @@ _kartu mati_ bagi Jurus Kodoknya, maka dia merasa harus membunuh Shifu dengan se
 
 Guo Jing menganggukkan kepalanya berkali-kali. "Apakah Dashi berhasil dilukainya?" tanyanya lagi.
 
-The scholar replied, “Shifu saw through Ouyang Feng’s evil scheme as soon as he saw
-my martial brother’s injury; that very night we moved away and the Western Poison
-lost our track. We know he has failed once, he would not give up that easily. He has
-looked for us everywhere until finally he found this secret place of ours. After Shifu re-
-covered his strength we martial brothers proposed to go to the White Camel Mountain
-and settled this account with the Western Poison, but Shifu prohibits us to take any re-
-venge; we must not allow ourselves to create any trouble. With great difficulty we man-
-aged to live peacefully all these years, who would have thought that with your crafti-
-ness you managed to go up the mountain. We only know you are the Nine-fingered
-Divine Beggar’s disciples; we did not know you meant to do our Shifu harm, hence we
-did not stop you with all of our strengths. Otherwise we would put our four lives at
-stake and in no way would allow you to enter the temple. Who would have thought that
-the man did not have any intention to harm the tiger, but the tiger is harming the man.
-Ay! In the end my Shifu still fall under your evil hands.” Speaking thus his face turned
-fierce, with a tiger like power he slowly stood up. With a ‘shua’ sound the sword on his
-waist went out its sheath, glimmering cold, dazzling the eye.
+Si sastrawan menjawab, "Shifu melihat rencana jahat Ouyang Feng segera setelah ia melihat luka saudara seperguruanku, malam itu 
+juga kami pindah tempat dan Racun Barat kehilangan jejak. Kami tahu dia sudah gagal, tapi juga tidak bakalan menyerah semudah,
+itu. Setelah tenaga Shifu pulih, kami empat bersaudara mengusulkan untuk pergi ke Bai Tuo Shan dan membuat perhitungan dengan 
+Ouyang Feng, tapi Shifu melarang kami untuk membalas dendam dengan cara apapun, kami tidak boleh membuat masalah. Dengan susah 
+payah kami bisa bertahan hidup dalam damai selama ini, tak disangka dengan kelicikanmu kau bisa naik gunung. Kami hanya tahu
+kalian berdua murid dari Dewa Pengemis Sembilan Jari, kami tidak tahu kalian bermaksud mencelakai Shifu, karena itu kami tidak 
+mencegah kalian dengan sekuat tenaga. Kalau tidak begitu kami patsi akan bertaruh nyawa dan tidak mungkin kalian akan kami
+ijinkan memasuki kuil. Tak disangka 'Manusia tidak bermaksud mencelakai harimau, tapi si harimau ternyata mencelakai manusia'. 
+Aih! Akhirnya Shifu tetap saja jatuh ke tangan kalian." Sambil bicara air mukanya berubah menjadi beringas, dengan kekuatan
+seekor harimau ia pelan-pelan bangkit berdiri. Pedang yang tergantung di pinggangnya terhunus, berkilau dingin, menyilaukan mata.
 
-**Page 38 in PDF**
+Si nelayan, penebang kayu dan petani juga berdiri sambil menghunus senjata mereka, mengepung kedua anak muda itu dari empat 
+arah. Huang Rong berkata, "Aku datang untuk memohon supaya Dashi mengobati lukaku, tanpa tahu bahwa hal itu perlu menghabiskan 
+seluruh tenaga dalam Dashi sampai dia harus menderita selama lima tahun. Ada racun di dalam pil itu, aku dijebak oleh orang 
+lain. Dashi sudah menunjukkan kasih sayang sedalam ini kepadaku, kalaupun aku ii tidak punya hati, aku tetap tidak bakalan 
+membalas kebaikan dengan kejahatan."
+
+Dengan suara tegas si nelayan berkata, "Lalu kenapa kalian mengambil kesempatan pada saat tenaga dalam Shifu lenyap, dan 
+Shifu keracunan, kalian malah memimpin musuh naik gunung?"
+
+Guo Jing dan Huang Rong terkesiap. "Kami tidak berbuat begitu!" kata mereka dengan wajah bingung.
+
+"Kalian masih membantah?" kata si nelayan. "Segera setelah Shifu keracunan, musuh mengirimkan gelang giok di kaki gunung.
+Kalau kalian tidak ikut merencanakannya, mana ada kebetulan seperti itu?"
+
+"Gelang giok apa?" tanya Huang Rong.
+
+Si nelayan marah. "Kau masih juga pura-pura bodoh!" Dayung besi di tangannya bergerak, dayung kiri menyapu secara horizontal,
+sementara yang kanan menghujam ke bawah secara vertikal, menyerang Guo Jing dan Huang Rong secara serempak.
+
+Guo Jing sedang duduk bersebelahan dengan Huang Rong di atas tikar meditasi di lantai. Ketika ia melihat dayung datang, ia
+lemompat ke atas dengan tangan kanannya membentuk kait menyapu dayung itu secara horizontal, sementara tangan kirinya  menangkap 
+bagian datar dayung itu dan menyentaknya dengan keras. Sentakan itu penuh tenaga, si nelayan merasakan nyeri dan kesemutan 
+yang memaksanya melepaskan dayung. Guo Jing mendorong dayung itu ke depan. "Trangg!" dayung itu menghantam penggaruk besi si 
+petani, bunga api beterbangan kemana-mana. Dengan segera Guo Jing menyodorkan dayung besi itu kembali kepada si nelayan. Si 
+nelayan mengambilnya. Mengerahkan tenaga ke tangan kanannya ia menghantam keras serempak dengan kapak di penebang kayu.
+
+Telapak tangan Guo Jing datang silih berganti dibarengi terjangan angin tajam, mengincar dada kedua orang itu dengan cepat. 
+Si sastrawan tahu kedahsyatan Delapan Belas Jurus Penakluk Naga, "Cepat mundur!" serunya cemas.
+
+Si nelayan dan penebang kayu itu murid-murid dari seorang ahli silat terkenal, kungfu mereka sama sekali tidak bisa dianggap 
+remeh. Sebelum serangan Guo Jing tiba mereka buru-buru menarik senjata masing-masing dan melompat mundur. Mendadak mereka 
+merasakan sentakan keras membarengi langkah mundur mereka, ternyata senjata mereka tertarik ke depan oleh tenaga telapak 
+tangan Guo Jing. Mereka tak punya pilihan selain melepaskan senjata, menyelamatkan nyawa adalah lebih penting.
+
+Guo Jing menangkap dayung besi dan kapak baja itu, ia dengan ringan mendorong keduanya kembali dan berseru, "Tangkap!"
+
+"Kungfu bagus!" puji si sastrawan. Pedang panjangnya mengancam sisi kanan Guo Jing.
+
+Melihat serangan ini Guo Jing terkejut, di antara keempat murid itu si sastrawan tampaknya yang paling halus, tetapi
+sebenarnya kungfunya melampaui semua saudara seperguruannya, karena itu Guo Jing tidak berani meremehkannya. Telapak tangannya 
+melayang di udara membungkus Huang Rong dan tubuhnya sendiri dengan tenaga yang luar biasa. Pertahanan ini sungguh stabil, 
+seperti tebing yang menghalangi puncak gunung, tak terlihat satu lubang pun di situ. Telapak tangannya seperti pelangi,
+bergerak melingkar secara terus-menerus dengan lingkaran yang makin lama makin besar sehingga si nelayan, petani, penebang 
+kayu dan sastrawan itu secara berangsur-angsur terdorong mundur sampai punggung mereka menempel di dinding. Jangankan 
+membalas, sekedar untuk bertahan pun tidak mudah bagi mereka.
+
+Pada saat itu jika Guo Jing menambah tenaga di telapak tangannya maka keempat orang itu pasti akan mengalami cedera serius. 
+Setelah bertarung beberapa saat lagi akhirnya Guo Jing menahan tenaganya, ia menyerang dengan keras lalu mundur dengan keras 
+juga, memukul ringan dan menarik juga dengan ringan, tampaknya seolah-olah tenaganya terkadang ada dan terkadang menghilang,
+di sepanjang pertarungan ia secara konsisten mempertahankan keseimbangan tenaga sedemikian rupa sehingga mereka tetap dalam 
+posisi seimbang, tak ada yang menang atau kalah.
+
+Teknik pedang si sastrawan mendadak berubah, pedang panjangnya bergetar, menciptakan suara desingan yang berkesinambungan. 
+Pedangnya berubah menjadi enam pedang di atas dan enam pedang di bawah, enam di belakang, enam di kiri dan enam di kanan,
+secara berurutan menikam seolah-olah tiga puluh enam pedang menyerang bersamaan. Ini adalah teknik tiga puluh enam pedang 
+Gunung Ai Lao dari Yunnan, yang diakui sebagai salah satu teknik serangan pedang terbaik di dunia.
+
+Telapak tangan kiri Guo Jing menyambut senjata si nelayan, penebang kayu dan petani sekaligus, telapak tangan kanannya 
+mengikuti gerakan pedang si sastrawan, naik turun. Meskipun pedang itu terus-menerus berubah gaya, Guo Jing selalu berhasil 
+mengalihkan tikaman pedang dengan tenaga telapak tangannya. Setiap tikaman pedang lewat sangat dekat dengan bajunya, tetapi 
+tidak pernah sekali pun berhasil melukai kulit Guo Jing.
+
+Menahan tiga puluh enam tikaman, Guo Jing menekuk jari tengah kanannya di bawah ibu jarinya, ia menunggu sampai tikaman pedang
+itu kehilangan momentum sebelum tiba-tiba menyentil badan pedang. Itu ilmu Jentikan Jari Dewa[^tan-zhi-shen-tong] yang menjadi 
+ciri khas Huang Yaoshi, yang tidak ada tandingannya di masa itu. Huang Yaoshi menggunakan ilmu ini ketika berlomba main 
+kelereng dengan Zhou Botong, dan kemudian di Rumah Awan ketika ia memberi arahan kepada Mei Chaofeng. Guo Jing melihatnya 
+bertarung melawan Tujuh Pendekar Quanzhen di Desa Niu dekat Lin'an menggunakan teknik ini. Setelah mempelajari sejumlah 
+ilmu silat dari Jiu Yin Zhen Jing ia berhasil meniru teknik sentilan yang unik ini. Meskipun kalah jika dibandingkan dengan
+sentilan Huang Yaoshi yang halus dan elegan, namun sentilannya masih mengandung tenaga yang dahsyat.
+
+Diiringi bunyi benturan logam pedang panjang itu tergetar hebat, lengan si sastrawan mati rasa, pedang itu nyaris jatuh dari
+tangannya. Si sastrawan terkesiap, ia melompat mundur dan berseru, "Tahan!"
+
+Si nelayan, penebang kayu dan petani serempak melompat mundur. Hanya saja punggung mereka sangat dekat dengan dinding, karenanya 
+tidak ada ruang bagi mereka untuk mundur. Si nelayan melompat keluar dari pintu, si petani melompat melalui lubang yang dibuat 
+Guo Jing sebelumnya. Si penebang kayu menyelipkan kapaknya kembali ke pinggang. Ia tersenyum dan berkata, "Sudah kubilang mereka 
+berdua tidak punya niat jahat, tapi kalian tidak percaya."
+
+Si sastrawan menyarungkan pedangnya kembali, ia merangkapkan kedua tangannya ke arah Guo Jing dan berkata, "Xiao Ge menahan 
+telapak tangan, kami sangat berterima kasih."
+
+Guo Jing sibuk membungkuk untuk membalas sikap itu, tetapi hatinya dipenuhi pertanyaan, "Sejak semula kami memang tidak punya 
+niat buruk, mengapa mereka tidak juga percaya. Kenapa setelah berkelahi mereka berubah pikiran dan malah jadi percaya?"
+
+Huang Rong melihat akspresi mukanya yang bingung, ia tahu apa yang sedang dipikirkannya. Ia berbisik di telinga Guo Jing,
+"Kalau kau berniat jahat, maka kau pasti akan melukai keempat orang ini. Bahkan Biksu Yideng juga bukan tandinganmu saat 
+ini." Guo Jing berpikir apa yang dikatakannya benar, ia manganggukkan kepala berkali-kali.
+
+Si petani dan nelayan kembali ke dalam ruangan. Huang Rong bertanya, "Siapa sih musuh Dashi ini? Dan apa juga gelang giok 
+yang katanya dikirim sebelum ini?"
+
+Si sastrawan menjawab, "Bukannya kami tidak mau memberitahu kalian, tapi terus terang saja kamu bahkan tidak tahu apa yang 
+sebenarnya ada di balik semua ini. Yang kuketahui hanyalah alasan Shifu menjadi biksu terkait erat dengan urusan ini."
+
+Huang Rong baru hendak bertanya lebih lanjut ketika si petani melompat dan berseru, "Waduh! Ini berbahaya!"
+
+"Apanya?" tanya si nelayan.
+
+Si menudingkan jarinya ke arah si sastrawan dan berkata, "Shifu kehilangan semua tenaga dalamnya, dan dia menceritakan
+semuanya, tidak ada yag disembunyikan lagi. Kalau kedua bocah ini berniat jahat sementara kita berempat tidak sanggup 
+menahan mereka, masa Shifu masih bisa hidup?"
+
+Si penebang kayu berkata, "Zhuangyuan Yang Mulia[^zhuang-yuan] bisa meramal dengan ketepatan tingkat dewa. Kalau dia tidak 
+bisa meramal hasil akhir urusan kecil ini masa dia bisa menjadi Perdana Menteri Dali? Dia sudah tahu sejak awal kedua bocah 
+ini adalah teman dan bukan musuh, tapi dia sengaja melanjutkan pertarungan melawan mereka. Pertama, untuk menguji kungfu 
+kedua sobat ini, dan kedua adalah untuk meyakinkan kalian berdua."
+
+Si sastrawan tersenyum tipis. Si petani dan nelayan saling berpandangan, mereka mengagumi si sastrawan, dan juga mengutuk 
+kesembronoan mereka sendiri.
+
+Saat itu mereka mendengar langkah kaki datang dari luar pintu. Seorang biksu muda masuk. Ia merangkapkan kedua tangannya 
+dan berkata, "Shifu memerintahkan keempat Shige untuk mengantarkan tamu keluar." Semua orang segera berdiri dengan serempak.
+
+Guo Jing berkata, "Dashi sedang menunggu musuh, masa kami pergi begitu saja? Dengan melupakan ketidakmampuan sendiri, Xiao Di
+ingin bekerja sama dengan keempat Shige untuk menghadapi pengunjung itu."
+
+Si nelayan, penebang kayu, petani dan sastrawan saling berpandangan dengan muka senang. "Kami tanyakan dulu kepada Shifu," kata 
+si sastrawan.
+
+Keempat orang itu masuk bersama-sama. Mereka cukup lama di dalam ruangan. Ketika mereka kembali, Guo Jing dan Huang Rong 
+melihat raut muka mereka lesu dan tahu bahwa Biksu Yideng tidak mengijinkan mereka membantu. Dan ternyata memang demikian,
+si sastrawan berkata, "Shifu sangat berterima kasih kepada kalian berdua, tapi dia bilang 'Orang memetik apa yang ditanamnya',
+orang lain seharusnya tidak ikut campur."
+
+"Jing Gege," kata Huang Rong. "Ayo kita bicara dengan Dashi." Mereka pergi ke bangunan di mana Yideng Dashi bermeditasi.
+Guo Jing megetuk pintu sampai lama tetapi tak seorang pun menjawab. Ia bisa saja mendobrak pintu, tetapi ia mana berani 
+bertingkah kasar?
+
+Si penebang kayu berkata dengan lesu, "Shifu tidak bisa menyambut kalian berdua. Gunung sangat tinggi dan sungai sangat panjang,
+kita akan ketemu lagi lain kali."
+
+Guo Jing merasa berterima kasih sebesar-besarnya kepada Yideng Dashi, dadanya dipenuhi kehangatan, ia tak dapat menahan diri 
+lagi, dengan lantang ia berkata, "Rong'er, Dashi mengijinkan atau tidak, ayo kita turun gunung. Kalau kita bertemu seseorang 
+yang mengacau, langsung kita pukuli saja dia, baru kemudian bicara."
+
+"Wah, itu bagus sekali," jawab Huang Rong. "Kalau musuh Dashi begitu hebatnya sampai kita harus mati di tangannya, anggap saja 
+kita sedang membayar hutang kepada Dashi."
+
+Guo Jing bicara menggunakan tenaganya, Huang Rong juga dengan sengaja menaikkan suaranya, tentu saja Biksu Yideng mendengar 
+ucapan mereka. Mereka baru hendak berpaling ketika pintu kayu tiba-tiba terbuka. Seorang biksu tua dengan suara melengking 
+berkata, "Dashi mengundang kalian berdua masuk."
+
+Guo Jing terkejut dan sekaligus gembira, mengikuti Huang Rong ia berjalan masuk ke ruangan. Yideng Dashi da biksu India sedang 
+duduk bersila di atas tikar meditasi seperti sebelumnya. Mereka berdua membungkuk hormat. Mereka mengangkat kepala dan melihat 
+wajah Yideng kuning dan seperti orang sakit, sangat berbeda dengan ketika pertama kalinya mereka bertemu. Hati mereka berdua 
+dipenuhi rasa terima kasih dan penyesalan, mereka tidak tahu apa yang harus dikatakan.
+
+Yideng berpaling kepada keempat muridnya di pintu. "Semuanya masuk, aku ingin bicara."
+
+Si nelayan, penebang kayu, petani dan sastrawan masuk ke ruang meditasi dan memberi hormat kepada guru dan paman guru mereka. 
+Biksu India itu menganggukkan kepalanya, lalu masuk ke ruang meditasinta sendiri, tidak mempedulikan siapa pun juga. Biksu 
+Yideng melirik ke arah asap dupa yang naik mengepul ke udara, ia tampak seperti sedang tenggelam dalam lamunan, tangannya 
+memainkan gelang giok berwarna putih seperti bulu domba.
+
+Huang rOng berpikir, "Itu jelas sekali gelang wanita. Entah apa maksud musuh Dashi mengirimnya ke sini?"
+
+Sesaat kemudian Yideng menghela nafas dan berpaling kepada Guo Jing dan Huang Rong. "Lao Na berterima kasih untuk perhatian 
+kalian. Urusan ini berkaitan dengan sebab-akibat yang sangat rumit, kalau aku tidak bicara, aku takut akan menimbulkan kerugian 
+bagi kedua belah pihak, dan itu sama sekali bukan maksud Lao Na. Kalian tahu dulunya aku orang semacam apa?"
+
+"Paman adalah Kaisar dari Negeri Dali di Yunnan," jawab Huang Rong. "Satu-satunya kaisar di kolong langit Selatan, dengan 
+prestasi dan kekuatan yang sangat mengagumkan. Siapa di dunia ini yang tidak pernah mendengar tentang Paman?"
+
+Yideng tersenyum samar. "Kaisar itu _dangkal_, Lao Na juga dangkal, prestasi dam kekuatan yang mengagumkan itu _palsu_. Dan 
+kau — Xiao Guniang — juga _palsu_."
+
+Huang Rong tidak memahami ucapannya yang penuh kiasan itu, ia menatap Yideng dengan mata indahnya yang cerdas, dan sejernih 
+kristal.
+
+Yideng perlahan-lahan melanjutkan, "Kerajaan Dali didirikan oleh Kaisar Shen Sheng Wen Wu Tai Zu pada tahun Ding You. Itu 
+dua puluh tiga tahun sebelum pendiri Dinasti Song, Zhao Kuangyin, Kaisar Zhou, memberontak dan merebut tahta untuk mendirikan 
+Dinasti Song. Tujuh generasi dari Kaisar Shen Sheng Wen Wu, tahta diwariskan kepada Kaisar Bing Yi. Dia menjadi kaisar 
+hanya untuk empat tahun, sebelum menjadi biksu, mewariskan tahta kepada keponakannya, Kaisar Sheng De. Setelah Kaisar Sheng De
+adalah Kaisar Xing Zong Xiao De — Kaisar Bao Ding, Kaisar Xian Zong Xuan Ren, lalu ayahku, Kaisar Jing Zong Zheng Kang,
+semuanya menjadi biksu. Dari Tai Zu sampai kepadaku ada delapan belas kaisar, di antaranya ada tujuh orang meninggalkan rumah 
+dan menjadi biksu.
+
+Si nelayan, penebang kayu, petani dan sastrawan semuanya orang Dali, secara alamiah mereka tentu tahu tentang sejarah negara 
+mereka. Tetapi bagi Guo Jing dan Huang Rong hal itu terasa aneh, mereka berpikir, "Biksu Yideng tidak ingin menjadi kaisar 
+tetapi malah menjadi biksu sudah sangat mengejutkan, ternyata ada beberapa leluhurnya juga mengambil langkah yang sama. Apa 
+mungkin menjadi biksu itu lebih baik daripada menjadi kaisar?"
+
+Yideng Dashi melanjutkan, "AtasKehendak Ilahi keluarga Duan telah memerintah dengan kekuatan besar di wilayah kecil sejak saat 
+itu. Setiap generasi mewujudkan pandangan dan kemampuan mereka sendiri-sendiri. Dalam kenyataannya kami semua tidak cukup 
+mampu menanggung tanggung jawab yang begitu besar, karena itu sepanjang waktu kami semua melaksanakan tugas dengan takut dan 
+gentar, tidak berani melangkah lebih jauh dari batasan kami. Bukankah seorang kaisar makan tanpa membajak? Memakai pakaian 
+tanpa harus menenun? Keluar-masuk istana di dalam tandu? Apa itu semua bukan hasil dari _darah dan keringat_ rakyat? 
+Ketika seorang kaisar mencapai usia tua hati nurani mereka menuding atas segal pelanggaran dan hasil kerja yang mereka 
+laukan, selalu menikmati hasil usaha rakyat sementara hanya menyumbangkan sedikit usaha, bagaimana mereka melakukan pelanggaran 
+demi pelanggaran sewaktu melaksanakan tugas. Karena itulah, seringkali mereka memutuskan untuk mengundurkan diri dan menjadi 
+biksu."
+
+Bicara sampai di sini ia mengangkat kepalanya dan memandang ke luar, senyuman tersungging di sudut bibirnya, tak seorang pun 
+berani bersuara. Biksu Yideng mengangkat jari telunjuk kirinya berikut gelang yang meligkar di situ. Ia memutar-mutarnya 
+beberapa kali sambil berkata, "Untuk aku, aku bukan menjadi biksu dengan alasan yang sama. Sebenarnya, ini ada kaitannya 
+dengan pertandingan di Hua Shan, di mana kita saling bersaing memperebutkan sebuah kitab. Tahun itu pendiri Perguruan 
+Quanzhen — Chongyang Zhenren — memenangkan kitab itu. Tahun berikutnya ia berkunjung ke Dali, mewariskan Xian Tian Gong 
+kepadaku. Ia tinggal di istanaku selama setengah bulan. Kami dengan penuh sukacita menghabiskan waktu untuk mendiskusikan 
+ilmu silat. Tetapi adik seperguruannya Zhou Botong sangat bosan setelah sepuluh harian tidak melakukan apa-apa, dia bertualang 
+ke sana-sini di dalam istana, dan mengakibatkan sebuah insiden."
+
+Dalam hati Huang Rong berkata, "Sungguh sangat aneh kalau Bocah Tua Nakal Zhou Botong tidak membuat masalah."
 
