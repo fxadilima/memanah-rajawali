@@ -7,8 +7,6 @@
 
 ***
 
-**WARNING: Sebagian besar isi Bab ini masih dalam bentuk Draft**
-
 Kedua orang itu berjalan maju mengikuti jalan setapak pegunungan, dan tak lama kemudian jalur itu berakhir. Di depan ada jembatan 
 batu selebar satu kaki, bertengger di antara dua puncak gunung, tertutup awan yang ujung lainnya tidak terlihat. Jika jembatan 
 batu ini diletakkan di atas tanah, maka akan berfungsi seperti gang sempit, tidak ada yang perlu ditakuti, tetapi di bawah 
