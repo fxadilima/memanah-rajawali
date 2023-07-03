@@ -1372,7 +1372,7 @@ mereka. Tetapi bagi Guo Jing dan Huang Rong hal itu terasa aneh, mereka berpikir
 tetapi malah menjadi biksu sudah sangat mengejutkan, ternyata ada beberapa leluhurnya juga mengambil langkah yang sama. Apa 
 mungkin menjadi biksu itu lebih baik daripada menjadi kaisar?"
 
-Yideng Dashi melanjutkan, "AtasKehendak Ilahi keluarga Duan telah memerintah dengan kekuatan besar di wilayah kecil sejak saat 
+Yideng Dashi melanjutkan, "Atas Kehendak Ilahi keluarga Duan telah memerintah dengan kekuatan besar di wilayah kecil sejak saat 
 itu. Setiap generasi mewujudkan pandangan dan kemampuan mereka sendiri-sendiri. Dalam kenyataannya kami semua tidak cukup 
 mampu menanggung tanggung jawab yang begitu besar, karena itu sepanjang waktu kami semua melaksanakan tugas dengan takut dan 
 gentar, tidak berani melangkah lebih jauh dari batasan kami. Bukankah seorang kaisar makan tanpa membajak? Memakai pakaian 
