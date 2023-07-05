@@ -81,7 +81,7 @@ baru beranjak dewasa, daging dan kulit mereka bersentuhan setiap hari, tak lama 
 terciptalah masalah yang sangat sulit diperbaiki..."
 
 Huang Rong ingin bertanya, mulutnya sudah siap bergerak tetapi akhirnya ia membatalkannya. Ia mendengar Yideng melanjutkan,
-"Beberapa orang datang dan meapor kepadaku. Meskipun aku marah, aku menghargai nama besar Wang Zhenren, aku pura-pura 
+"Beberapa orang datang dan melapor kepadaku. Meskipun aku marah, aku menghargai nama besar Wang Zhenren, aku pura-pura 
 tidak tahu. Tak disangka ketika Wang Zhenren tahu, dia menginterogasi Zhou Shixiong dan dia tidak berusaha menutupi apa pun..."
 
 Huang Rong tak bisa menahan diri lagi, ia menyela, "Apa itu? Apa masalah yang sulit diperbaiki?"
