@@ -128,7 +128,7 @@ saputangan bersulam dari sakunya, memberikannya kepada Selir Liu dan berkata, 'I
 sedih, dia tidak menerima saputangan itu. Zhou Shixiong melepaskan saputangan itu sampai jatuh di dekat kakiku. Zhou Shixiong 
 tidak bilang apa-apa lagi, dia berpaling dan berlari keluar dari istana. Sudah lebih dari sepuluh tahun sekarang, dan aku masih 
 belum mendengar kabar apapun mengenai dia sejak saat itu. Wang Zhenren meminta maaf kepadaku berulang-ulang, lalu dia juga 
-pergi. Kedengar dia meninggal pada musim gugur itu. Wang Zhenren seorang pemberani dan heroik. Tak ada orang yang bisa 
+pergi. Kudengar dia meninggal pada musim gugur itu. Wang Zhenren seorang pemberani dan heroik. Tak ada orang yang bisa 
 dibandingkan dengan dia. Aih..."
 
 
