@@ -69,7 +69,7 @@ akupuntur di sekujur tubuh, bagaimana bisa mengajarkan ilmu ini?"
 "Tapi bukankah Paman juga menyentuh titik-titik akupuntur di tubuhku?" tanya Huang Rong.
 
 Si nelayan dan petani itu sangat kesal melihat Huang Rong terus bertanya dan mengalihkan perhatian dari cerita, mereka 
-menatapya dengan marah. Huang Rong balas menatap mereka dan berkata, "Kenapa? Aku tidak boleh bertanya ya?"
+menatapnya dengan marah. Huang Rong balas menatap mereka dan berkata, "Kenapa? Aku tidak boleh bertanya ya?"
 
 Yideng tersenyum. "Boleh, boleh," katanya. "Kau anak kecil, nyawamu dalam bahaya, tentu saja kita harus membuat 
 pengecualian."
