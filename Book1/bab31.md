@@ -131,6 +131,68 @@ belum mendengar kabar apapun mengenai dia sejak saat itu. Wang Zhenren meminta m
 pergi. Kudengar dia meninggal pada musim gugur itu. Wang Zhenren seorang pemberani dan heroik. Tak ada orang yang bisa 
 dibandingkan dengan dia. Aih..."
 
+“Wang Zhenren’s martial art skill might be higher than yours,” Huang Rong said, “But
+speaking of bravery and heroic spirit, I think he did not necessarily exceed Uncle. He
+had accepted seven disciples and they are all just average, there is nothing special
+about them. Anyway, what happened to the embroidered handkerchief?”
 
-**Page 4 in PDF**
+The four disciples were annoyed that Huang Rong cared so much about trivial things
+like handkerchief or clothes; but they heard their master said, “I saw Concubine Liu
+was staring blankly, like her soul had left her. I was very angry; I picked up the hand-
+kerchief only to see a couple of embroidered mandarin ducks playing on the water.
+(Sigh), it was Concubine Liu’s gift to her lover. I laughed coldly. I then saw next to the
+pair of mandarin ducks there was a line of poem ...”
+
+Huang Rong’s heart was stirred, she hastily asked, “Was it, ‘Four weaving machines, the
+weaving of mandarin ducks desiring to fly together right away’?”
+
+With a stern voice the farmer shouted, “Even we do not know it, how did you know?
+Always talk nonsense and disturb the story!” Who would have thought that Reverend
+Yideng sighed and said, “It was indeed that poem; you knew it?” At his words the four
+disciples looked at each other in astonishment.
+
+Guo Jing sprang up and called out, “I remember now! That day on the Peach Blossom
+Island Zhou Dage [Big Brother Zhou] was bitten by a venomous viper; he was delirious
+and he muttered this poem. It was, it was ... Four weaving machines, a pair on man-
+darin ducks, and some head turned white. Rong’er, how did it go? I can’t remember it
+anymore.”
+
+With a low voice Huang Rong recited, “Four weaving machines, the weaving of man-
+darin ducks desires to fly together right away. It’s a pity not yet old but the hair on the
+head has turned white. When the green spring grass ripples in the deepest of dawn’s
+cold; standing face to face taking a bath wearing red clothes.”
+
+“Exactly!” Guo Jing slapped his thigh, “Zhou Dage once advised me against good-looking
+women; he said he had seen one and as a result he offended a good friend and pro-
+voked his Shige [elder martial brother] to anger. He also said don’t ever let her touch
+your acupoints, otherwise you’ll be covered with germs. Rong’er, he even urged me not
+to be good to you.”
+
+“Pei!” Huang Rong angrily spat, “Old Urchin! Next time I see him I am going to twist his
+ears!” Suddenly she giggled and said, “That day in Lin’an prefecture I teased him that
+he wasn’t able to find a wife; the Old Urchin sulked for half a day. Turned out it was be-
+cause of this matter.”
+
+“When I heard Ying Gu recited this poem I thought I have heard it somewhere, but
+tried as I might, I could not remember where I heard it. Uh, Rong’er, how come Ying Gu
+also knew this poem?” Guo Jing said.
+
+Huang sighed, “Ay, it’s because Ying Gu is that Concubine Liu.”
+
+Among the four disciples, the scholar was the only one who had already guessed 50,
+60%; the other three were extremely astonished, they turned toward their master at
+once. Yideng spoke in a low voice, “Miss is really smart; truly worthy to be Yao Xiong’s
+[Brother Yao] daughter. Concubine Liu’s first name was ‘Ying’. That day I tossed the
+handkerchief to her, afterwards I no longer called for her. In my depression I neglected
+the affairs of the country; I trained martial art every day ...”
+
+Huang Rong interrupted him again, “Uncle, do you know that you loved her very much
+in your heart? If you did not, you would not be so unhappy.”
+
+The four disciples was shocked at her audacity, “Miss!” angrily they called out in one
+voice.
+
+“What?” Huang Rong said, “Did I say something wrong? Uncle, tell me, was I wrong?”
+
+**Page 8 in PDF**
 
