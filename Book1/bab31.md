@@ -115,7 +115,7 @@ Si petani tidak bisa menahan kesabarannya lebih lama lagi, ia berteriak, "Diam d
 Bagi si nelayan, penebang kayu, petani dan sastrawan itu, Yideng Dashi bukan hanya majikan mereka, tetapi juga guru. Mereka 
 sama sekali tidak pernah membantah, dan bahkan tidak pernah berpikir untuk itu, apalagi menolak kata-katanya. Mereka mengganggap 
 Yideng sebagai tolok ukur kebenaran, sekarang mendengar mulut Huang Rong yang tanpa batas mengatakan hal-hal semacam ini, mereka 
-sangat terkejut san sekaligus marah.
+sangat terkejut dan sekaligus marah.
 
 Yideng Dashi sendiri sebenarnya sama sekali tidak tampak keberatan, ia melanjutkan penuturannya, "Ketika Zhou Shixiong mendengar 
 omonganku, dia menggelengkan kepala. Aku jadi marah, aku bilang, 'Kau mencintainya, kenapa kau tidak menginginkannya? Kalau 
