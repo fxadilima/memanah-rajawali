@@ -390,7 +390,7 @@ mereka pucat pasi, seolah kehilangan semua tetes darah.
 Yideng Dashi tidak menyadari keadaan sekelilingnya, ia melanjutkan, "Aku begitu terkejut sampai menjerit dan mundur beberapa 
 langkah, hampir saja aku jatuh terjengkang. Hatiku kacau balau, aku tak tahu harus berbuat apa. Kulihat dia pelan-pelan berdiri 
 dan dengan suara rendah bicara, 'Akan ada suatu hari, aku akan menikam jantungmu dengan pisau ini.' Ia menunjuk gelang giok 
-di pergelangan tanagnnya dan berkata, 'Kau memberkan gelang ini pada saat aku pertama kalinya memasuki istana. Tunggu saja,
+di pergelangan tanagnnya dan berkata, 'Kau memberikan gelang ini pada saat aku pertama kalinya memasuki istana. Tunggu saja,
 pada hari aku mengembalikan gelang ini kepadamu, saat itu pisauku akan mengikutinya!'"
 
 Bicara sampai di sini, Yideng Dashi memutar gelang giok di tangannya sekali, ia tersenyum samar dan berkata, "Ini gelang yang 
