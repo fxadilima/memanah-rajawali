@@ -195,8 +195,8 @@ mereka sakit. Bukan hanya sangat parah, tetapi juga perlu waktu lama untuk sembu
 kungfunya yang tinggi angin dingin dan cuaca buruk sebenarnya tidak semudah itu membuatnya jatuh sakit, dan kalaupun 
 sakit, seharusnya tidak memerlukan waktu selama itu untuk pulih. Baru saat itu mereka tahu bahwa penyakit tersebut sebetulnya 
 lebih diakibatkan oleh semangat hidup yang patah dan bukan penyakit fisik biasa, dan bahwa majikan mereka tidak menggunakan 
-tenaga dalamnya untuk memerangi penyakit. Huang Rong bertanya lagi, "Selir Liu memberi Paman seorang bayi, mestinya itu  
-kabar baik, kan? Paman, kenapa Paman jadi tidak bahagia?"
+tenaga dalamnya untuk memerangi penyakit. Huang Rong bertanya lagi, "Selir Liu memberi Paman seorang bayi, mestinya itu kabar 
+baik, kan? Paman, kenapa Paman jadi tidak bahagia?"
 
 "Anak bodoh," kata Yideng. "Itu anak Zhou Shixiong."
 
