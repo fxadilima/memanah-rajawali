@@ -200,7 +200,7 @@ baik, kan? Paman, kenapa Paman jadi tidak bahagia?"
 
 "Anak bodoh," kata Yideng. "Itu anak Zhou Shixiong."
 
-"Tapi Zhou Botong han sudah lama pergi," kata Huang Rong lagi. "Apa mungkin dia diam-diam datang lagi mengunjingi Selir
+"Tapi Zhou Botong kan sudah lama pergi," kata Huang Rong lagi. "Apa mungkin dia diam-diam datang lagi mengunjungi Selir
 Liu?"
 
 "Tidak," jawab Yideng. "Apa kau tidak pernah dengar tentang 'kehamilan sepuluh bulan'?"
