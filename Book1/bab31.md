@@ -283,6 +283,223 @@ Yideng berkata, "Setelah itu aku juga mencurigai dia. Tapi Ouyang Feng adalah or
 setidaknya satu kepala lebih tinggi dari rata-rata penduduk lokal. Selir Liu bilang bahwa dibandingkan dengan rata-rata orang,
 si pembunuh itu boleh dibilang lebih pendek."
 
+"Itu aneh," kata Huang Rong.
 
-**Page 11 in PDF**
+"Pikiranku juga tepat seperti itu," kata Yideng. "Selir Liu memeluk anak itu sambil meratap. Luka anak itu tidak separah 
+Nona Huang, tapi dia masih sangat kecil, kekebalan tubuhnya masih belum terbentuk sempurna. Kalau aku mengobatinya, maka aku 
+harus menguras seluruh tenaga dalamku. Aku ragu-ragu sampai lama sekali. Aku melihat Selir Liu menangis putus asa, sungguh 
+patut dikasihani. Beberapa kali aku ingin membuka mulut untuk mengatakan bahwa aku akan mengobatinya, tapi setiap kali aku 
+tidak bisa melupakan pertandingan yang akan datang di Hua Shan, di mana aku akan bertanding melawan semua ahli silat untuk 
+memperebutkan Jiu Yin Zhen Jing. Aih! Wang Zhenren sudah mengatakan bahwa kitab itu adalah akar dari semua masalah di dunia 
+persilatan, mencelakai banyak orang dan mengungkapkan kebusukan di dalam hati semua manusia. Ia sungguh benar. Karena buku 
+itu aku kehilangan kasih kepada sesama manusia. Setelah ragu-ragu selama hampir dua jam akhirnya aku mulai bertekad untuk 
+mengobati luka anak itu. Aih, selama dua jam itu aku merasa diriku lebih rendah dari binatang. Yang paling parah adalah, 
+keputusanku untuk mengobati luka anak itu akhirnya bukan karena ingin melakukan perbuatan baik, tetapi karena aku sudah bosan 
+mendengar ratapan Selir Liu yang tanpa henti."
+
+"Paman," kata Huang Rong. "Aku tadi bilang kau sangat mencintainya, aku tidak salah."
+
+Yideng seolah tidak mendengar komentarnya, ia hanya melanjutkan penuturannya, "Ketika Selir Liu mendengar janjiku untuk 
+menolong, dia begitu bahagia sampai pingsan lagi. Aku mengurut titik akupunturnya untuk menyadarkan, lalu aku mulai membuka 
+pakaian bayi itu supaya aku bisa mengurut titik-titik akupuntur di tubuhnya menggunakan Xian Tian Gong. Tak kuduga, di bawah
+pakaian bayi itu masih ada sehelai du dou[^du-dou] menutupi dadanya. Aku terpaku melihatnya, tak bisa mengatakan sesuatu, karena 
+di atas _du dou_ itu ada sulaman sepasang bebek mandarin, dan di dekatnya ada sebaris sajak 'empat alat tenun'. Ternyata 
+_du dou_ ini adalah saputangan yang diberikan Selir Liu kepada Zhou Shixiong dua tahun sebelumnya. 
+
+Selir Liu melihat air mukaku dan dia tahu situasinya berubah menjadi buruk. Air mukanya berubah menjadi kelabu. Menggertakkan 
+giginya, ia menghunus sebuah belati dari pinggangnya dan mengarahkannya ke dadanya sendiri. 'Huang Shang,' katanya. 'Selirmu yang 
+hina ini tidak punya muka lagi untuk terus hidup di dunia ini. Aku hanya mohon belas kasihan Huang Shang yang tak terhingga, aku 
+bersedia menukar nyawaku sendiri dengan nyawa anak ini. Dalam kehidupan mendatang aku akan menjadi anjing atau kuda untuk 
+membalas kebaikan hati Huang Shang.' Sambil bicara begirtu dia menikam dadanya sendiri dengan belati itu dengan keras." Meskipun 
+semua orang tahu bahwa Selir Liu masih hidup, tapi mereka mau tak mau terkesiap ngeri.
+
+
+[^du-dou]: Du Dou (肚兜, 兜肚, atau 兜兜) adalah pakaian dalam Tiongkok kuno yang digunakan seperti rompi untuk menutup dada dan perut, melindungi bagian tersebut dari terpaan angin dingin. Pakaian ini selain dipakai umumnya oleh seorang wanita juga dipakai oleh bayi dan anak-anak.
+
+Saat menceritakan bagian ini, seolah-olah Yideng Dashi bukan sedang bercerita kepada orang-orang lain, tetapi seperti sedang 
+mengungkapkan apa yang ada di dalam lamunannya sendiri. "Aku segera menggunakan _qin na fa_ untuk menyingkirkan belati itu 
+jauh-jauh. Aku cepat, tapi belati itu sudah terlanjur menikam dadanya. Darah mengucur deras membasahi pakaiannya. Aku takut 
+dia akan mencoba bunuh diri lagi, jadi aku menotok titik akupuntur di kedua tangan dan kakinya. Aku mengobati luka di dadanya
+dan membiarkannya beristirahat di sebuah kursi. Dia tidak mengatakan apa-apa, tapi matanya menatapku penuh duka. Kami berdua 
+tidak saling bicara. Ruangan itu terasa sunyi, hanya suara nafas berat bayi itu yang terdengar.
+
+Sambil mendengarkan suara nafas bayi itu, banyak peristiwa masa lalu berbayang di benakku, bagaimana ia pertama masuk ke istana,
+bagaimana aku mangajarinya kungfu, seperti apa aku mencintainya. Dia selalu menghormati aku, takut kepadaku, dengan lembut selalu 
+menyiapkan semua kebutuhanku, tak pernah berani menolak perintahku, tapi ia juga tak pernah mencintaiku. Mula-mula aku tidak 
+menyadari perasaannya yang sejati, tetapi pada hari itu — ketika aku melihatnya menatap Zhou Shixiong — aku baru benar-benar 
+tahu. Pada saat seorang wanita sungguh-sungguh mencintai seorang pria, ia akan memandangnya seperti itu. Aku melihat bagaimana 
+pandangannya ketika Zhou Shixiong membuang saputangan itu, bagaimana tatapannya ketika Zhou Shixiong berpaling dan meninggalkan 
+istana. Peristiwa itu selalu menghantuiku selama bertahun-tahun, membuatku tak bisa tidur pulas dan semua makananku terasa seperti
+serbuk gergaji. Bahkan sampai hari ini aku masih bisa melihatnya dengan jelas di dalam pikiranku. Kali ini sekali lagi dia 
+patah hati, bukan gara-gara kekasihnya, tetapi karena anaknya, kepada siapa dia sungguh rela bertukar nyawa! Aku seorang 
+terhormat, dan aku merasa sangat hina. Aku — pimpinan tertinggi negeri ini! Dengan piikiran itu hatiku serasa dipenuhi amarah,
+aku mengangkat kakiku dan menghancurkan bangku gading di depanku. Dia mengangkat mukanya untuk menatapku dan terdiam. Aku 
+bilang, 'Kau... kepalamu kenapa?' Tampaknya dia tidak mendengar ucapanku, pandangannya terpaku kepada anaknya. Sebelumnya aku 
+tidak pernah sungguh memahami, bagaimana pandangan seseorang bisa mengandung cinta yang sebesar itu, kasih yang sebesar itu. 
+Pada saat itu dia sadar bahwa aku tidak akan menyelamatkan nyawa bayinya, jadi dia memandanginya terus selama anak itu masih 
+hidup. Aku mengambil cermin dan membawanya ke hadapannya. Aku bilang, 'Lihat rambutmu!' Dalam waktu sekejap kelihatannya 
+dia sudah jauh lebih tua. Dia baru delapan atau sembilan belas tahun, tapi karena ketakutan, kecemasan, penyesalan, 
+putus asa, duka, dan segala macam emosi yang dalam menyerang helaian rambut di pelipisnya sehingga semuanya menjadi putih!
+Dia kelihatannya tidak peduli dengan perubahan penampilannya. Dia menyalahkan cermin yang menghalangi pandangannya, membuatnya 
+terhalang untuk melihat anaknya. 'Cermin itu, singkirkan cermin itu!' katanya, terang-terangan. Ia lupa bahwa aku seorang 
+kaisar, majikannya. Aku merasa heran, kukira dia selalu menghargai penampilannya, kenapa sekarang dia jadi tidak peduli?
+Aku menyingkirkan cermin itu, hanya untuk menemukan bahwa pandangannya melekat kepada anak itu tanpa berkedip. Aku tak pernah 
+melihat tatapan seperti itu, penuh cinta dan harapan, harapan bahwa dengan salah satu cara anaknya akan hidup. Aku mengerti 
+bahwa kalau bisa, dia akan degan senang hati mengambil nyawanya sendiri dan menaruhnya di dalam tubuh anaknya untuk menggantikan 
+nyawanya yang secara berangsur-angsur akan lenyap."
+
+Mendengarkan semua itu Guo Jing dan Huang Rong saling berpandangan, keduanya sedang berpikir tentang hati mereka masing-masing,
+"Waktu aku sedang terluka parah dan hanya ada setitik kecil harapan untuk sembuh kau juga memandangku seperti itu." Melupakan 
+keadaan sekeliling mereka, keduanya saling menggenggam tangan pasangannya. Hati keduanya berdetak seirama, mereka merasakan 
+kehangatan menjalar ke sekujur tubuh mereka. Ketika sedang mendengarkan betapa orang lain berduka dalam malapetaka mereka 
+mau tak mau memikirkan betapa beruntungnya mereka, hanya karena kenyataan bahwa orang yang mereka cintai saat itu sedang 
+duduk tepat di sisi mereka, di tempat yang sama. Karena lukanya telah sembuh, ia tidak akan mati. Ya, dia tidak akan mati.
+Di dalam hati kedua muda-mudi ini pasangan mereka untuk selamanya tidak akan mati.
+
+Mereka mendengar Yideng Dashi melanjutkan, "Aku tidak bisa menahan diri lebih lama lagi, beberapa kali aku ingin mengambil 
+anak itu dan segera menyembuhkan lukanya, tapi aku terus memandang saputangan yang membungkus dada anak itu. Saputangan yang 
+bersulam sepasang angsa, leher mereka saling melekat. Sepasang angsa itu berkepala putih, sebagai simbol bahwa mereka akan 
+tumbuh sampai tua bersama. Tapi kenapa yang tertulis adalah, 'Sayang sekali belum tua tetapi rambut di kepala sudah memutih'?
+Ketika aku berpaling, yang kulihat adalah rambut di pelipisnya berubah menjadi putih, aku berkeringat dingin. Pada saat itu
+seketika hatiku mengeras, aku bilang, 'Baiklah, silakan tumbuh tua bersama-sama, tinggalkan saja aku sendirian di sini dalam
+kesepian sebagai kaisar! Ini anakmu dan kekasihmu, kenapa aku harus membuang tenagaku untuk menyembuhkannya!' Dia memandangku 
+terakhir kalinya. Pandangan itu penuh dengan kebencian dan tudingan. Setelah itu dia tak pernah memandangku lagi, tapi 
+pandangannya yang sekali itu tidak akan pernah bisa kulupakan sampai aku mati. Dia dengan dingin berkata, 'Biarkan aku pergi,
+aku ingin memeluk anakku!' Dia bicara dengan pebuh wibawa dan tekad bulat, seolah-olah dialah majikanku, aku sangat sulit 
+menolaknya. Karena itu aku pun membebaskan totokannya. Dia memeluk anak itu di dalam dekapannya. Anak itu sedang begitu 
+kesakitan sampai ingin menangis, tetapi tak ada suara yang terdengar keluar dari mulut kecilnya. Muka mungilnya berubah 
+menjadi ungu, dia memandang ibunya seolah sedang memohon supaya sang ibu membantunya. Aku begitu keras hati, aku bahkan 
+sama sekali tidak tersentuh oleh belas kasihan. Aku seolah melihat sehelai demi sehelai rambutnya berubah menjadi kelabu,
+dan dari kelabu menjadi putih. Aku tidak tahu apakah hal itu sungguh terjadi, ataukah hanya angan-anganku yang sedang 
+mempermainkan aku. Kudengar dia berkata, 'Nak, ibu tidak mampu menolongmu, tapi ibu juga tidak bisa membiarkanmu menderita.
+Nak, beristirahatlah dengan tenang. Tidurlah, anakku, tidurlah. Untuk selamanya jangan bangun lagi!' Kudengar dia menyanyikan 
+lagu nina bobok yang sangat lembut. Lagu itu terdengar sangat merdu. Seperti ini, 'Hmm, hmm...' Dengar!"
+
+Mreka mendengarnya mengatakan semua itu, tetapi sebenarnya mereka tidak mendengar sepotong lagu pun. Mereka saling berpandangan 
+dengan bingung.
+
+"Shifu," kata si sastrawan. "Shifu sudah terlalu lama bercerita, pasti sangat lelah. Cobalah beristirahat sebentar."
+
+Yideng Dashi seolah tidak mendengar, ia tetap bicara, "Di wajah anak itu sepertinya ada secercah kebahagiaan, tapi rasa sakit 
+membuat sekujur tubuhnya membengkak. Dengan suara lembut dia berkata, 'Anakku sayang, belahan hati dan jiwaku, tidurlah dengan 
+nyenyak, lalu kau tidak akan merasa sakit lagi, sedikitpun tidak!' Tiba-tiba — pisaunya menghujam tepat ke arah jantung anak itu."
+
+Huang Rong menjerit ngeri, ia menggenggam lengan Guo Jing erat-erat. Semua orang lainnya juga terkesiap, sampai-sampai wajah 
+mereka pucat pasi, seolah kehilangan semua tetes darah. 
+
+Yideng Dashi tidak menyadari keadaan sekelilingnya, ia melanjutkan, "Aku begitu terkejut sampai menjerit dan mundur beberapa 
+langkah, hampir saja aku jatuh terjengkang. Hatiku kacau balau, aku tak tahu harus berbuat apa. Kulihat dia pelan-pelan berdiri 
+dan dengan suara rendah bicara, 'Akan ada suatu hari, aku akan menikam jantungmu dengan pisau ini.' Ia menunjuk gelang giok 
+di pergelangan tanagnnya dan berkata, 'Kau memberkan gelang ini pada saat aku pertama kalinya memasuki istana. Tunggu saja,
+pada hari aku mengembalikan gelang ini kepadamu, saat itu pisauku akan mengikutinya!'"
+
+Bicara sampai di sini, Yideng Dashi memutar gelang giok di tangannya sekali, ia tersenyum samar dan berkata, "Ini gelang yang 
+dimaksud itu, aku sudah menunggu beberapa tahun untuk ini. Akhirnya saat itu pun tiba."
+
+"Paman," kata Huang Rong. "Dia yang membunuh anaknya sendiri, apa hubungannya dengan Paman? Paman kan tidak melukai anaknya.
+Lagipula, dia sudah berusaha membunuh Paman menggunakan racun, dendamnya dengan Paman sebetulnya sudah terbayar lunas. Aku 
+akan turun gunung untuk mengantarnya, aku tidak akan membiarkan dia mengacau di sini..."
+
+Kalimatnya belum selesai, ketika seorang biksu muda masuk dengan terburu-buru. "Shifu," katanya. "Ada orang mengantarkan
+ini di kaki gunung." Ia menyerahkan sebuah bungkusan kecil kepada gurunya dengan kedua tangan.
+
+Yideng mengambil bungkusan itu dan membukanya. Semua orang berseru serempak. Ternyata bungkusan itu berisi _du dou_ yang 
+terbuat dari saputangan bersulam. Kain sutranya tampak menguning karena usia, tetapi sulaman bebek mandarin itu masih 
+terang seperti baru. Ada lubang bekas pisau di antara kedua bebek mandarin itu, ujung lubang itu tampak menghitam oleh 
+bekas darah. Yideng menatap kosong ke arah _du dou_ itu, penuh duka. Setelah lama baru ia berkata, "Tenunan bebek mandarin 
+yang ingin terbang bersama dengan segera, hei, ingin terbang bersama, akhirnya itu semua hanya mimpi. Dia memeluk tubuh anaknya 
+yang tak bernyawa erat-erat, tertawa panjang, dan melompati ambang jendela, terbang keluar ruangan dan dalam sekejap mata 
+menghilang tanpa jejak. Aku tidak bisa berpikir, tidak bisa makan, dan sangat menderita selama tiga hari tiga malam. Akhirnya 
+aku sadar. Aku melimpahkan tahta kepada putra sulungku dan memutuskan untuk menapaki jalan menuju kehidupan kekal dan 
+menjadi biksu." Ia menunjuk keempat muridnya dan berkata, "Mereka mengikuti aku sejak lama dan tidak mau meninggalkanku.
+Kami bersama-sama keluar dari tembok kota Dali dan tinggal di Tian Long Si[^tian-long-si]. Tiga tahun pertama mereka bergiliran 
+membantu anakku menjalankan tugas negara. Belakangan setelah anakku mengerti urusan negara, kerajaan dalam keadaan damai
+dan tidak ada masalah serius. Jadi kami pergi ke Pegunungan Salju Besar untuk mengumpulkan obat-obatan. Di sana Ouyang Feng 
+melukai muridku dan kami pindah ke tempat ini. Sejak saat itu kami tidak pernah kembali ke Dali. Aku sangat keras hati sampai 
+tidak mau menyelamatkan nyawa anak itu. Sejak saat itu selama sepuluh tahunan, siang malam aku tak pernah merasakan kedamaian.
+Mereka tidak tahu kesengsaraan di dalam hatiku, jadi mereka selalu berusaha menghalangiku. Aih, meskipun aku sanggup 
+menyelamatkan ribuan manusia, atau bahkan puluhan ribu, anak itu masih tetap mati. Bagaimana lagi aku bisa membalas hutang 
+nyawanya selan dengan nyawaku? Setiap hari aku menunggu Ying Gu, menantikan saat di mana belatinya akan menikam jantungku. 
+Aku takut dia akan terlambat datang, aku ternyata sudah mati, maka akan sangat sulit untuk mengampuni dosaku. Bagusnya, dia 
+akhirnya datang. Kenapa dia harus mencampurkan racun ke dalam Pil Embun Sembilan Bunga Giok? Kalau aku tahu dia akan datang 
+segera setelah meracuni aku, aku tidak akan meghabiskan waktu berjam-jam ini untuk berusaha bertahan hidup, juga saudara 
+seperguruanku tidak perlu menghabiskan tenaga untuk memunahkan racun."
+
+Huang Rong dengan marah berkata, "Hati wanita ini sangat jahat! Dia sudah lama tahu tempat tinggal Paman, tapi dia tidak 
+yakin cukup kuat untuk menghadapi Paman, jadi dia menunggu kesempatan baik. Secara kebetulan dia ketemu aku, yang sedang 
+menderita akibat Telapak Besi, jadi dia mengarahkan aku untuk mencari pertolongan dari Paman. Dia ingin menerapkan dua cara 
+untuk mencapai satu tujuan, pertama dia ingin menguras tenaga Paman, lalu menggunakan kesempatan itu untuk meracuni Paman.
+Aku sangat bodoh tidak menyadari senjata maut perempuan jahat ini. Paman, bagaimana caranya gambar dar Ouyang Feng bisa ada 
+di tangannya? Apa hubungannya gambar itu dengan dia?"
+
+Yideng Dasi mengambil Kitab Suci Buddha dari sebuah meja di sebelahnya, ia membolak-balik beberapa halaman dan mulai
+membaca, "Cerita di gambar itu berasal dari sebuah kota kuno di India. Ketika itu ada seorang raja, namanya Shipi. 
+Dia adalah seorang pertapa yang baik, selalu mengikuti jalan menuju pencerahan. Suatu hari ada seekor elang sedang mengejar 
+burung merpati. Burung merpati itu terbang ke arahnya dan bersembunyi di bawah lengan Shipi, mencari perlindungan. Elang itu 
+enuntut supaya raja menyerahkan burung merpati itu kepadanya, raja berkata, 'Kalau raja menyelamatkan merpati, maka si elang 
+akan mati kelaparan.' Sang Raja menyadari bahwa dia menyelamatkan satu nyawa tanpa mencelakai yang lain. Karena itu ia kemudian 
+mengambil pisau dan menyayat dagingnya sendiri untuk memberi makan elang. Si Elang berkata, 'Kalau raja mengiris daging sendiri,
+maka itu harus sama beratnya dengan daging burung merpati." Shipi memerintahkan pengawalnya untuk mencari timbangan. Ia 
+meletakkan si merpati di satu sisi dan irisan dagingnya sendiri di sisi lain, tapi tak peduli seberapa banyak dia mengiris 
+dagingnya sendiri, ternyata sisi merpati tetap lebih berat. Sang Raja mengiris daging dadanya, punggungnya, tangannya, bagian 
+samping tubuhnya, tapi si merpati tetap lebih berat. Akhirnya dia meletakkan seluruh tubuhnya di atas timbangan. Dan dengan 
+segera bumi bergoncang, musik terdengar dari langit, para dewa menebarkan bunga dan aroma manis terciging sendiri,
+maka itu harus sama beratnya dengan daging burung merpati." Shipi memerintahkan pengawalnya untuk mencari timbangan. Ia 
+meletakkan si merpati di satu sisi dan irisan dagingnya sendiri di sisi lain, tapi tak peduli seberapa banyak dia mengiris 
+dagingnya sendiri, ternyata sisi merpati tetap lebih berat. Sang Raja mengiris daging dadanya, punggungnya, tangannya, bagian 
+samping tubuhnya, tapi si merpati tetap lebih berat. Akhirnya dia meletakkan seluruh tubuhnya di atas timbangan. Dan dengan 
+segera bumi bergoncang, musik terdengar dari langit, para dewa menebarkan bunga dan aroma manis tercium di seluruh bumi.
+Para Naga, malaikat dan semua penghuni surga mendesah, 'Shan Zai, Shan Zai[^shan-zai]! Belum pernah ada tindakan mulia seperti 
+ini sebelumnya.'" Itu hanya sebuah mitos, tetapi Yideng menuturkannya dengan penuh hikmat dan belas kasih, dan para pendengar 
+merasa hati mereka tergerak.
+
+[^shan-zai]: Shan Zai (善哉) adalah sebuah ungkapan dalam agama Buddha, yang berasal dari bahasa Sansekerta 'Sadhu', yang artinya kurang lebih seperti 'Amin' dalam agama Timur Tengah yang berdasarkan Abraham atau Nabi Ibrahim. Ini bisa saja kita terjemahkan menjadi 'Ya!' atau 'Bagus!', atau apapun yang melambangkan persetujuan atas satu tindakan atau kondisi dalam arti memuji dan menyetujuinya tanpa syarat.
+
+"Paman," kata Huang Rong. "Dia takut Paman mungkin tidak mau mengobati lukaku, maka dia menggunakan gambar ini untuk mengusik 
+hati Paman."
+
+Yideng tersenyum dan berkata, "Kelihatannya seperti itu. Waktu meninggalkan Dali, hati Ying Gu dipenuhi keinginan membalas 
+dendam, jadi sangat masuk akal kalau dia bertualang di Jianghu dan belajar ilmu silat dari seorang berilmu tinggi. Dengan 
+salah satu cara dia akhirnya bertemu dengan Ouyang Feng, dan Ouyang Feng menyadari niatnya, dia sengaja membantu mewujudkan 
+rencananya dengan cara ini, dia membuat lukisan itu dan memberikannya kepada Ying Gu. Buku ini tersebar luas di wilayah Barat,
+dan Ouyang Feng berasal dari Barat, jadi dia pasti akrab dengan cerita ini."
+
+Dengan penuh kebencian Huang Rong berkata, "Si Racun Tua itu memperalat Ying Gu, akhirnya Ying Gu memperalat aku. Ini rencana 
+pembunuhan yang jahat dengan meminjam tangan orang lain."
+
+Yideng mendesah, "Kau tidak usah marah. Kalau tidak ketemu dia, maka dia akan tetap melukai orang lain dan mengirimnya 
+kepadaku untuk diobati. Hanya saja, kalau orang itu tidak diantar oleh orang yang berilmu tinggi, maka dia pasti akan sulit 
+mendaki gunung ini. Ouyang Feng pasti sudah lama membuat gambar itu, mereka pasti sudah merencanakan ini semua selama setidaknya 
+sepuluh tahun. Berlawanan dengan harapan mereka, ternyata mereka tidak bisa menemukan orang yang tepat selama sepuluh tahun itu,
+dan itu juga adalah takdir."
+
+"Paman, aku tahu," kata Huang Rong. "Dia pasti punya rencana lain yang baginya lebih penting dari sekedar mencelakai Paman."
+
+"Ah!" seru Yideng. "Apa itu?"
+
+Huang Rong menjawab, "Lao Wantong dikurung oleh ayahku di Pulau Bunga Persik. Dia ingin membantunya keluar." Kemudian Huang 
+Rong menceritakan bagaimana Ying Gu dengan tekun mempelajari Qi Men[^qi-men] dan matematika. Akhirnya ia berkata, "Setelah itu 
+ia menemukan fakta bahwa meskipun ia belajar selama seratus tahun, akan tetap sulit untuk mengatasi ayahku, ditambah lagi
+ia kemudian melihatku terluka, maka..."
+
+[^qi-men]: Qi Men (奇门) adalah bagian dari Lima Elemen, Wu Xing Qi Men (五行奇门), yang adalah salah satu dasar dari Taoisme.
+
+Yideng tertawa panjang, ia berdiri dan berkata, "Bagus, bagus. Segala yang baik akan berakhir baik. Semuanya sudah terwujud.
+Hari ini akhirnya dia akan mendapatkan apa yang diharapkannya." Dengan wajah tenang ia berpaling kepada keempat muridnya 
+dan berkata, "Kalian pergilah untuk menyambut Selir Liu — oh, bukan — maksudku menyambut Ying Gu — dan mengantarnya naik 
+gunung. Kalian sama sekali tidak boleh mengeluarkan setengah kata pun yang kasar dan tidak hormat." Seolah dengan persetujuan 
+sebelumnya, keempat murid itu membungkuk ke lantai dan menangis, mreka secara serempak berseru, "Shifu!"
+
+Yideng mendesah, "Kalian sudah mengikutiku selama bertahun-tahun, masa belum juga mengerti hatiku?" Kepada Guo Jing dan 
+Huang Rong ia berkata, "Aku memohon bantuan kalian berdua."
+
+Guo Jing dan Huang Rong menjawab serempak, "Katakan saja, kami tidak berani menolak."
+
+"Bagus," kata Yideng. "Sekarang aku ingin supaya kalian turun gunung. Sepanjang hidupku aku sudah berhutang banyak kepada 
+Ying Gu. Di masa depan, apapun yang dihadapinya, entah kesulitan atau bahaya apapun, aku mohon supaya kalian, demi Biksu Tua ini,
+sudi mengulurkan tangan membantunya semampu kalian. Kalau kalian bisa membantu dalam urusan antara dia dengan Zhou Shixiong,
+untuk selamanya Laona akan berterima kasih."
+
+
+**Page 17 in PDF**
 
