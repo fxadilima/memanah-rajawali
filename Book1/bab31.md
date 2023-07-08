@@ -488,7 +488,7 @@ Yideng tertawa panjang, ia berdiri dan berkata, "Bagus, bagus. Segala yang baik 
 Hari ini akhirnya dia akan mendapatkan apa yang diharapkannya." Dengan wajah tenang ia berpaling kepada keempat muridnya 
 dan berkata, "Kalian pergilah untuk menyambut Selir Liu — oh, bukan — maksudku menyambut Ying Gu — dan mengantarnya naik 
 gunung. Kalian sama sekali tidak boleh mengeluarkan setengah kata pun yang kasar dan tidak hormat." Seolah dengan persetujuan 
-sebelumnya, keempat murid itu membungkuk ke lantai dan menangis, mreka secara serempak berseru, "Shifu!"
+sebelumnya, keempat murid itu membungkuk ke lantai dan menangis, mereka secara serempak berseru, "Shifu!"
 
 Yideng mendesah, "Kalian sudah mengikutiku selama bertahun-tahun, masa belum juga mengerti hatiku?" Kepada Guo Jing dan 
 Huang Rong ia berkata, "Aku memohon bantuan kalian berdua."
