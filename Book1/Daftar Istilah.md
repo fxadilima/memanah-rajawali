@@ -367,3 +367,26 @@ Karakter _dash_ pendek: —
 
 1. Peribahasa "Di atas langit ada langit, di atas manusia ada manusia". Tian ... You Tian, Ren ... You Ren
 2. Tautkan sekalian daftar panggilan _wuxia_ untuk Shifu, Shibo, dsb ke halaman ini, supaya mudah dicari, kalau perlu bahkan print menjadi PDF.
+
+## The Legend of Kublai Khan
+
+[ep 34](https://www.youtube.com/watch?v=GVON9I3s6QY)
+[ep 35](https://www.youtube.com/watch?v=Ng5PSGd6URU)
+[ep 36](https://www.youtube.com/watch?v=fSV_2hvl27U)
+[ep 37](https://www.youtube.com/watch?v=4CX5nVJV5Vc)
+[ep 38](https://www.youtube.com/watch?v=RhgjgwNGAaE)
+[ep 39](https://www.youtube.com/watch?v=YGRCtoVnFmM)
+[ep 40](https://www.youtube.com/watch?v=bxHDz7fvEPw)
+[ep 41](https://www.youtube.com/watch?v=t4q0Az-7VPE)
+[ep 42](https://www.youtube.com/watch?v=4l3qOorWm_M)
+[ep 43](https://www.youtube.com/watch?v=_F-mkWG8Qpw)
+[ep 44](https://www.youtube.com/watch?v=61_B17yWYds)
+[ep 45](https://www.youtube.com/watch?v=NSvUjHlhDH0)
+[ep 46](https://www.youtube.com/watch?v=rKn-rXMj-oc)
+[ep 47](https://www.youtube.com/watch?v=Rt5axGc51gw)
+[ep 48](https://www.youtube.com/watch?v=PAIHlXF2BWI)
+[ep 49](https://www.youtube.com/watch?v=jY_ZGaD_lzM)
+[ep 50](https://www.youtube.com/watch?v=wGh88GV2e_Q)
+
+
+
