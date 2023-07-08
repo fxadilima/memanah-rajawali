@@ -219,7 +219,7 @@ pada latihan tenaga dalam untuk mengusir kebosanan dan tidak lagi memikirkan mas
 kemudian, aku sedang bermeditasi di ruanganku, mendadak tirai di pintu tersingkap dan Selir Liu memburu masuk. Di luar ruangan 
 seorang kasim dan dua pengawal istana berusaha mencegahnya, tetapi kemanapun mereka pergi, mereka selalu terpukul oleh telapak 
 tangannya. Kulihat dia sedang menggendong bayi di pelukannya. Raut mukanya tampak panik, dia berlutut dan menangis keras,
-lalu bersujud di hadapanku dan berkata, 'Aku mohon belas kasihan Huangshang[^panggilan-huangshang], tunjukkan kasih dan 
+lalu bersujud di hadapanku dan berkata, 'Aku mohon belas kasihan Huang Shang[^panggilan-huangshang], tunjukkan kasih dan 
 ampuni nyawa anak ini!' Aku berdiri dan melihat. Anak itu mukanya merah padam, pernafasannya berat. Aku mengambilnya dari 
 gendongan Selir Liu untuk memeriksanya lebih teliti dan menemukan lima ruas tulang rusuknya patah. Selir Liu meratap,
 'Huang Shang, selirmu yang hina ini sudah melakukan kejahatan yang pantas dihukum mati puluhan ribu kali.' Aku sangat terkejut 
@@ -247,6 +247,8 @@ Selain diriku tidak ada orang lain di dalam negeri Dali yang punya kemampuan sep
 'Apa mungkin _dia_? Kenapa dia ingin membunuh anaknya sendiri?' Setelah mengatakan hal itu air mukanya menjadi kelabu." 
 
 HuangRong juga bergumam dengan suara rendah, "Lao Wantong tidak mungkin sejahat itu, kan?"
+
+[^panggilan-huangshang]: Huang Shang (皇上) adalah panggilan dari semua orang kepada Sang Kaisar dalam sebuah pembicaraan. Ini semacam, istilah 'Paduka' atau 'Baginda' dalam bahasa Indonesia klasik. Adalah tabu menyebutkan nama seorang kaisar secara langsung dalam dialog.
 
 Yideng Dashi berkata, "Pada saat itu aku sungguh-sungguh percaya bahwa Zhou Shixiong yang melakukannya. Selain dia, siapa 
 di jaman ini yang punya kemampuan sehebat itu, dan siapa juga yang tanpa alasan yang jelas sanggup mencelakai seorang bayi?
