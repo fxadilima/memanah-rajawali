@@ -214,7 +214,7 @@ sewajarnya anak itu memang bukan anakku."
 Huang Rong tampaknya mengerti, tetapi sebetulnya ia tidak mengerti sama sekali. Meskipun begitu ia sadar bahwa sangat tidak 
 pantas menanyakan hal ini terus-menerus, jadi ia tidak mengejar lagi.
 
-Sementara itu Yideng melanjutkan, "Aku sakit selama lebih dari setengah tahu, setelah sembuh, aku mencurahkan semua perhatianku 
+Sementara itu Yideng melanjutkan, "Aku sakit selama lebih dari setengah tahun, setelah sembuh, aku mencurahkan semua perhatianku 
 pada latihan tenaga dalam untuk mengusir kebosanan dan tidak lagi memikirkan masalah itu. Suatu malam kira-kira dua tahun 
 kemudian, aku sedang bermeditasi di ruanganku, mendadak tirai di pintu tersingkap dan Selir Liu memburu masuk. Di luar ruangan 
 seorang kasim dan dua pengawal istana berusaha mencegahnya, tetapi kemanapun mereka pergi, mereka selalu terpukul oleh telapak 
