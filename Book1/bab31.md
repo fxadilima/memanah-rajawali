@@ -250,7 +250,7 @@ HuangRong juga bergumam dengan suara rendah, "Lao Wantong tidak mungkin sejahat 
 
 Yideng Dashi berkata, "Pada saat itu aku sungguh-sungguh percaya bahwa Zhou Shixiong yang melakukannya. Selain dia, siapa 
 di jaman ini yang punya kemampuan sehebat itu, dan siapa juga yang tanpa alasan yang jelas sanggup mencelakai seorang bayi?
-Kukira dia tidak ingin membiarkan seorang anak haram tetapi hidup dan mencemari dunia persilatan. Setelah mengatakan hal itu
+Kukira dia tidak ingin membiarkan seorang anak haram tetap hidup dan menjadi aib di dunia persilatan. Setelah mengatakan hal itu
 Selir Liu tersipu dan cemas, takut dan sekaligus malu. Dia bimbang. Tapi sesaat kemudian dia bilang, 'Bukan, ini _pasti_ bukan 
 dia! Suara tertawa itu bukan suaranya!' Aku bilang, 'Kau ketakutan, mana bisa kau mendengar dengan teliti?' Dia menjawab,
 'Aku akan mengingat suara tertawa itu selama-lamanya, meskipun aku jadi hantu aku pasti masih tetap ingat! Bukan, itu _pasti bukan_ dia!'"
