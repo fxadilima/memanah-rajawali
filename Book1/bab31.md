@@ -500,6 +500,265 @@ Ying Gu. Di masa depan, apapun yang dihadapinya, entah kesulitan atau bahaya apa
 sudi mengulurkan tangan membantunya semampu kalian. Kalau kalian bisa membantu dalam urusan antara dia dengan Zhou Shixiong,
 untuk selamanya Laona akan berterima kasih."
 
+Guo Jing dan Huang Rong saling berpandangan terkesima, mereka tidak berani menjawab. Yideng melihat keduanya diam, ia mendesak 
+lagi, "Laona memohon bantuan, apa kalian berdua merasa berat untuk mengabulkannya?"
 
-**Page 17 in PDF**
+Huang Rong dengan berat hati menjawab, "Karena Paman yang meminta, kami akan menurut." Ia menarik jubah Guo Jing dan membungkuk 
+untuk berpamitan.
+
+"Kalian tidak usah ketemu Ying Gu," kata Yideng. "Kalian turun dari sebelah belakang gunung."
+
+Huang Rong mengiyakan, ia menarik tangan Guo Jing dan berpaling untuk pergi. Keempat murid itu melihat bahwa dia terlihat 
+tenang tanpa tanda-tanda keberatan sedikit pun, diam-diam mereka mengutuknya sebagai orang jahat berhati dingin yang tak tahu 
+berterima kasih, melihat penolongnya dalam bahaya ternyata pergi tanpa rasa tertarik. Guo Jing tahu Huang Rong tidak akan
+tinggal diam tanpa merencanakan sesuatu, jadi ia hanya menurut dan keluar.
+
+Ketika sampai di luar pintu Huang Rong berbisik ke telinganya. Guo Jing tampak bimbang tetapi akhirnya ia menganggukkan kepala.
+Ia berbalik dan pelan-pelan berjalan kembali.
+
+Yideng berkata, "Hatimu jujur dan tulus, kau akan melakukan hal-hal besar di masa depan. Laona mempercayakan urusan Ying Gu
+kepadamu."
+
+"Baiklah," jawab Guo Jing. "Wanbei akan berusaha sekuat tenaga untuk melaksanakan urusan yang Dashi percayakan." Tiba-tiba 
+ia meraih ke belakang dan mencekal tangan Si Biksu India yang duduk di sebelah Yideng. Tangan kanan Guo Jing meluncur lurus 
+untuk menotok titik akupuntur Hua Gai dan Tian Zhu, dua titik akupuntur utama. Kedua titik tersebut yang satu terletak di 
+tangan dan yang lain di kaki, sekali tertotok maka keempat sendi utama di tubuh orang akan lumpuh. Gerakan itu sama sekali 
+di luar dugaan Yideng dan keempat muridnya, mereka berseru, "Apa yang kau lakukan?"
+
+Guo Jing tidak menjawab, tangan kirinya bergerak langsung ke arah bahu Yideng. Telapak tangan kanan Yideng berputar dan secepat 
+kilat menyambar tangan kiri Guo Jing. Guo Jing terkejut, ia mengira telapak tangan Yideng telah kehilangan tenaga, tak terduga 
+bukan hanya berhasil melepaskan diri, malah ia juga bisa menyerang balik. Lebih jauh lagi, serangan Yideng terarah ke titik
+vital di tubuhnya. Sungguh sebuah serangan balik yang indah. Baru ketika telapak tangan Yideng sekitar satu inci dari tangannya,
+ia merasakan bahwa telapak tangan itu sebetulnya lemah. Guo Jing menggunakan kesempatan itu untuk memutarbalik telapak tangannya
+untuk melindungi tangan itu, sementara tangan kanannya melancarakan Sang Naga Mengibaskan Ekor untuk menyambut si nelayan dan 
+penebang kayu yang menyerangnya dari belakang. Jari telunjuk kirinya masih meluncur untuk menotok titik Feng Wei dan Jing Cu 
+di sisi tubuh Yideng. "Paman," katanya. "Aku minta maaf."
+
+Sementara itu Huang Rong mendorong si petani keluar pintu dengan menggunakan Tongkat Penggebuk Anjing. Si Sastrawan terkejut 
+melihat perubahan situasi itu, ia tidak memahami niat Guo Jing dan Huang Rong. "Kalau kalian ingin mendiskusikan sesuatu,
+katakan saja, jangan berkelahi!" serunya berkali-kali.
+
+Ketika melihat kondisi gurunya, si petani menjadi mirip harimau gila, melupakan keselamatannya sendiri ia menerjang 
+ke arah ruang meditasi. Tetapi Tongkat Penggebuk Anjing Huang Rong sungguh terlalu tangguh baginya, ia menyerang tiga kali,
+dan tiga kali pula tongkat Huang Rong mengirimnya muundur.
+
+Telapak tangan Guo Jing bergerak melingkardiiringi sambaran angin yang kuat, memaksa si nelayan, penebang kayu dan 
+sastrawan mundur selangkah demi selangkah ke arah pintu. Huang Rong menyayunkan tongkatnya dengan keras dari tanah ke arah 
+alis si petani. Gerakan ini sangat cepat sehingga si petani menjerit, "Aiyo!" Ia melemparkan diri ke belakang dan melompat 
+mundur beberapa langkah.
+
+"Bagus!" seru Huang Rong. Ia menjangkau dengan tangannya ke belakang dan menutup pintu. Dengan cekikikan ia berkata,
+"Bapak-bapak, tolong tahan dulu! Aku ingin mengatakan sesuatu."
+
+Setiap kali si penebang kayu dan nelayan bertemu dengan tangan Guo Jing mereka merasa lengan mereka mati rasa dan kaki mereka 
+bergetar. Mereka melihat Guo Jing hendak menyerang lagi, mereka cepat-cepat berdiri bersebelahan, bersiap untuk menerima telapak 
+tangan Guo Jing dengan kekuatan gabungan. Ketika Guo Jing mendengar ucapan Huang Rong, ia segera menghentikan telapak tangannya 
+di tengah jalan dan mundur. Sambil merangkapkan kedua tangannya ia berkata, "Maafkan kelancangan Wanbei."
+
+Si nelayan, penebang kayu dan sastrawan itu saling berpandangan dengan bingung. Dengan muka serius Huang Rong berkata,
+"Aku menerima kebaikan Dashi Yang Mulia, sekarang aku tahu bahwa Dashi sedang menghadapi bahaya, bagaimana mungkin aku 
+pergi dari sini tanpa berbuat apa-apa."
+
+Si sastrawan melangkah maju, membungkuk dalam dan berkata, "Musuh adalah istri Shifu, sangat tidak layak bagi kami untuk 
+menyinggung _beliau_. Kalau beliau ingin naik gunung, kami tidak punya cara untuk menghentikan beliau. Lagipula, sejak anak...
+sejak _Shaoye_ meninggal, lebih dari sepuluh tahun hati Shifu tidak tenang. Bahkan kalau pun tenaga dalamnya masih ada dan ia 
+tidak keracunan, ketika melihat Selir Liu datang ia tidak akan melawan serangan belatinya sama sekali. Kami tidak bisa 
+melawan perintah Shifu, tapi hati kami serasa terbakakr oleh kecemasan. Kami menguras tenaga dan pikiran, tetapi masih belum 
+juga tidak tahu harus berbuat apa. Nona sangat cerdas, seandainya Nona bisa memberi petunjuk, meskipun tubuh kami hancur 
+menjadi debu kami akan terus berusaha untuk membalas kebaikan Nona."
+
+Mendengar ucapannya yang tulus Huang Rong tidak berani bercanda lagi seperti sebelumnya, ia berkata, "Kami, kakak dan adik 
+seperguruan, sangat berterima kasih atas kebaikan hati Dashi Yang Mulia, kami tidak berbeda dengan kalian berempat, kami akan 
+berusaha dengan segala cara yang mungkin. Yang terbaik adalah kalau kita bisa mencegah Ying Gu memasuki ruang meditasi, tetapi 
+mengingat Ying Gu sudah menunggu sesempatan seperti ini selama lebih dari sepuluh tahun di Rawa Hitam, dia pasti sudah 
+mempersiapkan diri sebaik mungkin. Rasanya tidak akan mudah menghalanginya. Rencana Xiao Mei mengandung bahaya. Kalau sukses, 
+maka kita bisa mengharapkan segalanya mulus di masa depan, tanpa masalah yang berarti. Tapi rencana ini teramat sangat riskan,
+Ying Gu itu sangat licin dan pintar, ilmu silatnya juga tinggi, jadi masih tetap mengandung kemungkinan gagal. Pengetahuan 
+dan kebijaksanaan Xiao Mei masih sangat sederhana dan dangkal, aku tidak bisa memikirkan cara yang lebih pasti."
+
+Si nelayan, penebang kayu, petani dan sastrawan berkata, "Kami mohon penjelasan."
+
+Huang Rong mengangkat alisnya yang indah dan membeberkan rencananya. Ketika keempat murid itu mendengarnya, mereka saling 
+berpandangan dalam diam sampai lama.
+
+***
+
+**Batas 1**
+
+It was the tenth hour (5 – 7 pm), the sun slowly sank behind the mountain. The strong
+mountain breeze swayed the leaves of the palm trees planted in rows outside the medi-
+tation courtyard. The withered lotus leaves on the pond also made a rustling noise. The
+evening sun cast its light from behind the mountain peaks, the mountain ridges looked
+like a silhouette of a giant reclining on the ground. The fisherman, the woodcutter, the
+farmer and the scholar sat cross-legged on the ground by the stone bridge. They opened
+their eyes wide looking to the front. Each heart was heavy with restlessness.
+
+They had waited for a long time. The sky had darkened, the dusk gradually turned into
+night. The crows crowed while they were flying in the valley below. A thin white mist
+rose up from the canyon below. But still no one appeared from the turn at the moun-
+tain cliff beyond the stone bridge. The fisherman thought, “If only Concubine Liu has a
+sudden change of heart and does not blame Shifu, maybe she reined her horse beyond
+the cliff and decided not to come over ...”
+
+The woodcutter thought, “This Concubine Liu is very crafty; she must have been pre-
+paring a really sinister plot.”
+
+The farmer was more anxious and impatient than the others, he thought, “The sooner
+she arrives, the sooner we can get it over with; whether it will be disaster or fortune,
+good or evil, we will find out sooner. She said she would come and she hasn’t arrived
+yet, it really is exasperating.”
+
+The scholar thought, “The more delayed she is, the more dangerous the threat will be.
+This matter is really difficult to be solved nicely.” It goes without saying that he was a
+good schemer and tactician; he had been the prime minister of Dali kingdom for more
+than a dozen of years. He had seen major battle and faced many difficult situations, yet
+this time he was nervous. He had given this matter a lot of thoughts, but could not put
+out the least bit of idea. His eyes scanned the darkened surrounding area; his ears
+heard the distant cry of an owl. Suddenly he remembered when he was a child he often
+heard people say, ‘The owl [lit. night cat] hides in a secret place and stealthily counts
+human’s eyebrows. Whoever got his eyebrows counted correctly, that person will not
+live to see the daylight.’ It was obviously a myth to deceive little children, but in this sit-
+uation suddenly hearing the cry of the owl, he involuntarily shuddered. “Could it be
+that Shifu won’t be able to escape this disaster and die under this woman’s hands?” He
+had just finished his thought when suddenly the woodcutter whispered urgently with a
+trembling voice, “She is here!”
+
+The scholar lifted his head and saw a black shadow flew across the stone bridge and
+light as a feather jumped over the gap, as if floating without exerting any energy at all.
+The four people were astonished, “When she started training with Shifu, we have al-
+ready been under his tutelage for a long time. How can her martial art exceed ours? In
+this last dozen of years or so, where did she go to learn such a marvelous skill?” they
+thought. As they saw that dark shadow come near, four people stood up and positioned
+themselves on either side of the way.
+
+In a blink of an eye that dark shadow has arrived at the end of the stone bridge; she
+was wearing black clothes, and her facial features could be vaguely recognized as
+Concubine Liu whom the Emperor Duan loved very much in the years past.
+
+Four people knelt down and kowtowed, “Xiao Ren [little/lowly people] greets Niang-ni-
+ang [madam, or in this case can be translated as ‘empress’].”
+
+“Humph,” Ying Gu snorted. Her gaze swept the four people’s faces and she said, “What
+Niang-niang? Concubine Liu had died long ago, I am Ying Gu. Hmm, the Prime
+Minister, the General, the Admiral, and the Commanding Officer of the ‘yu lin jun’ [lit.
+defending woods troops. I am not sure, but I think ‘yu lin jun’ is the personal body-
+guards of the emperor] are all here. I thought the Emperor had forsaken worldliness
+and became a monk, who would have thought that he is hiding in this remote moun-
+tain and lives in peace and security as an emperor.” Her voice carried so much hatred
+that their hearts trembled.
+
+The scholar said, “The Emperor does not look like his former self. I am sure Niang-ni-
+ang will not recognize him anymore.”
+
+Ying Gu laughed a cold laugh, “You keep saying Niang-niang this and Niang-niang that;
+are you mocking me? You are stiffly sitting on your knees down here, are you wishing
+me dead?”
+
+The fisherman, the woodcutter, the farmer and the scholar looked at each other and
+then they stood up. “Your servants wish for your health,” they said.
+
+Ying Gu waved her hand, “The Emperor ordered you to stop me here, do you still have
+to perform this empty obeisance? If you want to fight, then just fight. You are lords and
+royalties, I don’t know how many common people you have harmed; why would you
+still pretend in front of an ordinary woman like me?”
+
+The scholar said, “Our Emperor loves the people like his children, full of generosity and
+benevolence, the common people of Dali country still praise him even until today. Our
+Emperor not only has never harmed the innocent all his life, even toward criminal
+with grave offense oftentimes he bestowed abundant favor. Doesn’t Niang-niang
+know?”
+
+Ying Gu’s face turned red, with stern voice she said, “Do you dare to offend me?”
+
+“Wei chen [lowly officer] doesn’t dare,” the scholar replied.
+
+Ying Gu said, “With your mouth you acknowledge me as your superior, but in your
+heart how can you still think there is any royalty-officer relationship between us? I
+want to see Duan Zhixing; will you let me or will you not?”
+
+‘Duan Zhixing’ was Reverend Yideng’s given name. Although the fisherman, the wood-
+cutter, the farmer and the scholar knew it, they never dared to mention it casually.
+Now that Ying Gu mentioned his name irreverently they could not help but feel of-
+fended. The farmer was formerly the Emperor Duan’s personal bodyguards’ captain; he
+
+could not endure patiently. With a loud voice he shouted, “One day became an em-
+peror, he will be honored for the rest of his life. How can it be that you speak without
+propriety?”
+
+Ying Gu let out a long laugh and without saying anything charged forward. Four people
+respectively shot out their arms to block; they thought, “Even though her martial art
+skill is high, with us combining our efforts we should be able to stop her. We are going
+to disobey our order, but the situation is dire, we’ll talk later.”
+
+Who would have thought that Ying Gu did not use her palm or fist to attack, but utiliz-
+ing her lightness kungfu she bumped them. The woodcutter saw her coming fast, he did
+not dare to touch her body, he moved aside swiftly, then stretched out his hand trying
+to grab her shoulder. His hand was quick and powerful, but as soon as he touched her
+shoulder he felt like he was trying to grab something exceptionally slick, so that his
+hand slipped away.
+
+By this time with a loud shout the farmer and the fisherman attacked from left and
+right. Ying Gu ducked and just like a slithery snake she slipped underneath the
+fisherman’s armpit. The fisherman’s nostrils caught a faint whiff of fragrance, it
+smelled like an orchid but not quite like an orchid, like musk deer but not quite like
+musk deer. He was frantic and did not dare to catch her body in between his arms; he
+opened up his arms instead for fear of touching her body.
+
+The farmer was indignant, “What are you doing?” he shouted. With his ten fingers
+forming a pair of claws he tried to grab Ying Gu’s waist.
+
+“Don’t be impolite!” the woodcutter called out.
+
+The farmer turned a deaf ear to him, very soon his fingers had reached Ying Gu’s waist,
+but somehow it was like his fingers were touching a very smooth and oily surface that
+they slipped away from her waist.
+
+Ying Gu had used the ‘ni qiu gong’ [mud loach maneuver] she perfected in the Black
+Marsh to go through these three people. Now she knew that these four were helpless to
+block her. Her palm slapped backward toward the farmer. The scholar swung his arm
+with his finger aimed toward the acupoint on her hand. To his surprise Ying Gu did not
+retract her hand but stuck her index finger up and quick as lightning two fingers col-
+lided in the air. The scholar had exerted all his strength to his right hand finger, sud-
+denly he felt his finger went numb, his body felt like he was electrocuted. “Aiyo!” he
+cried out and fumbled down to the ground. The woodcutter and the fisherman busily
+stooped down to help.
+
+The farmer’s left fist went straight ahead like a hammer hurled toward Ying Gu’s body.
+This attack carried a strong gust of wind, the force was astonishing. Seeing this strong
+attack Ying Gu stood her ground and did not evade. The farmer was alarmed; he
+thought if his fist hit her head, her skull would be cracked. Hastily he tried to withdraw
+his power, but by that time his fist had already touched the tip of Ying Gu’s nose. Ying
+Gu leaned her head slightly, the fist slipped from her nose and slid to her cheek. The
+farmer retracted his left arm, but it was too late. His hand was grabbed by his opponent
+and with a ‘crack’ sound he felt a shot of pain on his arm. His elbow joint was broken
+by the back of her fist. The farmer gritted his teeth, ignoring the pain, his right hand in-
+dex finger swiftly attacked the crook of the opponent’s elbow.
+
+The fisherman, the woodcutter, the farmer and the scholar’s acupoint sealing tech-
+nique was taught by Reverend Yideng. It was inferior to the Solitary Yang Finger with
+its infinite variations, but it could be considered as a first class acupoint sealing tech-
+nique in the Wulin world; how would they know that fighting Ying Gu they were like
+fighting their black star. She was determined to avenge the death of her son; she fully
+realized Reverend Yideng’s finger skill was very fierce, thereupon she spent a great
+deal of time and energy to find a method to subdue that skill. She was very skillful in
+embroidery, so she found her inspiration from the wonderful needlework technique.
+She wore a tiny golden hoop on the tip of her right hand index finger; on the hoop was
+a three-fen (about 1 cm) long golden needle, which tip was dipped in poison. Her vision
+was excellent, her hand was steady; after training hard for several years she was able
+to prick a fly flying in the air. This time fighting the enemy she was able to prick the
+scholar’s index finger. Seeing the direction of the farmer’s finger she laughed coldly,
+lifting up her delicate hand she aimed her fingertip to his and pricked the farmer’s
+finger.
+
+As the saying goes, ‘ten fingers join the heart’, the tip of the index finger is connected to
+the hand’s ‘yang ming’ [positive and bright] passage to the large intestine. As the golden
+needle pricked in, it hit the ‘shang yang xue’ [positive quotient acupoint] squarely.
+
+In his last effort to score victory amidst a defeat, the farmer had exerted all his strength
+to his finger. Ying Gu on the other hand, did not have to exert any strength; all she
+needed to do was to position her golden needle right on the path of the farmer’s finger.
+Hence she let the farmer prick his own finger by the needle.
+
+
+**Page 24 in PDF**
 
