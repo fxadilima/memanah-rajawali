@@ -583,30 +583,26 @@ berpandangan dalam diam sampai lama.
 
 ***
 
+Saat itu adalah jam kesepuluh[^jam-10], matahari pelan-pelan menyembunyikan dirinya di belakang gunung. Angin pegunungan yang 
+kuat mengayun dedaunan pohon palem yang tertanam berderet-deret di halaman luar ruang meditasi. Daun-daun teratai di kolam juga 
+membuat suara gemerisik. Matahari sore memancarkan sinarnya dari balik puncak gunung. Si nelayan, penebang kayu, petani dan 
+sastrawan duduk bersila di atas tanah di dekat jembatan batu. Mereka membuka mata lebar-lebar sambil menatap ke depan. Hati 
+setiap orang terasa berat oleh kegelisahan.
+
+[^jam-10]: Jam ke-10 adalah sekitar 5 - 7 sore menurut perhitungan waktu yang kita kenal secara umum. 
+
+Mereka telah menunggu lama. Langit telah menjadi gelap, senja berangsur-angsur berubah menjadi malam. Burung gagak terbang 
+berkerumun di lembah, di bawah tempat itu. Kabut tipis muncul dari lembah itu. Tetapi tak seorang pun terlihat muncul dari 
+belokan di atas jembatan batu. Si nelayan berpikir, "Seandainya Selir Liu tiba-tiba berubah pikiran dan tidak lagi menyalahkan 
+Shifu, mungkin ia akan mengikat kudanya di atas tebing dan memutuskan untuk tidak datang ke sini..."
+
+Si penebang kayu berpikir, "Selir Liu ini sangat licik, ia pasti sudah mempersiapkan rencana yang sangat jahat."
+
+Si petani lebih gelisah lagi dan lebih tidak sabaran dibanding yang lain, ia berpikir, "Lebih cepat dia tiba di sini, lebih cepat 
+juga kita menyelesaikan urusan ini, entah akan jadi bencana ataukah keberuntungan, baik atau jahat, kita akan segera tahu. Dia 
+bilang akan datang dan masih juga belum muncul, ini betul-betul menyebalkan."
+
 **Batas 1**
-
-It was the tenth hour (5 – 7 pm), the sun slowly sank behind the mountain. The strong
-mountain breeze swayed the leaves of the palm trees planted in rows outside the medi-
-tation courtyard. The withered lotus leaves on the pond also made a rustling noise. The
-evening sun cast its light from behind the mountain peaks, the mountain ridges looked
-like a silhouette of a giant reclining on the ground. The fisherman, the woodcutter, the
-farmer and the scholar sat cross-legged on the ground by the stone bridge. They opened
-their eyes wide looking to the front. Each heart was heavy with restlessness.
-
-They had waited for a long time. The sky had darkened, the dusk gradually turned into
-night. The crows crowed while they were flying in the valley below. A thin white mist
-rose up from the canyon below. But still no one appeared from the turn at the moun-
-tain cliff beyond the stone bridge. The fisherman thought, “If only Concubine Liu has a
-sudden change of heart and does not blame Shifu, maybe she reined her horse beyond
-the cliff and decided not to come over ...”
-
-The woodcutter thought, “This Concubine Liu is very crafty; she must have been pre-
-paring a really sinister plot.”
-
-The farmer was more anxious and impatient than the others, he thought, “The sooner
-she arrives, the sooner we can get it over with; whether it will be disaster or fortune,
-good or evil, we will find out sooner. She said she would come and she hasn’t arrived
-yet, it really is exasperating.”
 
 The scholar thought, “The more delayed she is, the more dangerous the threat will be.
 This matter is really difficult to be solved nicely.” It goes without saying that he was a
