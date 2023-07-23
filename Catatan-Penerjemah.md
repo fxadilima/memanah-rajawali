@@ -30,7 +30,14 @@ beberapa pejabat dan jendral penting, sampai nama-nama seniman.
 
 Terdapat banyak _bias_ yang saya temukan dalam karya Jin Yong yang saya rasakan kurang sesuai dengan 
 perkembangan sejarah seperti yang kita lihat dalam kacamata dunia modern ini. Sedapat mungin saya berusaha  
-untuk menjaga keseimbangan supaya _bias_ tersebut dapat terkoreksi tanpa mengganggu jalan cerita.
+untuk menjaga keseimbangan supaya _bias_ tersebut dapat terkoreksi tanpa mengganggu jalan cerita. Selain itu 
+juga terdapat selisih waktu yang sangat serius antara fakta sejarah dengan cerita ini sendiri, terutama yang 
+berkaitan dengan tokoh-tokoh utama cerita yang juga adalah tokoh sejarah nyata, seperti misalnya Tolui,
+Ogodei, dan akhirnya Kubilai Khan.
+
+Dalam sejarah, seharusnya Kubilai Khan kecil sudah hadir di akhir cerita **Memanah Rajawali**, karena 
+kakeknya, Genghis Khan, memberikan sebuah kesan yang sangat kuat kepada keluarganya bahwa ucapan Kubilai
+yang saat itu masih berusia sekitar 11 tahun sangat bijaksana dan pintar.
 
 Sampai saya menulis artikel ini, hasil terjemahan saya masih jauh dari lengkap, jadi ini semua masih 
 berupa _work in progress_. Tapi saya berharap teman-teman yang menyukai cerita silat ini dapat menikmatinya.
