@@ -602,159 +602,519 @@ Si petani lebih gelisah lagi dan lebih tidak sabaran dibanding yang lain, ia ber
 juga kita menyelesaikan urusan ini, entah akan jadi bencana ataukah keberuntungan, baik atau jahat, kita akan segera tahu. Dia 
 bilang akan datang dan masih juga belum muncul, ini betul-betul menyebalkan."
 
-**Batas 1**
+Si sastrawan berpikir, "Ditunda lebih lama, ancamannya akan lebih berbahaya. Masalah ini sungguh sulit diselesaikan 
+dengan baik." Tak perlu dikatakan lagi, ia adalah seorang ahli taktik dan strategi, ia sudah menjadi Perdana Menteri 
+Kerajaan Dali selama puluhan tahun. Ia telah melihat peperangan besardan berhadapan dengan situasi sulit, meskipun begitu 
+kali ini ia sangat grogi. Ia sudah menghabiskan banyak waktu untuk memikirkan masalah ini, tapi tidak bisa menghasilkan 
+solusi apa-apa. Pandangannya menelusuri kegelapan di sekitar tempat itu, telinganya mendengar suara burung hantu dari 
+kejauhan. Tiba-tiba ia teringat ketika masih kecil ia sering mendengar orang berkata, "Burung hantu diam di tempat 
+yang tersembunyi, dan diam-diam menghitung alis manusia. Siapa yang alisnya erhitung dengan tepat, ia tidak akan hidup 
+untuk melihat hari esok.' Itu jelas sekali hanya mitos untuk membohongi anak kecil, tetapi dalam situasi seperti ini ia 
+tiba-tiba mendengar suara burung hantu, ia tanpa sadar terpengaruh cerita semacam itu. "Mungkinkah Shifu tidak bisa 
+lolos dari bahaya ini dan tewas di tangan perempuan itu?" Ia baru saja berpikir begitu ketika si penebang kayu berbisik 
+dengan suara genetar, "Dia sudah tiba!"
 
-The scholar thought, “The more delayed she is, the more dangerous the threat will be.
-This matter is really difficult to be solved nicely.” It goes without saying that he was a
-good schemer and tactician; he had been the prime minister of Dali kingdom for more
-than a dozen of years. He had seen major battle and faced many difficult situations, yet
-this time he was nervous. He had given this matter a lot of thoughts, but could not put
-out the least bit of idea. His eyes scanned the darkened surrounding area; his ears
-heard the distant cry of an owl. Suddenly he remembered when he was a child he often
-heard people say, ‘The owl [lit. night cat] hides in a secret place and stealthily counts
-human’s eyebrows. Whoever got his eyebrows counted correctly, that person will not
-live to see the daylight.’ It was obviously a myth to deceive little children, but in this sit-
-uation suddenly hearing the cry of the owl, he involuntarily shuddered. “Could it be
-that Shifu won’t be able to escape this disaster and die under this woman’s hands?” He
-had just finished his thought when suddenly the woodcutter whispered urgently with a
-trembling voice, “She is here!”
+Si sastrawan mengangkat kepalanya dan melihat sesosok bayangan hitam melayang di sepanjang jembatan batu dengan gerakan 
+seringan bulu melompat melewati rintangan, seolah-olah melayang tanpa mengeluarkan tenaga sama sekali. Keempat orang 
+itu terhenyak, "Ketika ia mulai berlatih dengan Shifu, kita semua sudah lama belajar. Bagaimana mungkin kungfunya sekarang 
+melampaui kita semua? Dalam belasan tahun ini dari mana dia belajar ilmu sehebat ini?" pikir mereka. Saat mereka melihat 
+bayangan hitam itu mendekat, mereka bangkit berdiri dan mengambil posisi di kedua sisi jalan.
 
-The scholar lifted his head and saw a black shadow flew across the stone bridge and
-light as a feather jumped over the gap, as if floating without exerting any energy at all.
-The four people were astonished, “When she started training with Shifu, we have al-
-ready been under his tutelage for a long time. How can her martial art exceed ours? In
-this last dozen of years or so, where did she go to learn such a marvelous skill?” they
-thought. As they saw that dark shadow come near, four people stood up and positioned
-themselves on either side of the way.
+Dalam sekejap mata bayangan hitam itu tiba di ujung jembatan batu, ia memakai baju hitam dan raut wajahnya samar-samar 
+bisa dikenali sebagai Selir Liu yang sangat dicintai oleh Kaisar Duan di masa lampau.
 
-In a blink of an eye that dark shadow has arrived at the end of the stone bridge; she
-was wearing black clothes, and her facial features could be vaguely recognized as
-Concubine Liu whom the Emperor Duan loved very much in the years past.
+Keempat orang itu berlutut dan memberi hormat, "Xiao Ren menyapa Niang Niang[^niang-niang]!"
 
-Four people knelt down and kowtowed, “Xiao Ren [little/lowly people] greets Niang-ni-
-ang [madam, or in this case can be translated as ‘empress’].”
+[^niang-niang]: Niang Niang adalah sapaan umum kepada seorang selir Raja atau Kaisar.
 
-“Humph,” Ying Gu snorted. Her gaze swept the four people’s faces and she said, “What
-Niang-niang? Concubine Liu had died long ago, I am Ying Gu. Hmm, the Prime
-Minister, the General, the Admiral, and the Commanding Officer of the ‘yu lin jun’ [lit.
-defending woods troops. I am not sure, but I think ‘yu lin jun’ is the personal body-
-guards of the emperor] are all here. I thought the Emperor had forsaken worldliness
-and became a monk, who would have thought that he is hiding in this remote moun-
-tain and lives in peace and security as an emperor.” Her voice carried so much hatred
-that their hearts trembled.
+"Hm!" dengus Ying Gu. Pandangannya menyapu muka keempat orang itu dan ia berkata, "Niang Niang apa? Selir Liu sudah lama 
+mati! Aku Ying Gu. Hmm, Perdana Menteri, Jendral, Admiral dan Komandan Yu Lin Jun semuanya ada di sini. Kupikir Kaisar 
+sudah meninggalkan keduniawian dan menjadi biksu, ternyata dia masih tetap hidup aman dan damai, bersembunyi pegunungan 
+terpencil ini sebagai kaisar." Suaranya mengandung kebenciam yang sangat dalam, sampai-sampai hati mereka tergetar.
 
-The scholar said, “The Emperor does not look like his former self. I am sure Niang-ni-
-ang will not recognize him anymore.”
+Si sastrawan menjawab, "Kaisar tidak seperti penampilannya yang lalu, Niang Niang mungkin tidak akan mengenalinya."
 
-Ying Gu laughed a cold laugh, “You keep saying Niang-niang this and Niang-niang that;
-are you mocking me? You are stiffly sitting on your knees down here, are you wishing
-me dead?”
+Ying Gu tertawa dingin, "Kau terus-terusan bilang Niang Niang ini Niang Niang itu, kau meledek ya? Kalian terus duduk 
+kaku di sini, kalian berharap aku mati ya?"
 
-The fisherman, the woodcutter, the farmer and the scholar looked at each other and
-then they stood up. “Your servants wish for your health,” they said.
+Si nelayan, penebang kayu, petani dan sastrawan itu saling berpandangan dan bangkit berdiri. "Xiao Ren berharap 
+Niang Niang sehat selalu," kata mereka serempak.
 
-Ying Gu waved her hand, “The Emperor ordered you to stop me here, do you still have
-to perform this empty obeisance? If you want to fight, then just fight. You are lords and
-royalties, I don’t know how many common people you have harmed; why would you
-still pretend in front of an ordinary woman like me?”
+Ying Gu mengebaskan tangannya. "Kalian menyuruh kalian tetap di sini untuk mencegat aku, apa kalian masih tetap 
+harus juga omong kosong semacam ini? Kalau mau berkelahi, ya langsung maju saja. Kalian ini pejabat tinggi pemerintahan,
+entah berapa banyak rakyat yang kalian celakai, buat apa kalian masih berpura-pura di hadapan perempuan biasa seperti aku?"
 
-The scholar said, “Our Emperor loves the people like his children, full of generosity and
-benevolence, the common people of Dali country still praise him even until today. Our
-Emperor not only has never harmed the innocent all his life, even toward criminal
-with grave offense oftentimes he bestowed abundant favor. Doesn’t Niang-niang
-know?”
+Si sastrawan berkata, "Kaisar kita mencintai rakyat seperti anak-anaknya sendiri, sangat bijaksana dan murah hati, rakyat 
+Dali masih tetap memujanya sampai hari ini. Kaisar kita bukan hanya tidak pernah mencelakai orang tak bersalah di sepanjang 
+hidupnya, bahkan kepada para narapidana yang paling buruk sekali pun beliau bersikap sangat baik. Masa Niang Niang tidak 
+tahu?"
 
-Ying Gu’s face turned red, with stern voice she said, “Do you dare to offend me?”
+Muka Ying Gu merah padam, dengan suara tegas ia berkata, "Kalian berani menyinggung aku?"
 
-“Wei chen [lowly officer] doesn’t dare,” the scholar replied.
+"Wei Chen tidak berani," jawab si sastrawan.
 
-Ying Gu said, “With your mouth you acknowledge me as your superior, but in your
-heart how can you still think there is any royalty-officer relationship between us? I
-want to see Duan Zhixing; will you let me or will you not?”
+Ying Gu berkata, "Dengan mulut kalian bilang aku atasan kalian, tapi apa dalam hati kalian masih ada hubungan atasan-bawahan 
+di antara kita? Aku ingin ketemu Duan Zhixing, kalian mengijinkan atau tidak?"
 
-‘Duan Zhixing’ was Reverend Yideng’s given name. Although the fisherman, the wood-
-cutter, the farmer and the scholar knew it, they never dared to mention it casually.
-Now that Ying Gu mentioned his name irreverently they could not help but feel of-
-fended. The farmer was formerly the Emperor Duan’s personal bodyguards’ captain; he
+Duan Zhixing adalah nama Yideng Dashi ketika dilahirkan. Meskipun si nelayan, penebang kayu, petani dan sastrawan itu tahu,
+mereka tidak pernah berani menyebutkannya secara sembarangan. Ketika mendengar Ying Gu seenaknya menyebutkan nama tersebut,
+mereka merasa sangat tersinggung. Si petani sebelumnya dikenal sebagai kapten pasukan pengawal pribadi Kaisar Duan, ia tidak
+bisa lagi menahan diri. Dengan suara lantang ia berteriak, "Menjadi kaisar satu hari, beliau akan terus dihormati di sepanjang 
+hidupnya. Kenapa _kau_ ngomong seenaknya?"
 
-could not endure patiently. With a loud voice he shouted, “One day became an em-
-peror, he will be honored for the rest of his life. How can it be that you speak without
-propriety?”
+Ying Gu tertawa panjang dan tanpa mengatakan apa-apa menerjang maju. Keempat orang itu secara serempak menangkis dengan 
+tangannya, mereka berpikir, "Meskipun kungfunya tinggi, kalau kita bergabung pasti bisa menghentikannya. Kita akan melanggar 
+perintah, tapi situasinya darurat, bicara belakangan."
 
-Ying Gu let out a long laugh and without saying anything charged forward. Four people
-respectively shot out their arms to block; they thought, “Even though her martial art
-skill is high, with us combining our efforts we should be able to stop her. We are going
-to disobey our order, but the situation is dire, we’ll talk later.”
+Di luar dugaan, Ying Gu tidak menggunakan tangan untuk menyerang, tapi menggunakan ilmu meringankan tubuhnya untuk menerjang 
+ke arah mereka. Si penebang kayu melihatnya datang dengan kecepatan tinggi, ia tidak berani menyentuh tubuh Ying Gu, karena 
+itu ia dengan cepat menghindar, lalu mengulurkan tangannya dalam upaya untuk mencekal bahu Ying Gu. Tangannya kuat dan cepat,
+tapi segera setelah menyentuh bahunya, ia merasa seolah menyentuh sesuatu yang sangat licin, karena itu tangannya tergelincir.
 
-Who would have thought that Ying Gu did not use her palm or fist to attack, but utiliz-
-ing her lightness kungfu she bumped them. The woodcutter saw her coming fast, he did
-not dare to touch her body, he moved aside swiftly, then stretched out his hand trying
-to grab her shoulder. His hand was quick and powerful, but as soon as he touched her
-shoulder he felt like he was trying to grab something exceptionally slick, so that his
-hand slipped away.
+Saat itu terdengar seruan keras si petani dan nelayan yang menyerang dari kiri-kanan. Ying Gu mengelak seperti ular yang 
+licin, ia menyelipkan diri di bawah ketiak si nelayan. Hidung si nelayan mencium aroma harum yang samar, baunya seperti anggrek,
+tetapi tidak persis sama. Ia panik dan tidak berani menangkap tubuh Ying Gu yang menyelinap di bawah lengannya, sebaliknya ia 
+membaka tangannya karena takut akan menyentu tubuh Ying Gu.
 
-By this time with a loud shout the farmer and the fisherman attacked from left and
-right. Ying Gu ducked and just like a slithery snake she slipped underneath the
-fisherman’s armpit. The fisherman’s nostrils caught a faint whiff of fragrance, it
-smelled like an orchid but not quite like an orchid, like musk deer but not quite like
-musk deer. He was frantic and did not dare to catch her body in between his arms; he
-opened up his arms instead for fear of touching her body.
+Si petani gusar. "Apa yang kau lakukan?" serunya. Dengan kesepuluh jarinya membentuk cakar ia berusaha mencekal pinggang 
+Ying Gu.
 
-The farmer was indignant, “What are you doing?” he shouted. With his ten fingers
-forming a pair of claws he tried to grab Ying Gu’s waist.
+"Jangan kurang ajar!" seru si penebang kayu.
 
-“Don’t be impolite!” the woodcutter called out.
+Si petani pura-pura tidak mendengar, dengan segera jarinya telah menyentuh pinggang Ying Gu, tetapi karena suatu hal tangannya 
+seperti menyentuh permukaan sebuah benda yang sangat lunak dan berminyak, dan tergelincir dari pinggang Ying Gu.
 
-The farmer turned a deaf ear to him, very soon his fingers had reached Ying Gu’s waist,
-but somehow it was like his fingers were touching a very smooth and oily surface that
-they slipped away from her waist.
+Ying Gu menggunakan teknik Ni Qiu Gong[^ni-qiu-gong] yang disempurnakannya di Rawa Hitam untuk melewati hadangan ketiga orang 
+itu. Sekarang ia tahu bahwa mereka berempat tak berdaya untuk menghadangnya. Telapak tangannya menampar ke belakang ke arah 
+si petani. Si sastrawan mengayunkan tangannya dengan jari terarah ke titik akupuntur di tangan Ying Gu. Di luar perkiraannya,
+Ying Gu tidak menarik tangannya, tetapi meengacungkan telunjuknya ke atas dan secepat kilat jari keduanya bertemu. Si sastrawan 
+telah mengerahkan seluruh tenaganya ke jari tangan kanan, mendadak jarinya mati rasa, tubuhnya seperti tersengat listrik.
+"Aiyo!" jeritnya, dan ia terjatuh. Si penebang kayu dan nelayan buru-buru membungkuk untuk menolong.
 
-Ying Gu had used the ‘ni qiu gong’ [mud loach maneuver] she perfected in the Black
-Marsh to go through these three people. Now she knew that these four were helpless to
-block her. Her palm slapped backward toward the farmer. The scholar swung his arm
-with his finger aimed toward the acupoint on her hand. To his surprise Ying Gu did not
-retract her hand but stuck her index finger up and quick as lightning two fingers col-
-lided in the air. The scholar had exerted all his strength to his right hand finger, sud-
-denly he felt his finger went numb, his body felt like he was electrocuted. “Aiyo!” he
-cried out and fumbled down to the ground. The woodcutter and the fisherman busily
-stooped down to help.
+[^ni-qiu-gong]: Ni Qiu Gong adalah gerakan seperti _catfish_ yang menggeliat di dalam lumpur.
 
-The farmer’s left fist went straight ahead like a hammer hurled toward Ying Gu’s body.
-This attack carried a strong gust of wind, the force was astonishing. Seeing this strong
-attack Ying Gu stood her ground and did not evade. The farmer was alarmed; he
-thought if his fist hit her head, her skull would be cracked. Hastily he tried to withdraw
-his power, but by that time his fist had already touched the tip of Ying Gu’s nose. Ying
-Gu leaned her head slightly, the fist slipped from her nose and slid to her cheek. The
-farmer retracted his left arm, but it was too late. His hand was grabbed by his opponent
-and with a ‘crack’ sound he felt a shot of pain on his arm. His elbow joint was broken
-by the back of her fist. The farmer gritted his teeth, ignoring the pain, his right hand in-
-dex finger swiftly attacked the crook of the opponent’s elbow.
+Kepalan kiri si petani meluncur deras ke arah tubuh Ying Gu seperti palu. Serangan itu diiringi terpaan angin kuat, tenaganya 
+sangat mencengangkan. Melihat serangan dahsyat itu Ying Gu diam tidak bergerak. Si petani terkejut, ia mengira kalau kepalannya 
+menerpa kepala Ying Gu, maka tengkoraknya pasti akan pecah. Buru-buru ia ingin menarik balik tenaganya, tetapi pada saat itu 
+kepalannya telah menyentuh ujung hidung Ying Gu. Ying Gu memiringkan kepalanya sedikit, kepalan itu terpeleset dari hidungnya
+dan beralih ke pipinya. Si petani menatik tangan kirinya, tetapi terlambat. Tangannya dicekal lawan dan dengan suara 'krekk' 
+ia merasa lengannya sakit. Sikunya patah terkena kepalan Ying Gu. Si petani menggigit bibirnya, mengabaikan rasa sakit,
+telunjuk kanannya dengan cepat menyerang lekukan siku lawannya.
 
-The fisherman, the woodcutter, the farmer and the scholar’s acupoint sealing tech-
-nique was taught by Reverend Yideng. It was inferior to the Solitary Yang Finger with
-its infinite variations, but it could be considered as a first class acupoint sealing tech-
-nique in the Wulin world; how would they know that fighting Ying Gu they were like
-fighting their black star. She was determined to avenge the death of her son; she fully
-realized Reverend Yideng’s finger skill was very fierce, thereupon she spent a great
-deal of time and energy to find a method to subdue that skill. She was very skillful in
-embroidery, so she found her inspiration from the wonderful needlework technique.
-She wore a tiny golden hoop on the tip of her right hand index finger; on the hoop was
-a three-fen (about 1 cm) long golden needle, which tip was dipped in poison. Her vision
-was excellent, her hand was steady; after training hard for several years she was able
-to prick a fly flying in the air. This time fighting the enemy she was able to prick the
-scholar’s index finger. Seeing the direction of the farmer’s finger she laughed coldly,
-lifting up her delicate hand she aimed her fingertip to his and pricked the farmer’s
-finger.
+Ilmu totokan si nelayan, penebang kayu, petani dan sastrawan itu sangat unik, diajarkan secara langsung oleh Yideng Dashi.
+Memang tingkatnya lebih rendah dari Totokan Satu Jari dengan segala variasinya yang tak terhingga, tetapi tetap termasuk 
+ilmu totokan kelas satu di dunia persilatan. Di luar dugaan ketika berhadapan dengan Ying Gu seolah-olah mereka ketemu batunya.
+Ia telah bertekad untuk membalas sakit hati atas kematian anaknya, ia sangat sadar bahwa ilmu jari Yideng Dashi sangat dahsyat,
+karena itu ia menghabiskan banyak waktu dan tenaga untuk mematahkan ilmu itu. Ia sangat terampil dalam menyulam, jadi ia 
+menemukan inspirasi melalui teknik pekerjaan tangan dengan jarum. Ia memakai semacam paku emas yang sangat kecil di ujung 
+jari telunjuk kanannya, di atas paku itu ada semacam jarum emas tipis sepanjang kira-kira satu sentimeter, yang ujungnya 
+telah dicelup racun. Penglihatannya sangat bagus, tangannya sangat kokoh, setelah berlatih bertahun-tahun ia bisa menusuk 
+seekor lalat yang sedang terbang di udara. Kali ini ia berhasil menusuk jari telunjuk si sastrawan. Melihat arah gerakan 
+jari si petani ia tertawa dingin, mengangkat tangannya yang indah ia mengincar jari si petani dengan ujung jarinya.
 
-As the saying goes, ‘ten fingers join the heart’, the tip of the index finger is connected to
-the hand’s ‘yang ming’ [positive and bright] passage to the large intestine. As the golden
-needle pricked in, it hit the ‘shang yang xue’ [positive quotient acupoint] squarely.
+Seperti pepatah 'Sepuluh jari merangkai jantung'[^pepatah-2], ujung jari telunjuk terhubung dengan jalan darah Yang Ming 
+menuju ke arah usus besar. Ketika jarum emas menusuknya, maka Shang Yang Xue terkena telak.
 
-In his last effort to score victory amidst a defeat, the farmer had exerted all his strength
-to his finger. Ying Gu on the other hand, did not have to exert any strength; all she
-needed to do was to position her golden needle right on the path of the farmer’s finger.
-Hence she let the farmer prick his own finger by the needle.
+[^pepatah-2]: Pepatah ini masih harus dicari aslinya.
 
+Dalam upayanya yang terakhir untuk menang yang ternyata di ambang kekalahan, si petani mengerahkan seluruh tenaganya 
+ke jari-jarinya. Di lain pihak, Ying Gu sama sekali tidak perlu mengerahkan tenaga, ia hanya perlu menempatkan jarum 
+emasnya di jari-jari si petani pada posisi yang tepat. Dengan demikian si petani akan menusuk jarinya sendiri ke arah
+jarum emas itu.
 
-**Page 24 in PDF**
+Ketika jarinya tertusuk, si petani meraung seperti harimau dan terjengkang ke tanah. Ying Gu mengejek dengan dingin,
+"Bagus sekali, Kapten!" Dan ia ke halaman di depan ruang meditasi.
+
+"Niang Niang, hentikan!" teriak si nelayan.
+
+Ying Gu menghentikan langkahnya dan berpaling. "Dan bagaimana cara kalian menghentikan aku?" dengusnya. Saat itu ia 
+sudah tiba di depan kolam teratai. Kolam itu terhubung ke ruang meditasi melalui sebuah jembatan batu kecil. Ying Gu 
+sedang berdiri di ujung jembatan itu, menatap si nelayan. Malm itu sangat gelap, penerangannya hanya cukup untuk mengenali 
+wajahnya. Si nelayan berdiri berhadapan dengan dia, ia merasa tatapan itu sangat dingin, tak terasa ia menggigil dan tidak 
+berani maju menghadang.
+
+Ying Gu berkata dengan dingin, "Perdana Menteri dan Kapten sudah terkena Tujuh Jarum Maut-ku[^tujuh-jarum-maut], tidak ada 
+yang bisa menyelamatkan mereka. Kau juga ingin mengantar nyawamu? Tanpa menunggu jawaban ia berbalik dan pelan-pelan berjalan
+maju. Ia sekali pun tidak memalingkan mukanya lagi, tampaknya ia sama sekali tidak takut akan serangan mendadak.
+
+Saat itu ia sudah sekitar dua puluh langkah dari ujung jembatan ke arah bangunan itu. Ketika ia mencapai ujung jalan, mendadak
+seseorang muncul dari kegelapan, merangkapkan tangannya sambil berkata, "Qianbei, apa kabar?"
+
+Ying Gu terkejut, ia berpikir, "Orang ini menunggu diam-diam di sini dan muncul mendadak, kenapa aku sama sekali tidak 
+mendengar suara nafasnya? Kalau dia berniat jahat aku pasti sudah mati atau setidaknya luka parah." Ia mencoba melihat 
+lebih dekat dengan teliti dan menemukan bahwa orang itu tinggi, bahunya lebar, alisnya tebal dengan sepasang mata besar,
+ternyata dia adalah orang yang diberinya arahan ke tempat ini, Guo Jing. "Luka nona cilik itu sudah sembuh?" tanyanya.
+
+Guo Jing membungkuk dan berkata, "Terima kasih banyak atas petunjuk Qianbei. Yideng Dashi sudah menyembuhkan luka adik 
+seperguruanku."
+
+"Hm!" dengus Ying Gu. "Kenapa bukan dia sendiri yang berterima kasih kepadaku?" Mulutnya bicara, tetapi kakinya terus melangkah 
+maju.
+
+Guo Jing berdiri di ujung jembatan. "Qianbei, tolong kembali!" katanya buru-buru.
+
+Ying Gu mengabaikannya, ia memiringkan tubuhnya sedikit dan menggunakan Ni Qiu Gong untuk menyelinap melewatinya. Meskipun 
+Guo Jing sudah pernah berhadapan dengan Ying Gu di Rawa Hitam, ia sama sekali tidak menduga bahwa wanita itu akan menyelinap 
+melewatinya sambil terus bicara, dan bahwa tubuhnya bisa begitu licin. Dalam keadaan terdesak Guo Jing mengayunkan tangan 
+kirinya ke belakang, menyerang Ying Gu dengan menggunakan Tinju Kosong ajaran Zhou Botong.
+
+Ying Gu mengira bahwa ia sudah berhasil melewati Guo Jing, tak terduga bahwa hembusan angin yang lembut tetapi kuat akan 
+menerpanya dari arah tangan pemuda itu yang sedang mengincar mukanya, memaksanya untuk mundur. Tetapi Ying Gu bersikeras, 
+jadi tak peduli seberapa kuatnya serangan Guo Jing, ia dengan berani terus melangkah maju seolah ingin menerima langsung 
+pukulan itu secara terbuka.
+
+"Awas!" seru Guo Jing buru-buru. Ia merasa sosok tubuh perempuan yang hangat dan lembut terlempar ke lekukan sikunya. Ia 
+terpana. Memanfaatkan kesempatan itu Ying Gu menyapu kakinya dan keduanya terjatuh ke dalam kolam teratai.
+
+Ketika mereka masih di udara, tangan kiri Ying Gu menyelinap di bawah ketiak kanan Guo Jing, melingkar ke punggungnya dan 
+mencekal bahu kirinya, jari tengahnya meliuk ke arah tenggorokan Guo Jing sementara ibu jari dan telunjuknya mencubit bagian 
+belakang lehernya dengan sekuat tenaga. Itu adalah gerakan Qian Feng Hou Bi Qi yang paling dahsyat dari rangkaian teknik 
+Qin Na Shou, kalau satu cubitan saja mengenai sasaran, maka saluran pernafasan lawan akan tertutup dan dia tidak akan bisa 
+bernafas.
+
+Sementara melayang jatuh Guo Jing merasa bahunya dicekal, ia tahu situasinya tidak aman. Ia menekuk lengan kanannya untuk 
+merangkul leher Ying Gu. Itu juga salah satu teknik dari Qin Na Shou yang disebut Hou Xie Jing Bi Qi. Ying Gu tahu bahwa 
+kekuatan lengan Guo Jing sulit diukur, dan tenaganya sendiri kalah terlalu jauh, ia tahu meskipun ia menyerang lebih dahulu
+tetapi tidak akan bisa mengimbangi pemuda itu dalam hal adu kekuatan, jadi ia melepaskan tangannya dari bahu Guo Jing dan 
+berbalik menjulurkan jarinya untuk menusuknya. Guo Jing menggunakan lengan kirinya untuk menangkis jari-jari Ying Gu.
+
+Jatuh ke dalam kolam sebetulnya hanya membutuhkan waktu sangat singkat, tetapi keduanya sudah bergebrak dengan sangat cepat,
+dalam sekejap mata lebih dari tiga jurus terlewati. Keduanya sama-sama menggunakan teknik pukulan jarak dekat Qin Na Shou.
+Ying Gu sangat terampil, tetapi tenaga Guo Jing sungguh mencengangkan. Dalam tiga jurus itu tidak bisa ditentukan siapa yang 
+lebih unggul. "Byurr!" keduanya tercebur ke dalam kolam.
+
+Dasar kolam itu diselimuti lumpur sedalam tiga kaki, saat keduanya jatuh, mereka terendam air sampai ke dada. Tangan kiri 
+Ying Gu meraup lumpur dan melumurkannya ke mulut Guo Jing. Guo Jing terperanjat dan merendahkan kepalanya untuk menghindari 
+lumpur. Ying Gu hidup di Rawa Hitam selama lebih dari sepuluh tahun. Gerakan gaya ikannya dikembangkan dari hasil mengamati 
+cara ikan lele menyelam dan meliuk-liuk di lumpur. Ketika berkelahi di darat ia sangat licin, apalagi ketika berkelahi di 
+dalam kolam. Ia seperti seekor harimau tumbuh sayap. Dengan sengaja menyeret Guo Jing ke kolam karena ia sadar akan kehebatan
+kungfu pemuda itu, ia tahu sangat sulit melewati jembatan itu kalau Guo Jing mengawalnya. Teknik tusukan jarinya jauh lebih 
+cepat di dalam lumpur ketimbang di atas tanah, ditambah lagi sesekali ia meraup sekepal penuh lumpur dan melumurkannya ke 
+muka Guo Jing.
+
+Kedua kaki Guo Jing terperangkap di dalam lumpur, ditambah lagi ia tidak berani memakai lebih banyak tenaga karena takut 
+akan melukai Ying Gu, karenanya setelah empat-lima jurus ia mulai terdesak di bawah angin. Ia mendengar hembusan angin tipis
+ketika lumpur meluncur ke arah mukanya, buru-buru ia mengelak ke samping. Tak terduga ketika gumpalan lumpur yang pertama 
+lewat, gumpalan kedua sudah datang, diikuti oleh gumpalan ketiga, yang mengena telak di mukanya. Mulutnya, hidungnya dan juga 
+matanya tertutup lumpur berbau busuk.
+
+Keenam Orang Aneh dari Jiangnan mengajarnya dengan baik, jadi ia tahu bahwa ketika ia terkena senjata rahasia lawan, sebaiknya
+tidak secara panik berusaha menarik paksa senjata itu, karena lawan akan langsung memanfaatkan peluang itu untuk melancarkan 
+serangan mematikan. Pada saat itu ia tidak bisa bernafas dan membuka mata, ia menggerakkan tangannya dan melancarkan tiga 
+jurus maut, supaya tidak ada orang yang bisa mendekat dalam jarak lima kaki. Setelah itu barulah ia menghapus lumpur dari 
+mukanya dengan tangan kiri dan membuka mata, tetapi Ying Gu sudah melompat ke atas jembatan dan mendekat ke halaman luar 
+ruang meditasi.
+
+Ketika berhasil melewati Guo Jing, Ying Gu diam-diam mengomel, "Memalukan! Klalau tidak ada kolam ini, bagaimana aku bisa 
+melewati bocah tolol itu? Kelihatannya Surga membantuku membalas dendam hari ini."
+
+Ia mempercepat langkahnya dan segera tiba di pintu masuk kuil. Ia mengangkat tangannya untuk mendorong pintu, ternyata pintu itu 
+tidak dipalang dari dalam, dengan segera terbuka dibarengi suara berderit. Kali ini ia tidak buru-buru masuk, ia menantikan 
+sebuah jebakan di balik pintu. Ia menunggu di luar pintu dan mendapati kenyataan bahwa ruangan itu kosong, tidak ada yang harus 
+dikuatirkan. Pelan-pelan ia memasuki ruangan. Ia melihat ruangan itu ternyata sebuah ruang meditasi yang hanya diterangi sebuah 
+lampu minyak. Lampu itu menerangi gambar Buddha dengan wajahnya yang agung. Hati Ying Gu terasa pahit, ia berlutut di alas 
+meditasi dan berdoa dalam hati.
+
+Ia baru berdoa sebentar ketika mendengar suara seseorang cekikikan pelan di belakangnya. Dengan segera tangan kirinya menyapu 
+ke belakang untuk mencegat keemungkinan serangan mendadak, sementara tangan kanannya mendorong ke bawah ke alas meditasi, 
+meminjam momentum untuk melompat ke atas dan melakukan salto dengan anggun di udara sebelum mendarat kembali di lantai.
+
+"Hebat sekali!" Ia mendengar suara perempuan bersorak memuji. Ying Gu menoleh dan melihat seorang anak perempuan memakai baju 
+hijau dengan sabuk merah melingkar di pinggangnya dan rangkaian aksesori emas berkilau di rambutnya, sepasang matanya yang 
+indah menatap Ying Gu dengan senyum samar, ada kilauan tongkat bambu hijau di tangannya. Tak ragu lagi, itu adalah Huang Rong.
+"Ying Gu Qianbei, aku berterima kasih untuk kebaikanmu menyelamatkan nyawaku," katanya.
+
+"Aku memberimu petunjuk untuk mengobati lukamu, tapi niatku sebenarnya untuk mencelakai orang lain," kata Ying Gu terus terang.
+"Jadi sebenarnya aku tidak menyelamatkan nyawamu. Buat apa kau berterima kasih."
+
+Huang Rong mendesah. "Dendam dan hutang budi sungguh sulit dimengerti. Ayahku menahan Bocah Tua Nakal Zhou Botong di Pulau
+Bunga Persik lima belas tahun. Akhirnya, tetap saja dia tidak bisa menyelamatkan nyawa ibuku."
+
+Ketika Ying Gu mendengar nama 'Zhou Botong' disinggung, ia sangat terkejut. "Apa hubungan ibumu dengan Zhou Botong?"
+tanyanya dengan suara tegas.
+
+Mendengar nada bicaranya Huang Rong tahu ia curiga Zhou Botong menjalin hubungan rahasia dengan ibunya dan sebagai akibatnya 
+ditawan oleh ayahnya di Pulau Persik. Kelihatannya setelah belasan tahun berlalu perasaannya terhadap Zhou Botong tetap 
+tidak berubah, kalau tidak kenapa ia harus cemburu.
+
+Sambil menundukkan kepala, dengan nada berduka Huang Rong berkata, "Ibuku meninggal karena kelelahan gara-gara Zhou Botong."
+
+Ying Gu lebih curiga lagi. Di bawah cahaya lampu yang redup ia bisa melihat kulit Huang Rong putih seperti salju, mata dan 
+alisnya sangat indah, bahkan Ying Gu dalam usia keemasannya tidak secantik dia. Ia menduga ibu Huang Rong pasti juga 
+sangat cantik, adalah sangat sulit bagi Zhou Botong melihatnya tanpa tertarik. Tanpa sadar Ying Gu cemberut.
+
+"Kau tidak usah curiga," kata Huang Rong. "Ibuku seperti bidadari, si Zhou Botong itu dungu dan keras kepala seperti kerbau.
+Kecuali perempuan yang punya mata tapi gagal melihat, tidak akan ada yang jatuh cinta kepadanya."
+
+Ying Gu tahu Huang Rong sedang mengejeknya, tapi kecurigaannya lenyap, ia dengan segera merasa lega. Tanpa mmengedipkan mata
+ia balas mengejek dengan dingin. "Karena ada orang mencintai Guo Jing yang setolol babi, mestinya ada juga orang yang 
+mencintai laki-laki keras kepala yang sebodoh kerbau. Bagaimana cara Lao Wantong membuat ibumu meninggal?"
+
+Huang Rong cemberut dan berkata, "Kau menghina kakak seperguruanku, aku tidak mau bicara denganmu." Ia mengebaskan lengan 
+bajunya dan berpaling, pura-pura marah.
+
+Ying Gu sangat ingin tahu tentang Zhou Botong, ia buru-buru berkata, "Baiklah, aku tidak akan melakukannya lagi.
+Kakak seperguruanmu sebenarnya sangat pintar."
+
+Huang Rong menghentikan langkahnya dan berbalik. "Si Lao Wantong itu bukan sengaja menyebabkan kematian ibuku," katanya. "Tapi 
+malangnya ibuku meninggal gara-gara dia. Karena marah ayahku menahannya di Pulau Bunga Persik, tapi setelah itu ayahku 
+menyesalinya. Ketidakadilan ada sebabnya, hutang juga ada sumbernya. Kalau seseorang membunuh orang yang kau cintai, maka kau 
+pasti akan mengejar sampai ke ujung dunia untuk membalas dendam kepada orang yang membunuhnya. Kenapa kau melampiaskan marahmu 
+kepada orang lain?"
+
+Pidato itu seperti pukulan telak yang mengenai kepala Ying Gu, ia terpaku di tempatnya tanpa suara. Ia mendengar Huang Rong 
+melanjutkan, "Ayahku sudah lama membebaskan Zhou Botong..." Ying Gu terkejut dan kegirangan, "Maka aku tidak perlu lagi
+membebaskannya?" tanyanya.
+
+Huang Rong tersenyum. "Kalau ayahku tidak membebaskannya, kau bermaksud membebaskannya?" tanyanya. Ying Gu diam.
+
+Ketika meninggalkan Dali, niat Ying Gu sebenarnya adalah untuk mencari Zhou Botong. Beberapa tahun pertama lewat tanpa ada 
+kabar apa pun mengenai dia. Lalu secara kebetulan ia mendengar dari Sepasang Iblis bahwa Zhou Botong ditawan di Pulau 
+Bunga Persik oleh Huang Yaoshi, tetapi ia tidak bisa bertanya tentang alasan di balik itu. Saat itu, ketika Zhou Botong 
+menolaknya dan meninggalkan Dali ia tahu bahwa sangat sulit mengubah hatinya, kalau bukan karena sesuatu yang sangat signifikan.
+Saat itu ketika mendengar kabar mengenai Zhou Botong, ia merasa bahagia dan sekaligus sedih. Sedih karena orang yang dicintainya
+dalam kesulitan, bahagia karena mengira bahwa dengan begitu ia punya kesempatan yang bagus. Kalau ia berhasil menyelamatkannya,
+mana mungkin Zhou Botong tidak merasa tersentuh dalam dalam oleh kasihnya. Di luar dugaan, ternyata jalan-jalan di Pulau Bunga 
+Persik mengandung ribuan variasi tikungan dan ratusan jebakan. Jangankan untuk menyelamatkan orang lain, ia sendiri hampir 
+mati kelaparan selama tiga hari tiga malam. Seandainya Huang yaoshi tidak mengirim pelayan bisu-tuli untuk menunjukkan jalan,
+ia tidak akan pernah bisa meninggalkan Pulau Bunga Persik hidup-hidup. Sejak itu ia memilih untuk tinggal di Rawa Hitam,
+degan rajin ia belajar matematika dan teori tentang angka. Sekarang ia mendengar bahwa Zhou Botong sudah dibebaskan, ia 
+menatap kosong, sejuta pikiran memenuhi benaknya.
+
+Huang Rong tersenyum dan berkata dengan lembut, "Lao Wantong mendengarkan pendapatku dengan senang hati, dia tidak akan 
+berani menolak permintaanku yang mana pun. Kalau mau ketemu dia, ikuti aku saja dan turun gunung. Biar aku yang jadi 
+mak comblang untuk kalian berdua, anggap saja ini caraku berterima kasih karena kau sudah menyelamatkan nyawaku." Kata-katanya
+membuat muka Ying Gu merah padam dan jantungnya berdegup kencang.
+
+Ketika melihat penuturannya berhasil mengubah niat membunuh menjadi kebahagiaan, Huang Rong merasa bangga. Tiba-tba ia 
+mendengar suara tepukan tangan, telapak tangan Ying Gu saling bertemu. Mukanya tampak seperti dilapisi es, dengan galak ia
+berkata, "Apa yang membuatnya mau mendengarkanmu, bocah bermarga Huang? Kenapa dia mau mengikuti suruhanmu? Karena kau 
+cantik? Aku tidak pernah bersikap baik kepadamu, aku tidak butuh balas jasamu. Ayo cepat minggir, atau jangan salahkan 
+aku kalau tidak berbelas kasihan."
+
+"Aiyo! Kau mau membunuhku?" kata Huang Rong tertawa.
+
+Ying Gu menaikkan alisnya. "Kalau ya kenapa?" katanya dengan dingin. "Orang lain takut kepada Huang Laoxie, aku tidak takut
+langit dan bumi."
+
+Huang Rong cekikikan. "Membunuhku tidak sulit," katanya dengan riang. "Tapi siapa yang akan membantumu menyelesaikan 
+tiga soal matematika yang kutinggalkan itu?"
+
+Sejak Huang Rong menuliskan tiga soal matematika di atas pasir di dalam gubuk di Rawa Hitam, Ying Gu setengah mati memeras otak
+siang dan malam tanpa menemukan petunjuk sedikitpun bagaimana cara menyelesaikannya. Mula-mula ia belajar matematika karena 
+ingin membebaskan Zhou Botong dari Pulau Persik, tetapi kemudian ia sangat terpesona oleh topik yang kompleks dan misterius
+itu. Makin dalam ia menggali, ia makin terpesona, sampai ia lupa makan dan tidur, dan tidak bisa berhenti meskipun ia berniat
+begitu. Ia tahu bahwa meskipun ia bisa menyelesaikan masalah itu, tetapi dibandingkan dengan ilmu Huang Yaoshi masih tetap 
+akan seperti langit dan bumi, dengan kata lain, itu tidak akan membantunya sedikitpun dalam upaya untuk menyelamatkan 
+Zhou Botong. Tetapi rasa penasaran memaksanya untuk memeras otak, tanpa jawaban yang tepat akan sangat sulit baginya 
+untuk merasa tenang dan damai. Karena sekarang Huang Rong menyinggung masalah itu, ketiga soal itu dengan segera berkelebat 
+di benaknya, tanpa sadar mukanya menunjukkan keraguan.
+
+"Jangan membunuhku, aku akan mengajarimu," kata Huang Rong. Ia mengambil lampu minyak dari dekat gambar Buddha dan 
+menaruhnya di atas lantai. Ia mengambil sebuah jarum emas, lalu mulai menulis angka-angka dan beberapa kalimat di atas 
+lantai batu.
+
+The first subject was the ‘qi yao jiu zhi tian zhu bi suan’ [seven dazzling nine grasping
+Indian method of calculation]. As Ying Gu saw the solution she was dazzled and could
+not help but secretly sigh in praise. Huang Rong continued with the second subject, the
+‘li fang zhao bing zhi yin gei mi ti’ [lit. standing up soldier supplying silver topic] had
+profound changes in it. As Ying Gu waited for her to write the last answer she sighed
+and said, “This middle subject surely has an endless wonderful secret.”
+
+A moment later she said, “If we say the third subject to be easy, then it is easy; but if we
+regard it as difficult, then it is difficult. There is an unknown number; three and three
+has a remainder of two, five and five has a remainder of three, seven and seven has a
+remainder of two. What number is that? I know it was twenty-three; but that was a
+hard guess. I need to line up every number for all interchangeable computational pat-
+terns, but even after thinking until I split my head I could not figure it out.”
+
+Huang Rong smiled, “It is very easy. Calculating three and three, it amounts to seventy.
+Calculating five and five, it amounts to twenty-one. Calculating seven and seven, it
+amounts to fifteen. Adding three numbers together, if not greater than 105, then that’s
+the correct answer. Otherwise, subtract 105 or its multiple.”
+
+Ying Gu calculated it in her heart and sure enough she got the correct answer. With a
+low voice she recited, “Calculating three and three, it amounts to seventy. Calculating
+five and five ...”
+
+Huang Rong said, “You don’t have to memorize it like that. Let me give you a poem to
+help you memorize it easier: Three people travel together in seventy directions, five
+plum blossom trees have twenty one branches, seven children reunite for half a month,
+a hundred and five remained to be known.”
+
+Listening to ‘three people travel together’ and ‘reunite for half a month’ Ying Gu felt of-
+fended, she thought, “This girl knows him, she knew my shameful secret from early on.
+‘Three people traveling together’ is me one woman serving two men. Could it be that by
+‘reunite for half a month’ she was ridiculing me of having a love affair knowing him for
+only a dozen of days?” What she did in the years past had become a matter of the heart
+to her, unavoidably she became quite over-suspicious to everybody. “All right,” she said
+flatly, “Thank you for your directions. ‘Asking direction in the morning, bored to death
+in the evening’. Must I stay to listen to you speaking more nonsense?”
+
+Huang Rong smiled, “’Asking direction in the morning, bored to death in the evening.’
+The one who died is the one asking; but I’ve never heard the one asking question kill
+the one preaching the sermon.”
+
+Ying Gu stole a glance toward the meditation room; she knew Emperor Duan must be
+residing in the back. She saw Huang Rong kept pestering her, something was amiss.
+Even though Huang Rong was young, her intelligence and eccentricity was not inferior
+to her father’s. How could a thirty-year-old lady bicker with a baby? She was afraid her
+luck would turn bad just like a ship capsized in the gutter. She had wasted not a few
+moments because she wanted to look at Huang Rong’s calculations; while a very impor-
+tant matter was still ahead of her. How could she allow senseless thought over mathe-
+matics consume her energy? Therefore, she decided not to answer and immediately
+lifted up her feet to walk inside.
+
+Crossing over the worship hall she saw there was a dark room ahead with only one
+flickering light inside. As a wary person she did not dare to rush in; raising her voice up
+she called out, “Duan Zhixing, are you or are you not going to see me? You hide your
+tail in the dark, what kind of real man are you?”
+
+Huang Rong followed behind her, laughing, “You don’t like there is no lamp in here?
+The Reverend was afraid too much light would scare you away, so he ordered us to put
+the lights out.”
+
+“Humph,” Ying Gu snorted, “I am the kind of person who is not afraid to go to hell, why
+would a mountain of blades or boiling oil scare me?”
+
+Huang Rong clapped her hands and laughed, “That’s very good! I want to play around
+the mountain of blades with you.” Taking out a flint from her pocket, lighted it up, then
+she stooped down and lighted a lamp next to her feet.
+
+Turned out there was an oil lamp on the ground; it surprised even Ying Gu. She looked
+closer to see that it was not an oil lamp, but a small porcelain tea cup filled halfway
+with oil, with a cotton ball dipped in it as the wick. Next to the cup was a sharpened
+bamboo stick about a foot long, inserted on the ground with the sharpened end on the
+top; it looked really sharp.
+
+Huang Rong did not pause, she kept moving and in just a short moment the floor was
+filled with flickering lights like stars on a dark night. Next to each cup was a sharp bam-
+boo stick. Before Huang Rong even finished Ying Gu had started counting, and she
+found out there were 113 teacups with 113 bamboo sticks next to them. She was greatly
+baffled, “If it is the ‘mei hua zhuang’ [plum blossom stake] arrangement, then it must
+have either 72 sticks or 108 sticks, but it has 113 sticks; what kind of arrangement is
+this? The array seems random, not the ‘jiu gong ba gua’ [nine-palace eight-diagram],
+also not ‘mei hua wu chu’ [plum blossom five arrangements]. Moreover, these bamboo
+sticks are so sharp, how can somebody stand on them? Ah, right, she must be wearing
+iron-soled shoes.” She further thought, “This girl is prepared, I can’t fight her on these
+things yet I can’t ignore this. I’ll just go through it then.” Thereupon with big strides she
+walked forward, but the bamboo sticks were densely packed, it was difficult to walk
+through them, so she kicked around and broke five, six sticks while saying, “What
+crafty trick is this? The old lady doesn’t have time to play around with the baby.”
+
+Hurriedly Huang Rong called, “Ah, ah! Don’t do that! Don’t do that!” Ying Gu ignored
+her and kept kicking. “All right!” Huang Rong called out, “You don’t want to talk reason
+with me, I am going to turn off the lights. Quickly memorize the bamboo sticks’
+positions.”
+
+Ying Gu was startled, she thought, “If these people gang up and plan to attack me, they
+must have memorized the position of these sticks early on. I could get killed among the
+bamboo sticks in the dark. I must leave this dangerous place quickly!” She gave her
+spirit a boost and sped her steps up, kicking furiously.
+
+“Shameless!” Huang Rong called out. She brandished her bamboo stick trying to block
+Ying Gu. The oil lamp shone on the dark-green bamboo stick, creating a spooky shadow
+dancing in front of Ying Gu’s face. Of course Ying Gu did not think much about a
+teenage girl’s stick technique. Her left palm hacked vertically down; she thought one
+palm should be enough to break the bamboo stick. Who would have thought that
+Huang Rong’s stick technique was the Dog Beating Stick’s sealing technique; the stick
+moved horizontally, it was not aimed at the enemy’s body, but it turned into a piece of
+jade-green wall blocking in front of the door. As long as the enemy did not tread a step,
+the wall would not hurt the least bit, but if one attacked one would immediately hit.
+
+As Ying Gu hacked down her palm, ‘crack!’ her palm was hit by the end of the stick.
+Hastily she withdrew her already pain and numb hand. She was not hit on a vital acu-
+point, but the pain was severe. Formerly Ying Gu did not think much of Huang Rong’s
+martial art, but as she was hit she became startled and angry. She realized now that
+this young crafty kid was not easy to deal with. She swallowed her anger and cau-
+tiously guarded against the opponent’s martial art, trying to gain more understanding
+before deciding on the next course of action. She thought, “I have seen the Twin Killers
+of the Dark Wind’s martial art. Their skills were very profound, but they were already
+thirty, forty years old. How can this little girl attain this kind of level? It must be that
+Huang Yaoshi has passed on his lifelong achievement to his only beloved daughter.”
+
+When she went to the Peach Blossom Island she had suffered a bitter defeat without
+even seeing Huang Yaoshi, almost died on the island; therefore, she always feared the
+Master of the Peach Blossom Island. She actually did not know that this Dog Beating
+Technique was the Beggar Clan Leader’s unique skill, that even if Huang Yaoshi were
+there, he would not necessarily be able to penetrate the stick’s defense immediately.
+
+While Ying Gu hesitated and held her attack back, Huang Rong kept moving her stick
+with the sealing technique, blocking Ying Gu from entering the door. In the meantime
+Huang Rong’s feet did not stay idle, she moved from one bamboo stick to the other with
+agility like a dancing butterfly, kicking the flames one by one. In a short moment she
+had extinguished most of the 113 oil lamps.
+
+The way she kicked the lamps was amazing; not only she did not step on any teacup,
+none of the teacups was kicked upside down or smashed, also only a little bit of oil was
+splashed over. She was fully utilizing the Peach Blossom Island’s ‘sao ye tui fa’ [sweep-
+ing leaves leg/kicking technique]. Her movement was swift and accurate, but Ying Gu
+could see that her skill had not yet reached perfection, it was far inferior to the mar-
+velous changes of the bamboo stick technique. Moreover, although her injury had been
+healed, her strength had not fully recovered yet. Ying Gu thought that if she attacked
+the lower part of Huang Rong’s body she might score a victory within dozens of stances.
+However, as Ying Gu was contemplating her course of action only about seven or eight
+oil lamps were left flickering in the wind on the northeast corner of the room; while the
+other three corners were already pitch-black.
+
+Suddenly Huang Rong’s stick moved twice, Ying Gu was startled; under the faint yellow
+light of the oil lamp she saw a clearance in between two sharp bamboo stick on the
+ground, giving her an opportunity to retreat one step. Huang Rong stuck her stick on
+the ground and using it as a pole her body floated in the air horizontally; her long
+sleeve whisked off and extinguished the seven, eight remaining lamps.
+
+Ying Gu groaned inwardly, “Although I believe I have a way to score victory, among
+these sharp bamboo sticks every step I take can pierce a hole on my foot; how am I go-
+ing to fight?” she thought. In the darkness she heard Huang Rong call out, “Have you
+memorized the bamboo sticks position? Let us fight for thirty stances; if you can defeat
+me, I will let you go in to see Emperor Duan, all right?”
+
+Ying Gu replied, “You are the one who arranged these sticks. I don’t know how much
+time you spent practicing here; while you only gave others a wink to look at these
+many oil lamps.”
+
+Huang Rong was still young and proud, she always tried to outdo others, she also had a
+high confidence on her excellent memory, so she smiled and said, “What’s so difficult
+about it? If you want you can light up the oil lamps rearrange the bamboo sticks as you
+wish, then extinguish the lamps before we fight again, all right?”
+
+Ying Gu thought, “This is not a martial art contest, but a memorization competition.
+This little demon’s intelligence is matchless, how can I risk my life playing memory
+game with her while my big enmity is not avenged?” But suddenly she got an inspira-
+tion; after thinking about it for a moment she said, “Fine, that’s fair enough. Let the Old
+Lady accompany you playing.” Taking a flint from her pocket she lighted the oil lamps.
+
+“Why do you keep calling yourself an old lady?” Huang Rong laughed, “I think you are
+beautiful, you are prettier than a sixteen years old girl. No wonder Emperor Duan was
+so crazy about you.”
+
+Ying Gu was about to pull a bamboo stick and move it someplace else; hearing this she
+stopped dead on her track. “He was crazy about me?” she coldly said, “I was in the
+palace two whole years; just when did he pay any attention to other people?”
+
+“Ah,” Huang Rong was surprised, “Didn’t he teach you martial art?” she asked.
+
+Ying Gu retorted, “Is teaching martial art considered paying attention?”
+
+“Ah, I know,” Huang Rong said, “Emperor Duan was training the ‘xian tian gong’
+[innate/inborn strength/energy], that’s why he could not get intimate with you.”
+
+“Humph,” Ying Gu snorted, “What do you know? How come he got the crown prince?”
+
+Huang Rong leaned her head sideways; she thought for a moment before answering,
+“The crown prince was born before he started training ‘xian tian gong’.”
+
+Ying Gu snorted again but did not say anything. She kept pulling the sticks and inserted
+them back in different places. As she inserted the bamboo sticks one by one Huang
+Rong memorized their positions carefully; she did not dare to be careless. It was a mat-
+ter of life and death, if she missed just a few inches during the fight, it would mean im-
+mediate disaster to her foot.
+
+A moment later Huang Rong spoke again, “Emperor Duan was not willing to save your
+son because of his love for you.”
+
+“You knew everything?” Ying Gu said, “Humph, because of his love to me?” Her voice
+was brimming with bitterness.
+
+**Page 35 in PDF**
 
