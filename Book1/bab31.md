@@ -846,7 +846,7 @@ sangat cantik, adalah sangat sulit bagi Zhou Botong melihatnya tanpa tertarik. T
 "Kau tidak usah curiga," kata Huang Rong. "Ibuku seperti bidadari, si Zhou Botong itu dungu dan keras kepala seperti kerbau.
 Kecuali perempuan yang punya mata tapi gagal melihat, tidak akan ada yang jatuh cinta kepadanya."
 
-Ying Gu tahu Huang Rong sedang mengejeknya, tapi kecurigaannya lenyap, ia dengan segera merasa lega. Tanpa mmengedipkan mata
+Ying Gu tahu Huang Rong sedang mengejeknya, tapi kecurigaannya lenyap, ia dengan segera merasa lega. Tanpa mengedipkan mata
 ia balas mengejek dengan dingin. "Karena ada orang mencintai Guo Jing yang setolol babi, mestinya ada juga orang yang 
 mencintai laki-laki keras kepala yang sebodoh kerbau. Bagaimana cara Lao Wantong membuat ibumu meninggal?"
 
