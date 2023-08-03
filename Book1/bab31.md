@@ -878,7 +878,7 @@ mana mungkin Zhou Botong tidak merasa tersentuh dalam-dalam oleh kasihnya. Di lu
 Persik mengandung ribuan variasi tikungan dan ratusan jebakan. Jangankan untuk menyelamatkan orang lain, ia sendiri hampir 
 mati kelaparan selama tiga hari tiga malam. Seandainya Huang Yaoshi tidak mengirim pelayan bisu-tuli untuk menunjukkan jalan,
 ia tidak akan pernah bisa meninggalkan Pulau Bunga Persik hidup-hidup. Sejak itu ia memilih untuk tinggal di Rawa Hitam,
-degan rajin ia belajar matematika dan teori tentang angka. Sekarang ia mendengar bahwa Zhou Botong sudah dibebaskan, ia 
+dengan rajin ia belajar matematika dan teori tentang angka. Sekarang ia mendengar bahwa Zhou Botong sudah dibebaskan, ia 
 menatap kosong, sejuta pikiran memenuhi benaknya.
 
 Huang Rong tersenyum dan berkata dengan lembut, "Lao Wantong mendengarkan pendapatku dengan senang hati, dia tidak akan 
