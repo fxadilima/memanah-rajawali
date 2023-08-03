@@ -805,7 +805,7 @@ jurus maut, supaya tidak ada orang yang bisa mendekat dalam jarak lima kaki. Set
 mukanya dengan tangan kiri dan membuka mata, tetapi Ying Gu sudah melompat ke atas jembatan dan mendekat ke halaman luar 
 ruang meditasi.
 
-Ketika berhasil melewati Guo Jing, Ying Gu diam-diam mengomel, "Memalukan! Klalau tidak ada kolam ini, bagaimana aku bisa 
+Ketika berhasil melewati Guo Jing, Ying Gu diam-diam mengomel, "Memalukan! Kalau tidak ada kolam ini, bagaimana aku bisa 
 melewati bocah tolol itu? Kelihatannya Surga membantuku membalas dendam hari ini."
 
 Ia mempercepat langkahnya dan segera tiba di pintu masuk kuil. Ia mengangkat tangannya untuk mendorong pintu, ternyata pintu itu 
