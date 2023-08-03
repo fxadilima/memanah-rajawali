@@ -1021,77 +1021,306 @@ memasuki ruangan. Saat itu kaki Huang Rong tidak pernah diam, ia bergerak dari s
 seperti kupu-kupu yang menari-nari, menendang nyala api satu persatu. Dalam waktu singkat ia sudah memadamkan sebagian besar 
 dari seratus tiga belas lampu minyak.
 
+Caranya menendangi lampu itu sungguh mengagumkan, bukan hanya ia sama sekali tidak menjejakkan kaki di atas cangkir-cangkir 
+teh itu, tak satu cangkir pun tertendang terbalik atau pecah, juga hanya sangat sedikit minyak yang tumpah. Ia sepenuhnya 
+menggunakan Sao Ye Tui Fa dari Pulau Bunga Persik. Gerakannya cepat dan akurat, tetapi Ying Gu bisa melihat bahwa 
+keterampilannya masih jauh dari sempurna, jauh lebih jelek ketimbang perubahan-perubahan luar biasa dari ilmu tongkatnya.
+Lebih jauh lagi, meskipun luka dalamnya sudah sembuh, tetapi tenaganya masih belum pulih sepenuhnya. Ying Gu mengira kalau 
+ia menyerang bagian bawah tubuhnya, dalam puluhan jurus ia pasti akan menang. Akan tetapi ketika Ying Gu sibuk memikirkan 
+langkah berikutnya, lampu yang masih menyala hanya tersisa tujuh atau delapan di sudut timur laut ruangan itu, sementara 
+di ketiga sudut lain semuanya sudag gelap gulita.
 
-The way she kicked the lamps was amazing; not only she did not step on any teacup,
-none of the teacups was kicked upside down or smashed, also only a little bit of oil was
-splashed over. She was fully utilizing the Peach Blossom Island’s ‘sao ye tui fa’ [sweep-
-ing leaves leg/kicking technique]. Her movement was swift and accurate, but Ying Gu
-could see that her skill had not yet reached perfection, it was far inferior to the mar-
-velous changes of the bamboo stick technique. Moreover, although her injury had been
-healed, her strength had not fully recovered yet. Ying Gu thought that if she attacked
-the lower part of Huang Rong’s body she might score a victory within dozens of stances.
-However, as Ying Gu was contemplating her course of action only about seven or eight
-oil lamps were left flickering in the wind on the northeast corner of the room; while the
-other three corners were already pitch-black.
+Tiba-tiba tongkat bambu Huang Rong bergerak dua kali, Ying Gu terkejut, di bawah cahaya lampu yang kuning keemasan ia 
+dengan jelas melihat celah di antara dua batang bambu runcing di lantai, memberinya kesempatan untuk mundur selangkah.
+Huang Rong menancapkan tongkatnya di tanah dan menggunakannya sebagai tiang penyanggah, tubuhnya melayang secara horizontal,
+lengan jubahnya yang panjang melambai dan memadamkan tujuh-delapan lampu yang tersisa.
 
-Suddenly Huang Rong’s stick moved twice, Ying Gu was startled; under the faint yellow
-light of the oil lamp she saw a clearance in between two sharp bamboo stick on the
-ground, giving her an opportunity to retreat one step. Huang Rong stuck her stick on
-the ground and using it as a pole her body floated in the air horizontally; her long
-sleeve whisked off and extinguished the seven, eight remaining lamps.
+Ying Gu mengeluh dalam hati. "Meskipun aku yakin bisa menang, tapi di antara begini banyak bambu runcing, kakiku bisa 
+tertusuk, bagaimana caranya aku bisa melawan?" pikirnya. Dalam kegelapan ia mendengar Huang Rog berseru, "Kau sudah 
+menghafal letak bambu-bambu itu? Ayo kita bertarung tiga puluh jurus, kalau kau bisa mengalahkanku, aku akan membiarkanmu 
+menemui Kaisar Duan, bagaimana?"
 
-Ying Gu groaned inwardly, “Although I believe I have a way to score victory, among
-these sharp bamboo sticks every step I take can pierce a hole on my foot; how am I go-
-ing to fight?” she thought. In the darkness she heard Huang Rong call out, “Have you
-memorized the bamboo sticks position? Let us fight for thirty stances; if you can defeat
-me, I will let you go in to see Emperor Duan, all right?”
+Ying Gu menjawab, "Kau yang mengatur bambu-bambu ini. Aku tidak tahu berapa lama kau berlatih di sini, sementara kau hanya 
+memberiku waktu sekejap mata untuk melihat begini banyak lampu minyak."
 
-Ying Gu replied, “You are the one who arranged these sticks. I don’t know how much
-time you spent practicing here; while you only gave others a wink to look at these
-many oil lamps.”
+Huang Rong masih muda dan bangga pada diri sendiri, ia selalu berusaha mengungguli orang lain, ia juga sangat yakin akan 
+kemampuan otaknya untuk menghafal, jadi ia tersenyum dan berkata, "Apanya yang sulit sih? Kalau mau kau bisa saja menyalakan 
+lampu dan mengatur ulang letak bambu-bambu itu sesukamu, lalu memadamkannya sebelum kita bertarung, bagaimana?"
 
-Huang Rong was still young and proud, she always tried to outdo others, she also had a
-high confidence on her excellent memory, so she smiled and said, “What’s so difficult
-about it? If you want you can light up the oil lamps rearrange the bamboo sticks as you
-wish, then extinguish the lamps before we fight again, all right?”
+Ying Gu berpikir, "Ini bukan adu ilmu silat, tapi adu ingatan. Kecerdasan iblis cilik ini tidak bisa dilawan, buat apa aku
+mengambil resiko main hafalan dengan dia, sementara urusan besar untuk membalas dendam masih belum selesai?" Tapi tiba-tiba 
+ia mendapat inspirasi, setelah berpikir sejenak ia berkata, "Baik, itu cukup adil. Biar Laonu menemanimu bermain-main."
+Ia mengambil pemantik api dari sakunya dan menyalakan lampu minyak.
 
-Ying Gu thought, “This is not a martial art contest, but a memorization competition.
-This little demon’s intelligence is matchless, how can I risk my life playing memory
-game with her while my big enmity is not avenged?” But suddenly she got an inspira-
-tion; after thinking about it for a moment she said, “Fine, that’s fair enough. Let the Old
-Lady accompany you playing.” Taking a flint from her pocket she lighted the oil lamps.
+"Kenapa kau selalu memanggil diri sendiri Laonu[^laonu]?" tanya Huang Rong sambil tertawa menggoda. "Menurutku kau sangat 
+cantik, kau bahkan lebih cantik dari gadis enam belas tahun. Tak heran Kaisar Duan tergila-gila kepadamu."
 
-“Why do you keep calling yourself an old lady?” Huang Rong laughed, “I think you are
-beautiful, you are prettier than a sixteen years old girl. No wonder Emperor Duan was
-so crazy about you.”
+Ying Gu baru saja hendak menarik sebatang bambu dan memindahkannya ke tempat lain, mendengar kalimat itu ia menghentikan 
+langkahnya. "Ia tergila-gila kepadaku?" katanya dengan dingin. "Aku tinggal di istana selama dua tahun penuh, sejak kapan 
+dia peduli kepada orang lain?"
 
-Ying Gu was about to pull a bamboo stick and move it someplace else; hearing this she
-stopped dead on her track. “He was crazy about me?” she coldly said, “I was in the
-palace two whole years; just when did he pay any attention to other people?”
+"Ah," kata Huang Rong terkejut. "Bukannya dia mengajarimu ilmu silat?"
 
-“Ah,” Huang Rong was surprised, “Didn’t he teach you martial art?” she asked.
+Ying Gu mendengus. "Mengajar ilmu silat berarti peduli?"
 
-Ying Gu retorted, “Is teaching martial art considered paying attention?”
+"Ah, aku tahu," kata Huang Rong. "Kaisar Duan sedang berlatih Xian Tian Gong, itu sebabnya tidak bisa berhubungan intim 
+denganmu."
 
-“Ah, I know,” Huang Rong said, “Emperor Duan was training the ‘xian tian gong’
-[innate/inborn strength/energy], that’s why he could not get intimate with you.”
+"Hm!" dengus Ying Gu lagi. "Kau tahu apa? Lalu bagaimana dia bisa dapat seorang Putra Mahkota?"
 
-“Humph,” Ying Gu snorted, “What do you know? How come he got the crown prince?”
+Huang Rong memiringkan kepalanya ke satu sisi, ia berpikir sejenak sebelum menjawab, "Putra Mahkota lahir sebelum dia 
+mulai berlatih Xian Tian Gong."
 
-Huang Rong leaned her head sideways; she thought for a moment before answering,
-“The crown prince was born before he started training ‘xian tian gong’.”
+Ying Gu lagi-lagi mendengus, tetapi kali ini ia tidak menjawab. Ia terus mencabut bambu dan menancapkannya di tempat lain.
+Sementara ia menancapkan bambu-bambu itu, Huang Rong menghafalkan letaknya dengan cermat, ia tidak berani lengah. Ini soal
+hidup-mati, kalau ia sampai luput satu inci saja ketika sedang bertarung, itu akan menjadi bencana besar bagi kakinya.
 
-Ying Gu snorted again but did not say anything. She kept pulling the sticks and inserted
-them back in different places. As she inserted the bamboo sticks one by one Huang
-Rong memorized their positions carefully; she did not dare to be careless. It was a mat-
-ter of life and death, if she missed just a few inches during the fight, it would mean im-
-mediate disaster to her foot.
+Sesaat kemudian Huang Rong bicara lagi, "Kaisar Duan tidak mau menyelamatkan nyawa anakmu adalah karena cintanya kepadamu."
 
-A moment later Huang Rong spoke again, “Emperor Duan was not willing to save your
-son because of his love for you.”
+"Kau tahu segalanya ya?" kata Ying Gu. "Hm, karena cintanya kepadaku?" Suaranya bercampur nada pahit.
 
-“You knew everything?” Ying Gu said, “Humph, because of his love to me?” Her voice
-was brimming with bitterness.
+[^laonu]: Lao Nu (老女) adalah istilah yang dipakai seorang wanita dewasa untuk memanggil dirinya sendiri saat bicara dengan orang lain. Ini seperti juga Lao Fu untuk pria, atau Lao Na untuk biksu, dan sejumlah istilah sejenis. Secara literal 'Lao' memang bermakna 'Tua', karena itu Lau Nu secara literal bermakna 'Perempuan Tua'.
 
-**Page 35 in PDF**
+“He was jealous of the Old Urchin,” Huang Rong said, “If he did not love you, why
+would he be jealous? He saw your ‘four weaving machines’ mandarin ducks handker-
+chief and was extremely grieved because of it.”
+
+Ying Gu had never thought Emperor Duan had this kind of feeling toward her, she
+could not help but be lost in thought. Huang Rong continued, “I think you’d better come
+back.”
+
+Ying Gu coldly said, “Only if you have the ability to defeat me.”
+
+“All right,” Huang Rong said, “Since you insist, I have no alternative but risking my life
+to accompany you. If you can break through my defense, I definitely will not hinder
+you anymore. But what if you can’t?”
+
+“I will never go up this mountain again,” Ying Gu said, “I will also free you from your
+obligation to accompany me for a year.”
+
+“Wonderful!” Huang Rong clapped her hands, “It would be really unbearable for me to
+accompany you on that rotten black marsh.”
+
+While talking Ying Gu had already inserted about fifty, sixty sticks; immediately she
+kicked the oil lamps one by one and said, “The rest of them can stay as they are.” In the
+darkness her five fingers formed a claw fiercely attacking Huang Rong.
+
+Remembering the sticks location Huang Rong slanted her body sideways and without
+hesitation her left foot landed exactly in between two sticks; while the dog beating stick
+in her hand shook and attacked Ying Gu’s left shoulder. Who would have thought that
+Ying Gu ignored her attack, she kept moving forward in big strides and with a series of
+cracking sound she broke about a dozen bamboo sticks with her feet; hence freely she
+walked to the rear courtyard.
+
+“Aiyo!” Huang Rong was startled; she realized immediately what had happened, “I am
+duped. Turned out when moving the sticks around she exerted her strength and se-
+cretly pinched the sticks broken.” Because she was trying to outdo others she had not
+suspected Ying Gu would do such thing; she could not help but feel really vexed.
+
+Rushing to the rear courtyard Ying Gu stretched out her hand to shove the door open.
+She saw an old monk sitting on a meditation mat in the middle of the room; his silvery
+beard hung down to his chest, a thick monk robe wrapped around his body up to his
+cheeks, his head hung low in meditation. The fisherman, the woodcutter, the farmer
+and the scholar, along with several old monks and young apprentices stood on either
+side.
+
+The woodcutter saw Ying Gu came in, he stepped forward to the old monk, clasped his
+palms and said, “Shifu, Liu Niang-niang has come to visit.” The old monk slightly nod-
+ded his head without saying anything.
+
+There was only a single oil lamp in the entire meditation room, so Ying Gu could not
+see everybody’s face clearly. She had known earlier that Emperor Duan had become a
+monk, but actually she did not think that after about a dozen years without seeing each
+other a heroic martial artist emperor could turn into such a fragile old monk. Recalling
+Huang Rong’s speech she realized now that the Emperor was not totally pitiless toward
+her. Her heart melted and her firm grip of the dagger slowly turned loose.
+
+Lowering her head she saw the embroidered handkerchief that was wrapped around
+her baby was laid in front of the meditation mat where Emperor Duan was sitting. On
+top of that ‘du dou’ was the jade bracelet which the Emperor gave her. Instantaneously
+past events like entering the palace, training martial art, meeting Zhou, love and pas-
+sion, giving birth to her son, mourning his death, everything came flashing through her
+mind one by one like scenes on the stage; then she saw her son’s look when he was in
+so much pain. Although he was still a baby it seemed like his eyes spoke thousand sen-
+tences ten thousand words wondering why his mother did not alleviate his pain and
+suffering. Her anger rose, she raised her dagger up and with a swift movement the dag-
+ger stabbed Emperor Duan’s chest, all through the handle.
+
+She knew Emperor Duan’s martial art skill, this stab might not necessarily kill him;
+moreover, when the dagger went into his chest she had a slightly different feeling.
+Right away she pulled the dagger back to stab him the second time. Who would have
+thought that the dagger was firmly stuck between his ribs; she was unable to pull it
+back in a moment.
+
+The four disciples called out in alarm and rushed forward simultaneously. In her bitter-
+ness Ying Gu had painstakingly practiced this stab thousands of times over a dozen of
+years period. She knew perfectly well that Emperor Duan would surely guard against
+her attack, so while her right hand did the stabbing, her left palm had already fluttered
+around, guarding the left, right and the back, three sides of her own body. Now that she
+could not pull the dagger back, she saw the circumstances had turned to her disadvan-
+tage. Her feet moved and she leaped toward the door. Turning her head around she
+caught a glimpse of Emperor Duan with his left hand on his chest, seemingly in great
+pain.
+
+Now that her big enmity had been avenged, just as quick she was not sure of what she
+did anymore; suddenly remembered, “I had an affair with someone else and gave birth
+to a child, he did not speak even half a word of reproach and left me live freely in the
+palace. Not only he did not execute me, but he abundantly provided everything for me.
+In actuality he was always very good to me.” All along she only remembered that
+Emperor Duan did not save her son’s life, her heart was filled with hatred. Only after
+stabbing his chest did she remember all his kindness. She heaved a deep sigh, turned
+around and went out the door.
+
+As she turned around she gasped in horror with sweats came pouring down her body,
+because she saw an old monk clasping his palms in front of his chest was standing on
+the door. Under the lamp light she could see his face looked grand and his eyes showed
+compassion; although he was wearing a monk robe it was as clear as the day that he
+was the former ruler of the southern kingdom, Emperor Duan. It was as if Ying Gu was
+seeing an apparition; like a flash of lightning a thought came into her mind, “Did I just
+kill the wrong person?” She swept her gaze backward and saw the monk she had just
+stabbed was slowly standing up; while removing his monk attire his left hand pulled on
+his chin and the white long beard came off. Ying Gu uttered another cry of shock; it
+turned out that old monk was Guo Jing in disguise.
+
+It was precisely Huang Rong’s scheme: Guo Jing sealed Reverend Yideng’s acupoint and
+deliberately took his place to receive Ying Gu’s dagger. He was afraid the Indian Monk’s
+martial art skill might be high, so he attacked him first; who would have thought that
+the Indian Monk did not even know martial arts. Later on Huang Rong delayed Ying Gu
+by explaining the three mathematical problems in the courtyard; and then using the
+dog beating technique she fought her amidst the sharpened bamboo sticks by the oil
+lamps. In the meantime the four disciples quickly helped Guo Jing wash up the mud
+and shave his head clean. They also shaved Reverend Yideng’s long white beard and
+stuck it underneath Guo Jing’s chin. Actually the four disciples did not feel comfortable
+treating their master in such a disrespectful manner and to let Guo Jing brave a grave
+danger; they were feeling very uneasy. But in order to save their master’s life they did
+not have any other choice; if it were one of the four disciples disguising themselves,
+their martial art was inferior to Ying Gu, they might die under Ying Gu’s dagger.
+
+As Ying Gu stabbed her dagger Guo Jing deftly moved his two fingers inside the monk
+robe to pinch the flat sides of the dagger. Who would have thought that Ying Gu’s stab
+was so powerful that even with Guo Jing’s finger strength the blade still cut through
+about half an inch of his flesh; luckily it did not break his ribs and he only suffered a
+superficial wound. He could have worn the soft hedgehog armor, which was impene-
+trable by the dagger; but Ying Gu was cunning; she would perceive the difference, then
+they would not get rid of the source of the disaster. If she failed this time, she would
+come back to seek revenge in the future.
+
+Everybody was delighted to see this ‘jin chan tuo qiao zhi ji’ [lit. golden cicada sheds its
+shell tactic] accomplished successfully; who would have thought that Yideng chose this
+very moment to make a sudden appearance. Not only Ying Gu was startled, but every-
+body else also did not anticipate this to happen.
+
+Because Yideng suffered a heavy injury and lost his strength, Guo Jing did not dare to
+seal his acupoint with too much strength for fear of injuring him further. In the back
+room Yideng slowly circulated his internal energy to unseal his own acupoint, and then
+he went back to the meditation room, arriving exactly at this moment.
+
+Ying Gu’s face was pale like that of a corpse, she thought she had fallen into this trap
+and certainly would not have a good fortune. But Yideng told Guo Jing, “Return the dag-
+ger to her.”
+
+Guo Jing did not dare to defy, he returned the dagger to Ying Gu. Ying Gu absentmind-
+edly took the dagger while staring at Yideng. She was wondering what kind of torture
+he would use against her. But she saw that he slowly removed his monk robe and also
+his undergarment, and then said, “Nobody shall give her any trouble, let her go down
+the mountain in peace. All right, go ahead and stab me; I have been waiting for you for
+a long, long time.”
+
+These words were said very gently, but in Ying Gu’s ears they were like thunderous
+lightning in a bright daylight. She stood motionless for half a day, then her grip loos-
+ened and the dagger fell to the ground with a clanking sound. Covering her face with
+both hands she rushed out of the room. They heard her footsteps as she went farther
+and farther away until finally they could hear her anymore.
+
+Everybody looked at each other in shock, nobody made any noise. Suddenly ‘thump,
+thump’ the student and the farmer fell backward to the ground. Turned out because
+their fingers were poisoned, in the commotion that followed they suppressed the poi-
+son using their internal energy; by now the saw their master was well, their hearts
+were relieved and could not hold the poison much longer.
+
+“Hurry, invite Martial Uncle!” the woodcutter called out.
+
+Before he finished Huang Rong had already accompanied the Indian Monk walking
+into the room. He was an expert in treating poison related illness. He quickly gave two
+people some medicine to take, also cut their fingers to get rid of the black blood. His
+face looked very serious, while his mouth mumbling in sanskrit, “A ma li, ha shi tu, si
+gu er, qi nuo dan ji.”
+
+Yideng understood Sanskrit, he knew his disciples’ lives were not in danger. They
+would have to be treated for two months then they would be healed completely.
+
+Meanwhile Guo Jing had removed his monk robe and treated the wound on his chest;
+he bowed to the ground in front of Yideng to apologize. Yideng busily held out his hand
+to raise him up; he sighed and said, “You risked your life to save mine; nothing to for-
+give.” Then he turned toward his martial brother and explained in Sanskrit what Guo
+Jing had done.
+
+The Indian monk said, “Si li xing, ang yi na de.”
+
+Guo Jing was startled; he knew these two sentences, and he could even recite the next
+line, “Si re que xu, ha hu wen bo ying ...”
+
+Zhou Botong had taught him to recite the Nine Yin Manual in its entirety. The last part
+of Manual was full of all these strange sentences. Guo Jing did not understand its mean-
+ing, but he was forced to memorize the entire Manual including all these mumbo-
+jumbo; hence he was able to recite it effortlessly.
+
+Hearing him speaking Sanskrit Yideng and the Indian Monk were stunned; moreover,
+what he had just said was related to excellent technique to cultivate internal energy;
+they were even more astonished. Yideng asked him the whole story and Guo Jing told
+him without concealing anything. Yideng was endlessly marveled, he said, “I have
+heard the story behind the Nine Yin Manual from Chongyang Zhenren. Huang Shang,
+the person who compiled the manual was not only highly skilled, he was also well-
+versed in the Daoist canon, skilled in the internal energy cultivation, and understood
+Sanskrit. When the manual was complete, the last chapter was actually the essence of
+it. Suddenly he realized that if this manual falls into the hand of criminals, they would
+be able to turn the world upside down without anybody controlling them. But he was
+also unwilling to destroy this last chapter; thereupon he rewrote the chapter in
+Sanskrit, but with Chinese transliteration. He thought that it was difficult to say
+whether the Manual could be passed on to the future generation; the people of Central
+Plains who knew Sanskrit was very few, and even more rare was the number of people
+who were well-versed both in martial art and Sanskrit literature. If the Manual fall into
+the hand of an Indian, although he is proficient in Sanskrit, but he does not speak
+Chinese. Huang Shang arranged it this way; actually it was the same as not allowing the
+future generation to understand the content. Because of this Sanskrit part even
+Chongyang Zhenren did not understand the Manual’s meaning. Who would have
+thought that through divine intervention you who do not understand Sanskrit can actu-
+ally memorize this lengthy great theory that sounds like incantations? It is truly a very
+rare opportunity.” Thereupon he asked Guo Jing to recite the Sanskrit part slowly while
+he translated it into Chinese, wrote it on a piece of paper and gave it to Guo Jing and
+Huang Rong.
+
+The overall guiding principle of energy cultivation in the Nine Yin Manual was mysteri-
+ously deep; although Reverend Yideng was a proficient scholar with profound internal
+energy, he could not dissect the theory completely in such a short period of time. “Stay
+on the mountain for a few days, let me dig into it comprehensively, then I will transfer
+my knowledge to you two,” he said. He further said, “Usually as my internal strength is
+damaged, I will need five years of continuous training for a full recovery; but if I prac-
+tice according to the Manual, it seems like in less than three months I will get a five-
+year-worth of internal energy cultivation. Although what I practiced is a Buddhist mar-
+tial art, which was different from the Taoism method of internal energy cultivation in
+the Manual, but looking at this principle, as the martial art is trained to the highest
+level, different approaches will lead to the same result; it is no different than the
+Buddhism method.”
+
+Huang Rong told him how Hong Qigong was injured by Ouyang Feng. Reverend Yideng
+showed great concern. “You two must tell your Shifu about the Nine Yin internal en-
+ergy cultivation method; I am certain he will recover his internal strength,” he said.
+Guo Jing and Huang Rong were very delighted to hear this.
+
+Two people stayed on the mountain for more than ten days. Everyday Reverend Yideng
+explained the Nine Yin energy cultivation method to them. Huang Rong also took this
+opportunity for her own recovery.
+
+One particular day they were walking idly outside the meditation building when sud-
+denly they heard anxious cry of eagles in the air; they saw a pair of white eagles in the
+distance coming from the east. Huang Rong clapped her hands, “Jin wawa [lit. golden
+baby – see Chapter 29] is here!” The pair of eagles folded their wings and landed, they
+looked weary. Two people could not help to be alarmed; they saw a gaping wound on
+the breast of the female eagle. It looked like an arrow wound, but the arrow was no
+longer there; apparently the eagles had pulled the arrow themselves. There was a piece
+of green cloth tied on the male eagle’s foot; but they did not bring any ‘jin wawa’ with
+them.
+
+**Page 41 in PDF**
 
