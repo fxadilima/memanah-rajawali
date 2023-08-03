@@ -1019,7 +1019,7 @@ dengan segera.
 Ketika Ying Gu bimbang dan menahan serangannya, Huang Rong terus bergerak dengan totokan tongkatnya, menghalangi Ying Gu 
 memasuki ruangan. Saat itu kaki Huang Rong tidak pernah diam, ia bergerak dari sebatang bambu ke bambu lainnya dengan gesit 
 seperti kupu-kupu yang menari-nari, menendang nyala api satu persatu. Dalam waktu singkat ia sudah memadamkan sebagian besar 
-dari seraus tiga belas lampu minyak.
+dari seratus tiga belas lampu minyak.
 
 
 The way she kicked the lamps was amazing; not only she did not step on any teacup,
