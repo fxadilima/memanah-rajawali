@@ -874,9 +874,9 @@ Bunga Persik oleh Huang Yaoshi, tetapi ia tidak bisa bertanya tentang alasan di 
 menolaknya dan meninggalkan Dali ia tahu bahwa sangat sulit mengubah hatinya, kalau bukan karena sesuatu yang sangat signifikan.
 Saat itu ketika mendengar kabar mengenai Zhou Botong, ia merasa bahagia dan sekaligus sedih. Sedih karena orang yang dicintainya
 dalam kesulitan, bahagia karena mengira bahwa dengan begitu ia punya kesempatan yang bagus. Kalau ia berhasil menyelamatkannya,
-mana mungkin Zhou Botong tidak merasa tersentuh dalam dalam oleh kasihnya. Di luar dugaan, ternyata jalan-jalan di Pulau Bunga 
+mana mungkin Zhou Botong tidak merasa tersentuh dalam-dalam oleh kasihnya. Di luar dugaan, ternyata jalan-jalan di Pulau Bunga 
 Persik mengandung ribuan variasi tikungan dan ratusan jebakan. Jangankan untuk menyelamatkan orang lain, ia sendiri hampir 
-mati kelaparan selama tiga hari tiga malam. Seandainya Huang yaoshi tidak mengirim pelayan bisu-tuli untuk menunjukkan jalan,
+mati kelaparan selama tiga hari tiga malam. Seandainya Huang Yaoshi tidak mengirim pelayan bisu-tuli untuk menunjukkan jalan,
 ia tidak akan pernah bisa meninggalkan Pulau Bunga Persik hidup-hidup. Sejak itu ia memilih untuk tinggal di Rawa Hitam,
 degan rajin ia belajar matematika dan teori tentang angka. Sekarang ia mendengar bahwa Zhou Botong sudah dibebaskan, ia 
 menatap kosong, sejuta pikiran memenuhi benaknya.
