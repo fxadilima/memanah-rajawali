@@ -625,7 +625,7 @@ bisa dikenali sebagai Selir Liu yang sangat dicintai oleh Kaisar Duan di masa la
 
 Keempat orang itu berlutut dan memberi hormat, "Xiao Ren menyapa Niang Niang[^niang-niang]!"
 
-[^niang-niang]: Niang Niang adalah sapaan umum kepada seorang selir Raja atau Kaisar.
+[^niang-niang]: Niang Niang (娘娘) adalah sapaan umum kepada seorang ratu atau selir Kaisar. Sapaan ini juga masih digunakan ketika menyapa seorang Ibu Suri, yaitu dengan menambahkan Taihou (太后) di depannya. Karakter Niang (娘) berdiri sendiri bisa bermakna 'ibu', atau bahkan lebih umum, yaitu 'perempuan'. Sapaan 'Niang' dipakai secara luas oleh rakyat biasa dalam memanggil ibunya. Tetapi 'Niang Niang' hanya digunakan bagi keluarga Kaisar.
 
 "Hm!" dengus Ying Gu. Pandangannya menyapu muka keempat orang itu dan ia berkata, "Niang Niang apa? Selir Liu sudah lama 
 mati! Aku Ying Gu. Hmm, Perdana Menteri, Jendral, Admiral dan Komandan Yu Lin Jun semuanya ada di sini. Kupikir Kaisar 
@@ -914,136 +914,113 @@ di benaknya, tanpa sadar mukanya menunjukkan keraguan.
 menaruhnya di atas lantai. Ia mengambil sebuah jarum emas, lalu mulai menulis angka-angka dan beberapa kalimat di atas 
 lantai batu.
 
-The first subject was the ‘qi yao jiu zhi tian zhu bi suan’ [seven dazzling nine grasping
-Indian method of calculation]. As Ying Gu saw the solution she was dazzled and could
-not help but secretly sigh in praise. Huang Rong continued with the second subject, the
-‘li fang zhao bing zhi yin gei mi ti’ [lit. standing up soldier supplying silver topic] had
-profound changes in it. As Ying Gu waited for her to write the last answer she sighed
-and said, “This middle subject surely has an endless wonderful secret.”
+Topik pertama adalah Qi Yao Jiu Zhi Tian Zhu Bi Suan. Ketika Ying Gu melihat solusinya, ia tercengang dan tidak bisa 
+menahan pujiannya sambil mendesah. Huang Rong meneruskan ke topik kedua, yaitu Li Fang Zhao Bing Zhi Yin Gei Mi Ti yang 
+mengandung perubahan-perubahan sangat rumit. Ketika menunggunya menulis solusi untuk masalah terakhir, Ying Gu menghela 
+nafas sambil berkata, "Topik di tengah ini pastilah memiliki rahasia ajaib yang tak terbatas."
 
-A moment later she said, “If we say the third subject to be easy, then it is easy; but if we
-regard it as difficult, then it is difficult. There is an unknown number; three and three
-has a remainder of two, five and five has a remainder of three, seven and seven has a
-remainder of two. What number is that? I know it was twenty-three; but that was a
-hard guess. I need to line up every number for all interchangeable computational pat-
-terns, but even after thinking until I split my head I could not figure it out.”
+Sesaat berikutnya ia berkata, "Kalau kita bilang topik ketiga ini mudah, ya memang mudah, tapi kalau kita anggap sulit,
+maka akan menjadi sulit. Ada angka yang tidak diketahui, tiga dan tiga bersisa dua, lima dan lima bersisa tiga,
+tujuh dan tujuh bersisa dua. Angka apakah itu? Aku tahu itu dua puluh tiga, tapi ini hanya dugaan kasar. Aku perlu 
+menyusun semua angka untuk semua pola perhitungan yang bisa dipakai ulang, tapi bahkan setelah memikirkannya sampai 
+kepalaku pecah aku masih tidak menemukan solusinya."
 
-Huang Rong smiled, “It is very easy. Calculating three and three, it amounts to seventy.
-Calculating five and five, it amounts to twenty-one. Calculating seven and seven, it
-amounts to fifteen. Adding three numbers together, if not greater than 105, then that’s
-the correct answer. Otherwise, subtract 105 or its multiple.”
+Huang Rong tersenyum. "Ini sangat mudah. Menghitung tiga dan tiga akan menghasilkan tujuh puluh. Menghitung lima dan lima 
+akan menghasilkan dua puluh satu. Menghitung tujuh dan tujuh akan menghasilkan lima belas. Kalau ketiga angka tersebut 
+dijumlahkan, kalau tidak lebih besar dari seratus lima, maka jawaban itu benar. Kalau sebaliknya, kurangi seratus lima atau
+kelipatannya."
 
-Ying Gu calculated it in her heart and sure enough she got the correct answer. With a
-low voice she recited, “Calculating three and three, it amounts to seventy. Calculating
-five and five ...”
+Ying Gu menghitung dalam hati dan ternyata memang benar. Dengan suara rendah ia menghafalkan, "Menghitung tiga dan tiga 
+menghasilkan tujuh puluh. Menghitung lima dan lima..."
 
-Huang Rong said, “You don’t have to memorize it like that. Let me give you a poem to
-help you memorize it easier: Three people travel together in seventy directions, five
-plum blossom trees have twenty one branches, seven children reunite for half a month,
-a hundred and five remained to be known.”
+Huang Rong berkata, "Kau tidak perlu menghafalnya seperti itu. Kuberi sebuah puisi supaya kau lebih mudah menghafalnya,
+'Tiga orang berjalan bersama dalam tujuh puluh jurusan, lima pohon Mei Hua punya dua puluh satu ranting, tujuh anak 
+bersatu kembali selama setengah bulan, seratus lima hari sisanya belum diketahui.'"
 
-Listening to ‘three people travel together’ and ‘reunite for half a month’ Ying Gu felt of-
-fended, she thought, “This girl knows him, she knew my shameful secret from early on.
-‘Three people traveling together’ is me one woman serving two men. Could it be that by
-‘reunite for half a month’ she was ridiculing me of having a love affair knowing him for
-only a dozen of days?” What she did in the years past had become a matter of the heart
-to her, unavoidably she became quite over-suspicious to everybody. “All right,” she said
-flatly, “Thank you for your directions. ‘Asking direction in the morning, bored to death
-in the evening’. Must I stay to listen to you speaking more nonsense?”
+Kerika mendengar kalimat 'Tiga orang berjalan bersama' dan 'Bersatu kembali selama setengah bulan' Ying Gu merasa 
+tersinggung, ia berpikir, "Anak ini mengenalnya, dia tahu rahasia tentang aibku di masa lalu. 'Tiga orang berjalan bersama'
+adalah aku yang melayani dua pria. Apa mungkin 'bersatu kembali setengah bulan' maksudnya untuk mengolok-olok aku, 
+berselingkuh dan hanya mengenalnya selama belasan hari?" Apa yang dilakukannya di masa lampau saat ini baginya sudah 
+menjadi masalah hati, tak terhindarkan baginya saat ini ia menjadi mudah mencurigai orang lain. "Baik," katanya dengan 
+nada datar. "Terima kasih atas petunjukmu. 'Tanya soal jalan di pagi hari, mati bosan di malam hari'. Masa aku
+harus mendengarmu omong kosong lebih lama lagi?" 
 
-Huang Rong smiled, “’Asking direction in the morning, bored to death in the evening.’
-The one who died is the one asking; but I’ve never heard the one asking question kill
-the one preaching the sermon.”
+Huang Rong tersenyum. "'Tanya soal jalan di pagi hari, mati bosan di malam hari'. Orang yang mati itu adalah yang bertanya,
+tapi aku tidak pernah mendengar ada orang yang bertanya lalu membunuh orang yang menceramahi ular."
 
-Ying Gu stole a glance toward the meditation room; she knew Emperor Duan must be
-residing in the back. She saw Huang Rong kept pestering her, something was amiss.
-Even though Huang Rong was young, her intelligence and eccentricity was not inferior
-to her father’s. How could a thirty-year-old lady bicker with a baby? She was afraid her
-luck would turn bad just like a ship capsized in the gutter. She had wasted not a few
-moments because she wanted to look at Huang Rong’s calculations; while a very impor-
-tant matter was still ahead of her. How could she allow senseless thought over mathe-
-matics consume her energy? Therefore, she decided not to answer and immediately
-lifted up her feet to walk inside.
+Ying Gu mencuri pandang ke arah ruang meditasi, ia tahu Kaisar Duan pastilah tinggal di belakangnya. Ia melihat 
+Huang Rong terus-terusan sengaja membuatnya kesal, ada sesuatu yang salah di sini. Meskipun Huang Rong masih muda,
+tapi dia cerdas dan nyentrik, tidak kalah dengan ayahnya. Untuk apa wanita tiga puluh tahunan harus ribut dengan anak kecil?
+Ia hanya takut nasibnya akan menjadi buruk seperti kapal yang terjebak batu karang. Ia sudah memboroskan tidak sedikit 
+waktu karena ingin melihat perhitungan Huang Rong, sementara masalah terpenting masih ada di depan. Bagaimana ia bisa 
+membiarkan masalah sepele seperti matematika menghabiskan seluruh energinya. Karena itu ia memutuskan untuk tidak menjawab 
+dan buru-buru angkat kaki masuk ke ruang dalam.
 
-Crossing over the worship hall she saw there was a dark room ahead with only one
-flickering light inside. As a wary person she did not dare to rush in; raising her voice up
-she called out, “Duan Zhixing, are you or are you not going to see me? You hide your
-tail in the dark, what kind of real man are you?”
+Menyeberangi ruang doa ia melihat ada ruangan gelap di depan, yang di dalamnya hanya ada satu lampu temaram. Sebagai orang 
+yang selalu cermat ia tidak berani menerjang masuk, ia angkat bicara, "Duan Zhixing, kau mau ketemu aku atau tidak? Ekormu 
+kau sembunyikan di dalam gelap, laki-laki macam apa kau ini?"
 
-Huang Rong followed behind her, laughing, “You don’t like there is no lamp in here?
-The Reverend was afraid too much light would scare you away, so he ordered us to put
-the lights out.”
+Huang Rong menguntit di belakangnya, tertawa, "Kau tidak suka karena tidak ada lampu di sini ya? Dashi justru kuatir terlalu 
+banyak lampu akan membuatmu takut, jadi dia menyuruh kami memadamkan lampu."
 
-“Humph,” Ying Gu snorted, “I am the kind of person who is not afraid to go to hell, why
-would a mountain of blades or boiling oil scare me?”
+"Hm!" dengus Ying Gu. "Aku tidak takut pergi ke neraka, kenapa tumpukan pisau atau minyak mendidih membuatku takut?"
 
-Huang Rong clapped her hands and laughed, “That’s very good! I want to play around
-the mountain of blades with you.” Taking out a flint from her pocket, lighted it up, then
-she stooped down and lighted a lamp next to her feet.
+Huang Rong bertepuk tangan dan tertawa. "Bagus sekali! Aku ingin bermain-main di sekitar tumpukan pisau denganmu."
+Ia mengambil pemantik api dari sakunya dan menyalakannya, lalu berjongkok untuk menyalakan lampu yang berada di dekat 
+kakinya.
 
-Turned out there was an oil lamp on the ground; it surprised even Ying Gu. She looked
-closer to see that it was not an oil lamp, but a small porcelain tea cup filled halfway
-with oil, with a cotton ball dipped in it as the wick. Next to the cup was a sharpened
-bamboo stick about a foot long, inserted on the ground with the sharpened end on the
-top; it looked really sharp.
+Ternyata di situ ada lampu minyak, hal ini mengejutkan Ying Gu. Ia melihat lebih dekat, ternyata itu bukan lampu minyak, 
+tetapi sebuah cangkir teh porselen yang setengahnya berisi minyak, dengan kapas yang terendam di dalamnya berfungsi 
+sebagai sumbu. Di dekatnya ada sebatang bambu runcing sepanjang sekitar satu kaki, ditanam di tanah dengan ujung runcingnya 
+menghadap ke atas, tampaknya sangat tajam.
 
-Huang Rong did not pause, she kept moving and in just a short moment the floor was
-filled with flickering lights like stars on a dark night. Next to each cup was a sharp bam-
-boo stick. Before Huang Rong even finished Ying Gu had started counting, and she
-found out there were 113 teacups with 113 bamboo sticks next to them. She was greatly
-baffled, “If it is the ‘mei hua zhuang’ [plum blossom stake] arrangement, then it must
-have either 72 sticks or 108 sticks, but it has 113 sticks; what kind of arrangement is
-this? The array seems random, not the ‘jiu gong ba gua’ [nine-palace eight-diagram],
-also not ‘mei hua wu chu’ [plum blossom five arrangements]. Moreover, these bamboo
-sticks are so sharp, how can somebody stand on them? Ah, right, she must be wearing
-iron-soled shoes.” She further thought, “This girl is prepared, I can’t fight her on these
-things yet I can’t ignore this. I’ll just go through it then.” Thereupon with big strides she
-walked forward, but the bamboo sticks were densely packed, it was difficult to walk
-through them, so she kicked around and broke five, six sticks while saying, “What
-crafty trick is this? The old lady doesn’t have time to play around with the baby.”
+Huang Rong tidak berhenti, ia terus bergerak dan dalam waktu singkat lantai itu dipenuhi lampu-lampu temaram seperti bintang 
+berkelip di malam yang gelap. Di dekat setiap cangkir itu ada sebatang bambu runcing. Sebelum Huang Rong selesai, Ying Gu 
+sudah mulai menghitung, dan ia mendapati seratus tiga belas cangkir dengan seratus tiga belas bambu di dekatnya. Ia merasa 
+sangat bingung. "Kalau ini adalah aturan Mei Hua Zhuang, maka seharusnya ada entah tujuh puluh dua atau seratus delapan
+batang, tapi ini seratus tiga belas, aturan apa ini? Deretan ini sepertinya acak, bukan Jiu Gong Ba Gua, juga bukan 
+Mei Hua Wu Chu. Lagipula, batang-batang bambu ini sangat tajam, masa ada orang bisa berdiri di atasnya? Ah, betul juga,
+dia pasti memakai sepatu dengan sol besi." Ia berpikir lebih jauh, "Bocah ini sudah siap, aku tidak bisa melawannya dalam
+permainan ini, tapi ini jelas tidak bisa diabaikan. Jadi sebaiknya aku lewati saja." Karena itu ia melangkah lebar ke depan,
+tetapi bambu-bambu itu disusun rapat, sangat sulit berjalan melewatinya, jadi ia menendang-nendang ke sekitarnya dan 
+mematahkan lima-enam batang sambil berkata, "Jebakan licik macam apa ini? Laonu tidak punya waktu bermain-main dengan 
+anak kecil."
 
-Hurriedly Huang Rong called, “Ah, ah! Don’t do that! Don’t do that!” Ying Gu ignored
-her and kept kicking. “All right!” Huang Rong called out, “You don’t want to talk reason
-with me, I am going to turn off the lights. Quickly memorize the bamboo sticks’
-positions.”
+Buru-buru Huang Rong menyahut, "Ah, ah! Jangan lakukan itu! Jangan lakukan itu!" Tetapi Ying Gu mengabaikannya dan terus 
+menendang. "Baiklah, baiklah!" seru Huang Rong. "Kau tidak mau bicara pakai akal sehat, aku akan mematikan lampunya. Cepat 
+hafalkan letak semua bambu itu."
 
-Ying Gu was startled, she thought, “If these people gang up and plan to attack me, they
-must have memorized the position of these sticks early on. I could get killed among the
-bamboo sticks in the dark. I must leave this dangerous place quickly!” She gave her
-spirit a boost and sped her steps up, kicking furiously.
+Ying Gu terkejut, ia berpikir, "Kalau orang-orang ini bersekongkol untuk melawan aku, pastilah mereka sejak awal sudah 
+menghafal letak bambu-bambu runcing itu. Aku harus cepat-cepat meninggalkan tempat berbahaya ini!" Ia memacu semangat dan 
+mempercepat langkahnya ke atas, menendang-nendang dengan gusar.
 
-“Shameless!” Huang Rong called out. She brandished her bamboo stick trying to block
-Ying Gu. The oil lamp shone on the dark-green bamboo stick, creating a spooky shadow
-dancing in front of Ying Gu’s face. Of course Ying Gu did not think much about a
-teenage girl’s stick technique. Her left palm hacked vertically down; she thought one
-palm should be enough to break the bamboo stick. Who would have thought that
-Huang Rong’s stick technique was the Dog Beating Stick’s sealing technique; the stick
-moved horizontally, it was not aimed at the enemy’s body, but it turned into a piece of
-jade-green wall blocking in front of the door. As long as the enemy did not tread a step,
-the wall would not hurt the least bit, but if one attacked one would immediately hit.
+"Tak tahu malu!" seru Huang Rong. Ia mengayun-ayunkan tongkat bambunya berusaha menghalangi Ying Gu. Cahaya lampu minyak 
+menerpa tongkat bambu hijau tua itu, menciptakan bayangan menyeramkan yang menari-nari di depan muka Ying Gu. Tentu saja 
+Ying gu tidak terlalu banyak memikirkan ilmu tongkat anak belasan tahun. Tangan kirinya menghujam vertikal ke bawah,
+ia mengira satu pukulan sudah cukup untuk mematahkan tongkat itu. Tapi di luar dugaan, teknik tongkat Huang Rong adalah 
+ilmu totokan dari Tongkat Penggebuk Anjing, tongkat itu bergerak secara horizontal, sama sekali tidak mengincar tubuh 
+lawan, tetapi berubah menjadi sebuah tembok hijau giok yang menghalangi di depan pintu. Selama lawan tidak melangkah masuk,
+tembok itu tidak akan menyakitinya sama sekali, tetapi kalau ia melawan maka dengan segera akan kena gebuk.
 
-As Ying Gu hacked down her palm, ‘crack!’ her palm was hit by the end of the stick.
-Hastily she withdrew her already pain and numb hand. She was not hit on a vital acu-
-point, but the pain was severe. Formerly Ying Gu did not think much of Huang Rong’s
-martial art, but as she was hit she became startled and angry. She realized now that
-this young crafty kid was not easy to deal with. She swallowed her anger and cau-
-tiously guarded against the opponent’s martial art, trying to gain more understanding
-before deciding on the next course of action. She thought, “I have seen the Twin Killers
-of the Dark Wind’s martial art. Their skills were very profound, but they were already
-thirty, forty years old. How can this little girl attain this kind of level? It must be that
-Huang Yaoshi has passed on his lifelong achievement to his only beloved daughter.”
+Ketika tangan Ying Gu menghujam ke bawah, 'krekk!' telapak tangannya terkena ujung tongkat. Ia bergegas menarik tangannya 
+yang sudah terlanjur nyeri dan kemudian mati rasa. Ia bukan terkena ti titik akupuntur vital, tetapi rasa sakitnya cukup 
+berat. Awalnya Ying Gu tidak terlalu memikirkan soal kungfu Huang Rong, tetapi setelah terkena sekali ia terkejut dan 
+marah. Sekarang ia menyadari bahwa anak perempuan yang cerdas dan licik ini tidak mudah dihadapi. Ia menelan amarahnya 
+dan dengan hati-hati menghadapi ilmu silat lawan, berusaha memahaminya lebih dalam sebelum memulai aksi berikutnya. Ia 
+berpikir, "Aku sudah melihat ilmu Sepasang Iblis. Kungfu mereka sangat dahsyat, tapi mereka sudah berumur tiga atau empat puluh 
+tahunan. Bagaimana mungkin anak kecil ini mencapai tingkat seperti ini? Pasti Huang Yaoshi sudah mewariskan ilmu yang dibina
+seumur hidup kepada anak kesayangannya."
 
-When she went to the Peach Blossom Island she had suffered a bitter defeat without
-even seeing Huang Yaoshi, almost died on the island; therefore, she always feared the
-Master of the Peach Blossom Island. She actually did not know that this Dog Beating
-Technique was the Beggar Clan Leader’s unique skill, that even if Huang Yaoshi were
-there, he would not necessarily be able to penetrate the stick’s defense immediately.
+Waktu pergi ke Pulau Persik ia mengalami kekalahan pahit tanpa sempat bertemu dengan Huang Yaoshi, hampir tewas di Pulau itu.
+Karena itu ia selalu takut kepada pemilik Pulau Bunga Persik. Sebetulnya ia tidak tahu kalau Tongkat Penggebuk Anjing adalah 
+ilmu unik Kai Pang, dan bahkan kalau Huang Yaoshi hadir di situ, belum tentu ia akan mampu menembus pertahanan tongkat itu
+dengan segera.
 
-While Ying Gu hesitated and held her attack back, Huang Rong kept moving her stick
-with the sealing technique, blocking Ying Gu from entering the door. In the meantime
-Huang Rong’s feet did not stay idle, she moved from one bamboo stick to the other with
-agility like a dancing butterfly, kicking the flames one by one. In a short moment she
-had extinguished most of the 113 oil lamps.
+Ketika Ying Gu bimbang dan menahan serangannya, Huang Rong terus bergerak dengan totokan tongkatnya, menghalangi Ying Gu 
+memasuki ruangan. Saat itu kaki Huang Rong tidak pernah diam, ia bergerak dari sebatang bambu ke bambu lainnya dengan gesit 
+seperti kupu-kupu yang menari-nari, menendang nyala api satu persatu. Dalam waktu singkat ia sudah memadamkan sebagian besar 
+dari seraus tiga belas lampu minyak.
+
 
 The way she kicked the lamps was amazing; not only she did not step on any teacup,
 none of the teacups was kicked upside down or smashed, also only a little bit of oil was
