@@ -831,7 +831,7 @@ Huang Rong mendesah. "Dendam dan hutang budi sungguh sulit dimengerti. Ayahku me
 Bunga Persik lima belas tahun. Akhirnya, tetap saja dia tidak bisa menyelamatkan nyawa ibuku."
 
 Ketika Ying Gu mendengar nama 'Zhou Botong' disinggung, ia sangat terkejut. "Apa hubungan ibumu dengan Zhou Botong?"
-tanyanya dengan suara tegas.
+tanyanya dengan ketus.
 
 Mendengar nada bicaranya Huang Rong tahu ia curiga Zhou Botong menjalin hubungan rahasia dengan ibunya dan sebagai akibatnya 
 ditawan oleh ayahnya di Pulau Persik. Kelihatannya setelah belasan tahun berlalu perasaannya terhadap Zhou Botong tetap 
