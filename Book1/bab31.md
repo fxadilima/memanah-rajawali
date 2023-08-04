@@ -1081,246 +1081,197 @@ Sesaat kemudian Huang Rong bicara lagi, "Kaisar Duan tidak mau menyelamatkan nya
 
 [^laonu]: Lao Nu (老女) adalah istilah yang dipakai seorang wanita dewasa untuk memanggil dirinya sendiri saat bicara dengan orang lain. Ini seperti juga Lao Fu untuk pria, atau Lao Na untuk biksu, dan sejumlah istilah sejenis. Secara literal 'Lao' memang bermakna 'Tua', karena itu Lau Nu secara literal bermakna 'Perempuan Tua'.
 
-“He was jealous of the Old Urchin,” Huang Rong said, “If he did not love you, why
-would he be jealous? He saw your ‘four weaving machines’ mandarin ducks handker-
-chief and was extremely grieved because of it.”
+"Dia cemburu kepada Lao Wantong," kata Huang Rong. "Kalau tidak mencintaimu, kenapa dia harus cemburu? Dia melihat saputangan 
+hasil dari 'empat alat tenun' bebek mandarin itu dan merasa sangat sedih."
 
-Ying Gu had never thought Emperor Duan had this kind of feeling toward her, she
-could not help but be lost in thought. Huang Rong continued, “I think you’d better come
-back.”
+Ying Gu tidak pernah berpikir Kaisar Duan bisa punya perasaan semacam ini kepadanya, ia mau tidak mau jadi melamun. Huang 
+Rong melanjutkan, "Kurasa sebaiknya kau pulang."
 
-Ying Gu coldly said, “Only if you have the ability to defeat me.”
+Ying Gu berkata dengan dingin, "Hanya kalau kau bisa mengalahkan aku."
 
-“All right,” Huang Rong said, “Since you insist, I have no alternative but risking my life
-to accompany you. If you can break through my defense, I definitely will not hinder
-you anymore. But what if you can’t?”
+"Baiklah," kata Huang Rong. "Karena kau ngotot, aku tak punya cara selain mengambil resiko kehilangan nyawaku untuk 
+menemanimu. Kalau kau bisa menembus pertahananku, aku tidak akan menghalangimu lagi. Tapi bagaimana kalau kau tidak bisa?"
 
-“I will never go up this mountain again,” Ying Gu said, “I will also free you from your
-obligation to accompany me for a year.”
+"Aku tidak akan kembali lagi ke gunung ini," kata Ying Gu. "Aku juga akan membebaskanmu dari kewajiban menemaniku selama 
+setahun."
 
-“Wonderful!” Huang Rong clapped her hands, “It would be really unbearable for me to
-accompany you on that rotten black marsh.”
+"Luar biasa!" kata Huang Rong bertepuk tangan. "Aku tidak akan tahan menemanimu di rawa busuk itu."
 
-While talking Ying Gu had already inserted about fifty, sixty sticks; immediately she
-kicked the oil lamps one by one and said, “The rest of them can stay as they are.” In the
-darkness her five fingers formed a claw fiercely attacking Huang Rong.
+Sementara bicara Ying Gu sudah menancapkan sekitar lima sampai enam puluh batang bambu, dengan segera ia menendangi lampu
+satu persatu dan berkata, "Sisanya bisa tetap di tempatnya." Dalam kegelapan, kelima jarinya membentuk cakar dan menyerang 
+Huang Rong dengan dahsyat.
 
-Remembering the sticks location Huang Rong slanted her body sideways and without
-hesitation her left foot landed exactly in between two sticks; while the dog beating stick
-in her hand shook and attacked Ying Gu’s left shoulder. Who would have thought that
-Ying Gu ignored her attack, she kept moving forward in big strides and with a series of
-cracking sound she broke about a dozen bamboo sticks with her feet; hence freely she
-walked to the rear courtyard.
+Sambil mengingat posisi bambu-bambu itu Huang Rong memiringkan tubuhnya ke samping dan tanpa ragu kaki kirinya mendarat 
+tepat di antara dua batang bambu, sementara Tongkat Penggebuk Anjing di tangannya mergerak dan menyerang bahu kiri Ying Gu.
+Di luar dugaan Ying Gu mengabaikan serangannya, ia terus maju dengan langkah lebar dan dengan diiringi serangkaian suara 
+berderik ia mematahkan sekitar selusin bambu dengan kakinya, dengan demikian ia melenggang bebas ke halaman belakang.
 
-“Aiyo!” Huang Rong was startled; she realized immediately what had happened, “I am
-duped. Turned out when moving the sticks around she exerted her strength and se-
-cretly pinched the sticks broken.” Because she was trying to outdo others she had not
-suspected Ying Gu would do such thing; she could not help but feel really vexed.
+"Aiyo!" seru Huang Rong terkejut, ia segera menyadari apa yang terjadi. "Aku tertipu. Ternyata ketika memindahkan bambu
+dia diam-diam mematahkan semuanya." Karena berusaha mengungguli orang lain ia sama sekali tidak mengira bahwa Ying Gu 
+akan berbuat demikian, ia sangat gusar.
 
-Rushing to the rear courtyard Ying Gu stretched out her hand to shove the door open.
-She saw an old monk sitting on a meditation mat in the middle of the room; his silvery
-beard hung down to his chest, a thick monk robe wrapped around his body up to his
-cheeks, his head hung low in meditation. The fisherman, the woodcutter, the farmer
-and the scholar, along with several old monks and young apprentices stood on either
-side.
+Menerjang ke halaman belakang Ying Gu mengulurkan tangannya untuk mendorong pintu. Ia melihat seorang biksu tua sedang 
+duduk di alas meditasi di tengah ruangan, janggut putihnya tergantung sampai ke dada, jubah biksu tebal membungkus tubuhnya
+sampai ke pipi, kepalanya tertunduk dalam meditasi. Si nelayan, penebang kayu, petani dan sastrawan, berikut sejumlah 
+biksu tua dan murid muda berdiri di kedua sisi.
 
-The woodcutter saw Ying Gu came in, he stepped forward to the old monk, clasped his
-palms and said, “Shifu, Liu Niang-niang has come to visit.” The old monk slightly nod-
-ded his head without saying anything.
+Si penebang kayu melihat Ying Gu masuk, ia melangkah maju ke arah biksu tua itu, merangkapkan tangannya dan berkata,
+"Shifu, Liu Niang Niang datang berkunjung." Si biksu tua mengangguk perlahan tanpa mengatakan apa-apa.
 
-There was only a single oil lamp in the entire meditation room, so Ying Gu could not
-see everybody’s face clearly. She had known earlier that Emperor Duan had become a
-monk, but actually she did not think that after about a dozen years without seeing each
-other a heroic martial artist emperor could turn into such a fragile old monk. Recalling
-Huang Rong’s speech she realized now that the Emperor was not totally pitiless toward
-her. Her heart melted and her firm grip of the dagger slowly turned loose.
+Hanya ada sebuah lampu minyak di dalam ruangan itu, jadi Ying Gu tidak bisa melihat muka semua orang dengan jelas. Ia tahu 
+sebelumnya bahwa Kaisar Duan telah menjadi biksu, tetapi sebenarnya ia tidak menyangka bahwa setalah belasan tahun tidak 
+bertemu, Sang Kaisar yang sebelumnya adalah ahli kungfu tingkat tinggi sekarang telah berubah menjadi seorang biksu tua
+renta. Setelah mengingat ucapan Huang Rong ia sekarang sadar bahwa Sang Kaisar bukannya sama sekali tidak berbelas kasihan 
+kepadanya. Hatinya luluh dan genggamannya yang erat ke belati di tangannya seketika mengendur.
 
-Lowering her head she saw the embroidered handkerchief that was wrapped around
-her baby was laid in front of the meditation mat where Emperor Duan was sitting. On
-top of that ‘du dou’ was the jade bracelet which the Emperor gave her. Instantaneously
-past events like entering the palace, training martial art, meeting Zhou, love and pas-
-sion, giving birth to her son, mourning his death, everything came flashing through her
-mind one by one like scenes on the stage; then she saw her son’s look when he was in
-so much pain. Although he was still a baby it seemed like his eyes spoke thousand sen-
-tences ten thousand words wondering why his mother did not alleviate his pain and
-suffering. Her anger rose, she raised her dagger up and with a swift movement the dag-
-ger stabbed Emperor Duan’s chest, all through the handle.
+Menundukkan kepalanya, ia melihat saputangan bersulam yang sebelumnya dipakai untuk membungkus tubuh bayinya itu tergeletak 
+di depan alas meditasi di mana Kaisar Duan duduk. Di atas Du Dou itu ada sebuah gelang yang dihadiahkan Sang Kaisar 
+kepadanya. Seketika itu sejumlah peristiwa seperti saat pertama memasuki istana, berlatih kungfu, bertemu dengan 
+Zhou Botong, gairah dan cinta, melahirkan anaknya, berkabung atas kematiannya, semuanya melintas di benaknya satu per satu
+seperti adegan dalam panggung sandiwara, lalu ia melihat penderitaan luar biasa yang dialami anaknya. Meskipun masih bayi,
+tetapi matanya seolah-olah mengandung ribuan kalimat, bertanya-tanya mengapa ibunya tidak juga meringankan rasa sakitnya.
+Amarahnya meluap, ia mengangkat pisaunya dan dengan secepat kilat ia menikam dada Kaisar Duan, belati itu terbenam sampai 
+ke pangkal gagangnya. 
 
-She knew Emperor Duan’s martial art skill, this stab might not necessarily kill him;
-moreover, when the dagger went into his chest she had a slightly different feeling.
-Right away she pulled the dagger back to stab him the second time. Who would have
-thought that the dagger was firmly stuck between his ribs; she was unable to pull it
-back in a moment.
+Ia tahu seperti apa ilmu silat Kaisar Duan, tikaman itu belum tentu  akna membunuhnya, lagipula ketika belati itu menembus 
+dadanya ia merasa agak lain. Buru-buru ia menarik belati itu untuk menikamnya kedua kali. Di luar dugaannya belati itu 
+tertancap kuat-kuat di antara tulang iganya, ia tidak bisa mencabutnya.
 
-The four disciples called out in alarm and rushed forward simultaneously. In her bitter-
-ness Ying Gu had painstakingly practiced this stab thousands of times over a dozen of
-years period. She knew perfectly well that Emperor Duan would surely guard against
-her attack, so while her right hand did the stabbing, her left palm had already fluttered
-around, guarding the left, right and the back, three sides of her own body. Now that she
-could not pull the dagger back, she saw the circumstances had turned to her disadvan-
-tage. Her feet moved and she leaped toward the door. Turning her head around she
-caught a glimpse of Emperor Duan with his left hand on his chest, seemingly in great
-pain.
+Keempat murid itu berseru kaget dan serempak maju. Dalam kepahitannya Ying Gu bersusah payah melatih diri ribuan kali untuk 
+menikam, selama bertahun-tahun. Ia tahu persis bahwa Kaisar Duan pasti akan waspada, maka sementara tangan kanannya menikam,
+tangan kirinya sudah menjelajah ke sekeliling, menjaga sebellah kiri, kanan dan belakang, ketiga sisi dari tubuhnya. Sekarang
+ia tidak bisa mencabut belatinya, ia melihat situasinya jadi tidak menguntungkan. Kakinya bergerak, ia melompat ke arah pintu.
+Ketika berpaling ia melihat sosok Kaisar Duan dengan tangan kiri di dadanya, tampaknya sangat kesakitan.
 
-Now that her big enmity had been avenged, just as quick she was not sure of what she
-did anymore; suddenly remembered, “I had an affair with someone else and gave birth
-to a child, he did not speak even half a word of reproach and left me live freely in the
-palace. Not only he did not execute me, but he abundantly provided everything for me.
-In actuality he was always very good to me.” All along she only remembered that
-Emperor Duan did not save her son’s life, her heart was filled with hatred. Only after
-stabbing his chest did she remember all his kindness. She heaved a deep sigh, turned
-around and went out the door.
+Sekarang dendam kesumatnya sudah terbalas, dalam waktu sesingkat itu ia jadi merasa tidak yakin lagi apa yang dilakukannya,
+tiba-tiba ia teringat, "Aku sudah berselingkuh dengan orang lain dan melahirkan anak, dia bahkan tidak pernah sekali pun 
+memakiku, dan aku tetap bebas tinggal di istana. Bukan hanya tidak menghukumku, bahkan dia juga menyediakan segala keperluan
+hidupku. Kenyataannya dia sangat baik kepadaku." Selama ini ia hanya ingat bahwa Kaisar Duan tidak menyelamatkan nyawa anaknya,
+hatinya dipenuhi kebencian. Hanya setelah menikan dadanya ia mulai teringat segala kebaikannya. Ia menghela nafas panjang,
+berbalik dan melangkah keluar.
 
-As she turned around she gasped in horror with sweats came pouring down her body,
-because she saw an old monk clasping his palms in front of his chest was standing on
-the door. Under the lamp light she could see his face looked grand and his eyes showed
-compassion; although he was wearing a monk robe it was as clear as the day that he
-was the former ruler of the southern kingdom, Emperor Duan. It was as if Ying Gu was
-seeing an apparition; like a flash of lightning a thought came into her mind, “Did I just
-kill the wrong person?” She swept her gaze backward and saw the monk she had just
-stabbed was slowly standing up; while removing his monk attire his left hand pulled on
-his chin and the white long beard came off. Ying Gu uttered another cry of shock; it
-turned out that old monk was Guo Jing in disguise.
+Ketika berpaling ia dengan kaget dan berkeringat dingin melihat seorang biksu tua sedang merangkapkan tangannya di depan dada,
+berdiri di ambang pintu. Di bawah sinar lampu ia bisa melihat mukanya yang berwibawa dan matanya yang penuh belas kasihan,
+meskipun memakai jubah biksu, tetapi ia bisa melihat dengan jelas bahwa orang itu adalah mantan Kaisar Selatan, Kaisar Duan.
+Ying Gu merasa seperti melihat hantu, sebuah pikiran melintas di benaknya, "Apa mungkin tadi aku salah membunuh orang?" Ia 
+melayangkan pandangannya ke belakang dan melihat biksu yang tadi ditikamnya pelan-pelan berdiri sambil membuka jubah biksunya,
+dengan tangan kiri ia menarik janggut putih di dagunya sampai terlepas. Ying Gu menjerit kaget, ternyata biksu itu adalah 
+Guo Jing yang sedang menyamar.
 
-It was precisely Huang Rong’s scheme: Guo Jing sealed Reverend Yideng’s acupoint and
-deliberately took his place to receive Ying Gu’s dagger. He was afraid the Indian Monk’s
-martial art skill might be high, so he attacked him first; who would have thought that
-the Indian Monk did not even know martial arts. Later on Huang Rong delayed Ying Gu
-by explaining the three mathematical problems in the courtyard; and then using the
-dog beating technique she fought her amidst the sharpened bamboo sticks by the oil
-lamps. In the meantime the four disciples quickly helped Guo Jing wash up the mud
-and shave his head clean. They also shaved Reverend Yideng’s long white beard and
-stuck it underneath Guo Jing’s chin. Actually the four disciples did not feel comfortable
-treating their master in such a disrespectful manner and to let Guo Jing brave a grave
-danger; they were feeling very uneasy. But in order to save their master’s life they did
-not have any other choice; if it were one of the four disciples disguising themselves,
-their martial art was inferior to Ying Gu, they might die under Ying Gu’s dagger.
+Itu sudah jelas adalah akal bulus Huang Rong, Guo Jing menotok titik akupuntur Yideng Dashi dan sengaja mengambil posisi 
+untuk menerima tikaman pisau Ying Gu. Ia takut kungfu biksu India itu mungkin hebat, jadi ia menyerang lebih dahulu, tapi 
+di luar dugaannya ternyata si biksu India sama sekali tidak mengerti ilmu silat. Kemudian Huang Rong menghambat langkah 
+Ying Gu dengan cara memberinya tiga soal matematika di halaman, lalu menggunakan Tongkat Penggebuk Anjing melawannya di 
+tengah-tengah barisan lampu minyak dengan deretan bambu runcing. Sementara itu keempat murid Yideng Dashi buru-buru membantu
+Guo Jing membersihkan sisa-sisa lumpur dan mencukur rambutnya bersih-bersih. Mereka juga memotong jenggot panjang Yideng Dashi 
+dan menempelkannya di dagu Guo Jing. Sebetulnya keempat murid itu merasa sangat tidak nyaman harus memperlakukan majikan 
+mereka secara tidak hormat dan membiarkan Guo Jing menempuh bahaya begitu besar. Tapi mereka tidak punya cara lain untuk 
+menyelamatkan majikan mereka, kalau salah satu dari mereka yang menyamar, maka pasti akan tewas karena ilmu silat mereka 
+tidak bisa menandingi Ying Gu.
 
-As Ying Gu stabbed her dagger Guo Jing deftly moved his two fingers inside the monk
-robe to pinch the flat sides of the dagger. Who would have thought that Ying Gu’s stab
-was so powerful that even with Guo Jing’s finger strength the blade still cut through
-about half an inch of his flesh; luckily it did not break his ribs and he only suffered a
-superficial wound. He could have worn the soft hedgehog armor, which was impene-
-trable by the dagger; but Ying Gu was cunning; she would perceive the difference, then
-they would not get rid of the source of the disaster. If she failed this time, she would
-come back to seek revenge in the future.
+Ketika Ying Gu menikamnya, Guo Jing menggerakkan kedua jarinya di balik jubah untuk menjepit sisi tumpul belati. Tapi di luar 
+dugaan meskipun tenaga Guo Jing sangat kuat, namun tikaman itu masih juga mampu menembus dadanya sekitar setengah inci,
+untungnya tidak sampai mematahkan tulang rusuknya, ia hanya mengalami luka ringan. Ia bisa saja memakai Rompi Kulit Landak 
+Huang Rong, tetapi Ying Gu sangat cerdik, ia pasti akan merasakan perbedaannya, dan dengan begitu mereka tidak akan berhasil 
+menyingkirkan sumber masalah. Kalau ia gagal hari itu, maka ia pasti akan kembali lagi mencari masalah di kemudian hari.
 
-Everybody was delighted to see this ‘jin chan tuo qiao zhi ji’ [lit. golden cicada sheds its
-shell tactic] accomplished successfully; who would have thought that Yideng chose this
-very moment to make a sudden appearance. Not only Ying Gu was startled, but every-
-body else also did not anticipate this to happen.
+Semua orang sangat gembira melihat taktik Jin Chan Tuo Qiao Zhi Ji[^taktik-1] itu sukses besar, tapi secara tak terduga 
+Yideng memilih momen tersebut untuk menampakkan diri. Bukan hanya Ying Gu yang terkejut, semua orang lain juga tidak menduga 
+perkembangan peristiwa itu.
 
-Because Yideng suffered a heavy injury and lost his strength, Guo Jing did not dare to
-seal his acupoint with too much strength for fear of injuring him further. In the back
-room Yideng slowly circulated his internal energy to unseal his own acupoint, and then
-he went back to the meditation room, arriving exactly at this moment.
+Karena Yideng mengalami luka yang sangat parah, Guo Jing tidak berani menotok jalan darahnya dengan menggunakan tenaga terlalu 
+kuat, ia takut akan memperparah luka Yideng. Di ruang belakang Yideng pelan-pelan mengedarkan tenaga dalamnya untuk membuka 
+totokan itu, lalu ia kembali ke ruang meditasi, tiba di situ tepat pada saat kritis.
 
-Ying Gu’s face was pale like that of a corpse, she thought she had fallen into this trap
-and certainly would not have a good fortune. But Yideng told Guo Jing, “Return the dag-
-ger to her.”
+Muka Ying Gu berubah pucat seperti mayat, ia mengira dirinya sudah terjebak dan sudah pasti akan mengalami malapetaka. Tetapi 
+Yideng berkata kepada Guo Jing, "Kembalikan pisau itu kepadanya."
 
-Guo Jing did not dare to defy, he returned the dagger to Ying Gu. Ying Gu absentmind-
-edly took the dagger while staring at Yideng. She was wondering what kind of torture
-he would use against her. But she saw that he slowly removed his monk robe and also
-his undergarment, and then said, “Nobody shall give her any trouble, let her go down
-the mountain in peace. All right, go ahead and stab me; I have been waiting for you for
-a long, long time.”
+Guo Jing tidak berani membantah, ia mengembalikan pisau itu kepada Ying Gu. Ying Gu dengan melamun mengambilnya sambil menatap 
+Yideng Dashi. Ia bertanya-tanya, entah siksaan macam apa yang akan dipakainya untuk menghukum. Tetapi ia kemudian melihat 
+Yideng pelan-pelan melepaskan jubah biksu dan juga bajunya, lalu berkata, "Tidak boleh ada orang yang menyulitkan 
+dia, biarkan dia turun gunung dengan bebas setelah ini. Baiklah, silakan tikam aku sekarang, aku sudah lama menunggumu,
+sudah sangat lama."
 
-These words were said very gently, but in Ying Gu’s ears they were like thunderous
-lightning in a bright daylight. She stood motionless for half a day, then her grip loos-
-ened and the dagger fell to the ground with a clanking sound. Covering her face with
-both hands she rushed out of the room. They heard her footsteps as she went farther
-and farther away until finally they could hear her anymore.
+[^taktik-1]: Jin Chan Tuo Qiao Zhi Ji, pepatah ini masih harus dicari bentuk aslinya.
 
-Everybody looked at each other in shock, nobody made any noise. Suddenly ‘thump,
-thump’ the student and the farmer fell backward to the ground. Turned out because
-their fingers were poisoned, in the commotion that followed they suppressed the poi-
-son using their internal energy; by now the saw their master was well, their hearts
-were relieved and could not hold the poison much longer.
+Kalimat itu diucapkan dengan sangat lembut, tetapi di telinga Ying Gu kedengarannya seperti suara halilintar di siang bolong.
+Ia berdiri terpaku sangat lama, lalu genggamannya mengendur dan pisaunya jatuh ke lantai dengan suara berdenting. Sambil 
+menutupi muka dengan kedua tangannya ia berlari keluar ruangan. Mereka mendengarkan suara langkahnya menjauh sampai suara 
+itu lenyap ditelan keheningan malam.
 
-“Hurry, invite Martial Uncle!” the woodcutter called out.
+Semua orang saling berpandangan saking kagetnya, tak seorang pun bersuara. Tiba-tiba terdengar suara 'buk, bukk!', 
+si sastrawan dan petani jatuh terjengkang. Ternyata selama ini jari mereka sudah keracunan, dalam keributan mereka 
+mencoba menekan efek racun itu dengan menggunakan tenaga dalam, sekarang setelah melihat majikan mereka dalam keadaan 
+baik-baik saja, hati mereka lega dan tidak dapat menahan racun lagi.
 
-Before he finished Huang Rong had already accompanied the Indian Monk walking
-into the room. He was an expert in treating poison related illness. He quickly gave two
-people some medicine to take, also cut their fingers to get rid of the black blood. His
-face looked very serious, while his mouth mumbling in sanskrit, “A ma li, ha shi tu, si
-gu er, qi nuo dan ji.”
+"Cepat, undang Paman Guru ke sini!" seru si penebang kayu.
 
-Yideng understood Sanskrit, he knew his disciples’ lives were not in danger. They
-would have to be treated for two months then they would be healed completely.
+Sebelum ia sempat menyelesaikan kalimatnya, Huang Rong sudah tiba di situ bersama si biksu India. Ia seorang ahli 
+menangani keracunan. Buru-buru ia memberikan obat kepada kedua orang itu, selain itu ia juga menyayat sedikit ujung jari
+keduanya untuk mengeluarkan darah hitam. Mukanya tampak sangat serius, sementara mulutnya komat-kamit dalam bahasa Sansekerta,
+"A ma li, ha shi tu, si gu er, qi nuo dan ji."
 
-Meanwhile Guo Jing had removed his monk robe and treated the wound on his chest;
-he bowed to the ground in front of Yideng to apologize. Yideng busily held out his hand
-to raise him up; he sighed and said, “You risked your life to save mine; nothing to for-
-give.” Then he turned toward his martial brother and explained in Sanskrit what Guo
-Jing had done.
+Yideng mengerti bahasa Sansekerta, ia tahu nyawa murid-muridnya tidak dalam bahaya. Mereka hanya perlu dirawat selama 
+dua bulan, dan kondisi mereka akan pulih seperti semula.
 
-The Indian monk said, “Si li xing, ang yi na de.”
+Sementara itu Guo Jing telah melepaskan jubah biksu yang dipakainya dan mulai merawat luka di dadanya. Ia membungkuk
+di hadapan Yideng dan meminta maaf. Yideng buru-buru memegang tangannya dan mengangkatnya bangkit, ia mendesah dan 
+berkata, "Kau mengambil resiko taruhan nyawa untuk menolongku, tidak ada yang harus dimaafkan." Lalu ia berpaling 
+kepada saudara seperguruannya dan menjelaskan dalam bahasa Sansekerta mengenai apa yang telah dilakukan Guo Jing.
 
-Guo Jing was startled; he knew these two sentences, and he could even recite the next
-line, “Si re que xu, ha hu wen bo ying ...”
+Biksu India itu berkata, "Si li xing, ang yi na de."
 
-Zhou Botong had taught him to recite the Nine Yin Manual in its entirety. The last part
-of Manual was full of all these strange sentences. Guo Jing did not understand its mean-
-ing, but he was forced to memorize the entire Manual including all these mumbo-
-jumbo; hence he was able to recite it effortlessly.
+Guo Jing tercengang, ia mengenal kedua kalimat itu, dan ia juga bisa mengutip kalimat selanjutnya, "Si re que xu,
+ha hu wen bo ying..."
 
-Hearing him speaking Sanskrit Yideng and the Indian Monk were stunned; moreover,
-what he had just said was related to excellent technique to cultivate internal energy;
-they were even more astonished. Yideng asked him the whole story and Guo Jing told
-him without concealing anything. Yideng was endlessly marveled, he said, “I have
-heard the story behind the Nine Yin Manual from Chongyang Zhenren. Huang Shang,
-the person who compiled the manual was not only highly skilled, he was also well-
-versed in the Daoist canon, skilled in the internal energy cultivation, and understood
-Sanskrit. When the manual was complete, the last chapter was actually the essence of
-it. Suddenly he realized that if this manual falls into the hand of criminals, they would
-be able to turn the world upside down without anybody controlling them. But he was
-also unwilling to destroy this last chapter; thereupon he rewrote the chapter in
-Sanskrit, but with Chinese transliteration. He thought that it was difficult to say
-whether the Manual could be passed on to the future generation; the people of Central
-Plains who knew Sanskrit was very few, and even more rare was the number of people
-who were well-versed both in martial art and Sanskrit literature. If the Manual fall into
-the hand of an Indian, although he is proficient in Sanskrit, but he does not speak
-Chinese. Huang Shang arranged it this way; actually it was the same as not allowing the
-future generation to understand the content. Because of this Sanskrit part even
-Chongyang Zhenren did not understand the Manual’s meaning. Who would have
-thought that through divine intervention you who do not understand Sanskrit can actu-
-ally memorize this lengthy great theory that sounds like incantations? It is truly a very
-rare opportunity.” Thereupon he asked Guo Jing to recite the Sanskrit part slowly while
-he translated it into Chinese, wrote it on a piece of paper and gave it to Guo Jing and
-Huang Rong.
+Zhou Botong sudah mengajarinya kutipan dari Jiu Yin Zhen Jing seluruhnya. Bagian terakhir dari kitab itu dipenuhi oleh
+kalimat-kalimat aneh ini. Guo Jing tidak memahami artinya, tetapi ia terpaksa menghafalkan seluruh isi kitab itu, termasuk 
+segala omong kosong ini, karena itu ia bisa mengutip semuanya tanpa kesulitan.
 
-The overall guiding principle of energy cultivation in the Nine Yin Manual was mysteri-
-ously deep; although Reverend Yideng was a proficient scholar with profound internal
-energy, he could not dissect the theory completely in such a short period of time. “Stay
-on the mountain for a few days, let me dig into it comprehensively, then I will transfer
-my knowledge to you two,” he said. He further said, “Usually as my internal strength is
-damaged, I will need five years of continuous training for a full recovery; but if I prac-
-tice according to the Manual, it seems like in less than three months I will get a five-
-year-worth of internal energy cultivation. Although what I practiced is a Buddhist mar-
-tial art, which was different from the Taoism method of internal energy cultivation in
-the Manual, but looking at this principle, as the martial art is trained to the highest
-level, different approaches will lead to the same result; it is no different than the
-Buddhism method.”
+Ketika mendengarnya bicara dalam bahasa Sansekerta, Yideng Dashi dan si biksu India itu tercengang, lagipula apa yang 
+dikatakannya berkaitan dengan teknik melatih tenaga dalam yang sangat canggih, mereka jadi lebih tercengang lagi. Yideng 
+menanyakan cerita selengkapnya dan Guo Jing segera menceritakannya tanpa ada yang ditutup-tutupi. Yideng terheran-heran 
+bercampur kagum. "Aku sudah mendengar cerita di balik Jiu Yin Zhen Jing dari Chongyang Zhenren. Huang Shang, orang yang 
+menulis kitab itu, bukan hanya berilmu tinggi, ia juga sangat akrab dengan kanon Kitab Suci Tao, jadi juga ahli dalam hal
+teknik melatih tenaga dalam, dan mengerti bahasa Sansekerta. Ketika kitab itu selesai ditulisnya, bagian terakhir sebetulnya 
+berisi esensi dari kitab itu sendiri. Tiba-tiba ia menyadari bahwa seandainya kitab itu jatuh ke tangan orang jahat, maka
+dia akan sanggup menjungkirbalikkan dunia ini tanpa ada orang yang bisa mengendalikannya. Tapi ia juga tidak rela menyingkirkan 
+bagian terakhir itu, karena itulah ia menulis ulang bagian itu dalam bahasa Sansekerta, tapi dengan terjemahan bahasa mandarin 
+sebagai panduan. Ia berpikir, sulit dikatakan apakah kitab itu akan bisa diwariskan ke generasi mendatang, orang-orang di 
+Dataran Pusat yang memahami bahasa Sansekerta sangat sedikit, lebih sedikit lagi yang selain memahami bahasa Sansekerta,
+juga ahli dalam ilmu silat. Kalau kitab itu jatuh ke tangan orang India, meskipun orang itu memahami bahasa Sansekerta,
+tetapi ia tidak bicara bahasa mandarin. Huang Shang mengaturnya seperti itu, sebetulnya sama artinya dengan tidak mengijinkan 
+generasi mendatang untuk memahami isi kitab itu. Karena bagian berisi bahasa Sansekerta itu, bahkan Chongyang Zhenren pun tidak 
+memahami makna isi kitab itu. Tapi siapa sangka, melalui campur tangan Ilahi kau yang tidah memahami bahasa Sansekerta 
+teryata sungguh-sungguh bisa menghafalkan kalimat-kalimat panjang yang terdengar mirip kutipan doa itu? Ini sungguh-sungguh
+kesempatan yang sangat langka." Ia lalu meminta Guo Jing mengutip bagian yang berisi bahasa Sansekerta secara perlahan-lahan,
+lalu ia menerjemahkannya menjadi bahasa mandarin, ia menuliskan semuanya di sehelai kertas dan memberikannya kepada Guo Jing
+dan Huang Rong.
 
-Huang Rong told him how Hong Qigong was injured by Ouyang Feng. Reverend Yideng
-showed great concern. “You two must tell your Shifu about the Nine Yin internal en-
-ergy cultivation method; I am certain he will recover his internal strength,” he said.
-Guo Jing and Huang Rong were very delighted to hear this.
+Secara keseluruhan prinsip panduan untuk melatih tenaga dalam di dalam Jiu Yin Zhen Jing itu sangat mendalam dan misterius,
+meskipun Yideng Dashi adalah seorang terpelajar yang sangat ahli dan memiliki tenaga dalam tingkat tinggi, ia tidak mampu 
+membedah teori di dalamnya dalam waktu sesingkat itu. "Kalian tinggallah di gunung ini beberapa hari lagi, aku akan mencoba 
+mempelajarinya lebih mendalam, lalu aku akan menyampaikan apa yang kupahami kepada kalian berdua," katanya. Ia juga menambahkan,
+"Biasanya kalau tenaga dalamku musnah karena suatu hal, aku memerlukan waktu lima tahun untuk pulih seperti semula, tapi kalau 
+mengikuti petunjuk yang ada di dalam kitab itu, tampaknya dalam waktu kurang dari tiga bulan aku akan mendapat hasil yang sama
+seperti lima ahun itu. Meskipun aku memeluk agama Buddha, dan juga ilmu silatku lebih condong ke ajaran Buddha, yang berbeda 
+dengan metode ajaran Tao dalam melatih tenaga dalam di dalam kitab itu, tapi kalau dilihat dari prinsip ini, kalau ilmu silat
+dilatih sampai ke tingkat tinggi, berbagai pendekatan yang berbeda akan tetap mengarah ke hasil yang sama, ini tidak berbeda 
+dengan prinsip ajaran Buddha."
 
-Two people stayed on the mountain for more than ten days. Everyday Reverend Yideng
-explained the Nine Yin energy cultivation method to them. Huang Rong also took this
-opportunity for her own recovery.
+Huang Rong menceritakan kepadanya tentang luka dalam Hong Qigong yang disebabkan oleh Ouyang Feng. Yideng Dashi tampak 
+penuh perhatian. "Kalian berdua harus mengatakan kepada guru kalian tentang ilmu tenaga dalam dari Jiu Yin Zhen Jing, aku 
+yakin dia akan bisa pulih," katanya. Guo Jing dan Huang Rong sangat senang mendengarnya.
 
-One particular day they were walking idly outside the meditation building when sud-
-denly they heard anxious cry of eagles in the air; they saw a pair of white eagles in the
-distance coming from the east. Huang Rong clapped her hands, “Jin wawa [lit. golden
-baby – see Chapter 29] is here!” The pair of eagles folded their wings and landed, they
-looked weary. Two people could not help to be alarmed; they saw a gaping wound on
-the breast of the female eagle. It looked like an arrow wound, but the arrow was no
-longer there; apparently the eagles had pulled the arrow themselves. There was a piece
-of green cloth tied on the male eagle’s foot; but they did not bring any ‘jin wawa’ with
-them.
+Keduanya tinggal di gunung itu sampai lebih dari sepuluh hari. Setiap hari Yideng Dashi menjelaskan tentang metode latihan 
+tenaga dalam ala Jiu Yin Zhen Jing. Huang Rong juga mengambil kesempatan itu untuk memulihkan tenaga dalamnya sendiri.
+
+Suatu hari mereka sedang berjalan di luar ruang meditasi ketika tiba-tiba mereka mendengar pekikan keras elang di udara.
+Huang Rong bertepuk tangan. "Jin Wawa sudah tiba!" Sepasang elang itu menekuk sayap mereka dan mendarat, mereka tampak
+sangat kuatir. Kedua orang itu mau tak mau jadi ikut kuatir, mereka melihat ada bekas luka di dada elang betina. Tampaknya 
+seperti luka bekas panah, tapi anak panahnya sudah tidak ada lagi, tampaknya si elang sudah berhasil mencabutnya. Ada secarik 
+kain hijau terikat di kaki elang jantan, tetapi mereka tidak membawa Jin Wawa.
+
 
 **Page 41 in PDF**
 
