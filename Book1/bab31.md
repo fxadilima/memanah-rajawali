@@ -1272,6 +1272,217 @@ sangat kuatir. Kedua orang itu mau tak mau jadi ikut kuatir, mereka melihat ada 
 seperti luka bekas panah, tapi anak panahnya sudah tidak ada lagi, tampaknya si elang sudah berhasil mencabutnya. Ada secarik 
 kain hijau terikat di kaki elang jantan, tetapi mereka tidak membawa Jin Wawa.
 
+Huang Rong mengenali potongan kain hijau itu adalah sobekan jubah ayahnya, berarti sepasang elang itu memang telah sampai di 
+Pulau Bunga Persik. Mungkinkah ada musuh yang datang ke situ? Mungkinkah ayahnya terlalu sibuk melawan musuh dan tidak sempat
+melayani pesanan putrinya ini?
 
-**Page 41 in PDF**
+Sepasang elang itu adalah hewan yang pintar, tetapi elang betina terkena tembakan panah, suatu pertanda bahwa orang yang 
+menembak itu pastilah seorang pesilat tangguh. Guo Jing segera mengoleskan salep dan membalut luka si elang betina. Huang Rong 
+berpikir lama, tapi sampai akhir ia tetap tidak menemukan petunjuk mengenai apa yang terjadi. Sayangnya sepasang elang itu 
+tidak bisa bicara, kalau tidak mereka pasti sudah berebut menceritakan apa yang telah terjadi di Pulau Bunga Persik.
+
+Kedua orang itu kuatir tentang keadaan Huang Yaoshi, karena itu mereka segera berpamitan dengan Yideng Dashi. "Kita pasti tetap 
+akan bertemu kembali lain kali, tapi karena ada sesuatu yang trejadi di Pulau Bunga Persik, aku tidak bisa menahan kalian lagi.
+Meskipun begitu, Yao Xiong punya pengetahuan yang luas, dia pintar dan bijaksana. Aku yakin tak ada orang di jaman ini mampu 
+mencelakainya, kalian tidak perlu terlalu kuatir."
+
+Yideng lalu memanggil si nelayan, penebang kayu, petani dan sastrawan untuk bersama-sama dengan Guo Jing dan Huang Rong 
+mendengarkan penjelasannya tentang ilmu silat di depannya. Ia menjelaskan esensi kungfu selama beberapa jam. Setelah ia 
+selesai Guo Jing dan Huang Rong dengan berat hati berpamitan. Si sastrawan dan petani masih belum pulih total, jadi mereka 
+hanya bisa mengantar sampai ke pintu gerbang. Si nelayan dan penebang kayu mengiringi mereka berdua sampai ke kaki gunung.
+Mereka menungggu sampai kedua anak muda itu menemukan kembali kuda merah mereka sebelum akhirnya mengucapkan selamat jalan
+dengan berat hati.
+
+Guo Jing dan Huang Rong kembali melewati jalanan yang sama, pemandangan di sekitarnya masih sama, tetapi hati mereka sama 
+sekali berbeda dibanding ketika mereka mendaki gunung itu beberapa hari yang lalu. Teringat kebaikan hati Yideng Dashi, Huang 
+Rong tak dapat menahan diri untuk berlutut dan membungkuk ke arah puncak gunung. Guo Jing mengikutinya dan _kowtow_ beberapa 
+kali.
+
+Di sepanjang jalan meskipun Huang Rong sedang kuatir tentang ayahnya, ia berpikir selama ini ayahnya bertualang sendirian di 
+dunia persilatan dan sangat jarang ia mengalami nasib buruk. Meskipun ia bertemu lawan tangguh, mungkin ia tidak bisa menang, 
+tapi setidaknya ia punya cukup kemmpuan untuk mempertahankan diri, seperti yang dikatakan Yideng Dashi, "Tak ada orang di 
+jaman ini yang mampu mencelakainya." Karena itu ia juga tidak terlalu cemas.
+
+Keduanya duduk di punggung kuda merah itu sambil mengobrol santai. Huang Rong tertawa. "Entah seberapa sering kita menghadapi 
+bahaya sejak kita bertemu, tapi setiap kali kita kalah, kita juga punya keuntungan. Seperti kali ini, aku terluka parah akibat 
+pukulan Qiu Qianren, akhirnya kita malah menemukan rahasia tak terduga dari Jiu Yin Shen Gong, yang bahkan tidak dipahami oleh 
+Wang Chongyang sendiri."
+
+"Aku lebih suka tidak mengerti ilmu silat apa pun, pokoknya kau sehat dan aman," kata Guo Jing.
+
+Dalam hatinya Huang Rong sangat bahagia, tetapi ia tertawa dan berkata, "Aiyo, kalau mau memuji orang lain juga tidak perlu 
+harus bermulut besar seperi itu! Kalau kau tidak mengerti ilmu silat, kau pasti sudah lama mati. Tak usah ngomong soal Ouyang 
+Feng, Sha Tongtian dan yang lain, bahkan anggota SEkte Telapak Besi yang berbaju hitam itu pasti mampu menggorok lehermu."
+
+"Papa pun yang terjadi, aku tidak akan mengijinkan kau terluka lagi," kata Guo Jing. "Yang lalu ketika aku terluka di Lin'an,
+aku merasa baik-baik saja. Tapi beberapa hari belakangan ini waktu melihat kau luka parah, aih, itu sungguh-sungguh buruk."
+
+"Hm," gumam Huang Rong sambil tersenyum. "Kau sungguh tidak punya hati."
+
+"Kenapa?" tanya Guo Jing heran.
+
+"Kau lebih suka terluka," kata Huang Rong. "Kau pikir dengan begitu _aku_ akan merasa lebih baik?"
+
+Guo Jing terkejut, lalu ia tertawa. Kakinya menendang perut kuda, dan kuda itu pun berlari lebih cepat, seolah-olah keempat 
+kakinya melayang tinggi di atas tanah, karenanya ketika tengah hari mereka sudah sampai di wilayah Taoyuan. Huang Rong 
+masih belum pulih benar, setelah berkuda setengah harian ia merasa sangat lelah, mukanya merah dan ia terengah-engah. Ada 
+sebuah rumah makan di kota Taoyuan, namanya Bi Qin Jiu Lou. Nama itu berasal dari Tao Hua Yuan Ji[^tao-hua-yuan-ji], hasil 
+karya Tao Yuanming. Rumah makan itu sebetulnya adalah sebuah kedai arak.
+
+[^tao-hua-yuan-ji]: Perhatikan karakter Tao (桃) dari nama itu adalah sama dengan nama Tao Hua Dao, alias Pulau Bunga Persik.
+
+Guo Jing dan Huang Rong memilih tempat duduk dan segera memesan makanan dan arak. Kepada pelayan Guo Jing berkata, "Saudara,
+kami harus pergi ke Hankou, bisakah kau turun sebentar ke sungai itu untuk mengundang tukang perahu datang supaya kami 
+bisa bicara?"
+
+Si pelayan berkata, "Kalau Gongzi bersedia naik perahu bersama dengan orang-orang lain, pasti Gongzi akan lebih hemat. Menyewa 
+perahu hanya untuk kalian berdua cukup mahal."
+
+Huang Rong memainkan matanya, ia mengambil uang perak senilai lima _liang_ dan meletakkannya di atas meja. "Ini cukupkah?"
+tanyanya.
+
+"Cukup, cukup," kata si pelayan sambil tersenyum. Ia berbalik dan berjalan turun.
+
+Guo Jing takut kondisi Huang Rong akan memburuk, jadi ia melarangnya minum arak, sebagai akibatnya ia juga menahan diri untuk 
+minum arak, mereka hanya bisa makan makanan yang ada. Mereka baru makan setengah mangkuk ketika si pelayan kembali bersama 
+dengan tukang perahu, ia mengatakan bahwa tukang perahu itu setuju untuk mengantar mereka sampai ke Hankou, nasi sudah termasuk
+tetapi lauk-pauk tidak, biaya totalnya adalah tiga _liang_ dan enam _qian_. Huang Rong tidak menawar, ia langsung memberikan 
+sejumlah yang dimaksud kepada tukang perahu. Si tukang perahu mengambil uang perak itu dan merangkapkan tangannya dengan 
+hormat, ia menunjuk ke mulutnya sambil bersuara serak, "Ah, ah." Ternyata ia bisu. Tangannya bergerak ke sana-sini, memberi 
+isyarat. Huang Rong mengangguk sambil membuat isyarat dengan tangannya. Tampaknya isyarat-isyarat yang mereka buat agak rumit,
+dan mereka berkomunikasi cukup lama. Akhirnya tukang perahu bisu itu pun puas, ia menganggukkan kepalanya berkali-kali dan 
+pergi dari situ.
+
+"Kalian berdua ngomong apa?" tanya Guo Jing.
+
+"Dia bilang kita akan segera berangkat setelah selesai makan," jawab Huang Rong. "Aku suruh dia beli beberapa ekor ayam,
+beberapa kati daging, juga sayuran dan arak, da tidak perlu kuatir soal uang. Aku akan bayar kemudian."
+
+Guo Jing menghela nafas. "Kalau aku ketemu tukang perahu ini sendirian, pasti aku tidak tahu harus berbuat apa," katanya.
+Karena semua pelayan di Pulau Bunga Persik bisu-tuli, maka Huang Rong sejak umur dua tahun sudah belajar bagaimana harus 
+berkomunikasi dengan mereka.
+
+Ikan asap tim madu buatan rumah makan itu sungguh lezat, Guo Jing makan beberapa ekor sambil teringat Hong Qigong. "Entah di 
+mana Enshi[^enshi] sekarang, dan entah bagaimana cederanya," katanya. "Kalau memikirkan dia aku jadi kuatir." Ia berharap bisa
+membungkus sebagian ikan asap itu untuk Hong Qigong.
+
+[^enshi]: En Shi (恩师) juga berarti 'Guru', bedanya dengan Shifu adalah, Enshi secara literal berarti 'Guru Yang Budiman', atau 'Yang Murah hati', pendeknya seorang guru yang juga penyelamat.
+
+Huang Rong baru hendak menjawab ketika mendengar suara langkah kaki naik tangga. Seorang pendeta Tao perempuan muncul di situ.
+Ia mengenakan jubah pendeta abu-abu dengan sehelai kain menutupi mukanya untuk melindunginya dari debu. Cadar itu menutupi 
+mulut dan hidungnya, jadi hanya matanya yang kelihatan. Si pendeta perempuan itu memilih meja di sudut ruangan dan duduk. 
+Pelayan kedai arak itu segera menyapanya. Si pendeta bicara dengan suara rendah. Pelayan segera menjawab dan bergegas turun.
+Tak lama kemudian ia kembali membawa semangkuk mie untuk vegetarian. Huang Rong merasa sosok pendeta perempuan ini 
+sangat akrab baginya, tapi ia tidak bisa mengingat di mana mereka pernah bertemu.
+
+Guo Jing mengikuti arah pandangannya dan berpaling kepada si pendeta perempuan, yang buru-buru memalingkan mukanya ke arah lain.
+Kelihatannya si pendeta juga memandangnya. Huang Rong tersenyum dan berbisik, "Jing Gege, hati pendeta perempuan ini terusik 
+oleh nafsu duniawi, dia pasti merasa kau sangat menarik."
+
+"Puih," Guo Jing meludah. "Kau jangan ngomong sembarangan. Kenapa kau menghina Chu Jia Ren[^chu-jia-ren]?"
+
+[^chu-jia-ren]: Chu Jia Ren (出家人), secara literal istilah ini berarti 'Orang yang meninggalkan rumah'. Istilah ini secara umum dipahami sebagai sebutan untuk seorang biarawan atau biarawati.
+
+Huang Rong tertawa. "Kalau kau tidak percaya, tunggu saja."
+
+Mereka selesai makan dan berjalan ke arah tangga. Huang Rong masih ragu, ia melirik si pendeta perempuan yang pada saat itu 
+sedang mengangkat cadarnya sedikit, memperlihatkan sebagian wajahnya. Huang Rong menarik nafas dan menjerit tertahan karena
+terkejut. Si pendeta menggerakkan tangannya, segera mengembalikan cadarnya dan menundukkan kepala untuk kembali makan mie.
+Guo Jing sudah berjalan turun dan tidak tahu apa yang terjadi.
+
+Mereka turun tangga untuk membayar harga makanan. Si tukang perahu bisu sudah menunggu di luar kedai. Huang Rong memberi 
+beberapa isyarat tangan, mengatakan bahwa mereka masih harus membeli beberapa bahan dan akan sedikit terlambat sampai 
+ke perahu. Di tukang perahu mengangguk, menunjuk ke arah perahu dengan layar hitam di sungai. Huang Rong mengangguk,
+tetapi ia melihat tukang perahu itu tidak segera pergi, jadi ia mengajak Guo Jing ke arah timur jalan. Ketika mereka 
+berjalan ke arah salah satu sudut, mereka mendadak berhenti dan bersembunyi di belakang tembok, dengan begitu mereka
+tidak terlihat dari kedai sementara mereka sendiri bisa dengan bebas melihat pintu masuk kedai itu.
+
+Tak lama kemudian si pendeta perempuan keluar dari kedai, ia melihat ke arah kuda merah kecil dan sepasang elang yang ada 
+di dekat situ. Setelah celingukan ke empat penjuru dan tidak menemukan ada orang lain, ia berbalik dan berjalan ke arah barat.
+
+"Betul, seperti dugaanku," kata Huang Rong dengan suara rendah. Ia menarik jubah Guo Jing dan bergegas ke arah timur. Guo Jing 
+bingung, tapi ia tidak bertanya, ia hanya mengikuti dengan patuh.
+
+Kota Taoyuan itu tidak besar, dalam waktu singkat mereka tiba di gerbang timur. Huang Rong berbelok ke arah selatan. Setelah 
+melewati pintu gerbang selatan mereka berbelok lagi ke arah barat.
+
+"Kita mengikuti pendeta perempuan itu?" tanya Guo Jing dengan suara rendah. "Jangan bercanda."
+
+Huang Rong tertawa. "Bercanda bagaimana?" katanya. "Pendeta itu sangat cantik, seperti bidadari, kalau tidak mengejarnya 
+kau akan menyesal nanti."
+
+Guo Jing dengan gusar menghentikan langkahnya. "Rong'er, kalau kau terus-terusan ngomong seperti ini aku akan marah."
+
+"Aku tidak takut," kata Huang Rong. "Aku justru ingin melihatmu marah."
+
+Guo Jing terdiam, ia tidak punya pilihan selain melanjutkan langkahnya. Kira-kira lima-enam _li_ berikutnya mereka melihat 
+di kejauhan si pendeta sedang duduk di bawah pohon Zao Jia[^locust-tree]. Segera setelah ia melihat kedatangan Guo Jing 
+dan Huang Rong, ia bangkit berdiri dan berjalan di sepanjang jalan setapak ke arah bukit. Huang Rong menarik tangan 
+Guo Jing dan mereka berjalan ke arah itu.
+
+[^locust-tree]: Zao Jia (皂荚), atau Gleditsia sinensis adalah nama sebuah pohon. Dalam bahasa Inggris dengan sederhana (dan literal) disebut sebagai 'Locust Tree', tetapi kalau kita terjemahkan ke dalam bahasa Indonesia akan menjadi 'Pohon Belalang', yang tidak enak disebut maupun dibaca. Karena pohon ini tidak umum (atau bahkan tidak ada) di Indonesia, maka sebaiknya kita memakai nama sesuai konteks, yaitu dalam bahasa mandarin.
+
+"Rong'er," kata Guo Jing. "Kalau kau sengaja ingin cari masalah, kurasa aku harus menahanmu dan menyeretmu kembali."
+
+"Aku sungguh lelah berjalan," kata Huang Rong. "Sebaiknya kau membuntuti dia sendirian."
+
+Muka Guo Jing tampak cemas, ia berjongkok dan berkata, "Kalau kau lelah, biar kugendong di punggung."
+
+Huang Rong cekikikan dan berkata, "Aku mau menarik cadarnya, supaya kau bisa melihat wajahnya." Ia mempercepat langkahnya 
+mengikuti si pendeta perempuan itu. Pendeta itu berpaling, menunggu mereka. Huang Rong merenggut cadarnya untuk memperlihatkan 
+wajahnya.
+
+Guo Jing mengikuti di belakangnya, ia berseru, "Rong'er, jangan bikin masalah!" Tetapi ketika melihat wajah si pendeta 
+perempuan itu ia tercengang, dan kehilangan kata-kata. Ia melihat lipatan yang dalam di antara kedua alis indah pendeta 
+itu, matanya berlinang air mata, wajahnya tampak memelas, jelas sekali ia sangat berduka. Pendeta itu adalah Mu Nianci.
+
+Huang Rong memeluk pinggangnya. "Mu Jiejie, ada apa? Apa bocah Yang Kang itu mempermainkanmu?" tanyanya. Mu Nianci menundukkan 
+kepalanya tanpa mengatakan apa-apa.
+
+Guo Jing mendekat dan menyapanya, "Mei Mei." Mu Nianci hanya bergumam pelan, "Hm."
+
+Huang Rong menarik tangan Mu Nianci ke arah pohon Willow di tepi sungai, mereka duduk berdua di situ. "Jiejie, apa dia 
+mengganggumu?" tanya Huang Rong. "Kami akan mencarinya untuk membuat perhitungan. Jing Gege dan aku juga menderita dan 
+nyawa kami berdua hampir saja hilang di tangannya." Mu Nianci menundukkan kepalanya, masih tidak mengatakan apa-apa. Bayangan 
+mereka berdua tampak jelas di permukaan air sungai yang jernih. Kelopak-kelopak bunga berjatuhan di air dan pelan-pelan 
+terapung lewat, menghapus pantulan bayangan itu.
+
+Guo Jing duduk di sebuah batu beberapa kaki dari mereka berdua, pikirannya dipenuhi pertanyaan. "Kenapa Mu Mei Mei begitu
+sedih dan berdandan seperti pendeta Tao? Kenapa dia juga tidak menyapa waktu di kedai? Kemana perginya si Yang Kang?"
+
+Melihat Mu Nianci tampakberduka, Huang Rong tidak bertanya lagi, ia segera menggenggam tangannya erat-erat.
+
+Setelah beberapa saat Mu Nianci membuka mulutnya, "Meizi, Guo Dage, perahu yang kalian sewa itu milik Sekte Telapak Besi,
+mereka memasang perangkap untuk mencelakai kalian."
+
+Guo Jing dan Huang Rong terkejut. "Tukang perahu bisu itu?" tanya mereka serempak.
+
+"Tepat sekali," kata Mu Nianci. "Tapi dia tidak bisu. Dia anggota Telapak Besi, suaranya sangat nyaring sampai dia sendiri 
+takut kalau buka suara maka kalian akan curiga, karena itu dia pura-pula bisu."
+
+Huang Rong diam-diam waspada. "Kalau kau tidak mengatakannya aku juga tidak menyadari hal ini," katanya. "Tidak heran bahasa 
+isyaratnya sangat bagus, pasti dia sering pura-pura bisu."
+
+Guo Jing melompat ke atau pohon Willow, ia menyapu pandangannya ke sekeliling, tetapi selain dua-tiga orang petani yang sedang 
+bekerja di ladang ia tidak melihat ada orang lain. Ia berpikir, "Kalau bukan karena Rong'er dan Mu Mei Mei berputar-putar, 
+rasanya sekarang ini orang-orang dari Telapak Besi sudah ada di sini."
+
+Mu NIanci menghela nafas panjang dan berkata perlahan, "Kalian sudah tahu urusanku dengan Yang Kang. Belakangan ini aku 
+membawa jenazah ayah dan ibu angkatku ke selatan. Aku ketemu lagi dengan dia di sebuah tempat terpencil di Desa Niu, di
+Lin'an."
+
+Huang Rong membuka mulutnya, "Soal itu kami tahu, kami bahkan melihat sendiri ia membunuh Ouyang ke." Mu Nianci terbelalak 
+memandangnya, ucapan Huang Rong itu sulit dipercaya. Karena itu Huang Rong segera menceritakan secara singkat bagaimana 
+Guo Jing dan dia bersembunyi di ruang rahasia untuk mengobati luka, juga bagaimana Yang Kang memakai idenitas palsu sebagai 
+Ketua Kai Pang, bagaimana mereka berdua lolos dari bahaya, dan seterusnya. Itu cerita yang sangat panjang, beserta segala
+liku-likunya, tapi Huang Rong sangat ingin tahu bagaimana pengalaman Mu Nianci, jadi ia hanya menceritakan beberapa topik
+yang penting.
+
+Sambil menggertakkan giginya Mu Nianci berkata, "Orang itu melakukan berbagai kejahatan, suatu hari nanti dia pasti akan 
+mengalami nasib buruk. Aku sangat menyesal punya mata tapi gagal melihat, karena itu aku harus mengalami malapetaka ini
+karena ketemu dia."
+
+Huang Rong mengambil saputangan dari sakunya dan menghapus air mata di wajah Mu Nianci. Hati Mu Nianci sangat kacau,
+ia mengalami segala peristiwa buruk, sampai-sampai ia tidak tahu dari mana harus mulai bercerita. Ia berusaha 
+mengumpulkan ingatannya dan pelan-pelan menenangkan diri, barulah pada saat itu ia bisa membuka mulut untuk bercerita.
 
