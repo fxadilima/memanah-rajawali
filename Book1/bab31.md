@@ -7,8 +7,6 @@
 
 ***
 
-**WARNING: These are draft.**
-
 Yideng Dashi menundukkan kepala dan menghela nafas. "Sebetulnya aku hanya bisa menyalahkan diri sendiri untuk musibah yang 
 tidak menguntungkan ini. Coba kalian pikir, Kerajaan Dali itu kecil, meskipun tidak bisa dibandingkan dengan harem 
 Kekaisaran Song yang berisi lebih dari tiga ribu wanita, tetapi kalau bicara soal selir, aku memang punya beberapa. Aih!
