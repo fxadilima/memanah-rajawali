@@ -9,39 +9,41 @@
 
 **WARNING: These are drafts**
 
-Mu Nianci let Huang Rong hold her right hand; she looked at the fallen flowers floating
-on the water and said, “When I saw him kill Ouyang Ke I thought he was going to re-
-pent from his evil ways. Moreover I saw the two masters from the Beggar Clan were so
-respectful toward him when they went to the west. I’ve met those two Beggar Clan uncles before; 
-they were Senior Qigong’s trusted aides. Seeing them treat him that way I was very happy; 
-so I followed them till we get to Yuezhou, where the Beggar Clan was having their congress on Mount Jun."
+Mu Nianci membiarkan Huang Rong memegang tangan kanannya, ia memandangi rontokan kelopak bunga yang terapung di permukaan 
+air sambil berkata, "Waktu melihatnya membunuh Ouyang Ke, kupikir dia berniat bertobat. Lagipula aku melihat dua orang 
+anggota Kai Pang sangat hormat kepadanya ketika mereka pergi ke barat. Aku pernah ketemu kedua paman itu sebelumnya,
+mereka orang kepercayaan Qigong Qianbei. Melihat mereka memperlakukan dia seperti itu aku sangat gembira, jadi aku mengikuti 
+mereka sampai tiba di Yuezhou, di mana Kai Pang sedang mengadakan peremuan besar di Gunung Jun."
 
-"Before then he quietly told me that he had received Hong Enshi’s [Benevolent Master
-Hong] order to become the Beggar Clan’s Bangzhu [Clan Leader]. I was surprised and
-happy. In all honesty it was hard to believe, but I saw even the highest ranking Elders
-of the Beggar Clan treat him with utmost respect, I didn’t have any choice but to believe
-him. I am not a member of the Beggar Clan, so naturally I could not participate in the
-congress and had to wait for him in Yuezhou city. I thought that as he become the
-leader of the Beggar Clan heroes he would be able to do much good for the people and
-the country, to achieve great things, and in the future would be able to repel the in-
-vaders and avenge adoptive father and mother."
+"Sebelumnya dia pernah diam-diam mengatakan bahwa dia menerima mandat dari Hong Enshi untuk menjadi ketua Kai Pang. Aku 
+sangat terkejut dan gembira. Sejujurnya saja, hal itu sangat sulit kupercaya, tapi aku melihat bahkan penatua dengan tingkat
+tertinggi pun memperlakukan dia dengan sangat hormat, aku tidak punya pilihan lain kecuali percaya. Aku bukan anggota Kai Pang,
+jadi sewajarnya aku tidak bisa ikut serta dalam pertemuan itu dan harus menunggunya di Yuezhou. Kupikir setelah menjadi pemimpin 
+para pendekar Kai Pang seharusnya dia bisa berbuat baik bagi rakyat dan negara, melakukan hal-hal besar, dan di masa depan
+akan mampu melawan para penjajah dan membalas dendam ayah dan ibu."
 
-"That night my mind went back and forth and I couldn’t sleep; I thought from now on
-everything would be all right. It was almost daybreak when I finally felt tired and was
-about to fall asleep when suddenly he jumped in from the window. I jumped in fright; I
-thought he was having some ideas towards me. But he actually spoke in low voice,
-‘Meizi [younger sister, term of endearment], things did not go well, we must go.’ I was
-surprised and asked him what happened; he said, ‘There was an internal dispute in the
-Beggar Clan; the Dirty Clothes Faction refused to accept Hong Bangzhu’s order. The
-Clean Clothes Faction and the Dirty Clothes Faction battled each other in this new Clan
-Leader business; many people were killed.’ I was shocked, ‘What should we do?’ I
-asked. He said, ‘Because too many people has died, I withdrew my nomination, I did not
-want to become the Clan Leader anymore.’ Taking the entire situation into considera-
-tion, I thought he was doing the right thing. He said further, ‘The Clean Clothes Faction
-did not want to let me go; fortunately Qiu Bangzhu from the Iron Palm Clan came to my
-assistance and helped me leave Mount Jun. Right now we’d better go to the Iron Palm
-Mountain first and we’ll talk it over later.’ I did not know whether the Iron Palm Clan
-was a good clan or an evil one; but since he said so, I followed him."
+"Malam itu pikiranku kacau dan aku tidak bisa tidur, kupikir sejak saat itu semuanya akan menjadi baik. Saat itu sudah menjelang
+pagi ketika aku akhirnya merasa sangat lelah dan hampir ketiduran, tapi tiba-tiba dia melompat masuk dari jendela. Aku melompat 
+ketakutan, kukira dia mau macam-macam. Tapi ternyata dia bicara dengan suara rendah, 'Meizi, semuanya tidak berlangsung mulus,
+kita harus segera pergi.' Aku terkejut dan bertanya ada apa, dia bilang, 'Ada masalah internal di Kai Pang, anggota Baju Kotor 
+menolak perintah Hong Bangzhu. Anggota Baju Bersih dan Baju Kotor saling baku hantam sendiri dalam urusan pemilihan ketua, 
+banyak yang tewas.' Aku sangat terkejut, 'Kita harus bagaimana?' kutanya. Dia bilang, 'Karena banyak yang tewas, aku menarik 
+pencalonanku, aku sudah tidak berminat lagi menjadi ketua.' Dengan mempertimbangkan keseluruhan situasi, kupikir dia melakukan
+hal yang benar. Dia bilang lagi, 'Anggota Baju Bersih tidak mau melepaskan aku, untungnya Qiu Bangzhu dari Telapak Besi datang 
+menolongku dan membantuku pergi dari Gunung Jun. Saat ini kita sebaiknya pergi ke Gunung Telapak Besi dulu dan kita bicara 
+lagi setelah itu.' Aku tidak tahu Sekte Telapak Besi itu perkumpulan baik atau jahat, tapi karena dia sudah bilang begitu,
+aku mengikutinya."
+
+"Waktu kami tiba di Gunung Telapak Besi, aku tidak melihat Qiu Bangzhu dari Sekte Telapak Besi, tapi aku dipandang dengan tatapan
+dingin. Kulihat tingkah laku para anggota Telapak Besi itu mencurigakan, aku melihat benda-benda aneh di mana-mana. Aku bilang 
+kepada Yang Kang, 'Meskipun kau tidak menjadi ketua Kai Pang, kau seharusnya tidak meninggalkan mereka. Kurasa sebaiknya kau 
+pergi menemui gurumu, Changchun Zi Qiu Daozhang, dan memintanya untuk mengumpulkan para ahli kungfu di Jianghu untuk menegakkan 
+keadilan, membantu Kai Pang memilih orang yang bijaksana dan punya prestasi dalam sekte mereka untuk menjadi ketua, dan dengan 
+begitu menghindari pertumpahan darah di dalam sekte. Dengan cara begitu kau akan tetap melaksanakan amanat Hong Enshi.' Dia 
+bergumam tidak jelas, tidak mengiyakan atau menolak, tapi malah bicara soal pernikahan antara aku dengan dia. Aku mengomel, dan 
+dia jadi marah. Kami akhirnya berdebat sengit. Hari berikutnya aku mulai menyesali sikapku yang kasar, kupikir meskipun dia 
+tidak bisa membedakan hal penting dan sepele, teman atau lawan, dan kadang-kadang kekanak-kanakan, betapapun juga dia selalu baik
+kepadaku. Aku merasa sikapku agak keterlaluan, tidak heran dia jadi marah. " (Bagian ini belum selesai...)
 
 "When we got to the Iron Palm Mountain, I did not see the Qiu Bangzhu from the Iron
 Palm Clan, but I was watched over with cold eyes. I noticed that the Iron Palm Clan’s
