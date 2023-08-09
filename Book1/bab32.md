@@ -72,8 +72,123 @@ saja obat ini dan dicampur ke dalam secangkir teh, maka semuanya akan terjadi se
 membuatku tercengang, kecurigaanku langsung lenyap. Aku mengambil botol kecil itu dan melemparkannya keluar jendela. 'Dan kau 
 menurutinya?' tanyaku. 'Aku menghormati dan mengagumi Meizi seperti seorang Dewi, masa aku mau berbuat sejahat itu?' jawabnya."
 
+Guo Jing menganggukkan kepalanya. "Yang Xiandi benar," katanya. "Hm," dengus Mu Nianci, tapi ia tidak mengatakan apa-apa.
+Huang Rong ingat ketika di Gunung Telapak Besi ia mengintip melalui jendela dan melihat Yang Kang duduk di sudut tempat tidur, 
+memeluk Mu Nianci sambil bicara dengan lembut. Saat itu Mu Nianci tersenyum, wajahnya tampak lembut. Rupanya itu terjadi setelah 
+ia membuang botol obat itu.
+
+"Lalu apa yang terjadi?" tanya Guo Jing. Zhou Botong memberitahu dia bahwa ketika seseorang sedang bercerita, kalau mengatakan 
+'Lalu apa yang terjadi?' sekali-sekali, itu akan membuat orang yang sedang bercerita tetapbersemangat, tapi di luar dugaan 
+muka Mu Nianci memerah, ia memalingkan muka dan menundukkan kepalanya tanpa mengatakan apa-apa.
+
+"Ah, aku tahu!" kata Huang Rong, agak mendadak. "Setelah itu kalian berdua bersujud kepada Langit dan Bumi dan menjadi 
+suami-istri."
+
+Mu Nianci memalingkan kepalanya kembali, sebetulnya mukanya tampak agak pucat, ia menggigit bibirnya dan matanya bersinar 
+aneh. Huang Rong merasa ngeri, ia tahu bahwa ia salah bicara. "Maafkan aku, aku ngomong sembarangan," katanya buru-buru.
+"Kakak yang baik, tolong jangan tersinggung."
+
+Mu Nianci bicara dengan suara pelan, "Kau bukan bicara sembarangan, aku yang mengacaukan segalanya. Aku... aku sudah menjadi 
+istrinya, tapi kami tidak... kami tidak bersujud kepada Langit dan Bumi. Aku benci kepada diriku sendiri, aku tidak bisa 
+mengendalikan diri..." Bicara sampai di sini air matanya menetes membasahi pipinya.
+
+Melihat kesedihan di mukanya, Huang Rong mengulurkan tangan kirinya untuk merangkul bahunya. Ia ingin mengatakan sesuatu 
+untuk menghibur, jadi setelah beberapa saat ia menunjuk kepada Guo Jing dan berkata, "Jiejie, tidak usah kuatir, itu sih 
+bukan apa-apa. Saat itu di Desa Niu Jing Gege dan aku juga menjadi suami-istri."
+
+Ketika mendengar ini, Guo Jing terdiam. Ia tersipu dan tidak berani mengangkat kepalanya, hanya bergumam,"Kita... kita
+tidak... tidak..."
+
+Huang Rong tertawa, "Jangan bilang kau tidak memikirkan hal itu."
+
+Muka Guo Jing merah padam sampai ke telinga, ia menundukkan kepalanya dan berkata pelan, "Aku tidak baik."
+
+Huang Rong mengulurkan tangan kanannya dan menepuk bahu Guo Jing. "Kau ingin menjadi suami-istri denganku, dan aku sangat
+menyukainya. Apa maksudmu kau tidak baik?" katanya dengan suara rendah.
+
+Mu Nianci menghela nafas dan berpikir, "Meskipun Huang Meizi luar biasa verdas, tapi dia terlalu muda untuk mengerti 
+hubungan pria dan wanita. Dia sungguh beruntung ketemu orang yang begitu jujur dan penuh pengertian seperti Guo Dage."
+
+"Jiejie," tanya Huang Rong. "Terus bagaimana?"
 
 
-**Last line was Page 5 in PDF**
+Mu Nianci looked at the creek and said in low voice, “And then ... and then ... I heard
+commotion outside, like there was a fight going on. He told me not to make any noise,
+that it was the Iron Palm Clan’s internal affair, it had nothing to do with us. Some time
+later somebody knocked our door, saying that Qiu Bangzhu wanted to talk. He hastily
+got up and told me to hide in the bed and not to move. He lit up a lamp and someone
+came in. I looked through the curtain and to my surprise I saw that bad old man I met a
+while ago. I was worried to find out that he was the Clan Leader of the Iron Palm Clan; I
+feared he came to interrogate me about why I plotted against him. How would I know
+that ... that he was the Clan Leader? Luckily he did not bring this matter up; actually
+Yang Kang and he discussed things like how to destroy the Beggar Clan and how to sup-
+port the Jin army movement to the south.”
+
+Huang Rong smiled, “Sister, those two old men are not the same person,” she said.
+
+“Not the same person?” Mu Nianci was surprised.
+
+Huang Rong laughed, “Those two are twin brothers; they look exactly alike. The one
+you flattened was called Qiu Qianzhang; his martial art was only so-so, all he could do
+was just some tricks to deceive people. This Qiu Bangzhu, Qiu Qianren is amazing.
+Luckily you beat the fake Clan Leader; if you came across the real Clan Leader, with
+just one strike of his Iron Palm, I am afraid your little life would be difficult to protect.”
+
+“That’s so,” Mu Nianci gloomily said, “Actually it would be better if I met with the real
+Qiu Bangzhu that day and if he struck me dead with one palm.”
+
+Huang Rong laughed, “Our Brother Yang might not want to give you up,” she said.
+
+Mu Nianci twisted her body around so that Huang Rong’s hand fell from her shoulder.
+“Don’t talk to me like that,” she said sternly.
+
+Huang Rong stuck out her tongue and laughed, “All right, it’s me who don’t want to give
+you up.”
+
+Mu Nianci stood up and said, “Brother Guo, Sister Huang, I am leaving. You two take
+care; be careful of the Iron Palm Clan’s evil scheme on the boat.”
+
+Huang Rong hastily stood up and held her hand. “Good Sister, please don’t be angry,”
+she pleaded, “I won’t dare to talk nonsense anymore.”
+
+Mu Nianci heaved a deep sigh, “I wasn’t angry with you, I ... I was grieving.”
+
+“Why?” Huang Rong asked, “Did that boy Yang Kang provoke your anger?” She pulled
+Mu Nianci to sit back down.
+
+Mu Nianci said, “That night from behind the curtain I heard Yang Kang and that old
+man surnamed Qiu discussing all kind of plans to betray our country and harm the
+people; the more I heard the angrier I became. I wanted very much to jump out and kill
+that old man. They were talking for a long time. Suddenly the commotion outside got
+louder. That old man said, ‘Xiao Wangye [Young Prince, lit. young king master], I am go-
+ing to take a look. We’ll talk again later.’ Then he left the room.”
+
+“That’s right,” Huang Rong interrupted, “He went out to pursue Jing Gege and me.”
+
+“After that old man left,” Mu Nianci continued, “Yang Kang went back to make small
+talk with me. I asked him whether the things he discussed with that old man was a real
+thing or was he only pretending. He said, ‘We have become man and wife; I don’t need
+to conceal anything from you. It won’t be long before the Jin army will invade the
+south. We have received Iron Palm Clan’s great help to strike from both inside and out-
+side. By attacking from two fronts, our victory is guaranteed.’ He was talking excitedly.
+He said that after the Great Jin destroyed the Song Dynasty, his father king, Zhao
+Wangye [Prince, lit. king master] will ascend to the great treasure, becoming the
+Emperor of the Great Jin; he will then be the crown prince. By that time riches and
+honor will be limitless. I listened without saying anything. He suddenly said, ‘Meizi, at
+that time you will be the Empress.’ I ... I could not hold my patience much longer; I
+slapped his face fiercely and ran out the door, anxiously rushed down the mountain.
+By then the commotion on the Iron Palm Peak had worsened; countless clan members
+with torches in their hands rushed toward the highest mountain peak. I was the only
+one going down the mountain, so I did not meet any resistance.
+
+After this incident my heart felt like it was dying; as a matter of fact, I wanted to die
+very much. I did not know east from west, north from south, I just kept walking and
+walking, wandering aimlessly. Finally I saw a Taoist temple. I rushed toward the temple
+and barely stepped into the door when I fainted. Fortunately there was an old priestess
+living in that temple who gave me shelter. I was sick for more than ten days and I just
+got well not a few days ago. I donned this priestess garb and set on a journey to the Ox
+Village. Unexpectedly I met with you two here.”
+
+**Last line was Page 8 in PDF**
 
 
