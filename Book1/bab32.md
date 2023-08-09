@@ -13,7 +13,7 @@ Mu Nianci membiarkan Huang Rong memegang tangan kanannya, ia memandangi rontokan
 air sambil berkata, "Waktu melihatnya membunuh Ouyang Ke, kupikir dia berniat bertobat. Lagipula aku melihat dua orang 
 anggota Kai Pang sangat hormat kepadanya ketika mereka pergi ke barat. Aku pernah ketemu kedua paman itu sebelumnya,
 mereka orang kepercayaan Qigong Qianbei. Melihat mereka memperlakukan dia seperti itu aku sangat gembira, jadi aku mengikuti 
-mereka sampai tiba di Yuezhou, di mana Kai Pang sedang mengadakan peremuan besar di Gunung Jun."
+mereka sampai tiba di Yuezhou, di mana Kai Pang sedang mengadakan pertemuan besar di Gunung Jun."
 
 "Sebelumnya dia pernah diam-diam mengatakan bahwa dia menerima mandat dari Hong Enshi untuk menjadi ketua Kai Pang. Aku 
 sangat terkejut dan gembira. Sejujurnya saja, hal itu sangat sulit kupercaya, tapi aku melihat bahkan penatua dengan tingkat
