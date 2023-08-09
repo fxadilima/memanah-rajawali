@@ -106,7 +106,7 @@ Muka Guo Jing merah padam sampai ke telinga, ia menundukkan kepalanya dan berkat
 Huang Rong mengulurkan tangan kanannya dan menepuk bahu Guo Jing. "Kau ingin menjadi suami-istri denganku, dan aku sangat
 menyukainya. Apa maksudmu kau tidak baik?" katanya dengan suara rendah.
 
-Mu Nianci menghela nafas dan berpikir, "Meskipun Huang Meizi luar biasa verdas, tapi dia terlalu muda untuk mengerti 
+Mu Nianci menghela nafas dan berpikir, "Meskipun Huang Meizi luar biasa cerdas, tapi dia terlalu muda untuk mengerti 
 hubungan pria dan wanita. Dia sungguh beruntung ketemu orang yang begitu jujur dan penuh pengertian seperti Guo Dage."
 
 "Jiejie," tanya Huang Rong. "Terus bagaimana?"
