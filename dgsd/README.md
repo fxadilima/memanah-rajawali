@@ -68,3 +68,38 @@ memakainya, karena itu kita agak sulit menemukan titik sambung kalau ingin memak
 Banyak detil yang tidak bisa diungkapkan melalui drama televisi atau film, dan hanya akan menjadi jelas kalau kita 
 membaca bukunya. 
 
+# Heavenly Sword And The Dragon Slaying Sabre
+
+Versi 1994, Taiwan.
+
+Setara dengan episode 21 versi 2019, 
+[episode 27](https://www.youtube.com/watch?v=aFn94uejfVE&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=27).
+
+Rangkaian berikutnya adalah perkenalan awal Zhao Min dengan Zhang Wuji, mulai dari [episode 28](https://www.youtube.com/watch?v=J3LkIQMIxL0&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=28), yang juga berisi salah satu _signature scene_, acara makan 
+di Vila Willow yang diteruskan dengan Zhang Wuji terjebak di penjara rahasia bersama Zhao Min, awal dari jalinan cinta 
+mereka berdua. Berikutnya [episode 29](https://www.youtube.com/watch?v=-T2A9d3Dx10&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=29) berisi pertemuan mereka di Wudang, di mana Zhao Min menyamar sebagai Zhang Wuji. 
+
+Entah karena alur cerita novel yang beredar di Taiwan ataukah hasil karya para penulis skenario, [episode 31](https://www.youtube.com/watch?v=SJpaBqCOsL8&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=31) yang berisi ketegangan antara Zhao Min dengan 
+Zhou Zhiruo hampir total berubah. Meskipun begitu cerita ini tetap punya daya tarik tersendiri. Seperti juga hasil produksi
+TVB tahun 1970-an, dalam versi 1994 Zhao Min harus dikatakan kalah jauh dari segi penampilan dibandingkan dengan Zhou Zhiruo.
+Kathy Chow yang memerankan Zhou Zhiruo sudah melakukan tugasnya dengan baik. 
+
+[Episode 33](https://www.youtube.com/watch?v=UrHSCG7PgLs&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=33) selain berisi 
+pergumulan cinta antara Song Qingsu dengan Zhou Zhiruo yang lebih memilih Zhang Wuji, juga ditandai dengan kemunculan 
+Fan Yao sebagai guru silat Zhao Min.
+
+Perselisihan awal di Kuil Wan An yang digunakan sebagai tempat menyandera para pendekar dari enam aliran besar diceritakan
+cukup sesuai dengan novel di [episode 35](https://www.youtube.com/watch?v=xiD732buqVM&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=35). Selanjutnya perdebatan antara Zhao Min dan Zhang Wuji, juga sumpah Zhou Zhiruo di hadapan gurunya, Miejue Shitai,
+diceritakan sesuai dengan novel dalam [episode 36](https://www.youtube.com/watch?v=XvDpX9QRKYE&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=36).
+
+Selanjutnya sampai dengan [episode 40](https://www.youtube.com/watch?v=K9Qug8UmCZc&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=41) adalah cerita tentang petualangan di Pulau Ular, dengan cukup banyak bumbu yang membuatnya berbeda dengan versi 
+lainnya. Sayangnya episode 40 tidak tersedia untuk _download_.
+
+
+
+
+
+
+
+
+

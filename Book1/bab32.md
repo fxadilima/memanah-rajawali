@@ -111,83 +111,67 @@ hubungan pria dan wanita. Dia sungguh beruntung ketemu orang yang begitu jujur d
 
 "Jiejie," tanya Huang Rong. "Terus bagaimana?"
 
+Mu Nianci menatap ke arah sungai dan berkata dengan suara renndah, "Lalu... lalu... aku mendengar ada ribut-ribut di luar,
+seperti ada pertempuran. Dia bilang supaya aku tidak bersuara, katanya itu urusan dalam Sekte Telapak Besi, tidak ada 
+hubungannya dengan kami. Beberapa saat kemudian ada orang mengetuk pintu, orang itu bilang Qiu Bangzhu ingin bicara. Dia 
+buru-buru bangun dan bilang kepadaku supaya bersembunyi di tempat tidur dan tidak bergerak. Dia menyalakan lampu dan 
+orang itu masuk. Aku melihat melalui tirai dan kaget, ternyata itu orang tua brengsek yang kulihat beberapa saat yang lalu.
+Aku takut kalau-kalau ternyata dia adalah ketua Sekte Telapak Besi, takutnya dia datang untuk menginterogasi aku kenapa 
+aku menentangnya. Bagaimana aku tahu kalau... kalau dia adalah ketua? Untungnya dia tidak mengungkit soal itu, malahan dia 
+dan Yang Kang bicara soal bagaimana menghancurkan Kai Pang dan mendukung tentara Jin untuk bergerak ke Selatan."
 
-Mu Nianci looked at the creek and said in low voice, “And then ... and then ... I heard
-commotion outside, like there was a fight going on. He told me not to make any noise,
-that it was the Iron Palm Clan’s internal affair, it had nothing to do with us. Some time
-later somebody knocked our door, saying that Qiu Bangzhu wanted to talk. He hastily
-got up and told me to hide in the bed and not to move. He lit up a lamp and someone
-came in. I looked through the curtain and to my surprise I saw that bad old man I met a
-while ago. I was worried to find out that he was the Clan Leader of the Iron Palm Clan; I
-feared he came to interrogate me about why I plotted against him. How would I know
-that ... that he was the Clan Leader? Luckily he did not bring this matter up; actually
-Yang Kang and he discussed things like how to destroy the Beggar Clan and how to sup-
-port the Jin army movement to the south.”
+Huang Rong tersenyum. "Jiejie, dua orang itu tidak sama," katanya.
 
-Huang Rong smiled, “Sister, those two old men are not the same person,” she said.
+"Tidak sama?" tanya Mu Nianci kaget.
 
-“Not the same person?” Mu Nianci was surprised.
+Huang Rong tertawa. "Mereka saudara kembar, kelihatannya sama. Yang kau kalahkan itu bernama Qiu Qianzhang, kungfunya 
+biasa saja, dia cuma bisa menipu orang. Si Qiu Bangzhu ini, Qiu Qianren, luar biasa. Untungnya kau mengalahkan ketua palsu,
+kalau ketemu yang asli, hanya dengan satu pukulan rasanya nyawamu sulit dipertahankan."
 
-Huang Rong laughed, “Those two are twin brothers; they look exactly alike. The one
-you flattened was called Qiu Qianzhang; his martial art was only so-so, all he could do
-was just some tricks to deceive people. This Qiu Bangzhu, Qiu Qianren is amazing.
-Luckily you beat the fake Clan Leader; if you came across the real Clan Leader, with
-just one strike of his Iron Palm, I am afraid your little life would be difficult to protect.”
+"Oh begitu," kata Mu Nianci kecewa. "Sebetulnya jauh lebih baik kalau saat itu aku ketemu Qiu Bangzhu yang asli, dan dengan 
+satu pukulan dia menghabisi aku."
 
-“That’s so,” Mu Nianci gloomily said, “Actually it would be better if I met with the real
-Qiu Bangzhu that day and if he struck me dead with one palm.”
+Huang Rong tertawa. "Saudara Yang kita mungkin tidak akan mau menyerahkanmu begitu saja," katanya.
 
-Huang Rong laughed, “Our Brother Yang might not want to give you up,” she said.
+Mu Nianci memutar tubuhnya supaya tangan Huang Rong terlepas dari bahunya. "Jangan bicara seperti itu," katanya dengan ketus.
 
-Mu Nianci twisted her body around so that Huang Rong’s hand fell from her shoulder.
-“Don’t talk to me like that,” she said sternly.
+Huang Rong menjulurkan lidahnya dan tertawa. "Baiklah, _aku_ yang tidak mau menyerahkanmu."
 
-Huang Rong stuck out her tongue and laughed, “All right, it’s me who don’t want to give
-you up.”
+Mu Nianci bangkit dan berkata, "Guo Dage, Huang Meizi, aku pergi. Kalian berdua hati-hati dengan rencana jahat orang Telapak
+Besi yang di perahu itu."
 
-Mu Nianci stood up and said, “Brother Guo, Sister Huang, I am leaving. You two take
-care; be careful of the Iron Palm Clan’s evil scheme on the boat.”
+Huang Rong buru-buru bangkit dan memegang tangannya. "Jiejie, tolong jangan marah," katanya memohon. "Aku tidak berani 
+ngomong sembarangan lagi."
 
-Huang Rong hastily stood up and held her hand. “Good Sister, please don’t be angry,”
-she pleaded, “I won’t dare to talk nonsense anymore.”
+Mu Nianci menghela nafas dalam-dalam. "Aku bukan marah kepadamu, aku... aku hanya sedih."
 
-Mu Nianci heaved a deep sigh, “I wasn’t angry with you, I ... I was grieving.”
+"Kenapa?" tanya Huang Rong. "Apa bocah tengik Yang Kang itu membuatmu marah?" Ia menarik tangan Mu Nianci untuk duduk.
 
-“Why?” Huang Rong asked, “Did that boy Yang Kang provoke your anger?” She pulled
-Mu Nianci to sit back down.
+Mu Nianci berkata, "Malam itu dari balik kelambu kudengar Yang Kang dan Si Tua Qiu itu bicara segala hal tentang 
+mengkhianati negara dan mencelakai rakyat, makin kudengar aku jadi makin marah. Aku ingin sekali melompat keluar dan 
+membunuh orang tua itu. Mereka bicara sangat lama. Tiba-tiba suara ribut-ribut di luar jadi makin keras. Orang tua itu 
+bilang, 'Xiao Wangye, aku akan memeriksa keadaan. Kita bicara lagi nanti.' Lalu ia keluar ruangan."
 
-Mu Nianci said, “That night from behind the curtain I heard Yang Kang and that old
-man surnamed Qiu discussing all kind of plans to betray our country and harm the
-people; the more I heard the angrier I became. I wanted very much to jump out and kill
-that old man. They were talking for a long time. Suddenly the commotion outside got
-louder. That old man said, ‘Xiao Wangye [Young Prince, lit. young king master], I am go-
-ing to take a look. We’ll talk again later.’ Then he left the room.”
+"Betul," sela Huang Rong. "Dia keluar untuk mengejar Jing Gege dan aku."
 
-“That’s right,” Huang Rong interrupted, “He went out to pursue Jing Gege and me.”
+"Setelah orang itu keluar," lanjut Mu Nianci. "Yang Kang kembali untuk mengobrol dengan aku. Aku tanya apakah semua yang 
+mereka bicarakan itu sungguh-sungguh ataukah dia hanya pura-pura setuju. Dia bilang, 'Kita sudah menjadi suami-istri, aku 
+tidak perlu lagi menutupi apa-apa darimu. Tidak terlalu lama lagi tentara Jin akan menyerbu ke Selatan. Kami menerima 
+bantuan Sekte Telapak Besi untuk menyerang dari luar dan dalam. Dengan menherang dari kedua sisi, kemenangan kita sudah 
+jelas terjamin.' Dia bicara dengan penuh semangat. Dia bilang setelah Jin Agung berhasil menghancurkan Song, maka ayahnya,
+Raja Zhao, akan mewarisi harta berlimpah, menjadi Kaisar Negeri Jin, dan dia sendiri akan menjadi Putra Mahkota. Pada saat 
+itu harta dan kehormatan akan tanpa batas. Aku mendengarnya bicara tanpa mengatakan apa-apa. Dia tiba-tiba bilang, 'Meizi,
+pada saat itu kau akan menjadi seorang Ratu.' Aku... aku tidak bisa lagi bersabar, aku menampar mukanya dan lari keluar, 
+dengan kuatir aku turun gunung. Saat itu keributan di Telapak Besi makin memburuk, tak terhitung banyaknya anggota sekte 
+dengan obor di tangan mendaki ke puncak. Hanya aku sendirian yang turun gunung, jadi aku tidak ketemu bahaya apapun."
 
-“After that old man left,” Mu Nianci continued, “Yang Kang went back to make small
-talk with me. I asked him whether the things he discussed with that old man was a real
-thing or was he only pretending. He said, ‘We have become man and wife; I don’t need
-to conceal anything from you. It won’t be long before the Jin army will invade the
-south. We have received Iron Palm Clan’s great help to strike from both inside and out-
-side. By attacking from two fronts, our victory is guaranteed.’ He was talking excitedly.
-He said that after the Great Jin destroyed the Song Dynasty, his father king, Zhao
-Wangye [Prince, lit. king master] will ascend to the great treasure, becoming the
-Emperor of the Great Jin; he will then be the crown prince. By that time riches and
-honor will be limitless. I listened without saying anything. He suddenly said, ‘Meizi, at
-that time you will be the Empress.’ I ... I could not hold my patience much longer; I
-slapped his face fiercely and ran out the door, anxiously rushed down the mountain.
-By then the commotion on the Iron Palm Peak had worsened; countless clan members
-with torches in their hands rushed toward the highest mountain peak. I was the only
-one going down the mountain, so I did not meet any resistance.
+"Setelah kekacauan itu hatiku rasanya remuk redam, sebetulnya aku ingin mati. Aku kehilangan arah, entah mana utara atau 
+selatan, barat atau timur, sudah tidak bisa kubedakan lagi, aku hanya terus berjalan tanpa arah dan tujuan. Akhirnya aku 
+sampai ke sebuah kuil Tao. Aku buru-buru masuk ke situ dan baru melangkah ke pintu aku sudah pingsan. Untungnya ada seorang 
+pendeta perempuan tua yang tinggal di situ memberiku tempat berlindung. Aku sakit lebih dari sepuluh hari, dan baru sembuh 
+beberapa hari yang lalu. Aku memakai pakaian pendeta ini dan bermaksud ke Desa Niu. Tak kusangka aku ketemu kalian berdua 
+di sini."
 
-After this incident my heart felt like it was dying; as a matter of fact, I wanted to die
-very much. I did not know east from west, north from south, I just kept walking and
-walking, wandering aimlessly. Finally I saw a Taoist temple. I rushed toward the temple
-and barely stepped into the door when I fainted. Fortunately there was an old priestess
-living in that temple who gave me shelter. I was sick for more than ten days and I just
-got well not a few days ago. I donned this priestess garb and set on a journey to the Ox
-Village. Unexpectedly I met with you two here.”
 
 **Last line was Page 8 in PDF**
 
