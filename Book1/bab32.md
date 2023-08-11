@@ -172,7 +172,102 @@ pendeta perempuan tua yang tinggal di situ memberiku tempat berlindung. Aku saki
 beberapa hari yang lalu. Aku memakai pakaian pendeta ini dan bermaksud ke Desa Niu. Tak kusangka aku ketemu kalian berdua 
 di sini."
 
+Huang Rong sangat senang. "Jiejie, kami dalam perjalanan ke Pulau Bunga Persik dan kebetulan searah. Bagaimana kalau kita 
+bertiga jalan bersama? Supaya perjalanan kita jadi lebih menyenangkan. Kalau kau tidak memandang rendah aku, nanti kuajari 
+beberapa jurus kungfu di perjalanan."
 
-**Last line was Page 8 in PDF**
+Mu Nianci menggelengkan kepalanya dan berkata, "Tidak, aku... aku ingin pergi sendirian. Aku sangat menghargai maksud baik 
+Meizi." Ia berdiri, mengambil sebuah buku dari sakunya dan memberikannya kepada Guo Jing sambil berkata, "Guo Dage, buku ini 
+berisi beberapa hal penting menyangkut Sekte Telapak Besi. Harap kau berikan kepada Qigong Lao Qianbei kalau kalian ketemu dia,
+mungkin akan berguna baginya."
+
+"Ya," kata Guo Jing, ia mengulurkan tangan untuk menerima buku itu.
+
+Mu Nianci berjalan dengan cepat, dalam waktu singkat ia sudah jauh, tak sekali pun ia memalingkan mukanya lagi untuk melihat 
+mereka. Guo Jing dan Huang Rong memandangi punggungnya menghilang di balik pepohonan Willow di kejauhan. Mereka terdiam lama.
+
+Guo Jing berkata, "Dia sendirian, jalan ribuan _li_ ke Zhejiang. Kuharap dia tidak menemui gangguan dalam perjalanan. Bagusnya 
+ilmu silatnya tidak lemah, dia tidak perlu takut menghadapi bandit-bandit biasa."
+
+"Itu sulit diharapkan," kata Huang Rong. "Bahkan orang seperti kau dan aku juga harus berhadapan dengan orang jahat."
+
+Guo Jing mendesah. "Er Shifu[^er-shifu] sering bilang, 'Dalam keadaan terdesak, manusia tidak lebih baik dari anjing.' Tidak ada 
+yang bisa kita lakukan tentang hal itu."
+
+[^er-shifu]: Er Shifu (二师父) berarti 'Guru Kedua', yang dalam hal ini adalah orang kedua dari Tujuh Orang Aneh dari Jiangnan, Zhu Cong, yang mengajarkan segala hal yang berbau sastra dan pengetahuan ilmiah.
+
+"Baiklah, kalau begitu ayo kita bunuh anjing bisu itu," kata Huang Rong.
+
+"Anjing bisu yang mana?" tanya Guo Jing.
+
+Huang Rong membuat suara 'ah-uh-uh-ah' sambil mengerak-gerakkan tangan dan kakinya. Guo Jing tertawa. "Kau masih ingin 
+naik perahu orang bisu ini?" tanyanya.
+
+"Tentu saja," kata Huang Rong. "Si Tua Bangka Qiu Qianren itu membuatku sengsara, masa kubiarkan begitu saja? Aku bukan 
+tandingannya, tapi aku ingin membunuh beberapa orang murid dan anak buahnya dulu, baru kemudian bicara."
+
+Mereka bergegas kembali ke restoran, dan melihat tukang perahu bisu itu celingukan di sekitarnya untuk mencari mereka.
+Guo Jing dan Huang Rong bersikap seolah-olah tidak terjadi apa-apa, mereka mengikutinya naik ke perahu.
+
+Perahu itu tidak terlalu besar, tapi juga tidak kecil, dicat warna hitam, di situ sudah ada delapan atau sembilan karung beras.
+Perahu semacam ini sudah biasa terlihat di sekitar Sungai Yuan, mengangkut berbagai komoditi dari perbukitan di Xiangxi dan 
+beras dari ladang-ladang di depan danau. Dua orang laki-laki bertelanjang dada sedang menyapu dek.
+
+Segera setelah Guo Jing dan Huang Rong naik, si tukang perahu melepaskan tali dan mendorong perahunya ke sungai, menaikkan 
+layar. Di bawah terpaan angin Selatan dan mengikuti arus air, perahu itu meluncur deras seperti anak panah. Guo Jing memikirkan 
+masalah Yang Kang dan Mu Nianci, dan tidak bisa menahan diri untuk menghela nafas dalam-dalam. "Yang Kang adalah adik 
+angkatku." katanya dalam hati. "Kami sudah bersumpah untuk berbagi suka dan duka. Sekarang dia membuat keputusan yang salah,
+aku tidak bisa membiarkannya, apapun juga yang terjadi, aku harus membujuknya untuk kembali ke jalan yang benar." Bersandar 
+di dinding kabin ia melamun.
+
+Huang Rong tiba-tiba berkata, "Coba kulihat buku yang diberikan Mu Jiejie. Entah apa isinya."
+
+Guo Jing mengambil buku itu dari sakunya. Huang Rong membolak-balik halaman buku itu, menjelajahi isinya. "Ah, jadi 
+begitu rupanya!" serunya tiba-tiba. "Coba baca ini."
+
+Guo Jing mendekat, duduk di sebelahnya dan membaca buku yang dipegangnya. Saat itu hari sudah sore, sinar matahari tenggelam 
+menyinari sungai, pantulan riaknya menerpa wajah Huang Rong, pakaiannya, dan buku di tangannya, menciptakan gelombang cahaya 
+menari-nari di tubuhnya.
+
+Ternyata buku itu ditulis oleh Ketua Sekte Telapak Besi ketiga belas, Shangguan Jiannan, sebuah jurnal berisi berbagai 
+peristiwa penting di kubu sekte itu selama bertahun-tahun. Shangguan Jiannan adalah mantan pejabat tinggi negara di bawah 
+Jendral Han Shizhong. Setelah Qin Hui membunuh Yue Fei, Han Shizhong mengundurkan diri dari tugas militer dan hidup sebagai 
+rakyat biasa. Sebagian pejabat bawahannya, dan juga para prajurit yang dipimpinnya kembali menjalani kehidupan sipil[^sipil].
+
+[^sipil]: Jie Jia Gui Tian (解甲归田), secara literal berarti 'Melepas baju perang dan kembali ke sawah'.
+
+Shangguan Jiannan membenci cara-cara para menteri korup dalam menjalankan pemerintahan, jadi ia memimpin kumpulan saudara untuk 
+menjadi penjahat di distrik Jing Xiang, di kemudian hari mereka bergabung dengan Sekte Telapak Besi. Tak lama kemudian ketua 
+sekte yang lama meninggal dan Shangguan Jiannan mengambil alih kepemimpinan. Sekte Telapak Besi awalnya adalah sebuah 
+organisasi bawah tanah yang sangat kecil, setelah dikelolanya, sekte itu mampu melakukan banyak tindakan gagah berani. Banyak 
+pendekar dan prajurit di sekitar kedua 'Hu'[^dua-hu] mendengar tentang jiwa kepahlawanannya dan ikut bergabung, karena itu 
+dalam waktu beberapa tahun reputasi sekte di dunia persilatan boleh dibilang menyamai Kai Pang di wilayah Utara.
+
+[^dua-hu]: Dua 'Hu' yang dimaksud di sini adalah Hunan dan Hubei.
+
+Shangguan Jiannan tidak pernah melupakan di mana ia meletakkan kesetiaan dan jiwa patriotnya, meskipun hidup di alam bebas ia
+tak pernah melupakan tugasnya untuk membela negara dan menghancurkan musuh, dan mengembalikan tanah warisan nenek moyangnya,
+maka dari itu ia seringkali mengirimkan anak buahnya ke Lin'an, Bianliang dan sekitarnya untuk mengumpulkan informasi,
+menunggu peluang yang tepat untuk bertindak.
+
+Beberapa tahun berlalu. Salah seorang anggota sekte adalah teman baik penjaga penjara tempat Yue Fei ditawan. Ia menemukan 
+fakta bahwa setelah Yue Fei dieksekusi, semua harta peninggalannya dirampas oleh pemerintah, di antaranya adalah sebuah buku
+berisi taktik dan strategi militer. Ia pergi ke segala tempat untuk menanyakan hal itu, dan sungguh menemukan bahwa buku itu 
+ternyata disimpan di dalam Istana Kekaisaran. Seekor kuda cepat yang membawa potongan informasi itu langsung dikirimkan ke 
+Puncak Telapak Besi. Hari itu juga Shangguan Jiannan memimpin sekelompok ahli silat untuk memasuki istana di tengah malam 
+dan tanpa banyak kesulitan mereka berhasil mencuri buku itu. Malam itu juga mereka mengirimkan buku itu ke mantan atasannya,
+Jendral Han Shizhong yang saat itu sudah pensiun.
+
+Saat itu Han Shizhong sudah tua, ia hidup di tempat terpencil di Xihu bersama dengan istrinya, Liang Hongyu. Ketika melihat 
+Shangguan Jiannan membawa warisan Yue Fei, ia teringat bagaimana cara pahlawan itu tewas mengenakan di bawah tuduhan palsu
+dan mengalami ketidakadilan yang belum juga terbalaskan, ia menghunus pedangnya dan membelah meja di hadapannya. Sambil 
+mengangkat tangan ia menghela nafas panjang.
+
+Mengenang sahabat lamanya, Han Shizhong mengumpulkan semua tulisan Yue Fei, puisi, esai, dan juga strategi militer,
+menjadi sebuah buku, lalu memberikan buku itu kepada Shangguan Jiannan sebagai hadiah, dengan harapan ia akan meneruskan 
+aspirasi Yue Fei untuk menyatukan para pahlawan di Zhong Yuan guna mengusir penjajah dan mengembalikan tanah mereka.
+
+
+**Last line was Page 11 in PDF**
 
 
