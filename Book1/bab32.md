@@ -267,7 +267,210 @@ Mengenang sahabat lamanya, Han Shizhong mengumpulkan semua tulisan Yue Fei, puis
 menjadi sebuah buku, lalu memberikan buku itu kepada Shangguan Jiannan sebagai hadiah, dengan harapan ia akan meneruskan 
 aspirasi Yue Fei untuk menyatukan para pahlawan di Zhong Yuan guna mengusir penjajah dan mengembalikan tanah mereka.
 
+Sementara Han Shizhong dan Shangguan Jiannan sedang bicara, mereka tiba-tiba teringat, di segala tempat dalam buku strategi 
+militer itu Yue Fei selalu menasihati supaya kesetiaan dan jiwa patriot rakyat dipersembahkan bagi negara sesuai dengan 
+aspirasi jiwa Yue Fei sendiri. Buku itu mengandung pelajaran tentang sikap hidup, tak mungkin Yue Fei menulis buku hanya untuk 
+menemaninya di dalam kubur. Pasti karena pengawalan ketat dari Qin Hui, maka Yue Fei tidak bisa menyelundupkannya keluar dari 
+penjara. Akan tetapi, dengan mempertimbangkan kebijaksanaan Yue Fei yang luar biasa, ia pasti punya cara untuk menngatasi 
+masalah itu, hanya saja tidak terlalu jelas kepada siapa ia meninggalkan pesan terakhirnya. Kalau pesan itu terlambat 
+datang, dan seseorang datang ke istana untuk mencuri buku, bukankah ia akan seperti memukul angin?
 
-**Last line was Page 11 in PDF**
+Setelah mendiskusikan hal ini lebih jauh, Shangguan Jiannan menggambar sebuah lukisan dari Gunung Telapak Besi, dengan secarik 
+kertas tersembunyi di antara lapisannya yang berisi pesan berikut: 'Warisan Wumu di Pegunungan Telapak Besi, puncak jari tengah,
+ruas kedua'. Han Shizhong kuatir orang itu tidak bisa memahami isi pesan, jadi ia menambahkan sebuah puisi yang ditulis oleh 
+Yue Fei di masa lalu. Ia mengira pewaris buku strategi militer itu pastilah salah seorang anak atau adik Yue Fei, atau 
+salah satu anak buahnya, jadi ia pasti akrab dengan puisi itu, maka dari itu ia menambahkan beberapa detil ke lukisan itu.
+Akhirnya Shangguan Jiannan kembali masuk ke istana dan meninggalkan lukisan tu di situ, supaya si pewaris itu bisa mengikuti 
+petunjuk sampai ke Gunung telapak Besi.
+
+Setelah itu Shangguan Jiannan kembali ke Gunung telapak Besi dan mengumpulkan para patriot untuk mendiskusikan ekspedisi 
+militer ke Utara. Tak disangka pemerintah terlalu takut kepada bangsa Jin, bukan saja mereka tidak mendukung gerakan itu,
+malah pasukan militer kekaisaran dikirim untuk mengepung dan akhirnya membantai Sekte Telapak Besi. Tentu saja Sekte Telapak
+Besi lebih lemah dari pasukan pemerintah, karena itu mereka mampu menembus pertahanan di gunung. Shangguan Jiannan sendiri 
+terluka parah dan akhirnya tewas di Puncak Telapak Besi.
+
+Guo Jing membalik halaman terakhir dan menghela nafas. "Tak kusangka Shangguan Bangzhu ini ternyata orang baik. Sampai 
+akhir hidupnya ia masih memegang teguh ajaran leluhur. Tadinya kukira dia seperti Qiu Qianren dan saudaranya, melakukan
+kolusi dengan bangsa Jin dan menjual negara demi keuntungan pribadi. Awalnya aku tidak menyukai dia. Kalau aku menemukan 
+kenyataan ini sebelumnya, aku pasti membungkuk hormat di hadapan tulang belulangnya. Tak kusangka ternyata Telapak Besi 
+sangat heroik dan patriotik di masa lalu, dan sekarang berubah menjadi kumpulan bandit. Kalau saja Shangguan Bangzhu di 
+alam baka tahu, dia pasti sangat marah."
+
+Sementara itu langit mulai berubah menjadi gelap, si tukang perahu merapat ke dekat desa dan pergi untuk menyembelih ayam 
+untuk makan malam mereka. Huang Rong kuatir ia menaruh sesuatu di dalam makanan itu, dengan alasan ia tidak suka makanan 
+itu, ia mengajak Guo Jing ke desa dan mengunjungi salah satu rumah penduduk setempat untuk menyiapkan makanan sendiri. Si 
+tukang perahu menatap mereka dengan marah, tapi karena ia pura-pura bisu, maka ia tidak bisa terang-terangan mengutuk mereka
+dan terpaksa menelan amarahnya. Ia melihat Huang Rong membuat isyarat dengan tangannya, yang artinya 'lelucon itu seperti 
+butiran mutiara, kepandaian bicara itu seperti gading'[^lelucon-1]. Ia tidak menemukan cara untuk membantahnya, jadi ia 
+hanya bisa menggertakkan gigi dan setelah menunggu sampai Guo Jing dan Huang Rong tiba di pantai, barulah ia pergi ke kabin 
+untuk menyumpah-nyumpah.
+
+Setelah makan malam kedua anak muda itu menikmati hembusan angin senja yang sejuk di bawah pohon di depan rumah penduduk.
+Guo Jing berkata, "Waktu Shangguan Bangzhu lari ke Telapak Besi, kenapa pasukan pemerintah tidak datang untuk menangkapnya?"
+
+"Aku juga tidak tahu," kata Huang Rong. "Kelihatannya puncak bagian tengah itu daerah kasar yang berbahaya, karena itu para 
+prajurit tidak berani mengambil resiko untuk mendakinya. Atau ada anggota sekte berilmu tinggi yang menjaga tempat itu dan 
+para prajurit tidak bisa menembus pertahanannya, maka mereka hanya mengumumkan kemenangan dan pergi dari situ." Setelah 
+diam sejenak, Huang Rong melanjutkan, "Tak kusangka Qu Lingfeng, Qu Shige secara tidak sengaja membuat prestasi besar 
+seperti ini."
+
+Guo Jing hanya bisa menatapnya dengan bodoh. Huang Rong menjelaskan, "Warisan Wumu ini awalnya tersembunyi di gua di belakang 
+air terjun dekat Cui Han Tang, Shangguan Jiannan mencuri buku itu, melukis gambar itu, sewajarnya dia akan menaruh lukisan 
+itu di tempat buku itu — begitu kan?"
+
+Guo Jing mengangguk. "Betul."
+
+"Setelah Qu Shige diusir dari Pulau Bunga Persik, dia sangat mengharapkan untuk diterima kembali di perguruan. Dia tahu 
+ayahku sangat menyukai lukisan, kaligrafi dan barang-barang antik, dia juga tahu bahwa istana kekaisaran pastilah tempat 
+terbaik untuk menemukan barang-barang langka di dunia ini. Karena itu dia mengambil resiko untuk memasuki istana dan merampok 
+beberapa lukisan terkenal, kaligrafi, buku-buku..."
+
+"Betul, betul," potong Guo Jing. "Qu Shige-mu mencuri lukisan itu bersama dengan beberapa karya seni lain, menyembunyikannya
+di dalam kamar rahasia di Desa Niu. Dia bermaksud memberikan semuanya kepada ayahmu, sayangnya dia tewas terbunuh oleh pengawal
+istana. Lalu ketika Wanyan Honglie datang, bukan saja Warisan Wumu hilang, lukisan yang mengandung petunjuk itu juga hilang.
+Aih, kalau saja kita tahu lebih awal tentang hal ini, kita tidak perlu taruhan nyawa untuk mempertahankan gua itu. Aku juga 
+tidak perlu terluka oleh Racun Tua, dan kau tidak perlu kuatir selama tujuh hari tujuh malam."
+
+"Itu belum tentu benar," kata Huang Rong. "Kalau kau tidak merawat luka di dalam ruang rahasia di Desa Niu, dari mana kau 
+tahu tentang lukisan itu? Bagaimana juga..." Tiba-tiba ia teringat ketika melihat Huazheng di Desa Niu, ia tidak bisa menahan 
+kesedihannya. Ia berusaha mengalihkan perhatian dan berkata, "Entah bagaimana kabar ayahku beberapa hari belakangan ini."
+Ia mendongak memandang bulan purnama di cakrawala. "Sebentar lagi Zhongqiu Jie[^zhongqiu-jie], bulan ke delapan. Setelah 
+adu ilmu silat di Jiaxing, apa kau akan pergi ke Mongolia?" tanyanya dengan lembut.
+
+[^zhongqiu-jie]: Zhongqiu Jie (中秋节) adalah Perayaan Pertengahan Musim Gugur, yang secara tradisional ditandai dengan kehadiran Kue Bulan. Tradisi ini masih terus dirayakan oleh para keturunan Tionghoa, termasuk di Indonesia.
+
+“That’s not necessarily true,” Huang Rong said, “If you did not treat your injury inside
+that secret room in the Ox Village, how could you have seen the painting? Also how
+could ...” Suddenly she recalled seeing Huazheng in the Ox Village, she could not help
+but feel depressed. Trying to change the subject she said, “I wonder how father is doing
+these past few days?” Looking up she saw the crescent moon on the horizon. “Very soon
+it will be Mid-autumn festival of the eight month. After the martial art contest at the
+Misty Rain Tavern of Jiaxing, are you going back to Mongolia?” she gently asked.
+
+“No,” Guo Jing replied, “I must kill the traitor Wanyan Honglie first, to avenge my fa-
+ther and Uncle Yang.”
+
+Staring at the moon Huang Rong asked again, “After you kill him, then what?”
+
+“We still have many businesses to tend,” Guo Jing said, “I want to treat Shifu’s injury
+then I want to take Zhou Dage [Big Brother Zhou]to the Black Marsh to see Ying Gu. And
+there are my six Shifus, I want to go and visit them one by one at their homes. I also
+want to find my father’s grave.”
+
+“And after you take care of all these business, must you go back to Mongolia?” Huang
+Rong asked.
+
+Guo Jing could not say he must go, but he also could not say he would not go; in all hon-
+esty he did not know what would be the best thing to do.
+All of a sudden Huang Rong laughed and said, “Silly me, why should I worry about all
+these things? As long as we are together, an hour of happiness must be enjoyed for a
+full hour. As we go through one day, we will have one less of these kind of happy days.
+Let us go back to the boat and play a joke on that fake mute boatman.”
+
+At the time the two returned to the boat, the boatman and his two helpers had actually
+fallen asleep on the stern. Guo Jing whispered on Huang Rong’s ear, “Go ahead and
+sleep, I am going to watch over them.”
+
+Huang Rong said with a low voice, “I’ll teach you some curse words in sign languages;
+tomorrow you can show them to him.”
+
+“Why don’t you do it yourself?” Guo Jing asked.
+
+Huang Rong chuckled lightly, “Those are vulgar language; a girl from an honorable
+family shouldn’t say those kind of words.”
+
+“It turns out mute people can curse others too,” Guo Jing said in his heart; but his
+mouth said, “Go and take a rest now; it won’t be too late to curse him tomorrow.” After
+recovering from her injury Huang Rong had not gotten her strength back. In all hon-
+esty she was tired, so she put her head down on Guo Jing’s legs and slowly she fell
+asleep.
+
+Initially Guo Jing was thinking of meditating to cultivate his internal energy, but he was
+afraid the boatman might be suspicious, so he decided to lie down on the cabin deck,
+silently reciting the theory of energy cultivation from the Nine Yin Manual, which
+Reverend Yideng translated from Sanskrit. Then he practiced according to the theory
+for about an hour and he felt his four limbs and all the bones in his body were full of
+energy. He was delighted. Suddenly he heard Huang Rong mumbled, “Jing Gege, don’t
+marry the Mongolian Princess; I want to be your wife.”
+
+Guo Jing was startled, he did not know how to answer her; but then he heard Huang
+Rong said again, “No, no. I was wrong; I don’t want anything. I know in your heart you
+love me very much, and that is enough for me.”
+
+“Rong’er, Rong’er,” Guo Jing called in a low voice. But Huang Rong did not reply, her
+breathing was even, apparently she was sleeping. Turned out she was talking in her
+sleep. Guo Jing felt deep affection and pity toward her at the same time. He started
+blankly at Huang Rong’s face illuminated by the moonlight. She was just starting to re-
+cover from her injury, her face was still pale and under the moonlight it looked like her
+face was translucent. Guo Jing stared at her for a long time. He saw her eyebrows wrin-
+kle slightly and there were drops of tears in her eyes. Guo Jing said in his heart, “She
+must be dreaming of the challenges we are facing. All day she acted like she was care-
+free, laughing and joking, but in her heart she actually was grieving. Ay, it was I who
+caused her worries. I wish we did not meet at Zhangjiakou, then her life would be bet-
+ter. But what about me? Would I be willing to give her up?”
+
+One was sleeping with a sad dream, the other was awake with heavy heart; suddenly
+he heard the water ripple, a boat was coming downstream. Guo Jing thought, “The ter-
+rain of this River Yuan is so rugged; what kind of boat is so daring as to travel here in
+the middle of the night?” He was about to poke his head out of the cabin to take a look
+when suddenly from the stern of his own boat came three clapping sounds. The clap-
+
+ping was very light, but in the stillness of the night the sound traveled far on the sur-
+face of the water. He then heard the sound of a sail being lowered and the oars pad-
+dling the water. That incoming boat came closer to the right hand side riverbank and
+slowly positioned near their boat. A short moment later it was side to side with the boat
+Guo Jing rode.
+
+Guo Jing gently patted Huang Rong to wake her up; he felt the hull shook slightly.
+Quickly he raised the cabin covering to look outside, right in time to see a dark shadow
+leaping from his boat to the incoming boat. Judging from the appearance, that shadow
+looked like the mute boatman.
+
+“I’ll go over to take a look, you stay and guard here,” Guo Jing said. Huang Rong
+nodded.
+
+Guo Jing crouched and stealthily walked to the bow; he saw that the incoming boat was
+swaying on the water, he leaped and landed on the horizontal part of the sail mast,
+which happened to be the center of gravity of the boat. The hull slightly sunk in, but the
+inclination of the boat did not change one bit; nobody on that boat noticed. He opened
+his eyes wide, trying to see through some openings on the cabin’s roof. He saw three
+men standing in the cabin; they wore the black uniform of the Iron Palm Clan. One of
+them was quite tall; he was wearing a green cloth wrapped around his head, looked
+like he was the leader.
+
+Guo Jing’s movement was so quick that even though that pretend-to-be-mute boatman
+leaped to this boat first, by this time he was just entering the cabin. He cupped his fists
+and greeted the tall man, “Leader Qiao.”
+
+“Those two little thieves are still in?” Leader Qiao asked.
+
+“Yes,” the boatman replied.
+
+“Do they have any suspicion?” Leader Qiao asked again.
+
+“No suspicion,” the boatman replied, “But those two thieves did not want to dine on
+board, so I did not have any chance to do anything.”
+
+“Humph,” Leader Qiao said, “They are going to die at the ‘qing long tan’ [green dragon
+shore]. The day after tomorrow at noon you will arrive at the Green Dragon Shore.
+About three ‘li’s from the beach is the Green Dragon Village. Break the boat’s rudder
+there; we will be waiting for you.”
+
+The boatman gave his reply. Leader Qiao continued, “Those two little thieves are very
+skilled in martial arts, you must be very careful. After the successful completion of this
+mission our Bangzhu will heap you with generous reward. Now go back from the wa-
+ter, don’t rock the boat and alert them.”
+
+“Yes,” the boatman replied, “Do you have further instructions, Leader Qiao?”
+
+“No,” Leader Qiao waved his hand. The boatman cupped his fists again and retreated;
+he went down the water from the side of the boat and quietly swam back.
+
+Guo Jing leaped from the mast back to his own boat and told Huang Rong everything he
+just heard. Huang Rong smiled coldly and said, “We have been through Reverend
+Yideng’s torrential stream going up the mountain; why should we be scared away by
+Green Dragon Rugged Shore or White Tiger Rugged Shore? Let’s sleep.”
+
+**Last line was Page 16 in PDF**
 
 
