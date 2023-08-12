@@ -588,360 +588,640 @@ Orang yang memegang tiang itu memakai jubah pendek kasar berwarna kuning, janggu
 hembusan angin keras dari sungai. Meskipun perahu itu bergoyang keras, tetapi ia berdiri kokoh di dek. Kehadirannya membawa 
 aura yang sangat mengesankan. Ia tak lain adalah ketua Sekte Telapak Besi, Qiu Qianren.
 
-Seeing Qiu Qianren on the boat Guo Jing and Huang Rong were startled. They have not
-recovered from the shock when suddenly there was a loud crashing sound; the bow of
-their boat was colliding with a reef. The crash was so hard that two people were sent
-flying until their backs hit the cabin door.
+Ketika melihat Qiu Qianren di atas perahu, Guo Jing dan Huang Rong sangat terkejut. Mereka belum pulih dari 
+kaget ketika mendadak terdengar suara tabrakan, bagian lambung perahu mereka menabrak batu karang. Tabrakan itu begitu 
+kerasnya sehingga keduanya terlempar sampai punggung mereka menghanta pintu kabin.
 
-The boat sank so fast that in a short moment the water had risen to their ankles; they
-did not have enough time even if they wanted to escape by riding the eagles. In this
-critical moment Guo Jing acted without thinking; he flew forward and called out,
-“Follow me!” With the ‘dragon flies to the sky’ he threw his body toward Qiu Qianren.
-He knew at this moment the difference between life and death was only as wide as a
-hair strand; if he landed someplace else on the enemy’s boat, Qiu Qianren would defi-
-nitely make a surprise attack from the side. With his power right now he knew he
-would be able to bear that attack, but it would compel him to take the defensive and
-would not give him any chance to set a foothold on the enemy’s boat.
+Perahu itu tenggelam dengan cepat hingga dalam waktu singkat air telah mencapai pergelangan kaki, mereka tidak punya 
+cukup waktu bahkan seandainya ingin lolos dengan menaiki punggung elang. Pada saat kritis itu Guo Jing bertindak tanpa 
+berpikir lagi, ia meluncur ke depan dan berseru, "Ikuti aku!" Dengan Fei Long Zai Tian ia melontarkan tubuhnya ke arah 
+Qiu Qianren. Ia tahu pada saat itu perbedaan antara hidup dan mati adalah setipis helaian rambut, kalau ia mendarat 
+di sisi lain perahu lawan, maka Qiu Qianren sudah pasti akan melancarkan serangan mendadak dari sisi itu. Dengan kekuatannya 
+saat itu ia tahu bahwa ia tidak akan mampu melawan, dan hanya bisa bertahan tanpa punya peluang untuk menginjakkan kaki 
+di perahu lawan.
 
-Qiu Qianren was fully aware of his intention; he swung the broken pole in his hands to
-stab several points on Guo Jing’s body in the air, forcing him to change his direction
-and not land on the boat. Guo Jing inwardly groaned, “Not good!” Stretching his arm to-
-ward the pole his body continued falling toward the enemy’s boat; but because of this
-the ‘dragon flies to the sky’ lost its momentum.
+Qiu Qianren sangat menyadari niatnya, ia mengayunkan tiang patah di tangannya untuk menikam beberapa titik di tubuh 
+Guo Jing sementara ia masih di udara, memaksanya untuk mengubah arah dan tidak mendarat di atas perahu. Guo Jing mengeluh 
+dalam hati, "Celaka!" Sambil mengulurkan tangan ke arah tiang tubuhnya terus turun ke arah perahu lawan, tetapi karena hal 
+itu Fei Long Zai Tian kehilangan momentum.
 
-With a long laughter Qiu Qianren let the pole go and his palm struck toward Guo Jing’s
-chest. With him standing steadily on the deck while the enemy was in the air, and his
-palm striking up, the enemy would be forced to plunge into the water. But before the
-pole fell, another bamboo stick intercepted it, and borrowing the momentum someone
-was leaping to the boat; it was Huang Rong. Before the person landed, her stick had al-
-ready arrived, striking downward three times with killer strikes. Qiu Qianren did not
-anticipate she was capable of moving this fast; his left eye was in danger of being
-poked, so he had no choice but immediately withdrew his palm.
+Sambil tertawa keras Qiu Qianren melepaskan tiang dan telapak tangannya meluncur deras ke arah dada Guo Jing. Dengan posisinya 
+yang berdiri kokoh di dek sementara lawan sedang di udara, dan telapak tangannya memukul ke atas, lawan akan dipaksa menceburkan 
+diri ke air. Tetapi sebelum tiang itu jatuh, sebuah tongkat bambu mencegatnya, dan meminjam momentum tersebut seseorang melompat 
+ke atas perahu, itu Huang Rong. Sebelum ia mendarat, tongkatnya sudah tiba, menghantam ke bawqah dengan cepat, mata kiri 
+Qiu Qianren dalam bahaya tertusuk ujung tongkat, ia tidak punya pilihan selain menarik mundur tangannya.
 
-Guo Jing seized the opportunity to land on the bow and immediately launched a con-
-verging attack. Qiu Qianren did not dare to underestimate this attack, he moved side-
-ways to evade the bamboo stick, while his right leg swept away, forcing Guo Jing to re-
-treat one step; and then ‘swish, swish’ both of his palms struck out.
+Guo Jing menggunakan kesempatan itu untuk mendarat di lambung perahu dan dengan segera melancarkan serangan balasan. Qiu Qianren 
+tidak berani meremehkan serangan itu, ia bergerak ke samping untuk menghindari tongkat bambu, sementara kaki kanannya menyapu, 
+memaksa Guo Jing mundur selangkah, dan kemudian kedua telapak tangannya melancarkan serangan.
 
-How can Iron Palm martial art be ordinary? The Iron Palm Clan built their headquar-
-ters on a mountain and for the last several hundred years its power and prestige
-spread over the Central Plains; it was all because of the exquisiteness of their palm
-technique. Shangguan Jiannan and Qiu Qianren added even many more subtle varia-
-tions and refined the stances. Although its overwhelming power was inferior to the
-‘Eighteen Dragon Subduing Palms’, but its palm technique was ingenious and finer
-than the ‘Eighteen Dragon Subduing Palms’.
+Ilmu silat Sekte Telapak Besi sama sekali bukan biasa-biasa saja. Telapak Besi membangun markasnya di pegunungan dan selama 
+beberapa ratus tahun ini kekuatan dan prestasi mereka telah tersebar luas ke segala penjuru di Zhong Yuan, semua itu karena 
+keindahan teknik telapak tangan mereka. Shangguan Jiannan dan Qiu Qianren menambahkan lebih banyak lagi variasi ke dalam 
+detil dan kehalusan teknik itu. Meskipun kekuatannya masih di bawah Delapan Belas Jurus Penakluk Naga, tetapi teknik 
+telapak tangan mereka sangat cerdik dan lebih halus ketimbang Delapan Belas Jurus Penakluk Naga.
 
-In a short moment two men had exchanged seven, eight stances on the bow of the boat.
-Although they were wary of each other, their palms and feet did not stop moving. The
-noise of the rushing water was loud, but it could not cover the strong gusts of wind
-from the four palms.
+Dalam waktu singkat kedua orang itu bertukar tujuh sampai delapan jurus di lambung perahu. Meskipun mereka saling mewaspadai,
+namun tangan dan kaki mereka tidak berhenti bergerak. Suara arus deras itu sangat keras, tetapi tidak dapat menutupi suara 
+angin keras yang timbul akibat keempat telapak tangan mereka.
 
-By now an Iron Palm Clan member had taken over the rudder, slowly steering the boat
-on the right direction so that they were swiftly floating downstream. The mute
-boatman’s boat had already broken into two sections; the planks, the sail, the mute
-boatman and his two helpers were marooned on a big silt in the middle of the river
-with vortex of water all around them. The mute boatman’s miserable cry for help could
-be heard from a distance; surely his voice was loud and clear.
+Saat itu para anggota Sekte Telapak Besi sudah mengambil alih kemudi, secara perlahan mereka mengarahkan perahu ke kanan
+supaya mereka bis dengan bebas meluncur ke hilir. Perahu si tukang perahu bisu itu sudah pecah menjadi dua bagian, si tukang 
+perahu bersama dengan kedua pembantunya, berikut pecahan papan dan layar terdampar di sebuah batu besar di tengah sungai
+dengan pusaran arus mengelilingi mereka. Jeritan minta tolong tukang perahu bisu itu terdengar dari jarak jauh, sudah jelas 
+suaranya sangat nyaring dan jernih.
 
-Huang Rong busily waved her left hand behind her back, making a hand signal, ‘scold-
-ing’ the mute boatman. In any case nobody was watching her, so she could be as vulgar
-as she wished.
+Huang Rong sibuk membuat isyarat dengan tangan kiri di belakang punggungnya, memaki-maki si tukang perahu. Dalam hal ini 
+tidak ada orang yang mempedulikannya, jadi ia dengan bebas bisa memaki sesuka hati.
 
-Even though the mute boatman and his two helpers were holding to the silt for their
-dear lives, the vortex was too strong; in a blink of an eye they were sucked into the bot-
-tom of the river.
+Meskipun tukang perahu bisu dan kedua pembantunya itu berpegangan mati-matian pada batu besar, pusaran air terlalu kuat,
+dalam sekejap mereka tersedot ke dasar sungai.
 
-The black-flagged boat was floating swiftly so that when Huang Rong turned her head
-around, they were already two, three ‘li’s away from the vortex. The pair of eagles was
-flying in circles above them, continuously crying. Huang Rong wielded her bamboo
-stick to push the Iron Palm Clan people from the bow; she intended to help Guo Jing
-fight Qiu Qianren. Suddenly with the corner of her eye she caught a flash of a blade in-
-side the cabin, somebody was about to chop something inside. Without knowing clearly
-what it was, her left hand launched a steel needle, hitting that person’s arm. That
-person’s saber fell and slashed his own right thigh, and he screamed loudly.
+Perahu berbendera hitam itu meluncur cepat, sehingga ketika Huang Rong memalingkan kepalanya, mereka telah berada sekitar 
+dua-tiga _li_ dari pusaran air. Sepasang elang itu terbang berputar-putar di atas kepala mereka, terus menerus memekik 
+nyaring. Huang Rong mengayunkan tongkat bambunya untuk medorong para anggota Sekte Telapak Besi menjauh dari lambung perahu.
+Ia bermaksud membantu Guo Jing bertarung melawan Qiu Qianren. Tiba-tiba sudut pandangannya menangkap kilauan belati dari 
+dalam kabin, seseorang hendak memotong sesuatu di dalam. Tanpa mengetahui apapun tentang hal itu, tangan kirinya meraih 
+jarum baja, menyerang lengan orang itu. Golok orang itu terjatuh dan menyayat lututnya sendiri, ia menjerit nyaring.
 
-Huang Rong rushed into the cabin, lifted up her leg to kick him out of the way, only to
-see someone was lying on the deck; with all her hands and feet bound that she could
-not move. Her cold eyes were staring at Huang Rong; she was the Divine
-Mathematician Ying Gu.
+Huang Rong bergegas masuk ke kabin, ia mengangkat kakinya untuk menendang orang itu, ia melihat seseorang terbaring di dek,
+tangan dan kakinya terikat erat sehingga ia tidak bisa bergerak. Matanya yang dingin menatap Huang Rong, ia adalah si 
+Dewi Matematika, Ying Gu.
 
-Never in her life did Huang Rong expect to save Ying Gu’s life in this place. She picked
-the saber from the deck and cut of the ropes binding Ying Gu’s hands. As soon as her
-hands were free Ying Gu stretched out her right hand and snatched the saber from
-Huang Rong’s hand. Huang Rong was startled; she saw the blade flash and Ying Gu had
-killed that black-dressed man. Only then did she stoop down to cut off the ropes on her
-own feet.
+Huang Rong sama sekali tidak pernah bermimpi bahwa ia akan menyelamatkan nyawa Ying Gu di tempat ini. Ia memungut golok
+yang jatuh di dek dan memotong tali yang mengikat tangan Ying Gu. Segera setelah tangannya bebas, Ying Gu megulurkan tangan 
+dan merebut golok dari tangan Huang Rong. Huang Rong kaget, ia melihat kilauan mata golok berkelebat, dan Ying Gu telah 
+membunuh orang berbaju hitam itu. Setelah itu barulah ia membungkuk untuk memutuskan tali yang mengikat kakinya.
 
-“Although you have saved my life, don’t expect me to repay you in the future,” she said.
+"Meskipun kau menyelamatkan aku, jangan harap aku akan membalasnya nanti," katanya.
 
-Huang Rong smiled. “Who wants you to repay?” she said, “You have saved my life, and
-today I saved yours. Now we are even, nobody owes anybody anything.”
+Huang Rong tersenyum. "Siapa yang ingin dibalas?" katanya. "Kau menyelamatkan aku, dan hari ini aku juga menyelamatkanmu.
+Sekarang kita impas, tidak ada yang berhutang apa-apa."
 
-Before she finished speaking she had dashed forward to the bow with her bamboo stick
-to help Guo Jing. Qiu Qianren was attacked from both front and rear; he increased the
-strength of his palms, trying to stay on the offensive side. But then he heard ‘splash,
-splash’ and ‘aiyo, aiyo’ successively; Ying Gu with saber in her hand had attacked the
-Iron Palm Clan people and forced them to fall into the river. In this turbulent water
-they could not expect to keep their lives.
+Sebelum selesai bicara ia sudah melangkah ke lambung kapal bersama tongkat bambunya untuk membantu Guo Jing.
+Qiu Qianren diserang dari depan dan belakang, ia meningkatkan tenaga di telapak tangannya, berusaha mempertahankan 
+keunggulannya. Tetapi kemudian ia mendengar suara percikan dan 'aiyo, aiyo' berturut-turut, Ying Gu dengan golok di tangan 
+telah menyerang para anggota Sekte Ttelapak Besi dan menceburkan mereka ke dalam sungai. Dalam kondisi arus deras seperti itu 
+keselamatan mereka tak bisa diharapkan.
 
-Initially when he was fighting Guo Jing, Qiu Qianren had gradually gained an upper
-hand; but now Huang Rong came to Guo Jing’s rescue with her Dog Beating Stick tech-
-nique, he was alone against two enemies. A dozen or so stances later he was forced to
-move back around the boat defending himself. His back was facing the water so that
-Huang Rong could not attack him from behind.
+Awalnya ketika bertarung melawan Guo Jing, Qiu Qianren secara bertahap telah berada di atas angin, tetapi sekarang Huang Rong 
+datang untuk membantu dengan Tongkat Penggebuk Anjing, ia sendirian melawan dua musuh. Dalam beberapa puluh jurus selanjutnya 
+ia dipaksa mundur mengelilingi perahu untuk mempertahankan diri. Punggungnya menghadap ke air, jadi Huang Rong tidak bisa 
+menyerangnya dari belakang.
 
-Guo Jing launched several fierce attacks successively, but Qiu Qianren’s feet were as if
-nailed to the deck, he could not be pushed further even for half an inch. By now he was
-so close to the edge that one more step backward would make him fall into the river.
+Guo Jing melancarkan serangan beruntun, tetapi kaki Qiu Qianren seolah-olah terpaku di dek, ia tidak bisa didorong setengah 
+inci pun. Saat itu ia begitu dekat dengan batas perahu, selangkah lagi akan membuatnya jatuh ke sungai.
 
-Huang Rong said in her heart, “Although your title is ‘Iron Palm Floating on the Water’,
-but with the ‘floating on the water’ part you are merely boasting your excellent light-
-ness kungfu. Not to mention this turbulent water and wild waves of this river, even on
-a mirror-like calm lake you won’t be able to float on the water; unless you have mas-
-tered your older brother’s trick by planting several thousands or several hundreds
-wooden stakes under the water beforehand.” She noticed that while his palms moved
-steadily, his eyes were repeatedly scanning the water; it seemed like he was hoping an-
-other boat would come to his rescue. She thought, “This old fellow’s martial art skill
-might be high; but with three against one today, if we cannot defeat you, we can con-
-sider ourselves as dung.”
+Huang Rong berkata dalam hati, "Meskipun julukanmu 'Telapak Besi Mengapung Di Air', tapi bagian 'Mengapung Di Air' itu 
+hanya untuk membangga kehebatan Qinggong saja. Jangankan di arus deras ini dan pergolakan air seperti ini, di atas permukaan 
+air tenang sekalipun kau tidak bakalan bisa mengapung di atas air, kecuali kau menguasai seni tipu-menipu kakakmu dengan 
+menancapkan ribuan atau ratusan bilah bambu di bawah permukaan air sebelumnya." Ia mengamati bahwa sementara telapak tangannya 
+bergerak stabil, matanya terus menatap ke arah air, tampaknya ia berharap ada perahu lain datang untuk menolongnya. Ia berpikir,
+"Kungfu orang tua ini mungkin saja tinggi, tetapi kalau hari ini tiga lawan satu kami tidak sanggup mengalahkanmu, maka 
+kami boleh dianggap sama seperti kotoran manusia."
 
-By then Ying Gu had swept the boat clean of all Iron Palm Clan people, except the man
-who control the rudder. She saw Guo Jing and Huang Rong could not gain an upper
-hand, she coldly said, “Little girl, move away, I am coming!”
+Saat itu Ying Gu sudah menyapu bersih semua anggota Sekte Telapak Besi, kecuali orang yang sedang mengemudikan perahu.
+Ia melihat Guo Jing dan Huang Rong tidak bisa unggul, ia berkata dengan dingin, "Chou Yatou[^chou-yatou], minggir, 
+aku datang!"
 
-Hearing the condescending tone in her remarks Huang Rong could not help but be an-
-gry; her bamboo stick moved forward and she launched two stances successively;
-while her feet kept moving forward. When Qiu Qianren stepped aside to evade, she
-leaped backward two steps while pulling Guo Jing’s sleeve and said, “Let her fight.” Guo
-Jing used his palm to guard then he pulled back.
+Ketika mendengar nada menghina dalam seruan itu Huang Rong tak dapat menahan amarahnya, tongkat bambunya bergerak ke depan dan 
+ia melancarkan serangan bertubi-tubi, sementara kakinya terus bergerak maju. Ketika Qiu Qianren melangkah ke samping untuk 
+menghindar, Huang Rong melompat mundur dua langkah sambil menarik jubah Guo Jing dan berkata, "Biarkan dia bertarung."
+Guo Jing menggunakan telapak tangannya untuk menjaga diri, lalu mundur.
 
-Ying Gu coldly said, “Qiu Bangzhu, your reputation in Jianghu cannot be considered
-small, but while I was resting in an inn unguarded you used incense to drug me. It was
-low, even for you.”
+Ying Gu berkata dengan dingin, "Qiu Bangzhu, nama besarmu di Jianghu tidak bisa diremehkan, tapi waktu aku tidur di penginapan
+kau menggunakan dupa berisi obat bius untuk menangkapku. Itu betul-betul cara murahan, bahkan untuk orang semacam engkau!"
 
-“You are captured by my subordinates, what else do you have to say?” Qiu Qianren
-replied, “If I personally went into action, using only this pair of hands I would be able
-to capture even ten Divine Mathematicians.”
+"Kau tertangkap oleh anak buahku, apa lagi yang bisa kau katakan?" jawab Qiu Qianren. "Kalau aku yang maju sendiri, hanya 
+dengan menggunakan sepasang tangan ini aku pasti bisa menangkap _sepuluh_ orang Dewi Matematika."
 
-Ying Gu coldly said, “When did I ever offend the Iron Palm Clan?”
+Ying Gu berkata dengan dingin, "Kapan aku pernah menyinggung Sekte Telapak Besi?"
 
-Qiu Qianren replied, “These two little thieves without authorization broke into our Iron
-Palm Peak’s holy ground; why did you give them asylum at the Black Marsh? I spoke
-nicely to you asking you to release them, but you dared to lie to me; do you think I, Qiu
-Qianren, am an easygoing person?”
+Qiu Qianren menjawab, "Kedua bocah tengik ini tanpa ijin masuk ke daerah terlarang di Puncak Telapak Besi, kenapa kau 
+memberi mereka petunjuk di Rawa Hitam? Aku bicara baik-baik supaya kau melepaskan mereka, tapi kau berani berbohong,
+kau pikir aku — Qiu Qianren — orang sembarangan?"
 
-“Ah, turns out it was because of these two little thieves,” Ying Gu said, “If you have the
-ability, go and get them; I won’t mind other people’s business anymore.” After saying
-that she went back several steps and sat cross-legged on the side of the boat, her face
-looked indifferent; it seemed like she determined to watch the tigers fight, expected
-Jing and Rong two people and Qiu Qianren to suffer injury. Her action was truly unex-
-pected by Qiu Qianren, Guo Jing and Huang Rong.
+"Ah, ternyata hanya karena kedua bocah tengik ini," kata Ying Gu. "Kalau kau punya kemampuan, silakan tangkap mereka,
+aku tidak mau mencampuri urusan orang lain." Setelah mengatakan hal itu ia mundur beberapa langkah dan duduk bersila di sisi
+perahu, mukanya tampak tak acuh, tampaknya ia bermaksud nonton harimau berkelahi, mengharapkan Guo Jing, Huang Rong dan juga 
+Qiu Qianren terluka parah. Sikapnya sungguh di luar dugaan Qiu Qianren, Guo Jing dan Huang Rong.
 
-It turned out that when her plan to assassinate Reverend Yideng was thwarted by Guo
-Jing in disguise, and then seeing Yideng bare his chest to her, suddenly she realized
-Yideng’s kindness to her and she did not have a heart to make a move. She went down
-the mountain dejectedly, with memory of the tragic death of her son lingering in her
-mind. She stopped by at an inn to spend the night; confusion, anger and resentment filling her heart, 
-putting her in a very vulnerable situation. Right at that time the Iron
-Palm Clan people used incense to drug her. Otherwise, with her skill and intelligence,
-how could she fall into the hands of some lowly, nameless juniors? Right now she saw
-Guo Jing, Huang Rong, two people, she wanted to vent her anger and frustration by
-hoping those three people all die in this rushing river.
+Ternyata setelah rencananya untuk membunuh Yideng Dashi digagalkan oleh Guo Jing yang menyamar, dan kemudian melihat Yideng 
+menyodorkan dadanya dengan sukarela, mendadak ia menyadari kebaikan hati Yideng dan ia tidak tega meneruskan niatnya. Ia 
+turun gunung dengan kecewa, dengan kenangan tentang kematian anaknya memenuhi benaknya. Ia berhenti di sebuah penginapan 
+untuk bermalam. Kebingungan, amarah dan kekecewaan memenuhi hatinya, menempatkannya dalam situasi lemah. Tepat pada saat 
+itu para anggota Sekte Telapak Besi menggunakan dupa berisi obat bius untuk menangkapnya. Kalau bukan begitu, dengan 
+kecerdasan dan ilmunya yang tinggi masa ia bisa jatuh ke tangan segelintir orang berilmu lebih rendah dari generasi di 
+bawahnya? Saat itu ia melihat Guo Jing dan Huang Rong, ia ingin melampiaskan amarah dan frustasinya dengan berharap ketiga 
+orang itu akan tewas di dalam sungai deras ini.
 
-Huang Rong thought, “All right, we will cope with Qiu Qianren first, we’ll deal with you
-later.” She made a facial signal to Guo Jing and two people, one with a bamboo stick,
-the other with his pair of palms, attacked Qiu Qianren side by side. In a moment three
-people were engaged in a fierce an inextricable combat.
+Huang Rong berpikir, "Baiklah, kita menghadapi Qiu Qianren dulu, baru kemudian kita akan bikin perhitungan denganmu." Ia 
+membuat isyarat muka kepada Guo Jing, lalu keduanya — yang seorang dengan tongkat bambu, yang satnya dengan sepasang 
+tangan kosong — menyerang Qiu Qianren secara serempak. Dalam waktu singkat ketiga orang itu terlibat dalam pertarungan 
+sengit yang mendebarkan.
 
-Ying Gu watched the fight with rapt attention. She saw that even though Qiu Qianren’s
-palm technique was swift and fierce, in the end it would be difficult for him to score
-victory against these couple. She noticed Qiu Qianren kept moving step by step; it
-looked like he was trying to defeat the enemies by a surprise attack.
+Ying Gu menonton pertarungan itu dengan penuh perhatian. Ia melihat bahwa meskipun teknik telapak tangan Qiu Qianren sangat 
+cepat dan dahsyat, namun pada akhirnya ia akan sulit mengalahkan kedua anak muda itu. Ia melihat Qiu Qianren terus bergerak 
+selangkah demi selangkah, tampaknya ia sedang berusaha mengalahkan lawan dengan serangan mendadak.
 
-Guo Jing was concerned over Huang Rong’s condition; her serious injury had just re-
-covered, she might lose her strength if this fight was prolonged. “Rong’er,” he said,
-“Take a rest for a while, then you can come back to help me later.”
+Guo Jing kuatir akan kondisi Huang Rong. Cederanya sangat serius dan ia baru saja sembuh, ia akan kehilangan banyak tenaga 
+kalau pertarungan itu berlangsung terlalu lama. "Rong'er," katanya. "Istirahatlah dulu, kau bisa membantuku nanti."
 
-“All right!” Huang Rong said with a smile. She raised her stick and withdrew from the
-fight.
+"Baiklah!" kata Huang Rong sambil tersenyum. Ia mengangkat tongkatnya dan mundur dari arena pertarungan.
 
-Ying Gu saw the closeness of these two people; Guo Jing loved Huang Rong very much.
-“Throughout my life, when did someone treat me this way?” she thought. From envy
-she became jealous, from jealousy came hatred. Suddenly she stood up and called out,
-“Two against one, what kind of skill is that? Come, let us four people fight in two pairs
-to determine victory or defeat.” She reached into her pocket with both of her hands and
-took out two bamboo planks. Without waiting for Huang Rong to reply the pair of
-planks went down vertically and swept away horizontally, attacking Huang Rong.
+Ying Gu melihat kedekatan keduanya, Guo Jing sangat mencintai Huang Rong. "Sepanjang hidupku, kapan ada orang yang 
+memperlakukan aku seperti ini?" pikirnya. Dari iri ia jadi cemburu, dari cemburu akhirnya menjadi benci. Tiba-tiba ia bangkit 
+dan berseru, "Dua lawan satu, kungfu macam apa ini? Ayo kita berempat bertarung masing-masing satu lawan satu untuk menentukan
+siapa yang menang." Ia merogoh sakunya dengan kedua tangan dan mengeluarkan dua bilah bambu. Tanpa menunggu jawaban Huang Rong
+sepasang bambu itu menghujam secara vertikal dan menyapu secara horizontal, menyerang Huang Rong.
 
-“You are a crazy old woman,” Huang Rong cursed her; “No wonder the Old Urchin did
-not love you.”
+"Kau perempuan tua sinting," omel Huang Rong. "Tak heran Lao Wantong tidak mencintaimu."
 
-Ying Gu raised her eyebrows and intensified her attacks. Once she went into action, the
-situation on the boat changed considerably. Although Huang Rong’s Dog Beating Stick
-technique was exquisite, her internal energy level was still inferior to Ying Gu’s; not to
-mention after a heavy injury her internal strength had not fully recovered, her move-
-ments were not as agile as they used to be. She had to rely on the ‘sealing’ technique
-with all her strength to barely guard herself against the enemy. Ying Gu was slippery as
-a fish, the jolting and swaying of the boat only added to her fierceness.
+Ying Gu mengangkat alisnya dan meningkatkan serangannya. Segera setelah ia beraksi, situasi di atas perahu berubah total.
+Meskipun teknik Tongkat Penggebuk Anjing milik Huang Rong sangat indah, tetapi tenaga dalamnya masih di bawah Ying Gu,
+dan lagi setelah mengalami cedera serius tanaga dalamnya masih belum pulih total, gerakannya tidak segesit sebelumnya.
+Ia harus mengandalkan teknik totokan dengan segenap kekuatannya untuk mempertahankan diri. Ying Gu sangat licin seperti 
+ikan, ayunan dan goyangan perahu itu hanya menambah kedahsyatannya.
 
-On the other front Guo Jing fought Qiu Qianren; for a while it would be difficult to de-
-cide victory and defeat. After receiving instructions from Reverend Yideng on the inter-
-nal energy cultivation his level of energy actually increased one layer; to his own sur-
-prise by exerting all his strength he was able to protect himself thus far. On the other
-hand Qiu Qianren was baffled by Ying Gu’s action; first she acted as his enemy and did
-not care to help either side, suddenly now she came to lend him a hand. Inwardly he
-was delighted, his spirit rose and his palms became fiercer. He believed with a pro-
-longed fight he would eventually subdue Guo Jing.
+Di pihak lain, Guo Jing bertarung melawan Qiu Qianren, untuk sementara sangat sulit menentukan siapa yang lebih unggul.
+Setelah menerima instruksi dari Yideng Dashi mengenai teknik tenaga dalam, tenaganya naik setingkat, ia sendiri terkejut 
+bahwa dengan mengerahkan seluruh tenaganya ia mampu bertahan sejauh ini. Di sisi lain, Qiu Qianren sangat heran dengan 
+tindakan Ying Gu, mula-mula ia bersikap bermusuhan dan tidak mau menolong pihak manapun, mendadak ia datang untuk membantunya.
+Dalam hati ia sangat gembira, semangatnya meningkat dan serangan telapak tangannya makin dahsyat. Ia yakin kalau pertarungan 
+itu berlangsung lama, ia akan mampu mengalahkan Guo Jing.
 
-Qiu Qianren saw Guo Jing’s palm wipe out fiercely, he leaned sideways to avoid a
-frontal attack, his right palm high, left palm low, they clapped down together. Guo Jing
-responded by stretching out his palms and four palms collided with a great force.
-“Hey!” two people shouted together and both withdrew three steps.
+Qiu Qianren melihat telapak tangan Guo Jing menyaou deras, ia mengelak ke samping untuk menghindari serangan frontal, tangan 
+kanannya di atas, tangan kirinya di bawah, keduanya menempel ketat. Guo Jing menanggapi dengan mengulurkan tangan, keempat 
+telapak tangan mereka bertemu dibarengi kekuatan dahsyat.
 
-Qiu Qianren stumbled toward the stern and grabbed the rudder to steady himself. Guo
-Jing’s left foot tripped on a rope and he nearly tumbled down. Afraid of the enemy’s
-subsequent attack while his defense line was empty he continued by rolling down on
-the deck while readied his palms to protect his body. Qiu Qianren thought victory was
-at hand, watching the enemy tumble down and at a disadvantage he let out a long
-laugh and stepped forward.
+"Heh!" keduanya berseru serempak dan sama-sama mundur tiga langkah.
 
-In the meantime Ying Gu had succeeded in making Huang Rong huffing and puffing,
-panting for breath; she saw beads of sweat trickling down her forehead, she was de-
-lighted. Suddenly she heard the laughter, she was greatly shocked; her countenance
-abruptly changed and absentmindedly she withdrew the attack with the bamboo plank
-in her left hand.
+Qiu Qianren terhuyung ke arah kemudi dan memegang kemudi itu untuk menjaga keseimbangannya. Kaki kiri Guo Jing tersandung 
+tali tambang dan ia hampir terjungkal. Karena takut musuh akan menyerang sementara pertahanannya kosong, ia meneruskan dengan 
+bergulingan di dek sambil mempersiapkan kedua tangannya untuk mempertahankan diri. Qiu Qianren mengira kemenangannya sudah 
+di tangan, sambil mengawasi lawan terjungkal dan dalam posisi lemah ia tertawa panjang sambil melangkah maju.
 
-Huang Rong saw this opportunity and she did not want to miss it; the bamboo stick in
-her hand turned to attack Ying Gu’s chest. But as the bamboo stick was about to hit the
-‘shen cang’ [divine storage] acupoint on her chest, Ying Gu’s body shook as if she was
-suffering from a sudden illness. “So it was you!” Ying Gu screamed and pounced to-
-ward Qiu Qianren like a mad tiger.
+Sementara itu Ying Gu sudah berhasil membuat Huang Rong kewalahan dan terengah-engah, ia melihat butiran keringat menitik 
+di dahinya, ia sangat senang. Mendadak ia mendengar suara tawa itu, ia sangat kaget, air mukanya berubah drastis dan dengan 
+linglung ia menarik serangannya sambil memegang bilah bambu di tangan kiri.
 
-Qiu Qianren saw her with arms opened wide, fiercely throwing herself at him without
-any regard for her own life. Her mouth opened wide exposing rows of white teeth, as if
-she wanted to bite him alive. Although his martial art skill was high, seeing this disregarding-her-own-life 
-kind of attack he could not help but was startled. Hastily he
-leaped sideways to evade and called out, “What are you doing?”
+Huang Rong melihat kesempatan ini dan tidak ingin menyia-nyiakannya, tongkat di tangannya berputar untuk menyerang dada 
+Ying Gu. Tetapi ketika tongkat bambu itu hampir menyentuh titik ShenCang di dadanya, tubuh Ying Gu bergetar seolah ia 
+menderita sakit mendadak. "Jadi ternyata kau!" Ying Gu menjerit dan menerjang ke arah Qiu Qianren seperti harimau murka.
 
-Ying Gu did not answer; she kept throwing herself on him. As soon as her feet landed,
-she would pound him again and again. Qiu Qianren struck with his left palm toward
-her head, but Ying Gu kept going with arms extended as if she wanted something; she
-completely ignored the incoming attack, still ferociously trying to throw herself at him.
-Qiu Qianren was shocked; he thought if he was caught by this insane woman, he would
-not be able to break free easily, and if at that time Guo Jing came up with a palm, how
-could he still alive? Therefore, he abandoned his palm strike immediately; saving his
-own life was more important, hastily he ducked to the left.
+Qiu Qianren melihatnya melontarkan diri dengan kedua tangan terpentang lebar tanpa mempedulikan keselamatannya sendiri.
+Mulutnya terbuka memperlihatkan deretan gigi putih, seolah ingin menggigitnya hidup-hidup. Meskipun kungfunya tinggi, tetapi 
+melihat serangan nekad itu ia mau tidak mau merasa terkejut. Buru-buru ia melompat ke samping untuk mengelak dan berseru,
+"Apa yang kau lakukan?"
 
-Huang Rong pulled Guo Jing’s hand; they moved to the side. Seeing Ying Gu suddenly
-lost her mind they could not help but feel scared. They saw Ying Gu madly pounced for-
-ward, her mouth let out ‘heh, heh’ sound, her lips opened to reveal her teeth, trying to
-embrace Qiu Qianren without regard of her own life.
+Ying Gu tidak menjawab. Ia terus melontarkan diri ke arahnya. Segera setelah kakinya mendarat, ia menyerang lagi, dan lagi.
+Qiu Qianren memukul dengan telapak tangan kirinya ke arah kepala Ying Gu, tetapi Ying Gu terus maju dengan tangan terulur
+seolah ia menginginkan sesuatu, ia sama sekali mengabaikan datangnya serangan, masih tetap dengan nekad melontarkan diri 
+ke arah Qiu Qianren. Qiu Qianren kaget, ia berpikir seandainya ia tertangkap oleh perempuan gila ini, ia tidak akan bisa 
+meloloskan diri dengan mudah, dan kalau pada saat itu Guo Jing datang menyerang dengan telapak tangannya, bagaimana ia 
+bisa terus hidup? Karena itu ia segera menarik telapak tangannya, menyelamatkan nyawanya lebih penting, buru-buru ia 
+mengelak ke kiri.
 
-Although Qiu Qianren’s martial art skill was high, but Ying Gu attacked him like she did
-not want to live anymore, he could not keep up with her; he was forced to dodge to the
-west and evade to the east. He saw the muscle on her face twitch, her expression so fe-
-rocious, he became more and more afraid. “Revenge, revenge!” he inwardly groaned,
-“Today I will die under this mad woman’s hands.”
+Huang Rong menarik tangan Guo Jing, mereka bergerak ke samping. Melihat Ying Gu mendadak hilang ingatan mereka mau tak mau 
+jadi ngeri. Mereka melihat Ying Gu dengan gila-gilaan menerjang maju, mulutnya mengeluarkan suara 'heh, heh', bibirnya 
+terbuka memperlihatkan giginya yang putih, berusaha untuk memeluk Qiu Qianren tanpa mempedulikan keselamatannya sendiri.
 
-Ying Gu pounced several more times, Qiu Qianren evaded her until he arrived next to
-the rudder. Ying Gu’s eyes were red as if they were going to spurt blood. One more time
-her grab missed its target. She raised her palm and ‘bang!’ she struck the man control-
-ling the rudder throwing him into the river; then her leg flew and she kicked the rud-
-der broken. The boat immediately floated chaotically as it lost its rudder.
+Meskipun kungfu Qiu Qianren tinggi, tetapi Ying Gu menyerangnya dengan cara seolah-olah sudah bosan hidup, ia tidak bisa 
+mengimbanginya, dan terpaksa mengelak kesana-kemari. Ia melihat otot-otot di wajahnya tertarik, ekspresinya sangat 
+mengerikan, ia jadi semakin takut. "Pembalasan, pembalasan!" keluhnya dalam hati. "Hari ini aku akan mati di tangan 
+perempuan sinting ini."
 
-Huang Rong groaned inwardly, “This woman was going to turn mad sooner or later; it
-seems that we, four people, will have difficulty escaping death this time.” Immediately
-she pursed her lips and whistled loudly to summon the eagles down to save their lives.
+Ying Gu menerjang beberapa kali lagi, Qiu Qianren mengelak sampai ia tiba di dekat kemudi. Mata Ying Gu merah seolah-olah 
+berlumuran darah. Sekali lagi cekalannya luput dari sasaran. Ia menangkat telapak tangannya dan "Bukk!" ia memukul orang 
+yang memegang kemudi dan melemparkannya ke sungai, lalu kakinya melayang dan ia menendang kemudi sampai patah. Perahu itu 
+dengan segera terhanyut kacau karena kehilangan kemudi.
 
-Right at this moment the boat hit a big rock. With a loud crashing sound a big hole ap-
-peared on the bow. As Qiu Qianren saw Ying Gu break the rudder he knew she had
-made up her mind to die together with him. He saw the shore was not too far; he
-thought whether dead or alive he must risk everything to escape; therefore, he jumped
-toward the shore with all his might. But the shore was still a distance away, ‘splash!’ he
-fell into the water and immediately drowned to the bottom of the river. He was aware
-that as soon as he went up to the surface, the strong current would flush him away and
-it would be impossible for him to struggle free; hence he firmly held onto the rock at
-the bottom of the river and using his hands and feet he crawled underwater toward the
-shore. Utilizing his outstanding martial art, plus the fact that near the shore the current
-was not as strong as at the middle of the river, although he had to swallow about a
-dozen mouthful of water, he finally reached the shore. He was utterly exhausted, he sat
-on a rock to catch his breath and saw the boat quickly turned into a black dot in the dis-
-tance. Remembering Ying Gu’s clenched teeth and scary expression he shivered in fear.
+Huang Rong mengeluh dalam hati, "Perempuan ini cepat atau lambat akan jadi gila, kelihatannya kita berempat akan sulit 
+terhindar dari maut kali ini." Ia segera memonyongkan bibirnya dan bersiul keras memanggil sepasang elang untuk menyelamatkan
+mereka.
 
-As Ying Gu saw Qiu Qianren jump out the boat she loudly called out, “Evil thief, where
-are you running to?” She rushed toward the side of the boat, ready to jump into the wa-
-ter. But by then the boat had been flushed to the middle of the river where the current
-was strongest; in this dangerous billows, how would she survive if she really jumped
-into the water?
+Tepat pada saat itu perahu menghantam sebuah batu besar. Dibarengi suara keras sebuah lubang besar menganga di lambung perahu.
+Ketika melihat Ying Gu menghancurkan kemudi, Qiu Qianren tahu bahwa ia sudah bertekad untuk mati bersama-sama dengan dirinya. Ia 
+melihat tepian sungai sudah tidak terlalu jauh lagi, ia berpikir entah mati atau hidup ia harus mengambil segala resiko untuk 
+meloloskan diri, karenanya ia melompat ke arah tepian dengan segenap kekuatannya. Tetapi tepian itu masih jauh, dan 'Byurr!',
+ia tercebur ke air da dengan segera tenggelam ke dasar sungai. Ia sadar bahwa segera setelah ia muncul di permukaan, arus deras
+akan menghanyutkannya, dan akan jadi mustahil untuk membebaskan diri, karena itu ia berpegang erat-erat pada sebuah batu
+di dasar sungai dan dengan menggunakan tangan dan kakinya ia merangkak di dasar sungai menuju ke tepian. Dengan menggunakan 
+kungfunya, ditambah dengan fakta bahwa arus deras di tepian lebih lemah ketimbang di tengah sungai, meskipun ia harus menelan 
+sejumlah besar air, akhirnya ia berhasil mencapai tepian sungai. Ia sangat kelelahan, ia terduduk di atas batu untuk mengambil 
+nafas dan melihat perahu itu pelan-pelan berubah menjadi titik hitam di kejauhan. Teringat gemeretak gigi Ying Gu dan ekspresi 
+mukanya yang menyeramkan, tanpa sadar ia gemetar ketakutan.
 
-Guo Jing could not bear to see her; he rushed forward to grab her back. Ying Gu was
-angry, she reached behind her back to attack. Guo Jing hastily ducked to evade. Huang
-Rong saw the pair of eagles had landed in front of the cabin. “Brother Jing,” she called
-out, “Why do you mind this mad woman? Let us go quickly.”
+Ketika melihat Qiu Qianren melompat keluar dari perahu, Ying Gu berteriak nyaring, "Keparat busuk, kau mau lari kemana?" Ia 
+menerjang ke arah sisi perahu, bersiap melompat ke dalam air. Tetapi saat itu perahu telah dihanyutkan arus ke tengah sungai,
+di mana arusnya jauh lebih deras. Di tengah gelombang berbahaya itu, bagaimana ia bisa bertahan hidup kalau nekad melompat 
+ke air.
 
-The water violently surged up and very soon it rose up to their ankles. Guo Jing let his
-grab went loose. Ying Gu covered her face with both hands, crying loudly. “Child!
-Child!” she shouted miserably.
+Guo Jing tidak tega melihatnya, ia bergegas maju untuk meraih punggungnya. Ying Gu sangat marah, ia meraih ke belakang 
+punggungnya untuk menyerang. Guo Jing buru-buru mengelak. Huang Rong melihat sepasang elang mendarat di depan kabin. "Jing Gege, 
+buat apa mempedulikan perempuan gila ini? Ayo cepat kita pergi!"
 
-Huang Rong repeatedly urged him to go, but Guo Jing remembered Reverend Yideng’s
-request to look after Ying Gu. “Go ashore with the eagle, then send them back here to
-rescue us,” he called out.
+Air meluap dengan cepat, dalam waktu singkat sudah mencapai mata kaki. Guo Jing mengendurkan cekalannya. Ying Gu menutupi 
+mukanya dengan kedua tangan, menangis keras-keras. "Anakku! Anakku!" jeritnya memilukan.
 
-“There’s not enough time,” Huang Rong anxiously objected.
+Huang Rong berulang kali memaksanya untuk pergi, tetapi Guo Jing teringat akan permohonan Yideng dashi untuk menjaga Ying Gu.
+"Cepat kau pergi ke tepian dengan elang itu, lalu kirim mereka kembali ke sini untuk menjemput kami," serunya.
 
-“Go, quick!” Guo Jing said, “We can’t neglect Reverend Yideng’s entrusting.”
+"Tidak cukup waktu untuk itu," kata Huang Rong keberatan, ia sangat cemas.
 
-Huang Rong recalled Yideng’s kindness in saving her life, reluctantly she mounted the
-eagle, knowing she did not have any choice. Suddenly her body shook. With a violent
-crash the boat hit a big reef in the middle of the river. The water bubbled up toward
-the cabin, in a flash the hull sank several feet.
+"Cepat pergi!" kata Guo Jing. "Kita tidak bisa mengabaikan kepercayaan Yideng Dashi."
 
-“Jump to the reef!” Huang Rong called out. Guo Jing nodded, he went over to take Ying
-Gu along.
+Huang Rong teringat kebaikan Yideng Dashi yang menyelamatkan hidupnya, dengan berat hati ia naik ke punggung elang, tahu bahwa 
+ia tak punya pilihan lain. Mendadak tubuhnya bergetar. Dengan suara keras perahu itu menabrak sebuah batu besar di tengah sungai.
+Air meluap sampai ke kabin, dalam sekejap areal kemudi tenggelam beberapa kaki.
 
-By then Ying Gu was in daze, she knew Guo Jing held out his hand to hold her, she did
-not resist. Her eyes were staring blankly at the river. Guo Jing slipped his right hand
-under her armpit and called out, “Jump!” Three people jumped to the reef.
+"Lompat ke batu!" seru Huang Rong. Guo Jing mengangguk, ia menarik Ying Gu bersamanya.
 
-That reef was actually about a foot under the water; the river surrounded three people,
-splashing their clothes wet. When they stood firm on the reef, they saw the boat slowly
-sank beside them. Although she had played in the great waves since her childhood, but
-seeing the muddy water swirling around her Huang Rong could not restrain from hav-
-ing a dizzy spell; she raised her head up looking at the sky, did not dare to look directly
-into the water.
+Saat itu Ying Gu sedang dalam keadaan linglung, ia tahu Guo Jing memegang tangannya, ia tidak melawan. Mmatanya menatap 
+kosong ke arah sungai. Guo Jing menyelipkan tangan kanannya di bawah ketiak Ying Gu dan berseru, "Lompat!" Ketiganya melompat ke 
+batu karang.
 
-Guo Jing whistled to call the eagles to come and carry them over; but the eagles were
-afraid of the water. They flew in circles overhead but did not dare to set their feet on
-the submerged reef.
+Batu karang itu sebetulnya sekitar satu kaki berada di bawah permukaan air, sungai itu mengelilingi mereka bertiga, cipratan 
+air membasahi pakaian mereka. Ketika berdiri kokoh di atas karang, mereka melihat perahu itu tenggelam di samping mereka. 
+Meskipun sejak kecil bermain-main dengan ombak besar, tetapi ketika melihat pusaran air keruh mengelilinginya, Huang Rong 
+mau tak mau merasa pusing, ia mengangkat kepalanya memandang langit, tidak berani menatap langsung ke arah air.
 
-Huang Rong looked around and saw a big willow tree on the bank toward their left,
-about a dozen ‘zhang’s away. Immediately she had an idea, “Jing Gege,” she said, “Hold
-my hand.” Guo Jing took a good grip of her left hand. With a splash Huang Rong disap-
-peared into the water.
+Guo Jing bersiul memanggil elang untuk menjemput mereka, tetapi sepasang elang itu takut melihat air. Mereka terbang 
+berputar-putar di atas kepala tetapi tidak berani mendaratkan kakinya di atas karang yang setengah terbenam.
 
-Guo Jing was startled; he saw she dove to the sunken boat, he quickly stooped down un-
-til his upper body also went into the water. He extended his arm as far as possible
-while his legs firmly gripped a sticking rock on the reef. With all his strength his right
-hand gripped her left wrist, lest the current was too strong and he lost his grip, then
-she might never be able to come up.
+Huang Rong memandang ke sekeliling dan melihat sebuah pohon Willow besar di tepi sungai di sebelah kiri mereka, sekitar
+belasan _zhang_ jauhnya dari situ. Dengan segera ia menemukan gagasan. "Jing Gege," katanya. "Pegang tanganku." Guo Jing 
+memegang tangan kirinya erat-era. Diiringi suara ceburan Huang Rong lenyap di bawah permukaan air.
 
-Huang Rong dove toward the mast; she pulled down the sail rope, then wound it
-around the reef. Next, her hands alternately pulled the sail rope until she got about
-twenty ‘zhang’s of rope; then she took out her dagger and cut the rope down.
-Afterwards she extended her arm, calling the female eagle to perch on her shoulder.
+Guo Jing kaget, ia melihat Huang Rong menyelam ke arah perahu yang sedang tenggelam, ia buru-buru berjongkok sampai 
+bagian atas tubuhnya juga tercelup ke dalam air. Ia merentangkan tangannya sejauh mungkin sementara kakinya menjepit 
+sebuah tonjolan batu karang erat-erat. Dengan segenap tenaga tangan kanannya memegang pergelangan kiri Huang Rong, kalau 
+arus air terlalu kuat dan pegangannya lolos, maka Huang Rong bisa jadi tidak akan pernah bisa naik lagi.
 
-By now the pair of eagles was grown and they were quite heavy. Guo Jing was afraid
-Huang Rong could not take it, so he extended his arm to take the eagle. Huang Rong
-wound the end of the rope to the female eagle’s foot, she pointed to the big willow tree
-and made a hand signal telling the eagle to fly.
+Huang Rong menyelam ke arah tiang layar, ia menarik tali tambang layar, lalu melilitkannya ke batu karang. Berikutnya, 
+tangannya secara bergantian menarik tali itu sampai ia mendapatkan sekitar dua puluh _zhang_ tali, lalu ia mengambil belatinya
+dan memotong tali itu. Setelah itu ia menjulurkn tangannya untuk memanggil elang betina untuk mencengkeram bahunya.
 
-The eagle took the rope and flew in circle several times above the willow tree, then
-flew back. Huang Rong anxiously said, “Ay! I told you to fly around the tree before com-
-ing back.” But of course the eagle did not understand what she said, so Huang Rong
-sighed anxiously. They tried again and on the eight try the eagle coincidentally flew
-around the tree and came back. Jing and Rong two people were delighted; they pulled
-the rope to tighten it, then firmly tied the other end to the protruding rock on the reef.
+Saat ini sepasang elang itu sudah tumbuh besar, dan bobot mereka cukup berat. Guo Jing takut Huang Rong tidak sanggup 
+menahannya, maka ia mengulurkan tangan untuk menangkap elang. Huang Rong melilitkan ujung tali ke kaki elang betina, ia 
+menunjuk ke arah pohon Willow besar dan membuat isyarat tangan memerintahkan elang itu untuk terbang.
 
-**Last line was Page 30 in PDF**
+Si elang segera mengambil tali dan terbang berputar-putar beberapa kali di atas pohon itu, lalu terbang kembali. Huang Rong 
+dengan cemas berkata, "Aih! Aku menyuruhmu terbang mengelilingi pohon itu sebelum kembali." Tapi tentu saja elang itu 
+tidak memahami ucapannya, karena itu Huang Rong menghela nafas dengan cemas. Mereka terus mencoba dan pada kali ke delapan
+secara kebetulan elang itu terbang mengitari pohon Willow lalu kembali. Guo Jing dan Huang Rong sangat gembira, mereka 
+menarik tambang untuk mempererat ikatannya, lalu mengikatkan ujung lainnya di tonjolan batu karang.
+
+“Rong’er, you go first,” Guo Jing said.
+
+“No,” Huang Rong replied, “I am staying with you. Let her go first.”
+
+Ying Gu stared hard at them. Without saying anything using both hands she pulled her-
+self along the rope, coming ashore.
+
+Huang Rong laughed, “This is my way of having fun when I was little. Master Guo,
+please be generous with your rewards!” With one leap she landed on the tight rope and
+utilizing her lightness kungfu to the fullest she walked along the rope just like a tight-
+rope walker; brandishing her bamboo stick, traversing the great waves of the rushing
+river below, toward the willow tree on the shore.
+
+Guo Jing had not learned the same trick, he was afraid to make a wrong step, so he did
+not dare to fool around like her. Just like Ying Gu, he used both hands to pull himself
+hanging on the rope, heading to the shore.
+
+He was still about several ‘zhang’s from the shore when suddenly he heard Huang Rong
+called out, “Hey, where are you going?” She sounded baffled. Guo Jing was afraid Ying
+Gu had not come to her senses and did something foolish, so he sped up and before
+even arrived at the willow tree he jumped down.
+
+Huang Rong pointed to the south and said, “She is leaving.”
+
+Guo Jing focused his eyes and saw Ying Gu was running with all her might over the
+rocky mountain path. “Her mind is confused, I am afraid she would hurt herself. Let us
+pursue her,” he said.
+
+“All right!” Huang Rong said; lifting up her legs she was ready to run, but suddenly her
+legs went weak and she fell sitting down, shaking her head.
+
+Guo Jing knew that she had used excessive strength after the injury; she was exhausted
+and did not have enough energy to run. “Just sit here and take a rest, I will pursue her
+and take her back,” he said. Immediately he ran toward the direction Ying Gu was last
+seen; but after crossing a plain in front of him was a fork on the road going three sepa-
+rate directions. Ying Gu’s shadow was nowhere to be seen; he did not know which way
+she took. Here the rocks were big, the grass reached his chest; everywhere he looked he
+did not see anybody else. Meanwhile the sun was setting behind the mountain, the sky
+was turning dark; he was afraid Huang Rong would be worried over him, so he decided
+to go back.
+
+Two people spent the night among the rocks, hungry and tired. At daybreak they woke
+up and started to walk along the small pathway by the river banks. They had to find
+their little red horse before coming back to the main road.
+
+After walking for half a day they found a small inn by the roadside; they bought three
+chickens, one for them to eat, while with the other two they fed their eagles. The pair of
+eagles perched on top of a tall tree, eating their cockerels that the feathers fluttered
+down like snowfall.
+
+They were eating heartily when suddenly the female eagle let out a long cry, dropped
+the half-eaten cockerel, raised its wing and flew to the north. The male eagle followed
+its mate with an anxious cry.
+
+“Those two eagles sound very angry, I wonder what they saw?” Guo Jing said.
+
+“Let’s take a look,” Huang Rong said. Two people ran along the main road. They saw the
+eagles fly in circles in the distance; suddenly they swooped down and soared up again.
+They circled several more times, then swooped down again.
+
+“They are fighting an enemy,” Guo Jing said.
+
+They sped up their steps and after about two, three ‘li’s they saw a row of houses stand-
+ing very close to each other; it was a small town. The pair of eagles circled above this
+town, it seemed like they had lost their enemy’s track. Guo Jing and Huang Rong hasted
+to the outskirt of the town; they tried to call their eagles down, but the eagles ignored
+them, they kept circling above as if they were still looking for the enemy.
+
+“I wonder with whom do these eagles have big enmity with,” Guo Jing said.
+
+Only some times later the pair of eagles finally did come down one after another. The
+male eagle’s left foot was dripping with blood from a really deep saber cut; looked like
+if its muscle and bone were not strong, that foot would be chopped through. The female
+eagle’s right claw was firmly grabbing a piece of blackish object. They looked closer and
+found out that it was a piece of human scalp, with a big clump of hair on it. It looked
+like the scalp was freshly plucked right from a head, with stains of blood still around it.
+
+Huang Rong applied some cut wound medicine on the male eagle’s foot. Guo Jing
+flipped over the scalp he took from the female eagle and muttered, “This pair of eagles
+is so tame ever since they were small; they had never harmed anybody unless they are
+provoked, how could they suddenly fight with someone?”
+
+“Something is amiss here,” Huang Rong said, “If we can find this person who lost the
+scalp, we’ll understand everything.”
+
+Two people went into town and found an inn to spend the night; then they went out
+separately to inquire. But that town was rather big, with quite a large number of people
+around; they investigated until dark, but did not find the slightest clue.
+
+“I’ve been everywhere to look for a person without a scalp, but could not find any-
+thing,” Guo Jing said.
+
+Huang Rong smiled, “A person without scalp could always wear a hat to cover his
+head,” she said.
+
+“Ah!” Guo Jing exclaimed, suddenly enlightened. He remembered seeing quite a lot of
+people wearing hat in town, but of course he could not take their hats off one by one to
+take a look.
+
+By daybreak the pair of eagles came back with their little red horse. Guo Jing and
+Huang Rong were worried about Hong Qigong’s injury, also the martial art match at the
+Misty Rain Tavern on the mid-autumn festival was drawing near, besides, the enmity
+the eagles had with whoever was not that important, so they decided to start their jour-
+ney to the east immediately.
+
+Two people rode on the speeding little red horse with the pair of eagles followed above
+them. Along the way Huang Rong kept talking and laughing, playing around, looking a
+lot more lively than she was; sometimes far into the night she was not willing to take a
+rest. Guo Jing knew she was exhausted, he often urged her to take a rest, but Huang
+Rong simply ignored him. Sometimes late at night she sat cross-legged on the bed chit-
+chatting with him over some trivial matters.
+
+One day from the western Jiangnan road they arrived at the southern road within the
+Zhejiang border. They had been riding the horse for a whole day. It was not too far
+from the Eastern Sea shore. They stopped by an inn to spend the night. Huang Rong
+borrowed a shopping basket from the innkeeper; she wanted to go to town to buy some
+meat and vegetables to prepare some dishes.
+
+“You are tired after traveling the whole day,” Guo Jing tried to persuade her, “Let us just
+eat in the restaurant here.”
+
+“I want to cook for you,” Huang Rong replied, “Don’t you like my cooking anymore?”
+
+“Naturally I like your cooking,” Guo Jing said, “But I want you to take a lot of rest. Wait
+till you are well, then you can cook for me. It won’t be too late, will it?”
+
+“Wait till I am well; at that time ...” Huang Rong said. Her arm carried the shopping bas-
+ket, one foot had already stepped outside the room, she paused as if she was startled.
+
+Guo Jing did not understand her thought; he gently pulled the shopping basket from
+her arm and said, “That’s right. Wait till we find Shifu, then we can enjoy the food you
+prepare together.”
+
+Huang Rong stared blankly for half a day. Finally she returned to the bed and soon she
+looked like she was asleep. The innkeeper came with their food. Guo Jing called her to
+eat. Huang Rong jumped out of bed at once and said with a laugh, “Jing Gege, we won’t
+eat this food, come with me.”
+
+Guo Jing complied and followed her out of the inn, they walked toward downtown.
+Huang Rong randomly picked a house with white fence wall and black door, a rich
+family’s house. They circled to the back and leaped over the wall, broke into the house.
+Guo Jing did not know what was going on, but he followed her nonetheless.
+Straightaway Huang Rong went to the front hall only to see the hall was bright with
+candles; the host was having a party.
+
+“Wonderful!” Huang Rong called out in delight, “I picked the right house.” Giggling and
+walking forward she shouted loud and clear, “Everybody get out of my way!”
+
+There were three banquet tables in the hall; the host and about his thirty guests were
+startled. They saw her as a beautiful looking young girl; they looked at each other, puz-
+zled. Huang Rong casually seized a fat man, her foot moved to trip that fat man, send-
+ing him tumbling to the floor. “You still don’t want to scramble?” she said with a laugh.
+
+The guests scrambled at once in great confusion. The host cried out, “Guards! Where
+are the guards?”
+
+Amidst the commotion two martial art instructors led about a dozen villagers with
+sabers and sticks in their hands came rushing in. With a laugh Huang Rong rushed forward 
+and with two moves she flattened the two instructors. She snatched a saber and
+brandished it, creating a bright white light, pretending she was about to make a kill.
+The guests screamed in terror; they staggered along and running against each other
+trying to escape.
+
+As the host saw the unfavorable situation, he tried to slip away; but Huang Rong
+reached out and pulled his beard, her right hand brandished the saber as if she was go-
+ing to chop him away. The host was so scared that he dropped to his knees and with a
+trembling voice said, “Nu ... Nu Da Wang [lit. female big king; ‘Da Wang’ was how the
+people addressed a robber], Good ... Good Miss; you want gold or silver, I will certainly
+present everything to you. Please just spare my old life ...”
+
+Huang Rong laughed, “Who wants your money?” she said, “I want you to accompany us
+to drink.” Grabbing his beard with her left hand she pulled him up. The host was in
+pain but he did not dare to cry out. Huang Rong pulled Guo Jing along to sit at the head
+table.
+
+“Everybody sit down!” Huang Rong ordered, “Why are you still standing?” Raising the
+saber in her hand she hacked down and the saber stuck on the table.
+
+The guests were startled and scared, they crowded around the other two tables, nobody
+dared to sit at the head table.
+
+Huang Rong shouted, “You don’t want to accompany me drinking, do you? Whoever
+don’t come over, I’ll butcher him first!”
+
+Everybody rushed forward, shoving and elbowing one another, causing seven, eight
+chairs to tumble over. Huang Rong shouted again, “You are not three years old, are
+you? Why can’t you sit nicely?”
+
+Still shoving and elbowing one another the guests scrambled over and after half a day
+they finally managed to sit nicely around the three banquet tables.
+
+Huang Rong poured herself a cup of wine and gulped it down in one go. “What kind of
+party is this?” she asked the host, “Anybody died in your family? How many have
+died?”
+
+The host stammered, “Actually, a child was born for me in my later years. Today he is
+one month old, so I invited friends, relatives and close neighbors to celebrate.”
+
+Huang Rong laughed, “That’s wonderful! Let me take a look at your child,” she said.
+
+The host turned pale; he was afraid Huang Rong would harm the child, but seeing the
+saber stuck on the table he did not dare to refuse; he ordered the wet nurse to bring the
+child out.
+
+Huang Rong held the child in her arms; she looked at his small face under the candle-
+light, and then she looked up to the host. Leaning her head sideways she said, “He
+doesn’t look the least bit like you; are you sure he is your child?”
+
+The host looked awkward; his whole body quivered, he said, “Yes, yes!” It was unclear
+if he was saying that the child was his, or he was saying, “What Miss said was true.” The
+guests felt funny, but nobody dared to laugh.
+
+Huang Rong took out a gold ingot from her pocket and gave it to the wet nurse; she also
+handed over the child back to her. “It’s a small gift. Just consider it a first meeting gift
+from his maternal grandmother,” she said.
+
+Everybody could see that she is very young, but she called herself a grandmother; they
+could also see her grand appearance, she looked both heroic and rich; they looked at
+each other.
+
+The host was overjoyed with this unexpected turn of events, he repeatedly expressed
+his thanks.
+
+“Come,” Huang Rong said, “I’ll toast you one bowl!” She took a big bowl and poured
+wine to the brim, shoving it in front of the host.
+
+The host said, “This old man’s drinking capacity is shallow. Miss, please forgive me.”
+
+Huang Rong raised her beautiful eyebrows, stretched out her hand to pull his beard.
+“Are you or are you not going to drink?” she barked.
+
+The host had no choice but to raise his bowl and ‘glug, glug’ he drank the whole bowl
+down.
+
+“That’s right!” Huang Rong laughed, “Now we are having fun. Come, we’ll have drink-
+ing stories.”
+
+If she wanted to have drinking stories, who at the banquet table dared to refuse? But
+the guests around the table were not rich merchant or educated people, only peasants
+and villagers, how could she find a true scholar among them? Everybody was trem-
+bling with fear trying to make up some wild stories.
+
+After a while Huang Rong became impatient and shouted loudly, “Everybody stands
+aside!”
+
+Like they had just received pardon everybody scrambled to stand up. Suddenly ‘boom!’
+the host fell backward on his chair. Turned out he was totally drunk and could not
+stand up anymore. Huang Rong burst out in laughter. She kept drinking wine and talk-
+ing with Guo Jing as if there was nobody else around, letting the guests helplessly
+standing on the side just watching them.
+
+They were eating and drinking until the first watch of the night. Several times Guo Jing
+tried to persuade her and finally Huang Rong had enough and was willing to leave.
+
+Returning to their inn Huang Rong asked with a laugh, “Jing Gege, are you having fun
+today?”
+
+Guo Jing replied, “Without reasons you scared people to their deaths; why bother to
+come in the first place?”
+
+“I am looking for my own well-being and enjoyment,” Huang Rong said, “Why would I
+bother over other people’s life and death?”
+
+Guo Jing was startled; he felt her manner of speaking was rather unusual, but momen-
+tarily he could not figure out the profound meaning behind those words.
+
+Huang Rong suddenly said, “I want to go out and take a walk. Are you coming?”
+
+“It’s the middle of the night,” Guo Jing said, “Where do you want to go?”
+
+“I think that child is amusing,” Huang Rong said, “Grandmother wants to hold him and
+play with him for a few days; then I’ll give him back to his family.”
+
+“How can you do that?” Guo Jing anxiously said.
+
+Huang Rong only smiled and headed out the door, leaping over the wall. Guo Jing
+hastily overtook her, pulled her arm trying to stop her, “Rong’er, you have played
+around for along time,” he said, “Don’t you have enough?”
+
+“Definitely not enough,” Huang Rong stood still and replied. She paused for a second
+then continued, “I want you to keep me company. Only then will I have enough fun. In
+a few more days you will leave me, you will be with that Princess Huazheng; she defi-
+nitely won’t let you see me again. Our time together is numbered. Each day that passed
+means one less day I am with you. I want to make one day lasts like two days, like three
+days, like four days. Still it’s not enough for me. Jing Gege, I don’t want to sleep at night,
+I want to play around and talk with you. Do you understand my feelings? Please don’t
+try to stop me.”
+
+Guo Jing grabbed her hands tight, he felt deep compassion and love. “Rong’er,” he said,
+“I am so dumb, I have never realized you have this kind of love to me. I ... I ...”
+Speaking to this point he actually did not know what else to say.
+
+Huang Rong smiled slightly. “Father used to teach me to read many classic poems about
+anxiety, about hatred, and the like. I only know that he missed my departed mother,
+that’s why he loved to read about those kinds of things. Today I discovered that happi-
+ness and joy only come for a moment, but pain and suffering are the matters of a
+lifetime.”
+
+The crescent moon rose atop the willow tree, the night was as cold as the water, gentle
+breeze brushed their clothes. Initially Guo Jing was ignorant, even though he knew
+Huang Rong’s deep feelings toward him, he did not realize she loved him this much. As
+he listened to her speaking, everything that happened all throughout that day became
+clear to him. He said in his heart, “I am a crude and straightforward man. In the future
+I won’t be with her. Although I will certainly think about her often, miss her, eventually
+I will get over her. But what about her? She will live alone on the Peach Blossom Island
+with only her father to keep her company. Won’t she be lonely?” He thought further,
+“Someday her father will die, then only some deaf and mute servants will accompany
+her. She loves to have new ideas, doing new things. With nobody to accompany her,
+won’t she die of boredom?”
+
+Thinking about these things his body trembled involuntarily. His grip on her hands
+tightened, his eyes stared hard at her face. “Rong’er,” he said, “Even if the sky falls
+down, I want to be with you on the Peach Blossom Island for as long as I live!”
+
+Huang Rong trembled, she raised her head and said, “You ... what did you say?”
+
+Guo Jing said, “I don’t care about Genghis Khan, about Princess Huazheng. All my life I
+want to be with you.”
+
+Huang Rong let out a soft cry and buried her head in his bosom. Guo Jing stretched out
+his arms and embraced her tightly. This matter had been vexing him for a while. This
+moment, ignoring everything else he suddenly made up his mind; his heart felt happy
+and relieved. Two people hugged each other tightly; they had forgotten everything else
+around them.
+
+After a while Huang Rong gently asked, “What about your mother?”
+
+“I will fetch her and take her to the Peach Blossom Island,” Guo Jing replied.
+
+“Aren’t you afraid of your master, Jebeh, and your sworn brother Tuolei?” Huang Rong
+asked again.
+
+“They love me very much, but I can’t have a divided heart,” Guo Jing answered.
+
+“What about your six masters of Jiangnan? What about Ma Daozhang [Taoist Priest],
+Qiu Daozhang? What will they say?” Huang Rong asked.
+
+Guo Jing heaved a sigh and said, “They will surely be enraged, but I will slowly talk to
+them earnestly. Rong’er, you must not leave me, I also won’t leave you.”
+
+Huang Rong said with a laugh, “I have an idea. We can go hiding on the Peach Blossom
+Island and do not come out forever. My father arranged the island in such a mysterious
+way that even if they come to the island, they won’t be able to find you and scold you.”
+
+Guo Jing thought this idea of hers might not be appropriate; he was about to ask her of
+a better idea when suddenly they heard footsteps about a dozen ‘zhang’s away outside
+the room. Two night-walkers were using their lightness kungfu rushing from the south
+heading north. One of them said, “The Old Urchin has fallen into Brother Peng’s trick;
+we don’t have to be afraid of him. Let us go quickly.”
+
+**Last line was Page 34 in PDF**
 
 
