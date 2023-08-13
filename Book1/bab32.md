@@ -7,8 +7,6 @@
 
 ***
 
-**WARNING: These are drafts**
-
 Mu Nianci membiarkan Huang Rong memegang tangan kanannya, ia memandangi rontokan kelopak bunga yang terapung di permukaan 
 air sambil berkata, "Waktu melihatnya membunuh Ouyang Ke, kupikir dia berniat bertobat. Lagipula aku melihat dua orang 
 anggota Kai Pang sangat hormat kepadanya ketika mereka pergi ke barat. Aku pernah ketemu kedua paman itu sebelumnya,

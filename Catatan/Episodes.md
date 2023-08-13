@@ -37,3 +37,8 @@ tentunya bisa dimengerti, ini adalah 'The Legend', dan bukan catatan sejarah.
 
 _Lengkapi uraian ini dengan fakta-fakta penting lainnya..._
 
+
+Ilustrasi untuk Bab 33 dalam bentuk video:
+
+[![Shangren Ling Zhi dan Huang Rong](images/lingzhi-dan-huang-rong.jpg)](https://youtube.com/clip/UgkxTkM7TIoTl7lpaYqqKuG0xDUM9pJ0rHbV)
+
