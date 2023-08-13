@@ -684,6 +684,8 @@ Saat itu Ying Gu sudah menyapu bersih semua anggota Sekte Telapak Besi, kecuali 
 Ia melihat Guo Jing dan Huang Rong tidak bisa unggul, ia berkata dengan dingin, "Chou Yatou[^chou-yatou], minggir, 
 aku datang!"
 
+[^chou-yatou]: Chou Yatou (臭丫头), secara literal berarti 'Anak perempuan yang berbau busuk'. Istilah ini bisa diterjemahkan secara sederhana menjadi 'Bocah tengik'.
+
 Ketika mendengar nada menghina dalam seruan itu Huang Rong tak dapat menahan amarahnya, tongkat bambunya bergerak ke depan dan 
 ia melancarkan serangan bertubi-tubi, sementara kakinya terus bergerak maju. Ketika Qiu Qianren melangkah ke samping untuk 
 menghindar, Huang Rong melompat mundur dua langkah sambil menarik jubah Guo Jing dan berkata, "Biarkan dia bertarung."
@@ -872,356 +874,306 @@ tidak memahami ucapannya, karena itu Huang Rong menghela nafas dengan cemas. Mer
 secara kebetulan elang itu terbang mengitari pohon Willow lalu kembali. Guo Jing dan Huang Rong sangat gembira, mereka 
 menarik tambang untuk mempererat ikatannya, lalu mengikatkan ujung lainnya di tonjolan batu karang.
 
-“Rong’er, you go first,” Guo Jing said.
-
-“No,” Huang Rong replied, “I am staying with you. Let her go first.”
-
-Ying Gu stared hard at them. Without saying anything using both hands she pulled her-
-self along the rope, coming ashore.
-
-Huang Rong laughed, “This is my way of having fun when I was little. Master Guo,
-please be generous with your rewards!” With one leap she landed on the tight rope and
-utilizing her lightness kungfu to the fullest she walked along the rope just like a tight-
-rope walker; brandishing her bamboo stick, traversing the great waves of the rushing
-river below, toward the willow tree on the shore.
-
-Guo Jing had not learned the same trick, he was afraid to make a wrong step, so he did
-not dare to fool around like her. Just like Ying Gu, he used both hands to pull himself
-hanging on the rope, heading to the shore.
-
-He was still about several ‘zhang’s from the shore when suddenly he heard Huang Rong
-called out, “Hey, where are you going?” She sounded baffled. Guo Jing was afraid Ying
-Gu had not come to her senses and did something foolish, so he sped up and before
-even arrived at the willow tree he jumped down.
-
-Huang Rong pointed to the south and said, “She is leaving.”
-
-Guo Jing focused his eyes and saw Ying Gu was running with all her might over the
-rocky mountain path. “Her mind is confused, I am afraid she would hurt herself. Let us
-pursue her,” he said.
-
-“All right!” Huang Rong said; lifting up her legs she was ready to run, but suddenly her
-legs went weak and she fell sitting down, shaking her head.
-
-Guo Jing knew that she had used excessive strength after the injury; she was exhausted
-and did not have enough energy to run. “Just sit here and take a rest, I will pursue her
-and take her back,” he said. Immediately he ran toward the direction Ying Gu was last
-seen; but after crossing a plain in front of him was a fork on the road going three sepa-
-rate directions. Ying Gu’s shadow was nowhere to be seen; he did not know which way
-she took. Here the rocks were big, the grass reached his chest; everywhere he looked he
-did not see anybody else. Meanwhile the sun was setting behind the mountain, the sky
-was turning dark; he was afraid Huang Rong would be worried over him, so he decided
-to go back.
-
-Two people spent the night among the rocks, hungry and tired. At daybreak they woke
-up and started to walk along the small pathway by the river banks. They had to find
-their little red horse before coming back to the main road.
-
-After walking for half a day they found a small inn by the roadside; they bought three
-chickens, one for them to eat, while with the other two they fed their eagles. The pair of
-eagles perched on top of a tall tree, eating their cockerels that the feathers fluttered
-down like snowfall.
-
-They were eating heartily when suddenly the female eagle let out a long cry, dropped
-the half-eaten cockerel, raised its wing and flew to the north. The male eagle followed
-its mate with an anxious cry.
-
-“Those two eagles sound very angry, I wonder what they saw?” Guo Jing said.
-
-“Let’s take a look,” Huang Rong said. Two people ran along the main road. They saw the
-eagles fly in circles in the distance; suddenly they swooped down and soared up again.
-They circled several more times, then swooped down again.
-
-“They are fighting an enemy,” Guo Jing said.
-
-They sped up their steps and after about two, three ‘li’s they saw a row of houses stand-
-ing very close to each other; it was a small town. The pair of eagles circled above this
-town, it seemed like they had lost their enemy’s track. Guo Jing and Huang Rong hasted
-to the outskirt of the town; they tried to call their eagles down, but the eagles ignored
-them, they kept circling above as if they were still looking for the enemy.
-
-“I wonder with whom do these eagles have big enmity with,” Guo Jing said.
-
-Only some times later the pair of eagles finally did come down one after another. The
-male eagle’s left foot was dripping with blood from a really deep saber cut; looked like
-if its muscle and bone were not strong, that foot would be chopped through. The female
-eagle’s right claw was firmly grabbing a piece of blackish object. They looked closer and
-found out that it was a piece of human scalp, with a big clump of hair on it. It looked
-like the scalp was freshly plucked right from a head, with stains of blood still around it.
-
-Huang Rong applied some cut wound medicine on the male eagle’s foot. Guo Jing
-flipped over the scalp he took from the female eagle and muttered, “This pair of eagles
-is so tame ever since they were small; they had never harmed anybody unless they are
-provoked, how could they suddenly fight with someone?”
-
-“Something is amiss here,” Huang Rong said, “If we can find this person who lost the
-scalp, we’ll understand everything.”
-
-Two people went into town and found an inn to spend the night; then they went out
-separately to inquire. But that town was rather big, with quite a large number of people
-around; they investigated until dark, but did not find the slightest clue.
-
-“I’ve been everywhere to look for a person without a scalp, but could not find any-
-thing,” Guo Jing said.
-
-Huang Rong smiled, “A person without scalp could always wear a hat to cover his
-head,” she said.
-
-“Ah!” Guo Jing exclaimed, suddenly enlightened. He remembered seeing quite a lot of
-people wearing hat in town, but of course he could not take their hats off one by one to
-take a look.
-
-By daybreak the pair of eagles came back with their little red horse. Guo Jing and
-Huang Rong were worried about Hong Qigong’s injury, also the martial art match at the
-Misty Rain Tavern on the mid-autumn festival was drawing near, besides, the enmity
-the eagles had with whoever was not that important, so they decided to start their jour-
-ney to the east immediately.
-
-Two people rode on the speeding little red horse with the pair of eagles followed above
-them. Along the way Huang Rong kept talking and laughing, playing around, looking a
-lot more lively than she was; sometimes far into the night she was not willing to take a
-rest. Guo Jing knew she was exhausted, he often urged her to take a rest, but Huang
-Rong simply ignored him. Sometimes late at night she sat cross-legged on the bed chit-
-chatting with him over some trivial matters.
-
-One day from the western Jiangnan road they arrived at the southern road within the
-Zhejiang border. They had been riding the horse for a whole day. It was not too far
-from the Eastern Sea shore. They stopped by an inn to spend the night. Huang Rong
-borrowed a shopping basket from the innkeeper; she wanted to go to town to buy some
-meat and vegetables to prepare some dishes.
-
-“You are tired after traveling the whole day,” Guo Jing tried to persuade her, “Let us just
-eat in the restaurant here.”
-
-“I want to cook for you,” Huang Rong replied, “Don’t you like my cooking anymore?”
-
-“Naturally I like your cooking,” Guo Jing said, “But I want you to take a lot of rest. Wait
-till you are well, then you can cook for me. It won’t be too late, will it?”
-
-“Wait till I am well; at that time ...” Huang Rong said. Her arm carried the shopping bas-
-ket, one foot had already stepped outside the room, she paused as if she was startled.
+"Rong'er, kau berangkat dulu," kata Guo Jing.
 
-Guo Jing did not understand her thought; he gently pulled the shopping basket from
-her arm and said, “That’s right. Wait till we find Shifu, then we can enjoy the food you
-prepare together.”
+"Tidak," jawab Huang Rong. "Aku tetap bersamamu. Biar dia jalan dulu."
 
-Huang Rong stared blankly for half a day. Finally she returned to the bed and soon she
-looked like she was asleep. The innkeeper came with their food. Guo Jing called her to
-eat. Huang Rong jumped out of bed at once and said with a laugh, “Jing Gege, we won’t
-eat this food, come with me.”
+Ying Gu menatap mereka lekat-lekat. Tanpa mengatakan apa-apa, dengan menggunakan kedua tangannya ia menarik dirinya 
+di sepanjang tali itu, menuju ke tepian.
 
-Guo Jing complied and followed her out of the inn, they walked toward downtown.
-Huang Rong randomly picked a house with white fence wall and black door, a rich
-family’s house. They circled to the back and leaped over the wall, broke into the house.
-Guo Jing did not know what was going on, but he followed her nonetheless.
-Straightaway Huang Rong went to the front hall only to see the hall was bright with
-candles; the host was having a party.
+Huang Rong tertawa. "Ini caraku bermain-main waktu masih kecil. Guo Shaoye, jangan pelit kalau kasih hadiah!" Dengan sebuah 
+lompatan ia hinggap di atas tali dan dengan menggunakan ilmu meringankan tubuhnya ia berjalan di sepanjang tali itu seperti 
+seorang pemain sirkus, mengayun-ayunkan tongkat bambunya, melintasi ombak besar dari sungai di bawahnya, menuju ke arah 
+pohon Willow di tepian.
 
-“Wonderful!” Huang Rong called out in delight, “I picked the right house.” Giggling and
-walking forward she shouted loud and clear, “Everybody get out of my way!”
+Guo Jing tidak pernah mempelajari cara itu, ia takut akan salah melangkah, jadi ia tidak berani bermain-main seperti 
+Huang Rong. Seperti cara Ying Gu, ia menggunakan kedua tangannya untuk menarik dirinya merapat ke tali, menuju ke tepian.
 
-There were three banquet tables in the hall; the host and about his thirty guests were
-startled. They saw her as a beautiful looking young girl; they looked at each other, puz-
-zled. Huang Rong casually seized a fat man, her foot moved to trip that fat man, send-
-ing him tumbling to the floor. “You still don’t want to scramble?” she said with a laugh.
+Ia masih sekitar beberapa _zhang_ dari tepian ketika tiba-tiba telinganya mendengar Huang Rong berseru, 
+"Hei, kau mau kemana?" Suaranya terdengar bingung. Guo Jing kuatir pikiran Ying Gu terganggu dan melakukan sesuatu yang 
+nekad, jadi ia mempercepat gerakannya, dan bahkan sebelum mencapai pohon Willow ia sudah melompat turun.
 
-The guests scrambled at once in great confusion. The host cried out, “Guards! Where
-are the guards?”
+Huang Rong menunjuk ke arah Selatan sambil berkata, "Dia pergi."
 
-Amidst the commotion two martial art instructors led about a dozen villagers with
-sabers and sticks in their hands came rushing in. With a laugh Huang Rong rushed forward 
-and with two moves she flattened the two instructors. She snatched a saber and
-brandished it, creating a bright white light, pretending she was about to make a kill.
-The guests screamed in terror; they staggered along and running against each other
-trying to escape.
+Guo Jing memfokuskan pandangannya dan melihat Ying Gu sedang berlari sekuat tenaga di sepanjang jalan setapak pegunungan.
+"Pikirannya sedang kacau, aku takut dia akan mencelakai dirinya sendiri. Ayo kita kejar dia," katanya.
 
-As the host saw the unfavorable situation, he tried to slip away; but Huang Rong
-reached out and pulled his beard, her right hand brandished the saber as if she was go-
-ing to chop him away. The host was so scared that he dropped to his knees and with a
-trembling voice said, “Nu ... Nu Da Wang [lit. female big king; ‘Da Wang’ was how the
-people addressed a robber], Good ... Good Miss; you want gold or silver, I will certainly
-present everything to you. Please just spare my old life ...”
+"Baik!" kata Huang Rong. Ia mengangkat kaki bersiap untuk lari, tetapi tiba-tiba kakinya melemah dan ia jatuh terduduk,
+menggelengkan kepalanya.
 
-Huang Rong laughed, “Who wants your money?” she said, “I want you to accompany us
-to drink.” Grabbing his beard with her left hand she pulled him up. The host was in
-pain but he did not dare to cry out. Huang Rong pulled Guo Jing along to sit at the head
-table.
+Guo Jing tahu ia telah menggunakan tenaga secara berlebihan setelah sembuh dari cedera, ia kelelahan dan tidak punya 
+cukup tenaga untuk berlari. "Duduk saja di sini dan beristirahat dulu, aku yang akan mengejar dia dan membawanya 
+kembali ke sini," katanya. Dengan segera ia berlari ke arah Ying Gu terakhir terlihat, tetapi setelah menyeberangi 
+lapangan terbuka di hadapannya ia sampai di sebuah simpang tiga. Bayangan Ying Gu tak terlihat lagi, ia tidak tahu 
+ke arah mana Ying Gu pergi. Di situ banyak batu-batu besar, rumput mencapai setinggi dada, memendang ke sekeliling 
+ia tidak melihat ada orang lain di situ. Sementara itu matahari mulai tenggelam di balik pegunungan, langit mulai gelap, 
+ia takut Huang Rong akan menguatirkan dirinya, jadi ia memutuskan untuk kembali.
 
-“Everybody sit down!” Huang Rong ordered, “Why are you still standing?” Raising the
-saber in her hand she hacked down and the saber stuck on the table.
+Kedua orang itu melewati malam di tengah bebatuan, lapar dan lelah. Ketika fajar menjelang mereka bangun dan mulai 
+berjalan menyusuri jalan setapak kecil di tepian sungai. Mereka harus menemukan kuda merah mereka sebelum kembali ke 
+jalan utama.
 
-The guests were startled and scared, they crowded around the other two tables, nobody
-dared to sit at the head table.
+Setelah berjalan lama mereka menemukan sebuah penginapan di tepi jalan, mereka membeli tiga ekor ayam, seekor untuk mereka 
+makan, sementara dua ekor lainnya mereka berikan kepada sepasang elang mereka. Sepasang elang itu hinggap di atas pohon
+tinggi, mereka makan ayam sampai bulu-bulunya berjatuhan seperti hujan salju.
 
-Huang Rong shouted, “You don’t want to accompany me drinking, do you? Whoever
-don’t come over, I’ll butcher him first!”
+Mereka sedang makan dengan lahap ketika tiba-tiba elang betina memekik panjang, menjatuhkan ayam yang baru dimakan separuh,
+merentangkan sayapnya dan terbang ke Utara. Si elang jantan mengikutinya dengan cemas sambil memekik keras.
 
-Everybody rushed forward, shoving and elbowing one another, causing seven, eight
-chairs to tumble over. Huang Rong shouted again, “You are not three years old, are
-you? Why can’t you sit nicely?”
+"Kedua elang itu sangat marah, entah apa yang mereka lihat?" kata Guo Jing.
 
-Still shoving and elbowing one another the guests scrambled over and after half a day
-they finally managed to sit nicely around the three banquet tables.
+"Ayo kita lihat," kata Huang Rong. Keduanya berlari di sepanjang jalan utama. Mereka melihat sepasang elang itu 
+terbang berputar-putar di kejauhan, tiba-tiba mereka meluncur turun dan naik lagi. Mereka berputar-putar beberapa kali,
+lalu turun lagi.
 
-Huang Rong poured herself a cup of wine and gulped it down in one go. “What kind of
-party is this?” she asked the host, “Anybody died in your family? How many have
-died?”
+"Mereka sedang berkelahi melawan musuh," kata Guo Jing.
 
-The host stammered, “Actually, a child was born for me in my later years. Today he is
-one month old, so I invited friends, relatives and close neighbors to celebrate.”
+Mereka mempercepat langkah, dan setelah dua-tiga _li_ mereka melihat ada barisan kuda berdiri berdekatan, itu sebuah kota kecil.
+Sepasang elang itu terbang berputar-putar di atas kota ini, tampaknya mereka kehilangan jejak musuh. Guo Jing dan Huang Rong 
+bergegas menuju lingar luar kota itu, mereka berusaha memanggil sepasang elang itu turun, tetapi elang-elang itu mengabaikan 
+mereka, mereka terus terbang berputar-putar di atas seolah-olah sedang mencari-cari musuh.
 
-Huang Rong laughed, “That’s wonderful! Let me take a look at your child,” she said.
+"Entah dengan siapa mereka bermusuhan," kata Guo Jing.
 
-The host turned pale; he was afraid Huang Rong would harm the child, but seeing the
-saber stuck on the table he did not dare to refuse; he ordered the wet nurse to bring the
-child out.
+Beberapa saat kemudian barulah sepasang elang itu turn satu persatu. Kaki elang jantan tampak berdarah karena terkena 
+sabetan golok yang cukup dalam, kelihatannya kalau saja otot dan tulangnya tidak cukup kuat, pastilah kaki itu sudah terbabat 
+putus. Cakar kanan elang betina tampak mencengkeram sebuah benda berwarna kehitaman. Mereka melihat lebih dekat, dan mendapati
+bahwa benda itu adalah potongan kulit kepala manusia, dengan segumpal besar rambut di atasnya. Sepertinya kulit kepala itu 
+dicabut paksa dari kepalanya, dengan noda darah masih tersisa di sekelilingnya.
 
-Huang Rong held the child in her arms; she looked at his small face under the candle-
-light, and then she looked up to the host. Leaning her head sideways she said, “He
-doesn’t look the least bit like you; are you sure he is your child?”
-
-The host looked awkward; his whole body quivered, he said, “Yes, yes!” It was unclear
-if he was saying that the child was his, or he was saying, “What Miss said was true.” The
-guests felt funny, but nobody dared to laugh.
-
-Huang Rong took out a gold ingot from her pocket and gave it to the wet nurse; she also
-handed over the child back to her. “It’s a small gift. Just consider it a first meeting gift
-from his maternal grandmother,” she said.
-
-Everybody could see that she is very young, but she called herself a grandmother; they
-could also see her grand appearance, she looked both heroic and rich; they looked at
-each other.
+Huang Rong mengoleskan obat luka di kaki elang jantan. Guo Jing membolak-balik kulit kepala yang diambilnya dari elang betina
+sambil bergumam, "Sepasang elang ini sangat jinak sejak masih kecil, meeka tidak akan melukai siapa pun kecuali kalau
+sengaja ditantang, bagaimana mungkin mereka tiba-tiba bermusuhan dengan manusia?"
 
-The host was overjoyed with this unexpected turn of events, he repeatedly expressed
-his thanks.
-
-“Come,” Huang Rong said, “I’ll toast you one bowl!” She took a big bowl and poured
-wine to the brim, shoving it in front of the host.
-
-The host said, “This old man’s drinking capacity is shallow. Miss, please forgive me.”
+"Ada sesuatu yang salah di sini," kata Huang Rong. "Kalau kita bisa menemukan orang yang kehilangan kulit kepala ini, maka 
+kita pasti akan memahami semuanya."
 
-Huang Rong raised her beautiful eyebrows, stretched out her hand to pull his beard.
-“Are you or are you not going to drink?” she barked.
+Keduanya memasuki kota dan menemukan sebuah penginapan untuk bermalam, lalu mereka keluar secara terpisah untuk 
+mencari informasi. Tetapi kota itu ternyata cukup besar, penduduknya cukup banyak, mereka menyelidiki sampai jauh malam,
+tetapi masih tidak menemukan petunjuk sedikitpun.
 
-The host had no choice but to raise his bowl and ‘glug, glug’ he drank the whole bowl
-down.
+"Aku sudah menjelajah kesana-kemari untuk menemukan orang tanpa kulit kepala, tapi tidak menemukan apa-apa," kata Guo Jing.
 
-“That’s right!” Huang Rong laughed, “Now we are having fun. Come, we’ll have drink-
-ing stories.”
+Huang Rong tersenyum. "Orang tanpa kulit kepala masih bisa memakai topi untuk menutupi kepalanya," katanya.
 
-If she wanted to have drinking stories, who at the banquet table dared to refuse? But
-the guests around the table were not rich merchant or educated people, only peasants
-and villagers, how could she find a true scholar among them? Everybody was trem-
-bling with fear trying to make up some wild stories.
+"Ah!" seru Guo Jing, mendadak ia tercerahkan. Ia teringat ada banyak orang memakai topi yang dilihatnya di kota itu,
+tapi tentu saja ia tidak bisa seenaknya melepaskan topi mereka untuk memeriksa kepalanya.
 
-After a while Huang Rong became impatient and shouted loudly, “Everybody stands
-aside!”
+Menjelang fajar sepasang elang itu kembali bersama kuda merah mereka. Guo Jing dan Huang Rong sangat menguatirkan 
+kondisi Hong Qigong, juga adu ilmu silat yang akan diadakan di Perayaan Pertengahan Musim Gugur sudah semakin dekat.
+Lagipula, permusuhan antara kedua elang itu dengan entah siapa sebetulnya tidak sepenting itu, maka mereka memutuskan 
+untuk segera mulai perjalanan ke Timur.
 
-Like they had just received pardon everybody scrambled to stand up. Suddenly ‘boom!’
-the host fell backward on his chair. Turned out he was totally drunk and could not
-stand up anymore. Huang Rong burst out in laughter. She kept drinking wine and talk-
-ing with Guo Jing as if there was nobody else around, letting the guests helplessly
-standing on the side just watching them.
+Keduanya menunggangi kuda merah kecil yang cepat itu, dengan sepasang elang mengikuti di atas mereka. Di sepanjang jalan 
+Huang Rong terus bicara dan tertawa, bermain-main, tampak lebih lincah dari biasanya. Kadang-kadang sampai jauh malam ia 
+tidak mau beristirahat. Guo Jing tahu ia kelelahan, ia seringkali memaksanya beristirahat, tapi Huang Rong mengabaikannya.
+Terkadang larut malam ia masih duduk bersila di atas pembaringan, mengobrol tentang hal-hal yang tidak penting.
 
-They were eating and drinking until the first watch of the night. Several times Guo Jing
-tried to persuade her and finally Huang Rong had enough and was willing to leave.
+Suatu hari dari bagian barat jalanan Jiangnan mereka tiba di bagian selatan di perbatasan Zhejiang. Mereka sudah berkuda 
+sepanjang hari. Tempat itu tidak terlalu jauh dari pantai Laut Timur. Mereka berhenti di sebuah penginapan untuk bermalam.
+Huang Rong meminjam keranjang belanja dari pengelola penginapan, ia ingin pergi ke kota untuk membeli daging dan sayuran 
+dan memasak makanan.
 
-Returning to their inn Huang Rong asked with a laugh, “Jing Gege, are you having fun
-today?”
+"Kau pasti lelah seharian di perjalanan," kata Guo Jing berusaha membujuknya. "Kita makan makanan restoran saja."
 
-Guo Jing replied, “Without reasons you scared people to their deaths; why bother to
-come in the first place?”
+"Aku ingin memasak untukmu," jawab Huang Rong. "Masa kau tidak suka lagi masakanku?"
 
-“I am looking for my own well-being and enjoyment,” Huang Rong said, “Why would I
-bother over other people’s life and death?”
+"Sudah tentu aku suka masakanmu," kata Guo Jing. "Tapi aku ingin kau banyak beristirahat. Tunggu sampai kesehatanmu 
+membaik, barulah kau memasak untukku. Itu masih belum terlambat, kan?"
 
-Guo Jing was startled; he felt her manner of speaking was rather unusual, but momen-
-tarily he could not figure out the profound meaning behind those words.
+"Tunggu sampai aku membaik, pada saat itu..." kata Huang Rong. Tangannya memegang keranjang belanjaan, salah satu kakinya
+sudah melangkah keluar ruangan, ia berhenti seolah-olah kaget.
 
-Huang Rong suddenly said, “I want to go out and take a walk. Are you coming?”
+Guo Jing tidak mengerti jalan pikirannya, ia dengan lembut menarik keranjang belanjaan dari tangannya dan berkata,
+"Betul. Tunggu sampai kita menemukan Shifu, lalu kita bisa sama-sama menikmati masakanmu."
 
-“It’s the middle of the night,” Guo Jing said, “Where do you want to go?”
+Huang Rong menatap kosong sampai lama. Akhirnya ia berbalik ke tempat tidur dan dengan segera ia tampak tertidur. Pelayan 
+penginapan datang membawa makanan mereka. Guo Jing memanggilnya untuk makan. Huang Rong dengan cepat melompat dari tempat tidur
+dan berkata sambil tertawa, "Jing Gege, kita tidak usah makan makanan ini, ayo kita pergi."
 
-“I think that child is amusing,” Huang Rong said, “Grandmother wants to hold him and
-play with him for a few days; then I’ll give him back to his family.”
+Guo Jing menurut dan mengikutinya keluar dari penginapan, mereka berjalan menuju kota. Huang Rong secara sembarangan memilih 
+sebuah rumah berdinding putih dengan pintu berwarna hitam, rumah keluarga kaya. Mereka berputar ke belakang rumah dan 
+melompati tembok, menyelinap ke dalam rumah. Guo Jing tidak tahu apa yang sedang terjadi, tetapi bagaimanapun juga 
+ia hanya mengikuti keinginan Huang Rong. Huang Rong langsung menuju ke arah bangunan depan, dan menemukan bahwa bangunan 
+itu terang benderang oleh cahaya lilin, rupanya tuan rumah sedang mengadakan pesta.
 
-“How can you do that?” Guo Jing anxiously said.
+"Luar biasa!" seru Huang Rong dengan gembira. "Pilihan bagus." Sambil cekikikan ia berjalan meju dan berseru dengan 
+suara nyaring dan jernih, "Minggir semua!"
 
-Huang Rong only smiled and headed out the door, leaping over the wall. Guo Jing
-hastily overtook her, pulled her arm trying to stop her, “Rong’er, you have played
-around for along time,” he said, “Don’t you have enough?”
+Di situ ada tiga meja perjamuan, tuan rumah bersama dengan sekitar tiga puluh tamunya terkejut. Mereka melihatnya 
+sebagai seorang gadis muda belia yang cantik, mereka saling berpandangan, bingung. Dengan santai Huang Rong menangkap 
+seorang pria gendut, kakinya bergerak menjegal pria itu, membuatnya jatuh terjungkal. "Kau masih tidak mau bertarung?" 
+katanya sambil tertawa.
 
-“Definitely not enough,” Huang Rong stood still and replied. She paused for a second
-then continued, “I want you to keep me company. Only then will I have enough fun. In
-a few more days you will leave me, you will be with that Princess Huazheng; she defi-
-nitely won’t let you see me again. Our time together is numbered. Each day that passed
-means one less day I am with you. I want to make one day lasts like two days, like three
-days, like four days. Still it’s not enough for me. Jing Gege, I don’t want to sleep at night,
-I want to play around and talk with you. Do you understand my feelings? Please don’t
-try to stop me.”
+Para tamu saling bertarung dalam kebingungan. Tuan rumah berteriak, "Pengawal! Mana pengawal!"
 
-Guo Jing grabbed her hands tight, he felt deep compassion and love. “Rong’er,” he said,
-“I am so dumb, I have never realized you have this kind of love to me. I ... I ...”
-Speaking to this point he actually did not know what else to say.
+Di tengah keributan itu seorang instruktur ilmu bela diri memimpin selusin penduduk setempat dengan golok dan tongkat 
+di tangan datang mendekat. Sambil tertawa Huang Rong menerjang maju, dan dalam dua jurus ia berhasil membekuk kedua 
+instruktur itu. Ia merebut sebuah golok dan mengayun-ayunkannya, menciptakan sinar putih berkilauan, pura-pura berniat 
+membunuh orang. Para tamu menjerit ngeri, mereka berlarian panik dan saling bertabrakan ketika berusaha melarikan diri.
 
-Huang Rong smiled slightly. “Father used to teach me to read many classic poems about
-anxiety, about hatred, and the like. I only know that he missed my departed mother,
-that’s why he loved to read about those kinds of things. Today I discovered that happi-
-ness and joy only come for a moment, but pain and suffering are the matters of a
-lifetime.”
+Ketika tuan rumah melihat situasi tidak menguntungkan itu, ia berusaha menyelinap pergi, tetapi Huang Rong mengulurkan 
+tangan untuk menarik jenggotnya. Tangan kanannya mengayun-ayunkan golok seolah-olah akan membacoknya. Tuan rumah begitu
+ketakutan, sampai-sampai ia menjatuhkan diri berlutut dan dengan suara gemetar berkata, "Nu... Nu Da Wang[^nu-dawang],
+Nona... Nona yang baik, kau mau perak atau emas, aku pasti akan memberikan semuanya untukmu. Mohon ampuni aku..."
 
-The crescent moon rose atop the willow tree, the night was as cold as the water, gentle
-breeze brushed their clothes. Initially Guo Jing was ignorant, even though he knew
-Huang Rong’s deep feelings toward him, he did not realize she loved him this much. As
-he listened to her speaking, everything that happened all throughout that day became
-clear to him. He said in his heart, “I am a crude and straightforward man. In the future
-I won’t be with her. Although I will certainly think about her often, miss her, eventually
-I will get over her. But what about her? She will live alone on the Peach Blossom Island
-with only her father to keep her company. Won’t she be lonely?” He thought further,
-“Someday her father will die, then only some deaf and mute servants will accompany
-her. She loves to have new ideas, doing new things. With nobody to accompany her,
-won’t she die of boredom?”
+[^nu-dawang]: Nu Da Wang (女大王) secara literal berarti 'Raja Perempuan'. Tetapi istilah 'Da Wang' ini biasanya dipakai untuk memanggil para perampok.
 
-Thinking about these things his body trembled involuntarily. His grip on her hands
-tightened, his eyes stared hard at her face. “Rong’er,” he said, “Even if the sky falls
-down, I want to be with you on the Peach Blossom Island for as long as I live!”
+Huang Rong tertawa. "Siapa yang mau uangmu?" katanya. "Aku ingin kau menemani kami minum-minum." Sambil merenggut 
+jenggotnya dengan tangan kiri, ia menarik tuan rumah itu bangkit. Tuan rumah merasa kesakitan tetapi tidak berani 
+bersuara. Huang Rong menarik Guo Jing untuk duduk bersama di meja utama. 
 
-Huang Rong trembled, she raised her head and said, “You ... what did you say?”
+"Semuanya duduk!" kata Huang Rong memerintah. "Kenapa kalian masih berdiri?" Ia mengangkat golok tinggi-tinggi, lalu 
+menghujamkannya sampai tertancap dalam-dalam ke atas meja.
 
-Guo Jing said, “I don’t care about Genghis Khan, about Princess Huazheng. All my life I
-want to be with you.”
+Para tamu terkejut dan ketakutan, mereka berkerumun di sekeliling dua meja lain, tak seorang pun berani duduk di meja utama.
 
-Huang Rong let out a soft cry and buried her head in his bosom. Guo Jing stretched out
-his arms and embraced her tightly. This matter had been vexing him for a while. This
-moment, ignoring everything else he suddenly made up his mind; his heart felt happy
-and relieved. Two people hugged each other tightly; they had forgotten everything else
-around them.
+Huang Rong berseru, "Kalian tidak mau menemaniku minum-minum ya? Siapa yang tidak datang mendekat, pasti akan kugorok 
+lebih dulu!"
 
-After a while Huang Rong gently asked, “What about your mother?”
+Semua orang bergegas maju, saling sikut dan mendorong, menyebabkan tujuh sampai delapan kursi jungkir balik. Huang Rong 
+berseru lagi, "Kalian bukan anak umur tiga tahunan, kan? Kenapa tidak bisa duduk dengan manis?"
 
-“I will fetch her and take her to the Peach Blossom Island,” Guo Jing replied.
+Masih saling sikut dan mendorong para tamu berserakan ke segala tempat, dan setelah agak lama barulah mereka bisa 
+duduk dengan tenang di seputar tiga meja perjamuan.
 
-“Aren’t you afraid of your master, Jebeh, and your sworn brother Tuolei?” Huang Rong
-asked again.
+Huang Rong menuangkan secawan arak untuk dirinya sendiri dan menghabiskan isinya sekali teguk. "Pesta macam apa ini?"
+tanyanya kepada tuan rumah. "Ada orang mati di rumahmu ya? Berapa orang yang mati?"
 
-“They love me very much, but I can’t have a divided heart,” Guo Jing answered.
+Tuan rumah gemetar. "Sebetulnya, ada bayi yang baru lahir di usia tuaku. Hari ini dia genap sebulan, jadi aku mengundang 
+teman-teman, kerabat dan tetangga dekat untuk merayakannya."
 
-“What about your six masters of Jiangnan? What about Ma Daozhang [Taoist Priest],
-Qiu Daozhang? What will they say?” Huang Rong asked.
+Huang Rong tertawa. "Luar biasa! Coba kulihat anakmu," katanya.
 
-Guo Jing heaved a sigh and said, “They will surely be enraged, but I will slowly talk to
-them earnestly. Rong’er, you must not leave me, I also won’t leave you.”
+Muka tuan rumah itu pucat pasi, ia takut Huang Rong akan mencelakai anaknya, tetapi setelah melihat golok yang 
+tertancap di atas meja ia tidak berani membantah, ia menyuruh pengasuh anaknya untuk membawa anak itu keluar.
 
-Huang Rong said with a laugh, “I have an idea. We can go hiding on the Peach Blossom
-Island and do not come out forever. My father arranged the island in such a mysterious
-way that even if they come to the island, they won’t be able to find you and scold you.”
+Huang Rong menggendong anak itu di tangannya, ia memandang wajah mungil itu di bawah cahaya lilin, dan kemudian ia 
+menatap tuan rumah. Sambil memiringkan kepalanya ke satu sisi ia berkata, "Dia sama sekali tidak mirip denganmu, kau yakin 
+ini anakmu?"
 
-Guo Jing thought this idea of hers might not be appropriate; he was about to ask her of
-a better idea when suddenly they heard footsteps about a dozen ‘zhang’s away outside
-the room. Two night-walkers were using their lightness kungfu rushing from the south
-heading north. One of them said, “The Old Urchin has fallen into Brother Peng’s trick;
-we don’t have to be afraid of him. Let us go quickly.”
+Tuan rumah tampak sangat tidak nyaman, sekujur tubuhnya gemetaran, ia berkata, "Ya, ya!" Tidak begitu jelas ia membenarkan
+bahwa anak itu memang anaknya, ataukah ia ingin mengatakan, "Yang Nona katakan memang benar." Para tamu merasa lucu, tetapi 
+tak seorang pun berani tertawa.
 
-**Last line was Page 34 in PDF**
+Huang Rong mengambil uang emas dari sakunya dan memberikannya kepada si pengasuh, ia juga mengembalikan bayi itu.
+"Ini hadiah kecil. Anggap saja hadiah untuk pertemuan pertama dari nenek luarnya[^nenek-luar]," katanya.
+
+[^nenek-luar]: Wai Zu Mu (外祖母), atau secara literal 'Nenek Luar', adalah panggilan bagi nenek dari pihak ibu. Orang-orang Tionghoa membedakan panggilan bagi kakek/nenek dari pihak ayah dan dari pihak ibu.
+
+Semua orang bisa melihat bahwa ia masih sangat muda, tetapi ia memanggil diri sendiri 'nenek', mereka juga bisa melihat 
+penampilannya yang anggun, ia tampak heroik dan kaya, mereka saling pandang dengan heran.
+
+Tuan rumah merasa sangat gembira dengan perubahan peristiwa itu, ia berulang kali mengungkapkan rasa terima kasihnya.
+
+"Mari," kata Huang Rong. "Aku bersulang untukmu!" Ia mengambil cawan besar dan menuangkan arak, mendorongnya ke hadapan 
+tuan rumah.
+
+Tuan rumah berkata, "Kemampuan minumku sangat rendah. Nona, mohon maaf."
+
+Huang Rong menaikkan alisnya yang indah, mebgulurkan tangan untuk menarik jenggotnya. "Kau mau minum atau tidak?"
+bentaknya.
+
+Tuan rumah tidak punya pilihan selain mengangkat cawannya dan 'Gluk, gluk' ia meneguk habis seisi cawan.
+
+"Bagus!" kata Huang Rong sambil tertawa. "Sekarang kita bersenang-senang. Ayo, kita mendongeng sambil minum-minum."
+
+Kalau ia ingin mendongeng sambil minum-minum, siapa di sekitar meja itu yang berani membantah? Tapi para tamu di 
+sekitar meja itu bukan pedagang kaya atau orang terpelajar, mereka hanya petani dan penduduk desa, mana bisa Huang Rong 
+menemukan orang terpelajar di antara mereka. Semua orang gemetar ketakutan, berusaha mengarang cerita asal-asalan.
+
+Setelah beberapa saat Huang Rong jadi tidak sabaran, ia berteriak nyaring, "Minggir semua!"
+
+Seperti menerima sebuah pengampunan, semua orang berlomba untuk bangkit berdiri. Tiba-tiba 'dukk!', tuan rumah 
+jatuh terjengkang di kursinya. Ternyata ia sangat mabuk dan tidak mampu berdiri lagi. Huang Rong tertawa 
+terbahak-bahak. Ia terus minum arak dan bicara kepada Guo Jing seolah-olah tidak ada orang lain di situ,
+membuat para tamu berdiri terpaku di sekeliling mereka dengan pasrah, hanya bisa menonton.
+
+Mereka terus makan dan minum sampai jam satu malam. Beberapa kali Guo Jing berusaha membujuknya dan akhirnya 
+Huang Rong merasa cukup dan bersedia pergi.
+
+Kembali ke penginapan Huang Rong bertanya sambil tertawa, "Jing Gege, apa kau merasa senang malam ini?"
+
+Guo Jing menjawab, "Tanpa alasan kau menakut-nakuti orang setengah mati, kenapa harus masuk ke situ?"
+
+"Aku mencari keselamatan dan kesenanganku sendiri," kata Huang Rong. "Kenapa aku harus memikirkan soal hidup-mati 
+orang lain?"
+
+Guo Jing terkejut, ia merasa sikapnya berbicara agak tidak biasa, tapi sementara itu ia tidak bisa menemukan 
+makna tertentu di balik ucapan itu.
+
+Huang Rong tiba-tiba berkata, "Aku ingin keluar dan berjalan-jalan. Kau mau ikut tidak?"
+
+"Ini sudah tengah malam," kata Guo Jing. "Kau mau pergi ke mana?"
+
+"Kupikir bayi itu lucu," kata Huang Rong. "Nenek ingin memeluknya dan bermain-main beberapa hari, lalu akan 
+kukembalikan ke keluarganya."
+
+"Mana bisa kau berbuat begitu?" kata Guo Jing dengan cemas.
+
+Huang Rong hanya tersenyum dan berjalan ke pintu, melompat melewati tembok. Guo Jing bergegas mengejarnya,
+menarik tangannya, berusaha mencegahnya. "Rong'er, kau sudah terlalu lama bermain-main," katanya. "Masa 
+belum puas juga?"
+
+"Pasti belum cukup," jawab Huang Rong sambil berdiri diam. Ia berhenti beberapa detik lalu melanjutkan, 
+"Aku ingin kau menemaniku. Hanya dengan begitu aku puas. Beberapa hari lagi kau akan meninggalkan aku, 
+kau akan bersama dengan Putri Huazheng itu. Sudah pasti dia tidak akan mengijinkanmu menemuiku lagi. Waktu 
+kita bersama-sama bisa dihitung dengan jari, entah tiga atau empat hari. Tetap saja tidak cukup bagiku. 
+Jing Gege, aku tidak ingin tidur malam, aku ingin bermain-main dan bicara denganmu. Kau mengerti perasaanku?
+Tolong jangan hentikan aku."
+
+Guo Jing menggenggam tangannya erat-erat, ia merasakan cinta dan perhatian yang sangat dalam. "Rong'er," katanya.
+"Aku ini sangat bodoh, aku tidak pernah menyadari kau punya cinta seperti ini kepadaku. Aku... aku..." Bicara 
+sampai di sini ia sebetulnya tidak tahu apa yang harus dikatakan lagi.
+
+Huang Rong tersenyum sedikit. "Ayah mengajarku untuk membaca banyak puisi klasik tentang kecemasan, kebencian,
+dan lain sebagainya. Aku hanya tahu sebetulnya dia merindukan ibuku yang sudah meninggal, karena itu dia suka 
+membaca tentang segala hal itu. Hari ini aku menemukan bahwa kebahagiaan dan kegembiraan hanya datang untuk 
+sementara, tetapi sakit dan penderitaan adalah masalah seumur hidup."
+
+Bulan purnama terbit di atas pohon Willow, udara malam itu sedingin air, hembusan angin lembut menyapu pakaian mereka.
+Semula Guo Jing tidak terlalu peduli, meskipun tahu perasaan Huang Rong kepadanya sangat dalam, tetapi ia tidak
+menyadari cinta Huang Rong kepadanya ternyata sedalam ini. Sementara mendengar ia bicara, semua yang terjadi sepanjang 
+hari itu menjadi jelas baginya. Dalam hati ia berkata, "Aku orang kasar yang selalu bicara langsung. Di masa depan
+aku tidak akan bersama dia. Meskipun aku akan sering memikirkan dia, pada akhirnya aku tetap akan melupakan dia. Tapi 
+bagaimana dengan dia? Dia akan hidup sendirian di Pulau Bunga Persik hanya dengan ayahnya. Masa dia tidak kesepian?"
+Ia berpikir lebih jauh, "Suatu hari nanti ayahnya pasti akan meninggal, lalu hanya beberapa orang pelayan bisu-tuli 
+yang menemaninya. Dia sangat suka hal-hal baru, melakukan segala hal baru. Tanpa ada orang yang menemaninya, bisa-bisa 
+dia mati bosan."
+
+Memikirkan semua itu tanpa sadar tubuhnya gemetar. Genggamannya ke tangan Huang Rong jadi lebih erat, matanya menatap 
+muka gadis itu lekat-lekat. "Rong'er," katanya. "Meskipun langit ambruk, aku ingin bersamamu di Pulau Bunga Persik 
+seumur hidupku!"
+
+Huang Rong gemetar, ia mengangkat kepalanya dan berkata, "Kau... kau bilang apa?"
+
+Guo Jing berkata, "Aku tidak peduli soal Genghis Khan, tentang Putri Huazheng. Sepanjang hidupku aku ingin bersamamu."
+
+Huang Rong terisak pelan dan membenamkan kepalanya di dada Guo Jing. Guo Jing mengulurkan tangan dan memeluknya erat-erat.
+Masalah ini sudah agak lama mengganggunya. Saat ini, dengan mengabaikan semua masalah lain ia tiba-tiba bertekad, hatinya 
+merasakan kebahagiaan dan kelegaan. Keduanya saling peluk dengan erat, mereka melupakan segala sesuatu di sekitar mereka.
+
+Setelah beberapa saat Huang Rong bertanya dengan lembut, "Bagaimana dengan ibumu?"
+
+"Aku akan menjemputnya dan membawanya ke Pulau Bunga Persik," jawab Guo Jing.
+
+"Masa kau tidak takut kepada gurumu, Jebe, dan saudara angkatmu, Tolui?" tanya Huang Rong lagi.
+
+"Mereka sangat mencintaiku, hatiku tidak boleh bercabang," jawab Guo Jing.
+
+"Lalu bagaimana dengan keenam gurumu yang dari Jiangnan? Bagaimana dengan Ma Daozhang, Qiu Daozhang? Apa yang 
+akan mereka katakan?" tanya Huang Rong.
+
+Guo Jing menghela nafas dan berkata, "Mereka pasti akan marah, tapi aku akan bicara perlahan-lahan sejujurnya.
+Rong'er, kau tidak boleh meninggalkan aku, aku juga tidak akan meninggalkanmu."
+
+Huang Rong berkata sambil tertawa, "Aku punya ide. Kita bisa bersembunyi di Pulau Bunga Persik dan tidak usah keluar 
+selamanya. Ayahku mengatur pulau dengan cara misterius, kalaupun mereka datang ke pulau, mereka tidak akan bisa 
+menemukan dan memarahimu."
+
+Guo Jing merasa gagasannya itu mungkin kurang pantas, ia baru hendak menanyakan apakah ia punya usul lain lagi
+ketika terdengar suara langkah kaki sekitar puluhan _zhang_ di luar ruangan. Dua orang pejalan kaki sedang 
+menggunakan ilmu meringankan tubuh dari arah selatan menuju ke utara. Salah seorang berkata, "Si Bocah Tua Nakal itu 
+sudah terebak oleh perangkap Saudara Peng, kita tidak usah takut kepadanya. Ayo cepat kita pergi."
 
 
