@@ -3,7 +3,7 @@
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |
-| ![Ilustrasi Bab 33](https://res.cloudinary.com/drzjshskk/image/upload/v1676693613/sdyxz/originals/loch-33_o2g4bn.jpg)  | _Huang Rong memaki, "Kau mau mati?" dan mendorong pelan bahu Linzhi Shangren. Tanpa menjawab biksu itu terjungkal ke tanah dengan mukanya menghadap ke atas, kaku dan tangannya tidak bergerak, masih tetap dalam posisi duduk bersila, ia tampak sangat aneh._  |
+| ![Ilustrasi Bab 33](https://res.cloudinary.com/drzjshskk/image/upload/v1676693613/sdyxz/originals/loch-33_o2g4bn.jpg)  | _Huang Rong memaki, "Kau mau mati?" dan mendorong pelan bahu Lingzhi Shangren. Tanpa menjawab biksu itu terjungkal ke tanah dengan mukanya menghadap ke atas, kaku dan tangannya tidak bergerak, masih tetap dalam posisi duduk bersila, ia tampak sangat aneh._  |
 
 ***
 
