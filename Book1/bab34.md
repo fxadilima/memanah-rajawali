@@ -32,7 +32,7 @@ punggung kuda, hanya untuk menemukan bahwa tulang belakangnya juga patah. Guo Ji
 dari kuda dan melompat ngeri karena melihat tangannya berlumuran darah. Darah itu telah berubah menjadi ungu kehitaman,
 tetapi bau darahnya masih ada. Tampaknya darah itu sudah berumur sekitar tiga-empat hari. Cepat-cepat ia membalikkan tubuh 
 kuda itu untuk memeriksanya lebih teliti, tetapi ia tidak melihat ada luka sedikitpun di sekujur tubuhnya. Sambil melamun 
-ia duduk di tanah dan berpikir, "Apa mungkin ini darah Sa Shifu? Kemana dia?"
+ia duduk di tanah dan berpikir, "Apa mungkin ini darah San Shifu? Kemana dia?"
 
 
 While Guo Jing was examining the horse Huang Rong stood quietly on the side; only
