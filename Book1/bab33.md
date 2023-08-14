@@ -7,8 +7,6 @@
 
 ***
 
-**WARNING: These are drafts**
-
 Pada saat itu Guo Jing dan Huang Rong sedang menikmati kebahagiaan dan sukacita di hati mereka, mereka tidak mau
 peduli pada urusan orang lain. Tetapi ketika mendengar 'Bocah Tua Nakal' hati mereka terusik. Mereka melompat 
 bersamaan dan mengejar kedua orang itu. Kungfu kedua orang itu tampak biasa saja, mereka bahkan sama sekali tidak 
