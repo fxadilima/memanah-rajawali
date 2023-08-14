@@ -19,7 +19,7 @@ Guo Jing dan Huang Rong mempercepat langkah dan ikut masuk ke dalam lembah. Mere
 berkumpul di suatu lapangan. Dua orang dari mereka memegang obor di tangan. Di tengah lapangan itu Zhou Botong sedang 
 duduk diam tak bergerak. Tidak jelas ia masih hidup atau sudah mati. Di hadapan Zhou Botong ada seseorang yang juga duduk
 bersila, mengenakan kasaya merah, itu ternyata Lingzhi Shangren. Ia juga tak bergerak. Di sebelah kiri Zhou Botong ada 
-sebuah gua. Jalan masuknya kecil, karena itu orang yang ingin mausk harus membungkuk. Di luar gua itu ada lima-enam orang 
+sebuah gua. Jalan masuknya kecil, karena itu orang yang ingin masuk harus membungkuk. Di luar gua itu ada lima-enam orang 
 yang sedang memaki dan berteriak, tetapi tak seorang pun berani mendekat dalam jarak satu _zhang_ dari gua, seolah-olah 
 mereka takut ada sesuatu yang akan keluar dari situ untuk mencelakai mereka.
 
@@ -28,99 +28,84 @@ ia melihat Zhou Botong duduk tak bergerak seperti mayat. Ia kuatir Zhou Botong t
 maju ketika Huang Rong menarik tangannya dan berbisik, "Sebelum melakukan sesuatu, kita selidiki dulu apa yang sebenarnya 
 terjadi."
 
+Keduanya bersembunyi di balik batu gunung dan mengawasi orang-orang di luar gua. Ternyata semuanya adalah kenalan lama,
+Shen Xian Lao Guai Liang Ziweng, Guo Men Long Wang Sha Tongtian, Qian Shou Ren Tu Peng Lianhu, San Tou Jiao Hou Tonghai,
+ditambah dengan kedua pejalan kaki yang mereka ikuti sebelumnya. Penerangan dari obor menerangi wajah-wajah mereka,
+Guo Jing dan Huang Rong mengenali kedua orang itu sebagai dua murid Liang Ziweng. Guo Jing pernah bertarung dengan 
+mereka ketika pertama kalinya ia mempelajari Delapan Belas Jurus Penakluk Naga.
 
-Two people hid behind a mountain rock and looked at the people outside the cave. It
-turned out they were all old acquaintances: Shen Xian Lao Guai [Ginseng Immortal Old
-Freak] Liang Ziweng, Gui Men Long Wang [Dragon King of Guimen (lit. ghost gate)] Sha
-Tongtian, Qian Shou Ren Tu [Thousand Hands Butcher] Peng Lianhu, San Tou Jiao
-[Three Headed Scaly Dragon] Hou Tonghai, plus the two night-walkers they followed
-earlier. The light from the torches illuminated their faces and Jing and Rong recognized
-those two as Liang Ziweng’s disciples; Guo Jing had fought them the first time he
-learned the Eighteen Dragon Subduing Palms.
+Huang Rong berpikir bahwa sekarang orang-orang ini bukan tandingan Guo Jing, bahkan juga bukan tandingan dirinya, ia 
+memandang ke sekeliling dan tidak menemukan ada orang lain di situ. Dengan suara rendah ia berkata, "Dengan ilmu 
+Lao Wantong, masa beberapa orang ini bisa mengalahkan dia? Kelihatannya Si Racun Barat Ouyang Feng bersembunyi entah 
+di mana."
 
-Huang Rong thought that now these people were not Guo Jing’s and her matches; she
-looked to all directions but did not see anybody else. With a low voice she said, “With
-the Old Urchin’s skill, how could these several fellows defeat him? It seems like the
-Western Poison Ouyang Feng is lurking somewhere.”
+Ia baru hendak memikirkan cara untuk menyelidikinya lebih lanjut ketika Peng Lianhu berseru dengan suara nyaring 
+dan jernih, "Tua bangka! Kalau kau tidak mau keluar, Laofu akan mengasapimu!"
 
-She was about to think of a way to investigate further when Peng Lianhu shouted loud
-and clear, “Thief male servant bird! [I know this one sounds weird, but it is the literal
-translation. I’ll leave it to the editors to find a more suitable curse words ... J] If you
-don’t come out, Old Man here will smoke you out!”
+Dari dalam gua terdengar suara tegas, "Akal bulus macam apa pun itu, lakukan saja!"
 
-From the cave came a stern voice, “Whatever stinky tricks you have; bring it on!”
+Guo Jing mengenalinya sebagai suara guru pertamanya, Ke Zhen'E, ia tidak peduli lagi apakah ada Ouyang Feng di sekitar
+situ. "Shifu!" serunya. "Muridmu Guo Jing ada di sini!" Tangannya sudah bergerak sementara ia masih berteriak. Ia mencekal 
+punggung Hou Tonghai dan melemparkannya ke samping.
 
-Guo Jing recognized it was his Da Shifu [First Master] Ke Zhen’e’s voice; he did not care
-if Ouyang Feng was lurking around somewhere. “Shifu!” he shouted, “Your disciple Guo
-Jing is here!” His hands had already made some moves while he was still shouting. He
-grabbed Hou Tonghai’s back and flung him aside.
+Orang-orang di luar gua itu kebingungan. Sha Tongtian dan Peng Lianhu menyerang serempak. Liang Ziweng menyelinap ke 
+belakang Guo Jing, bersiap melakukan serangan mendadak. Ke Zhen'E di dalam gua mendengar semuanya, ia mengangkat tangannya
+dan menyerang dengan Du Ling[^du-ling] ke arah punggung Liang Ziweng.
 
-The people outside the cave were thrown into confusion. Sha Tongtian and Peng
-Lianhu made a simultaneous attack. Liang Ziweng turned around Guo Jing’s back,
-ready to make a sneak attack. Ke Zhen’Einside the cave heard everything; he raised his
-hand and launched a ‘du ling’ [poisonous water caltrop] toward Liang Ziweng’s back.
+[^du-ling]: Du Ling adalah sejenis kacang air yang beracun, senjata rahasia andalan Ke Zhen'E.
 
-The projectile carried a fierce gust of wind. Liang Ziweng hastily lowered his head; the
-‘du ling’ flew over his head, cutting several strands of his hair. He was so shocked that
-cold sweats trickled down his back. He knew Ke Zhen’e’s secret projectiles contained a
-violent poison on it; the other day Peng Lianhu nearly got killed under this weapon.
-Hastily he leaped back several ‘zhang’s, stretched out his hand to feel the top of his
-head. Luckily his scalp was not injured. Straightaway he took some ‘tou gu ding’ [Bone
-Penetrating Nails] from his pocket and walked quietly toward the left of the cave; he
-wanted to enter the cave to extract his revenge.
+Senjata rahasia itu membawa serta hembusan angin dahsyat. Lian Ziweng buru-buru menundukkan kepala, Du Ling itu 
+terbang melewati kepalanya, memotong beberapa helai rambutnya. Ia begitu kaget sampai keringat menitik di punggungnya.
+Ia tahu senjata rahasia Ke Zhen'E mengandung racun ganas, sebelumnya Peng Lianhu nyaris tewas terkena senjata itu.
+Ia buru-buru melompat mundur beberapa _zhang_, mengulurkan tangannya dan meraba bagian atas kepalanya. Untungnya kulit 
+kepalanya tidak terluka. Dengan segera ia mengambil beberapa batang Jarum Penembus Tulang dari sakunya dan berjalan diam-diam
+ke arah sebelah kiri gua. Ia ingin memasuki gua untuk membalas.
 
-He was just about to raise his hand when suddenly his wrist was numb; something hit
-his hand. With a clanking noise the ‘tou gu ding’ fell to the ground. And then he heard a
-female voice said with a laugh, “Kneel down! Or you’ll eat my stick!”
+Ia baru bermaksud mengangkat tangannya ketika mendadak pergelangan tangannya mati rasa, sesuatu telah menghantam tangannya.
+Dengan suara berdenting jarum-jarumnya berjatuhan ke tanah. Dan kemudian ia mendengar suara perempuan berkata sambil 
+tertawa, "Berlutut! Atau kau akan makan tongkatku!"
 
-Liang Ziweng quickly turned his head and saw Huang Rong stood smiling, with a bam-
-boo stick in her hand. He was scared and angry at the same time; his left palm struck
-toward her shoulder, his right hand tried to grab the bamboo stick. Huang Rong
-stepped aside to evade his left palm, but did not move the bamboo stick, she let him to
-have a good grip on it. Liang Ziweng was delighted, he held out his hand, thinking that
-if this young girl did not let go, he would snatch the stick away. As soon as he pulled, he
-did indeed manage to pull the bamboo stick away, but unexpectedly the end of the stick
-shook and slid right out of his palm. By this time the end of the bamboo stick had en-
-tered his circle of defense. His hands were so close to the stick that he hurriedly
-reached back to grab; but he was too late. A dark green shadow flashed and ‘slap!’ his
-head was squarely hit by the bamboo stick.
+Liang Ziweng memalingkan kepalanya dan melihat Huang Rong sedang berdiri sambil tersenyum, dengan tongkat bambu 
+di tangan. Ia merasa sangat ketakutan dan sekaligus marah, telapak tangan kirinya menyerang ke arah bahu Huang Rong,
+tangan kanannya beusaha untuk merebut tongkat itu. Huang Rong melangkah ke samping untuk menghindari tangan kirinya,
+tetapi tidak menggerakkan tongkat bambunya, ia membiarkan Liang Ziweng memegang tongkat itu. Liang Ziweng senang,
+ia mempererat pegangannya, ia berpikir seandainya bocah itu tidak mau melepaskan tongkatnya, maka ia akan merampasnya 
+dengan paksa. Segera setelah ia menarik, ia memang berhasil merebut tongkat itu, tapi di luar dugaannya ujung tongkat itu 
+bergetar dan meluncur lepas dari tangannya. Saat itu ujung tongkat telah memasuki daerah pertahanannya. Tangannya begitu 
+dekat dengan tongkat itu, karena itu ia buru-buru menangkapnya kembali, tapi ia terlambat. Bayangan hijau tua melesat 
+dan 'plak!' kepalanya terpukul telak oleh tongkat bambu itu.
 
-Overall his martial art skill was not weak; in this critical moment he was still able to
-throw himself to the ground and he rolled away more than a ‘zhang’ away before he
-sprang back up. He looked with a shocked expression at this young girl with bright eyes
-and ivory teeth. The top of his head was hurting, his mind was confused, and his face
-looked awkward.
+Secara keseluruhan kungfunya tidak lemah, dan pada saat kritis itu ia masih sanggup melemparkan diri ke tanah dan 
+bergulingan lebih dari satu _zhang_ sebelum akhirnya bangkit berdiri. Ia menatap kaget ke arah gadis kecil dengan 
+mata jernih dan gigi seperti gading itu. Bagian atas kepalanya terasa sakit, pikirannya kacau, mukanya tampak tidak 
+keruan.
 
-Huang Rong said with a laugh, “Do you know the name of this stick method? You have
-been beaten by me, so what did you turn into?”
+Huang Rong berkata sambil tertawa, "Kau tahu apa nama ilmu tongkat ini? Kau sudah kena gebukanku, itu membuatmu 
+jadi _apa_?"
 
-Liang Ziweng had suffered hardship under this Dog Beating Stick Technique in the
-past; he was beaten half dead and half alive under Hong Qigong’s hands. It had been
-several years since then, but he still had a lingering fear in his heart. He noticed that
-the stick was indeed Hong Qigong’s Dog Beating Stick, and the stick method was indeed
-Hong Qigong’s Dog Beating Stick Technique, used up against him. It looked like this
-young girl was truly Hong Qigong’s heir. With the corner of his eyes he saw Sha and
-Peng two people continuously step back under the power of Guo Jing’s palms without
-being able to counterattack; he called out, “In honor of the Old Hong Bangzhu [Clan
-Leader Hong] we’d better go!” He called out his two disciples and turned around to flee.
+Liang Ziweng sudah pernah sengsara gara-gara Tongkat Penggebuk Anjing itu sebelumnya, ia dipukuli setengah mati
+oleh Hong Qigong. Kejadian itu sudah beberapa tahun yang lalu, tetapi ia masih menyimpan ketakutan dalam hatinya.
+Ia melihat bahwa teknik tongkat itu memang adalah Ilmu Tongkat Penggebuk Anjing milik Hong Qigong, dipakai untuk 
+melawannya. Kelihatannya anak perempuan ini sungguh-sungguh ahli waris Hong Qigong. Dengan sudut matanya ia melihat 
+Sha Tongtian dan Peng Lianhu terus-terusan mundur di bawah tekanan telapak tangan Guo Jing tanpa bisa balas menyerang.
+Ia berteriak, "Untuk menghormati Hong Lao Bangzhu, ayo kita mundur!" Ia memanggil kedua muridnya dan berbalik untuk 
+pergi.
 
-Guo Jing’s left elbow circled around forcing Sha Tongtian to retreat three steps; fol-
-lowed by the sweep of his left hand. Peng Lianhu saw that this palm carried a strong
-gust of wind, he did not dare to take it head-on, he hastily stepped aside to evade. Guo
-Jing’s right hand made a hook, grabbed his back and lifted him up.
+Siku kiri Guo Jing bergerak melingkar memaksa Sha Tongtian mundur tiga langkah, diikuti oleh sapuan tangan kirinya.
+Peng Lianhu melihat bahwa telapak tangan itu membawa serta hembusan angin kuat, ia tidak berani menghadapinya secara 
+terang-terangan, ia buru-buru melangkah ke samping untuk mengelak. Tangan kanan Guo Jing mengait, mencekal 
+punggungnya dan mengangkatnya ke atas.
 
-Peng Lianhu was rather short, being lifted high in the air his legs were kicking around
-frantically. He tried to hit and kick to free himself, but he did not have any strength left.
-He saw Guo Jing’s left hand make a fist, ready to strike his chest like a hammer pound-
-ing a nail; how could he endure this strike? He hastily shouted, “What date is today?”
+Peng Lianhu agak pendek, diangkat setinggi itu di udara kakinya menendang-nendang dengan panik. Ia berusaha membebaskan 
+dirinya, siap untuk memukul dada Guo Jing seperti palu menghantam paku, tetapi bagaimana ia bisa meneruskan pukulan 
+itu? Ia cepat-cepat berseru, "Ini hari apa?"
 
-“What?” Guo Jing was startled.
+"Apa?" tanya Guo Jing bingung.
 
-“Are you going to keep a good faith? Do you stay true to your own promise?” Peng
-Lianhu asked.
+"Masa kau tidak ingin memelihara nasib baikmu? Kau tidak ingin menepati janji?" tanya Peng Lianhu.
 
-“What?” Guo Jing asked again; his right hand was still holding Peng Lianhu high in the
-air.
+"Apa?" tanya Guo Jing lagi, tangan kanannya masih mencekal Peng Lianhu di udara.
+
 
 “We have agreed to have a martial art contest in Jiaxing on the fifteenth of the eighth
 month, at the Misty Rain Tavern,” Peng Lianhu said, “We are not in Jiaxing, and today is
