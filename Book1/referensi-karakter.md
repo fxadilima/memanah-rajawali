@@ -1279,7 +1279,3 @@ Kelihatannya lagu ini adalah lagu rakyat, yang syairnya bisa berubah-ubah.
 Ini sebuah peribahasa, 'Di atas langit ada langit, di atas manusia ada manusia lain', yang ingin mengungkapkan
 bahwa di dunia ini tak seorang pun sungguh-sungguh nomor satu di atas segalanya.
 
-
-
-
-

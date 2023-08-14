@@ -450,13 +450,15 @@ tanpa jejak, mereka pikir ada Peri Rubah mengganggu tempat itu, jadi mereka memb
 menyembah aku. Belakangan mereka mengatakan semua itu kepada kepala pengawal istana, yang kemudian mengerahkan delapan 
 orang pengawal untuk pergi dan menangkap Peri Rubah itu di dapur. Pengemis Tua merasa ini situasi yang sangat serius,
 dan baik lao Wantong maupun bayangannya sama sekali tidak kelihatan saat itu. Aku tidak punya pilihan selain menyelinap
-pergi ke tempat agak jauh untuk menyembunyikan diri sebentar. Tempat itu bernama E Lu Hua Tang[^e-lu-hua-tang] atau 
+pergi ke tempat agak jauh untuk menyembunyikan diri sebentar. Tempat itu bernama E Lu Hua Ting[^e-lu-hua-ting] atau 
 yang semacam itu, itu penuh dengan pohon Mei Hua[^mei-hua]. Dari penampilannya, itu pasti ruangan untuk musim dingin,
 di mana sobatku itu, Si Kaisar, menghabiskan waktunya untuk menikmati mekarnya bunga-bunga Meihua. Hanya saja, ini 
 di tengah musim panas, kecuali beberapa gelintir kasim yang menyapu tanah setiap hari di pagi hari, bahkan bayangan 
 hantu pun tidak ada di tempat itu. Pengemis Tua dengan bebas bisa menjelajah kemana-mana. Di segala tempat di istana,
 pasti ada saja yang bisa dimakan, bahkan seratus pengemis pun tidak akan mati kelaparan di tempat itu, karena itu 
 aku bisa menyembuhkan cederaku dengan damai dan tenang."
+
+[^e-lu-hua-ting]: E Lu Hua Ting (萼绿花厅), secara literal berarti 'Gedung Hijau Sepal Bunga', atau sebuah gedung yang berwarna hijau _sepal_. Sebagai catatan, _sepal_ adalah bagian tengah dari kuntum bunga, yang biasanya memang berwarna hijau.
 
 [^mei-hua]: Mei Hua (梅花) atau Bunga Prem adalah sebuah pohon, yang buahnya banyak beredar di Indonesia sebagai manisan. Manisan ini seringkali terlihat pada saat perayaan Tahun Baru Imlek dan sejenisnya. Warnanya bisa kuning atau hijau.
 
@@ -470,276 +472,228 @@ dan semua bangsat lainnya."
 
 "Ah!" seru Huang Rong terkejut. "Kenapa mereka mencarimu?"
 
+"Kupikir itu memang sangat aneh," kata Hong Qigong. "Segera setelah melihat mereka, aku kembali ke tempat persembunyianku.
+Di luar dugaan Lao Wantong suudah menemukan aku. Dia sangat kegirangan, dia mendekat dan memelukku, dan bilang, 'Terima kasih 
+Surga, terlima kasih Bumi, karena akhirnya mengijinkan aku menemukanmu.' Dia segera menyuruh Liang Ziweng dan lainnya untuk 
+mengikuti di belakang kami..."
 
-“I thought it was very strange too,” Hong Qigong said, “As soon as I saw them I went
-back into hiding. Who would have thought that the Old Urchin had already spotted me.
-He was ecstatic; he dashed forward and hugged me, saying, ‘Thank the heaven and
-thank the earth for letting me find you at last.’ Immediately he ordered Liang Ziweng
-and the others to follow behind us ...”
+"Kenapa Liang Ziweng dan yang lain bisa menuruti perintah Lao Wantong?" tanya Huang Rong dengan heran.
 
-“How could Liang Ziweng and the others listen to the Old Urchin’s order?” Huang Rong
-wondered.
+Hong Qigong tertawa dan berkata, "Saat itu aku juga memeras otak dan tidak bisa menemukan jawabannya. Yang bisa kukatakan 
+hanyalah bahwa mereka takut kepada Lao Wantong. Apapun yang dikatakannya, mereka tidak berani membantah. Dia menyuruh 
+Liang Ziweng dan kawan-kawan mengikuti kami, sementara dia sendiri menggendongku di punggungnya sampai ke Desa Niu 
+untuk mencari kalian berdua. Sepanjang jalan dia menceritakan bahwa dia sudah mencariku kemana-mana dan tidak menemukan aku,
+dia sangat kuatir. Lalu secara sangat kebetulan dia ketemu Liang Ziweng dan kawan-kawan di tembok kota. Dia melampiaskan 
+rasa frustasinya dengan jalan memukuli mereka semua sampai setengah mati dan kemudian menyuruh mereka menyapu jalanan 
+dan lorong-lorong sepanjang hari sepanjang malam untuk mencari aku. Dia bilang mereka sudah mencari ke sekeliling istana,
+tapi istana itu sangat luas sementara aku bersembunyi di tempat yang agak jauh. Akhirnya mereka tidak menemukanku."
 
-Hong Qigong laughed and said, “At that time I was also racking my brain but could not
-figure out the reason. All I can say was that they were very afraid of the Old Urchin.
-Whatever he said, they did not dare to disobey. He ordered Liang Ziweng and the oth-
-ers to follow behind us, while he carried me to the Ox Village to find you two people.
-Along the way he told me that he had looked for me everywhere but could not find me,
-he was very worried. And then quite by accident he bumped into Liang Ziweng and the
-others by the city wall. In his frustration he beat each and every one of them really bad,
-and then ordered them to comb all streets and alleys the whole day and the whole
-night to look for me. He said they had been searching around the imperial palace for a
-while, but the palace was huge while I was hiding in a remote place. All throughout,
-they did not see me.”
+Huang Rong berkata sambil tersenyum, "Tak kuduga Si Lao Wantong bisa sepintar itu, bisa membuat kepala-kepala iblis 
+mematuhi segala perintahnya. Entah kenapa mereka tidak melarikan diri."
 
-Huang Rong said with a smile, “I did not expect the Old Urchin to be that smart, able to
-make those devil heads to follow his orders obediently. I wonder why they did not run
-away.”
+Hong Qigong tersenyum dan berkata, "Lao Wantong memakai akal bulus. Dia membuat butiran pil-pil dari dakinya sendiri, lalu 
+memaksa mereka masing-masing minum tiga butir, dia bilang 'racun' itu akan bereaksi dalam tujuh kali tujuh, atau empat puluh 
+sembilan hari. Racun itu sangat mematikan dan tak seorang pun di dunia ini bisa memunahkannya, kecuali diriya sendiri.
+Kalau mereka patuh, maka ia akan memberikan penawarnya pada hari ke empat puluh delapan. Meskipun bajingan-bajingan itu 
+hanya setengah percaya, tapi mereka juga tidak berani mengambil resiko dengan taruhan nyawa. Akhirnya mereka tidak 
+punya pilihan selain percaya dan menuruti segala teriakan dan omelan Lao Wantong, tanpa berani membantah."
 
-Hong Qigong smiled and said, “The Old Urchin employed a mischievous trick. He
-rubbed some dirt from his body and made more than a dozen pills. He forced them to
-take three pills for each person, said that this poison would react in seven by seven,
-forty nine days. The poison was so lethal and nobody in the world other than himself
-would be able to neutralize it. If they were obedient, he would give them the antidote
-on the forty-eighth day. Although these wicked thieves half believed and half doubted,
+Awalnya Guo Jing berduka, tapi setelah mendengar cerita Hong Qigong ia tak kuasa menahan senyum. Hong Qigong 
+melanjutkan, "Waktu tiba di Desa Niu, kami tidak menemukan kalian berdua. Lao Wantong lagi-lagi memaksa mereka keluar 
+untuk mencari kalian. Semalam mereka pulang dengan kepala tertunduk. Lao Wantong mengomel dan memaki mereka. Dia makin 
+lama makin marah sampai akhirnya bilang, 'Kalau sampai besok kalian masih belum menemukan kedua bocah itu, Guo Jing dan 
+Huang Rong, kalian akan kuberi Pil Air Kencing!' tentu saja mereka jadi mulai curiga dan terus-terusan merongrong 
+Lao Wantong supaya bicara lebih jelas. Lao Wantong berteriak-teriak dan menendang-nendang, akhirnya mereka tahu bahwa 
+pil-pil yang mereka minum sebelumnya itu sama sekali bukan racun. Aku tahu situasinya berubah jadi berbahaya, 
+bajingan-bajingan itu pasti akan membuat masalah yang tidak bisa diremehkan. Aku menyuruh Lao Wantong membunuh mereka semua.
+Tak kuduga, Peng Lianhu melihat bahaya, dan segera merancang tipuan licik, dia menyuruh biksu Tibet gendut itu supaya 
+berlomba dengan Lao Wantong untuk duduk dalam meditasi. Aku tidak bisa menghentikan mereka, dan terpaksa melarikan diri 
+keluar dari Desa Niu. Aku berpapasan dengan Ke Daxia di luar desa. Dia melindungiku dan kami lari sampai ke tempat ini.
+Peng Lianhu dan lainnya mengejar kami. Meskipun Lao Wantong agak ngawur, tapi dia tahu bahwa kami tidak bisa ditinggalkan 
+sendirian, jadi dia mengejar kami ke sini. Bajingan-bajingan itu terus membujuknya, sampai akhirnya Lao Wantong tidak 
+tahan lagi dan setuju untuk bertaruh dengan si biksu."
 
-they certainly could not take a risk with their own lives; in the end they did not have
-any choice but to believe and they were compelled to listen to the Old Urchin’s yelling
-and screaming, without daring to defy.”
+Mendengarkan cerita itu Huang Rong jadi marah dan sekaligus geli, ia berkata, "Kalau kami tidak kebetulan ketemu mereka,
+Shifu, nyawamu pasti akan hilang gara-gara Si Bocah Tua Nakal itu."
 
-Initially Guo Jing was grieving, but hearing Hong Qigong’s story he could not help but
-smile. Hong Qigong continued, “When we arrived at the Ox Village we could not find
-you two. The Old Urchin again forced them to go out and search for you. Last night they
-all came back with their heads hung low. The Old Urchin scolded and cursed them. He
-was getting angrier and angrier until suddenly he said, ‘If by tomorrow you still cannot
-find those two babies Guo Jing and Huang Rong, I will make urine pulp pills and give
-them to you!’ Of course they began to get suspicious and repeatedly provoked him to
-talk. The Old Urchin was screaming and kicking, finally they found out that the pills
-they took earlier were not poison at all. I know the situation would turn dangerous;
-these traitors would certainly create not a small trouble. I told the Old Urchin to kill
-them all. Who would have thought that Peng Lianhu also saw the danger, immediately
-he hatched a deception; he told that fat Tibetan monk to compete against the Old
-Urchin in sitting still in meditation. I could not stop them, and was forced to run out of
-the Ox Village. I came across Ke Daxia outside the village. He protected me and we ran
-to this place. Peng Lianhu and the others chased us. Although the Old Urchin was mud-
-dle-headed, he knew better than leaving me alone, so he busily overtook us here. These
-traitors constantly provoked him, until finally the Old Urchin could not take it anymore
-and agreed to bet against the monk.”
+Hong Qigong berkata, "Nyawaku toh sudah hampir lenyap, bukan masalah besar itu gara-gara siapa."
 
-Listening to this story Huang Rong was both angry and amused at the same time, she
-said, “If we did not meet them by accident, Shifu, your life would be delivered under
-the Old Urchin’s hand.”
+Huang Rong tiba-tiba teringat sesuatu. "Shifu," katanya. "Hari itu ketika kita pulang dari Ming Xia Dao..."
 
-Hong Qigong said, “My life is almost gone anyway, it doesn’t really matter whose hand
-will deliver it away.”
+"Itu hukan Ming Xia Dao, itu Ya Gui Dao," sela Hong Qigong.
 
-Huang Rong suddenly remembered something. “Shifu,” she said, “That day when we
-came back from Ming Xia Dao [bright red clouds island] ...”
+"Baik," kata Huang Rong sambil tersenyum. "Itu Ya Gui Dao. Sekarang Ouyang Ke bukan lagi 'Hantu Palsu', dia sudah jadi 
+hantu betulan. Waktu kita menyelamatkan mereka berdua — paman dan keponakan itu — di atas rakit Racun Tua bilang bahwa 
+di seluruh dunia hanya ada satu orang yang bisa menyembuhkan cederamu. Hanya saja kungfu orang itu tak tertandingi,
+jadi tidak bisa memkai cara paksamelawannya, dan kau bilang tidak mau mengambil keuntungan dari orang lain dengan cara 
+memintanya menyembuhkanmu. Waktu itu kau tidak mau bilang siapa namanya. Setelah itu Jing gege dan aku pergi ke Xiangxi.
+Sewajarnya sekarang kami tahu bahwa orang itu pastilah Kaisar Duan, atau sekarang sudah jadi Yideng Dashi, pasti tidak 
+ada orang lain lagi."
 
-“It’s not Ming Xia Dao, it’s ‘ya gui dao’ [crushing ghost island],” Hong Qigong
-interrupted.
+Hong Qigong menghela nafas. "Kalau dia menggunakan Yi Yang Zhi untuk menotok kedelapan jalan darah istimewa di tubuhku,
+tak ragu lagi dia pasti akan bisa menyembuhkan aku. Tapi cara ini akan membuatnya kehilangan tenaga dalam selama lima
+tahun ke depan, atau setidaknya tiga tahun, itu sulit dikatakan. Anggap saja dia tidak peduli tentang pertandingan di 
+Hua Shan yang kedua, tapi dia sendiri sudah berumur lebih dari enam puluh tahun, berapa lama lagi dia akan bisa bertahan 
+hidup? Bagaimana mungkin Pengemis Tua bisa membuka mulut untuk minta tolong?"
 
-“Fine,” Huang Rong smiled slightly, “It’s Ya Gui Dao then. Now, that Ouyang Ke is not
-the least bit a fake ghost, he is a real ghost. That day when we rescued Ouyang Feng un-
-cle and nephew, on the wooden raft the Old Poison said that there was one man in this
-whole wide world who can heal your injury. Only this person’s martial art is matchless;
-so we can’t use force against him, and you are not willing to harm others to benefit
-yourself by asking him to help you. At that time you were not willing to mention this
-person’s name. Later on Jing Gege and I went to Xiangxi. Naturally now we know that
-other than Emperor Duan then, or Reverend Yideng now, there is no one else.”
+"Shifu," kata Guo Jing dengan gembira. "Ini luar biasa! Kita justru tidak memerlukan pertolongan orang lain, aku bisa 
+membuka delapan jalan darah istimewamu."
 
-Hong Qigong sighed, “If he used Yiyang Zhi [Solitary Yang Finger] to attack my ‘qi jing
-ba mai’ [lit. marvelous/mysterious passage 8 pulses, Kwok & Huang Yushi from
-Wuxiapedia translated it as: Eight Extraordinary Channels], without a doubt he would
-heal my injury. But this kind of skill will injure his own internal strength for as long as
-five years or as few as three years, it’s hard to say. Let’s just say that he does not care
-about the second Sword Meet of Mount Hua, but he is already over sixty years of age;
-just how much longer is he going to live? How can the Old Beggar open his mouth and
-ask for his help?”
+Hong Qigong terkejut. "Apa?" tanyanya.
 
-“Shifu,” Guo Jing said happily, “This is great! We don’t need anybody’s help, I can go
-through your ‘qi jing ba mai’.”
+Huang Rong berkata, "Jing Gege mengutip bagian kitab yang kacau balau itu dan Yideng Dashi menerjemahkannya untuk kami.
+Dia menyuruh kami menceritakannya kepada Shifu supaya memakai teknik itu untuk membuka sendiri kedelapan jalan darah 
+istimewa di tubuhmu[^delapan-jalan-darah]." Ia langsung mengutip semua terjemahan Yideng Dashi itu dari ingatannya.
 
-Hong Qigong was surprised, “What?” he asked.
+[^delapan-jalan-darah]: Delapan Jalan Darah Istimewa yang dimaksud itu adalah Qi Jing Ba Mai (), yaitu delapan jalan darah yang bukan termasuk jalan darah utama dalam tubuh manusia menurut teori akupuntur. Titik-titik ini biasanya hanya dikenal dan dipakai secara rutin oleh para praktisi ilmu beladiri seperti Tai Chi.
 
-Huang Rong said, “Jing Gege recited that babbling and mumbling part from the Manual
-and Reverend Yideng has translated it for us. He told us to tell you, Senior, to use this
-technique to open your own ‘qi jing ba mai’.” Straightaway she recited Yideng’s transla-
-tion from memory.
+Setelah mendengarkan semuanya Hong Qigong termenung lama, kemudian ia melompat kegirangan sambil berseru, "Luar biasa! 
+Luar biasa! Aku yakin aku hanya perlu waktu satu setengah tahun untuk memulihkan diri."
 
-After listening to this Hong Qigong pondered for a long time, and then he jumped in joy
-and exclaimed, “Wonderful! Wonderful! I believe I will need only about one and a half
-year to recover.”
+Huang Rong berkata, "Dalam kontes di Jiaxing lawan kita sudah pasti akan mengundang Ouyang Feng untuk membantu mereka.
+Kungfu Lao Wantong mungkin tidak kalah dari dia, tapi dia itu orang liar. Aku kuatir dia tidak bakalan muncul dalam 
+pertandingan itu. Kita harus pergi ke Pulau Bunga Persik untuk mendapatkan dukungan ayahku supaya bisa menang."
 
-Huang Rong said, “In the Misty Rain Tavern martial art contest our opponent will
-surely invite Ouyang Feng to help their side. The Old Urchin’s martial art might not be
-inferior to his, but he is a wild person. I am afraid he won’t show up during the compe-
-tition time. We must go to the Peach Blossom Island to get my father’s help to ensure
-victory.”
+"Yang kau katakan itu tidak salah," kata Hong Qigong. "Aku akan pergi ke Jiaxing lebih dulu, kalian berdua yang 
+pergi ke Pulau Bunga Persik."
 
-“What you said is not wrong,” Hong Qigong said, “I will go to Jiaxing first, the two of
-you go to the Peach Blossom Island.”
+Guo Jing tidak ingin meninggalkan gurunya, ia bersikeras untuk mengantarkan Hong Qigong ke Jiaxing. Hong Qigong
+berkata, "Aku akan naik kuda merahmu. Kalau ada masalah di jalan, Pengemis Tua akan melarikan diri. Siapa bisa mengejarku?"
 
-Guo Jing was reluctant to leave his shifu, he insisted on escorting Hong Qigong to
-Jiaxing. Hong Qigong said, “I will ride your little red horse. If there is any problem
-along the way, the Old Beggar will just run away. Who can chase after me?”
+Dengan segera ia naik ke atas kuda. Ia meneguk araknya beberapa kali, dan menekan perut kuda itu dengan kakinya. Kuda 
+merah kecil itu meringkik panjang ke arah Guo Jing dan Huang Rong, seolah-olah tidak mau meninggalkan mereka, lalu 
+berpacu secepat angin ke Utara.
 
-Immediately he mounted the horse. With a couple of ‘glug, glug’ he drank his wine, and
-then pressed the horse’s belly with his legs. The little red horse let out a long neigh to-
-ward Guo Jing and Huang Rong, as if it did not want to leave them, and then galloped
-like the wind to the north.
+Guo Jing mengawasi sampai ia tidak bisa lagi melihat bayangan Hong Qigong, ia juga teringat bagaimana Ke Zhen'E 
+begitu ingin membunuh Huang Rong, hatinya terasa berat. Huang Rong tidak berusaha menghiburnya. Ia pergi sendirian 
+untuk mencari perahu yang bisa disewa lalu mereka mulai berlayar menuju Pulau Bunga Persik.
 
-Guo Jing watched until he could not see Hong Qigong’s shadow anymore, he also re-
-called how Ke Zhen’Ewanted to kill Huang Rong, his heart was heavy. Huang Rong did
-not try to comfort him. She went alone to find a boat for hire then they set sail toward
-the Peach Blossom Island.
+Ketika sampai di pulau, mereka segera menyuruh perahu itu pergi. Huang Rong berkata, "Jing Gege, aku ingin minta 
+memintamu melakukan sesuatu untukku. Kau bisa berjanji untuk melakukannya?"
 
-When they arrived on the Island, they immediately sent the boat away. Huang Rong
-said, “Jing Gege, I am going to ask a favor from you. Will you promise to grant it?”
+"Apa itu?" tanya Guo Jing. "Aku tidak mau melakukan sesuatu yang tidak bisa kulakukan."
 
-“What is it?” Guo Jing asked, “I don’t want to do something I won’t be able to do.”
+Huang Rong tertawa dan berkata, "Aku tidak akan memintamu untuk menggorok leher keenam gurumu."
 
-Huang Rong laughed and said, “I am not going to ask you to cut off your six masters’
-heads.”
+Guo Jing marah. "Rong'er," katanya. "Bisakah kau tidak menyinggung masalah ini lagi?"
 
-Guo Jing was upset. “Rong’er,” he said, “Can’t you not mention this matter anymore?”
+"Kenapa tidak?" balas Huang Rong. "Kau mungkin sudah melupakannya, tapi aku tidak bisa. Meskipun aku baik kepadamu,
+tapi aku juga tidak mau kau menggorok leherku."
 
-“Why can’t I mention it?” Huang Rong countered, “You may have already forgotten
-about it; but I can’t. Even though I am good to you, I don’t want you to cut down my
-head.”
+Guo Jing menghela nafas dan berkata, "Aku sungguh tidak mengerti kenapa Da Shifu sangat marah. Dia sudah tahu
+kau ini orang yang paling kucintai. Aku lebih baik mati ribuan kali, puluhan ribu kali, daripada melukaimu 
+secuilpun."
 
-Guo Jing sighed and said, “I really don’t understand why Da Shifu was so angry. He
-knew you are the love of my life. I’d rather die a thousand times, ten thousand times,
-than hurting you the least bit.”
+Huang Rong bisa mendengar ketulusan dalam suaranya, hatinya tergerak. Ia menarik tangan Guo Jing dan bersandar di 
+tubuhnya. Sambil menunjuk deretan pohon Willow di epi sungai ia berkata dengan lembut, "Jing Gege, kau pikir Pulau 
+Bunga Persik ini indah atau tidak?"
 
-Huang Rong could hear the sincerity in his voice, her heart was moved. She pulled his
-hand and leaned against his body. Pointing to a row of willow trees by the creek she
-said with a tender voice, “Jing Gege, do you think this Peach Blossom Island is
-beautiful?”
+"Ini betul-betul mirip Negeri Dongeng," jawab Guo Jing.
 
-“It truly looks like a fairyland,” Guo Jing replied.
+Huang Rong mendesah. "Aku ingin tinggal di sini selamanya, aku tidak ingin kau bunuh," katanya.
 
-Huang Rong sighed, “I want to live here forever, I don’t want to be killed by you,” she
-said.
+Guo Jing mengelus rambutnya dengan lembut sambil berkata, "Rong'er yang baik, bagaimana mungkin aku bisa membunuhmu?"
 
-Guo Jing gently stroked her hair and said, “Good Rong’er, how can I kill you?”
+Huang Rong berkata, "Bagaimana kalau keenam gurumu, ibumu, kawan-kawanmu, memintamu untuk membunuhku? Kau mau 
+melakukannya atau tidak?"
 
-Huang Rong said, “What if your six masters, your Mama, your good friend, they all ask
-you to kill me? Will you do it or not?”
+Guo Jing dengan penuh keyakinan berkata, "Meskipun semua orang di dunia ini ingin mencelakaimu, aku akan selalu melindungimu."
 
-Guo Jing confidently said, “Even though everybody in the world wants to make things
-difficult for you, I will always protect you.”
+Huang Rong memegang tangannya erat-erat dan berkata, "Maukah kau meninggalkan semua orang itu untukku?"
 
-Huang Rong held his hand tightly and asked, “Will you be willing to leave all these peo-
-ple for me?”
+Guo Jing ragu-ragu dan tidak menjawab. Huang Rong menengadah dan menatap matanya, dengan muka penuh kecemasan, ia 
+menanti jawaban.
 
-Guo Jing hesitated and did not answer. Huang Rong looked up and gazed at his eyes,
-with anxious expression on her face, waiting for his answer.
+Guo Jing akhirnya berkata, "Rong'er, aku sudah bilang akan menemanimu di Pulau Bunga Persik seumur hidupku.
+Aku sudah membuat keputusan itu sebelum membuka mulutku."
 
-Guo Jing finally said, “Rong’er, I said that I would accompany you on the Peach Blossom
-Island for the rest of my life. I have made that decision before I opened my mouth.”
+"Bagus!" kata Huang Rong. "Maka mulai hari ini, kau tidak akan meninggalkan pulai ini."
 
-“Good!” Huang Rong said, “Then from this day on, you are not going to leave this
-island.”
+Guo Jing terkejut. "Mulai hari ini?"
 
-Guo Jing was taken aback, “From this day on?”
+"Hm, ya," kata Huang Rong. "Mulai hari ini! Aku akan minta ayahku untuk pergi ke Jiaxing dan bertarung untuk kita.
+Ayah dan aku akan pergi untuk membunuh Wanyan Honglie untuk membalas dendam ayahmu. Ayah dan aku akan pergi ke Mongolia
+untuk menjemput ibumu. Aku bahkan akan minta ayah untuk tidak menyalahkan keenam gurumu. Aku akan mengurus semua masalah
+untukmu."
 
-“Um, yes,” Huang Rong said, “From this day on! I am going to ask Father to go to Misty
-Rain Tavern and fight for us. Father and I will go to kill Wanyan Honglie to avenge your
-father. Father and I will go to Mongolia to fetch your Mama. I will even ask Father not
-to blame your six masters. I am going to take care of every single one of your concerns
-for you.”
+Guo Jing melihat ekspresi mukanya agak tidak biasa, ia berkata, "Rong'er, apa yang kukatakan kepadamu, itu pasti bisa 
+kau andalkan. Jangan kuatir, kau tidak harus melakukan semuanya itu."
 
-Guo Jing saw the expression on her face was a little bit unusual; he said, “Rong’er, what
-I said to you, you can definitely count on it. Don’t you worry; you don’t have to do all
-these things.”
+Huag Rong menghela nafas. "Urusan di dunia ini sulit dikatakan," katanya. "Ketika kau setuju untuk menikah dengan 
+Putri Mongolia itu, apa kau pernah berpikir bahwa suatu hari nanti kau akan menyesali keputusanmu? Sebelumnya aku hanya 
+tahu kalau aku menginginkan sesuatu, aku akan mendapatkannya. Tapi sekarang aku tahu... Aih! Apapun yang kau inginkan,
+berdoa saja semoga Surga tidak akan mempersulit jalanmu." Bicara sampai di sini ia tidak bisa menahan matanya berubah 
+menjadi merah. Ia menundukkan kepalanya.
 
-Huang Rong sighed, “The matters in this world are difficult to say,” she said, “When you
-agreed to marry that Mongolian Princess, did you ever think that someday you’ll regret
-your own decision? Previously I only knew that whatever I wanted, I got it. But now I
-know ... Ay! Whatever you wish you have, just pray that the Heaven will not make
-things difficult for you.” Speaking to this point she could not restrain her eyes from
-turning red. She hung her head low.
+Guo Jing terdiam, aneka macam pikiran memenuhi benaknya. Ia menyadari betapa cintanya Huang Rong kepadanya, dan itu 
+membuatnya ingin tinggal di Pulau Bunga Persik bersamanya seumur hidup. Tapi ia merasa sangat tidak pantas baginya untuk 
+mengabaikan segala urusan, hanya saja kenapa tidak pantas, ia tidak tahu.
 
-Guo Jing was silent; his heart was filled with tumultuous thoughts. He realized how
-much Huang Rong loved him, and it made him wanting to stay on the Island to be with
-her forever. But he felt it was inappropriate for him to ignore all his concerns; only
-why it was inappropriate, he did not know.
+Huang Rong berkata dengan lembut, "Aku bukan tidak percaya kepadamu atau ingin memaksamu untuk tinggal di sini. Hanya 
+saja aku sungguh takut." Bicara sampai di sini ia mendadak melemparkan diri ke pelukannya dan terisak di bahunya.
 
-Huang Rong softly said, “It’s not that I don’t believe you or want to force you to live
-here; it’s just that I am really scared.” Speaking of this she suddenly threw herself into
-his arms and sobbed on his shoulder.
+Guo Jing kaget, ia kehilangan akal tentang apa yang seharusnya dilakukan. "Rong'er, kau takut apa?" Huang Rong 
+tidak menjawab, tapi ia mulai meratap.
 
-Guo Jing was caught by surprise; he was at a loss of what to do. He quickly said,
-“Rong’er, what are you afraid of?” Huang Rong did not reply, but she started to weep.
+Sejak Guo Jing mengenalnya, mereka telah bersama-samamelewati segala kesulitan dan bahaya, terkadang sengsara, tapi ia 
+selalu melihatnya tersenyum dan tertawa. Kali ini ia pulang ke rumahnya sendiri dan dengan segera akan bertemu dengan 
+ayahnya, kenapa ia tiba-tiba takut? Ia bertanya, "Kau takut ayahmu mengalami musibah?"
 
-Ever since Guo Jing knew her, they had been through many difficult and dangerous,
-sometimes miserable situations, but he had always seen her smiling and laughing. This
-time she was back in her home and very soon will see her father; why was she scared
-all of a sudden? He asked, “Are you afraid your father has met some accident?”
+Huang Rong menggelengkan kepalanya. Guo Jing bertanya lagi, "Apa kau takut begitu meninggalkan pulai ini, aku tidak 
+akan kembali lagi?" Huang Rong lagi-lagi menggelengkan kepalanya. Guo Jing berturut-turut menanyakan empat sampai lima 
+pertanyaan tetapi ia terus menggeleng.
 
-Huang Rong shook her head. Guo Jing asked again, “Are you afraid once I leave this is-
-land I won’t be coming back?” Again Huang Rong shook her head. Guo Jing successively
-asked four, five questions but she shook her head again and again.
+Setelah beberapa saat Huang Rong mengangkat kepalanya dan berkata, "Jing Gege, aku tidak tahu apa yang kutakutkan. 
+Aku teringat ekspresi Da Shifu-mu waktu menyuruhmu membunuhku, aku tidak bisa menyingkirkannya dari pikiranku. Aku 
+selalu merasa bahwa akan tiba suatu hari di mana kau akan menuruti suruhannya dan membunuhku. Itu alasannya kenapa 
+aku memintamu supaya tidak meninggalkan tempat ini. Kau mau berjanji atau tidak?"
 
-After a while Huang Rong lifted her head up and said, “Jing Gege, I don’t know what I
-am afraid of. I remember your Da Shifu’s expression when he told you to kill me, I just
-can’t shake it off my mind. I always feel there will come a day you are going to listen to
-him and kill me. That was the reason I asked you not to leave this place. Will you prom-
-ise me?”
+Guo Jing tersenyum dan berkata, "Aku bertanya-tanya entah urusan penting apa yang membuatmu begitu kuatir, ternyata 
+_hanya_ urusan semacam ini. Hari itu ketika di Yanjing bukankah keenam guruku memakimu sebagai Xiao Yaonu atau 
+yang semacam itu? Setelah itu aku melarikan diri bersamamu, tapi kita tidak punya masalah sampai hari ini. Keenam 
+guruku kelihatannya memang sangat ketat dan jahat, tapi hati mereka sebenarnya baik dan penuh kasih. Sekali kalian 
+saling meengenal dengan baik aku yakin mereka akan menyukaimu. Er Shifu punya ilmu untuk mencopet yang sangat 
+menakjubkan, kau bisa belajar dari dia. Aku yakin kalian pasti akan menikmatinya. Qi Shifu sangat lembut dan bersahabat..."
 
-Guo Jing smiled and said, “I was wondering what important matter worries you so
-much; turns out it is only over this. That day in Beijing didn’t my Six Shifus cursed you
-as little female demon [xiao yao nu, yao – goblin/witch/devil/monster] or something like
-that? Afterwards I ran away with you, but we don’t have any problem until today. My
-Six Shifus seem strict and mean, but their hearts are kind and loving. Once you get to
-know each other I am sure they will certainly like you. Er Shifu’s [Second Shifu] skill in
-picking other people’s pocket is amazing; you can learn from him. I am sure you’ll have
-a lot of fun. Qi Shifu [Seventh Shifu] is tender and friendly ...”
+Huang Rong memotongnya, "Jadi kau sudah bertekad untuk meninggalkan tempat ini?"
 
-Huang Rong cut him off, “So you are determined to leave this place?” she asked.
+Guo Jing menjawab, "Kita berdua akan pergi bersama, kita berdua akan pergi ke Mongolia untuk menjemput ibuku, kita akan 
+membunuh Wanyan Honglie bersama, dan kemudian kita juga akan kembali ke tempat ini bersama. Bukankah itu bagus?"
 
-Guo Jing replied, “The two of us will leave together; we’ll both go to Mongolia to fetch
-my Mother, we’ll kill Wanyan Honglie together, and then together we will come back to
-this place. Won’t that be great?”
+Dengan rasa terkejut di mukanyaHuang Rong berkata, "Kalau begitu, kurasa kita tidak bakalan kembali bersama sampai selamanya,
+kita tidak akan bersama sampai seumur hidup."
 
-With a startled look on her face Huang Rong said, “If that’s the case, I am afraid we
-won’t be coming back together forever, we won’t be together for rest of our lives.”
+"Kenapa?" tanya Guo Jing heran.
 
-“Why?” Guo Jing wondered.
+Huang Rong menggelengkan kepalanya dan berkata, "Aku tidak tahu. Tapi waktu aku melihat muka Da Shifu-mu itulah yang 
+kurasakan. Sepertinya membunuhku masih belum cukup. Kebenciannya sampai ke tulang sumsum."
 
-Huang Rong shook her head and said, “I don’t know. But when I saw your Da Shifu’s ex-
-pression that was what I felt. It seemed like killing me is not enough; his hatred went
-deep into his bones and marrow.”
+Ketika Guo Jing menatapnya, ia bisa melihat bahwa ia patah hati. Meskipun mukanya masih menunjukkan keluguan seorang 
+anak-anak, tetapi alisnya dan sudut matanya meperlihatkan dengan jelas perasaannya tentang malapetaka yang akan datang.
+Ia teringat bahwa Huang Rong selalu benar, kalau kali ini ia tidak mendengarkan apa yang dikatakannya dan suatu hari nanti
+sebuah malapetaka menimpanya, itu sungguh celaka. Memikirkan hal ini hatinya sakit, ia jadi emosional dan berkata tanpa 
+dipikir lagi, "Baik! Aku tidak akan meninggalkan tempat ini sama sekali!"
 
-As Guo Jing listened to her, he could see that her heart was broken. Although her face
-still showed that childlike naïveté, her eyebrows and the corner of her eyes clearly
-showed her feelings towards the upcoming disaster. He recalled that she was always
-right; if this time he did not listen to what she said and some day a disaster befell her,
-how would that be good? Thinking about this his heart ached; he was overwhelmed
-with emotion and blurted out, “All right! I am not going to leave this place, ever!”
+Mendengarnya, Huang Rong menatap mukanya lekat-lekat sampai lama sekali tanpa mengatakan apa-apa, dua titik air mata 
+menetes turun di pipinya. Guo Jing berkata dengan nada rendah, "Rong'er, apa lagi yang kau inginkan?"
 
-Hearing him Huang Rong fixed her gaze to his face for half a day without saying any-
-thing; two streams of tears slowly flowed down her cheeks. Guo Jing said in low voice,
-“Rong’er, what else do you want?”
+"Apa lagi yang kuinginkan?" kata Huang Rong. "Tidak ada lagi!" Ia mengangkat alisnya yang indah. "Kalaupun aku punya 
+keinginan lain, Surga pasti akan melarangku." Lengan jubahnya yang panjang terangkat pelan, ia menari di bawah pepohonan.
+Ketika memalingkan kepalanya, ikat rambut keemasan yang dipakainya berkilau di bawah sinar matahari. Pakaiannya berkibar 
+ditiup angin. Ia menari makin cepat, terkadang berhenti untuk menggoyangkan pohon dan kelopak-kelopak bunga berjatuhan 
+seperti hujan. Bunga merah, putihm kuning, ungu, mereka semua berkibar di udara seperti kupu-kupu menari mengelilinginya,
+menciptakan pemandangan yang sangat indah.
 
-“What else do I want?” Huang Rong said, “I want nothing else!” She raised her beautiful
-eyebrows up. “Even if I want something else, the Heaven won’t let me.” Her long sleeve
-gently rose up, she danced underneath the flower trees. As she turned her head
-around, the golden band on her hair glittered under the sun. Her clothes fluttered in
-the breeze. She danced faster and faster; every now and then she held out her hand to
-shake down the trees and petals of flowers fell down like rain: red flower, white flower,
-yellow flower, purple flower, they fluttered in the air just like butterflies dancing
-around her, creating a very beautiful scenery.
+Ia terus menari selama beberapa saat, terkadang ia melompat ke sebuah pohon, lalu melompat ke pohon lain,
+menari dari pohon ke pohon memperagakan jurus Yan Shuang Fei[^yan-shuang-fei] dan Luo Ying Shen Jian Zhang[^daun-jatuh].
+Ia tampak sangat bahagia.
 
-She danced for a moment, suddenly leaped up a tree, and then leaped over to another
-tree, dancing from tree to tree performing the ‘yan shuang fei’ [the fly of a pair of swal-
-lows] and ‘luo ying shen jian zhang’ [falling (leaves) divine sword palm technique]
-stances. She looked so happy.
+[^yan-shuang-fei]: Yan Shuang Fei (燕双飞) secara literal berarti 'Sepasang burung walet terbang'.
 
-Guo Jing thought, “Mama often told me stories about a fairy mountain on the eastern
-sea, where many fairies lived. I wonder if there is a fairy mountain more beautiful than
-the Peach Blossom Island, and if there is a fairy more beautiful than Rong’er?”
+[^daun-jatuh]: Luo Ying Shen Jian Zhang (落英神剑掌) adalah Ilmu Pedang Dewa Daun Jatuh, ilmu yang dikembangkan oleh Huang Yaoshi.
+
+Guo Jing berpikir, "Ibu sering menceritakan dongeng tentang peri gunung di Laut Timur, di mana banyak peri tinggal. Entah 
+tempat itu seindah tempat ini, dan apakah ada peri yang lebih cantik dari Rong'er?"
 
 
 
