@@ -42,3 +42,9 @@ Ilustrasi untuk Bab 33 dalam bentuk video:
 
 [![Shangren Ling Zhi dan Huang Rong](images/lingzhi-dan-huang-rong.jpg)](https://youtube.com/clip/UgkxTkM7TIoTl7lpaYqqKuG0xDUM9pJ0rHbV)
 
+
+Bab 34:
+
+[![Perubahan di pulau Persik](images/perubahan-di-pulau-persik.jpg)](https://youtube.com/clip/UgkxyCst_JJXnhWDLQ6em83D1B8T0aXj87Yg)
+
+
