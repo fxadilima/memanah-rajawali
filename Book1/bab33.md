@@ -106,32 +106,28 @@ itu? Ia cepat-cepat berseru, "Ini hari apa?"
 
 "Apa?" tanya Guo Jing lagi, tangan kanannya masih mencekal Peng Lianhu di udara.
 
+"Kita punya kesepakatan untuk bertarung dalam kontes di Jiaxing pada tanggal lima belas bulan delapan," kata Peng Lianhu.
+"Ini bukan Jiaxing, dan sekarang juga bukan Perayaan Pertengahan Musim Gugur. Masa kau mau mencelakai aku?"
 
-“We have agreed to have a martial art contest in Jiaxing on the fifteenth of the eighth
-month, at the Misty Rain Tavern,” Peng Lianhu said, “We are not in Jiaxing, and today is
-not the Mid-autumn Festival. How can you injure me?”
+Guo Jing berpikir bahwa ia benar, ia hendak melepaskan Peng Lianhu ketika tiba-tiba teringat sesuatu. "Apa yang kau 
+lakukan terhadap saudaraku Zhou Botong?"
 
-Guo Jing thought he was right; he was about to release him when suddenly he remem-
-bered something. “What did you do to my Zhou Dage [big brother Zhou]?”
+Peng Lianhu menjawab, "Lao Wantong itu taruhan melawan biksu Tibet, siapa yang bergerak lebih dulu akan kalah. Apa 
+hubungannya dengan aku?"
 
-Peng Lianhu replied, “The Old Urchin is betting against that Tibetan monk; whoever
-moves first lose. What does it have to do with me?”
+Guo Jing melirik kedua orang yang sedang duduk berhadapan di atas tanah, ia merasa lega. "Jadi begitu rupanya,"
+pikirnya. Lalu ia berseru, "Da Shifu, kau baik-baik saja?" Ke Zhen'E mengeluarkan suara 'Hm' dari dalam gua.
 
-Guo Jing cast a glance toward the two people sitting on the ground, he felt relieved. “So
-that’s how it is,” he thought. Then he shouted, “Da Shifu [first master], are you Senior
-well?” Ke Zhen’Eonly uttered an ‘Hm’ sound from inside the cave.
+Guo Jing kuatir segera setelah ia melepaskan Peng Lianhu, kakinya akan langsung menendang ke dadanya, karena itu ia 
+melemparkan Peng Lianhu beberapa kaki dari situ dengan tangan kanan sambil berteriak, "Pergi sana!"
 
-Guo Jing was afraid as soon as he let Peng Lianhu go, he would kick him on the chest;
-hence with his right hand he flung Peng Lianhu several feet away, while calling out,
-“Off you go!”
+Peng Lianhu mengambil kesempatan itu untuk bersalto dan mendarat di tanah. Ia melihat Sha Tongtian dan Liang Ziweng 
+sudah melarikan diri. Ia mengomel dalam hati atas ketidaksetiaan mereka. Ia merangkapkan tangannya kepada Guo Jing 
+sambil berkata, "Tujuh hari lagi di Jiaxing kita akan bertarung untuk menentukan siapa yang lebih unggul." Ia berbalik 
+dan memamerkan Qinggong-nya untuk melarikan diri. Ia sedang berpikir-pikir tentang satu hal, "Setiap kali aku ketemu 
+bocah tengik ini, kungfunya selalu melompat maju sangat jauh. Kenapa seaneh ini? Mungkinkah dia minum ramuan ajaib 
+atau menemukan salah satu rahasia ilahi?"
 
-Peng Lianhu took that opportunity to somersault and land on the ground. He saw Sha
-Tongtian and Liang Ziweng had already run away. He inwardly scolded them for not
-remembering their friend. He cupped his fists toward Guo Jing and said, “Seven days
-later at Misty Rain Tavern we will decide victory and defeat.” He turned around and
-displaying his ‘qing gong’ [lightness kungfu] he ran away. He was wondering about one
-thing, “Each time I meet this kid, his martial art is improving by leaps and bounds. Isn’t
-that strange? Did he eat some magic pills or find some immortal secret?”
 
 **Last line was Page 6 in PDF**
 
