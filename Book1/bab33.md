@@ -192,332 +192,284 @@ Zhou Botong terbelalak. "Apa?" Ia sangat marah.
 
 Huang Rong berkata sambil tersenyum, "Coba kau buka dulu totokannya, baru kita bicara lagi."
 
+Zhou Botong memutar pandangannya lalu berjongkok dan meraba tubuh Lingzhi Shangren. Ia mengetuk di beberapa tempat dan 
+menemukan bahwa delapan dari titik akupuntur utama telah ditotok orang. Ia melompat ,arah dan berteriak, "Itu tidak 
+masuk hitungan! Tidak masuk hitungan!"
 
-Zhou Botong rolled his eyes then he stooped down and traced Lingzhi Shangren’s body.
-He tapped several places and found out that eight of Lingzhi Shangren’s major acu-
-points were sealed by someone else. He jumped up in anger and shouted, “That did not
-count! That did not count!”
-
-“What did not count?” Huang Rong asked.
-
-Zhou Botong replied, “His friends sealed up his acupoints after he was seated, of course
-this fat monk could not move. Even if we sit for three more days and nights he won’t
-lose.” Turning toward Lingzhi Shangren lying on the ground, he called out, “Come, we’ll
-compete again.”
-
-Seeing Zhou Botong was exuberant, he was not by any means injured, Guo Jing was
-worried about his Shifu. He no longer listened to Zhou Botong talking nonsense, he
-sneaked into the cave to see Ke Zhen’Ewithout saying anything.
-
-Zhou Botong stooped down to unseal Lingzhi Shangren’s acupoints while talking non-
-stop, “Come, we’ll compete again, we’ll compete again!”
-
-Huang Rong coldly said, “What about my Shifu? Where did you throw him?”
-
-Zhou Botong was taken aback. “Aiyo!” he cried and turned around, rushing toward the
-cave. He moved so abruptly that he almost collided with Guo Jing at the cave entrance.
-Guo Jing was holding Ke Zhen’E’s hand, leading him out of the cave. He saw his Shifu
-was wearing plain white cloth and white headband; Guo Jing was startled, “Shifu!” he
-asked, “Have any of your family members died? Where are Er Shifu [Second Master]
-and the others?”
-
-Ke Zhen’E raised his head to the sky without saying anything, two lines of tears flowed
-down on his cheeks. Guo Jing was shocked, but did not dare to ask. Then he saw Zhou
-Botong was helping someone else going out of the cave. That person’s left hand was
-holding a wine gourd, his right hand holding half a chicken, his mouth busily nibble on
-the chicken leg, a broad smile on his face, and he kept nodding his head. He was none
-other than the Nine-fingered Divine Beggar Hong Qigong.
+"Apa yang tidak masuk hitungan?" tanya Huang Rong.
 
-Jing and Rong two people were overjoyed, “Shifu!” they called out together.
-
-Ke Zhen’E’s face suddenly appeared very angry; he lifted up the iron staff and fiercely
-hit the back of Huang Rong’s head. The staff movement was swift and fierce, it was a
-lethal strike from the ‘fu mo zhang fa’ [demon subduing staff technique], which he had
-painstakingly trained to perfection in the Mongolian desert, with the intention to use it
-against the blinded Mei Chaofeng. It was created so that even though Mei Chaofeng
-could hear the staff’s wind, she would not be able to evade it.
+Zhou Botong menjawab, "Teman-temannya menotoknya setelah dia duduk, tentu saja biksu gendut ini tidak bisa bergerak. 
+Kalaupun kami duduk tiga hari tiga malam lagi dia tetap tidak akan kalah." Berpaling kepada Lingzhi Shangren yang 
+tergeletak di tanah ia berseru, "Ayo kita mulai lagi."
 
-Huang Rong had just seen Hong Qigong after a long time and was squealing with de-
-light; she had never guarded against any sneak attack from her back. By the time she
-was feeling the wind, the blast of the iron staff had already enveloped her completely.
-Guo Jing saw the staff was about to shatter her skull, in his desperation his left hand
-swept horizontally shoving the staff aside; while his right hand stretched out and
-grabbed the head of the staff. In panic he had used too much power, without realizing
-that by this time his strength had increased tremendously. The move of his left palm
-was from the Eighteen Dragon Subduing Palms.
-
-Ke Zhen’E felt a sudden surge of strong energy. He was unable to block and the iron
-staff fell down from his hand, he himself also tumbling down to the ground. Guo Jing
-was startled; hastily he stooped down to pick him up. “Da Shifu! [First Master]” he
-called out. Guo Jing saw Ke Zhen’e’s nose was swollen and two of his teeth were broken.
-
-Ke Zhen’E spat the teeth, along with some blood, into his palm. “For you!” he said in a
-cold voice.
-
-Guo Jing was dumbstruck. He knelt down and said, “Disciple deserves to die. Shifu,
-please punish me severely.”
+Melihat Zhou Botong riang gembira, tampaknya sama sekali tidak cedera, Guo Jing mulai kuatir tentang gurunya. Ia tidak 
+lagi mendengarkan omong kosong Zhou Botong, ia menyelinap ke dalam gua dan melihat Ke Zhen'E tidak mengatakan apa-apa.
 
-Ke Zhen’E was still holding out his hand, saying, “For you!”
+Zhou Botong berjongkok untuk membuka totokan Lingzhi Shangren sambil terus bicara, "Ayo kita mulai lagi, kita mulai 
+dari awal!"
 
-Guo Jing wept. “Da Shifu ...” He chocked, not knowing what to say or do.
+Huang Rong berkata dengan dingin, "Bagaimana dengan guruku? Kau lempar ke mana dia?"
 
-Zhou Botong laughed and said, “I’ve seen master beating his disciple, but I’ve never
-seen disciple beating his master until today. Amusing! Truly amusing!”
+Zhou Botong terkejut. "Aiyo!" Ia menjerit dan berpaling ke sekelilingnya, bergegas masuk ke dalam gua. Ia bergerak 
+mendadak, sampai-sampai hampir menabrak Guo Jing di mulut gua. Guo Jing sedang memegang tangan Ke Zhen'E, menuntunnya 
+keluar dari dalam gua. Ia melihat gurunya mengenakan pakaian putih dengan ikat kepala putih. Guo Jing terkejut.
+"Shifu!" katanya. "Apa salah satu anggota keluargamu meninggal? Mana Er Shifu dan yang lain?"
 
-Hearing this Ke Zhen’E was more furious. “Fine,” he said, “There is a saying: swallow
-the knocked down tooth and the blood. Shall I do it for you?” Holding out his hand he
-tossed the teeth into his mouth, throwing his head backward he swallowed the teeth
-into his belly. Zhou Botong clapped his hands, burst out in laughter and cheered loudly.
+Ke Zhen'E mendongak ke arah langit tanpa mengatakan apa-apa, dua tetes air mata berlinang di pipinya. Guo Jing 
+terperanjat, tapi tidak berani bertanya. Ia melihat Zhou Botong sedang membantu orang lain keluar dari dalam gua.
+Tangan kiri orang itu sedang membawa kendi arak, tangan kanannya menggenggam setengah ekor ayam, mulutnya sibuk mengunyah
+paha ayam, senyum lebar menghiasi wajahnya, ia terus menganggukkan kepalanya. Ia tak lain dan tak bukan adalah 
+Si Dewa Pengemis Sembilan Jari, Hong Qigong.
 
-Huang Rong noticed the situation was unusual. The grievous expression on Ke Zhen’E’s
-face had not disappeared. It was unclear why he wanted to kill her; her heart was full
-of questions. Slowly she went to Hong Qigong and pulled his hand.
+Guo Jing dan Huang Rong kegirangan. "Shifu!" panggil mereka serempak.
 
-Guo Jing knocked his head to the ground and said, “Even if I have to die ten thousands
-times, disciple will never dare to offend Da Shifu. I was out of my mind to let my hand
-slip and struck Da Shifu.”
+Air muka Ke Zhen'E mendadak berubah sangai marah, ia mengangkat tongkat besinya dan dengan ganas menghantam bagian belakang 
+kepala Huang Rong. Gerakan tongkat itu sangat cepat dan ganas, itu serangan yang sangat mematikan dari rangkaian 
+Fu Mo Zhang Fa[^fu-mo-zhang-fa], yang dengan mati-matian disempurnakannya di tengah padang rumput Mongolia dengan tujuan
+untuk melawan Mei Chaofeng yang buta. Gerakan itu dirancang sedemikian rupa sehingga kalaupun Mei Chaofeng bisa mendengar 
+suara angin yang mengiringi tongkat itu, ia tidak akan bisa menghindarinya.
 
-Ke Zhen’E said, “Shifu this and Shifu that, who is your Shifu? You have the Master of
-the Peach Blossom Island as your father-in-law, why would you need a Shifu? The
-Seven Freaks of Jiangnan do not have the ability, how can we be worthy to be Guo
-Daye’s [big master Guo] Shifu?”
+[^fu-mo-zhang-fa]: Fu Mo Zhang Fa (伏魔杖法), artinya 'Ilmu Tongkat Penakluk Iblis'.
 
-Guo Jing heard his words were getting sharper and sharper; he kept knocking his head
-to the ground.
+Huang Rong baru saja melihat Hong Qigong setelah lama tidak bertemu, dan sedang dipenuhi kegembiraan. Ia tidak mewaspadai 
+serangan mendadak dari arah belakangnya. Pada saat ia merasakan tiupan angin, tongkat itu telah mengurungnya. Guo Jing 
+melihat tongkat itu hendak menghantam tengkoraknya, dalam keadaan terdesak tangan kirinya menyapu horizontal untuk 
+menyingkirkannya ke samping, sementara tangan kanannya terulur dan mencekal kepala tongkat. Dalam kepanikan ia telah 
+menggunakan terlalu banyak tenaga, tanpa menyadari bahwa pada saat itu tenaganya telah meingkat sangat pesat. Gerakan 
+tangan kirinya adalah dari Delapan Belas Jurus Penakluk Naga.
 
-Finally Hong Qigong could not bear it much longer; he interrupted by saying, “Ke Daxia
-[Great Hero Ke], Master and disciple spar with each other, somebody losing control is a
-common occurrence. The stance Jing’er used just now was taught by me. Just blame it
-on the Old Beggar. Please accept my apology.” And he did indeed cup his fists in respect.
-
-Listening to Hong Qigong, Zhou Botong thought, “Why don’t I say something too?”
-Thereupon he said, “Ke Daxia, Master and disciple spar with each other, somebody los-
-ing control is a common occurrence. The technique Brother Guo Jing used to grab your
-iron staff just now was taught by me. Just blame it on the Old Urchin. Please accept my
-apology.” And he also cupped his fists in respect.
+Ke Zhen'E merasakan gelombang tenaga yang sangat kuat. Ia tidak sanggup menahannya dan tongkat itu terlepas dari tangannya,
+ia sendiri terhuyung jatuh ke tanah. Guo Jing terkejut, buru-buru ia berkongkok untuk memapahnya berdiri. "Da Shifu!" 
+panggilnya. Guo Jing melihat hidung Ke Zhen'E bengkak dan dua giginya patah.
 
-He was just talking nonsense and meant it as a joke, but Ke Zhen’E was livid. He be-
-lieved Zhou Botong intentionally insulted him, and as a result he also regarded Hong
-Qigong’s good intention as a bad one. With a loud voice he said, “You, Eastern Heretic,
-Western Poison, Southern Emperor and Northern Beggar, always think that your mar-
-tial art skills are matchless and you can turn this world upside-down? Humph! I say
-many of your deeds are not righteous, certainly nothing good comes out of you.”
+Ke Zhen'E meludahkan giginya yang patah, bersama dengan segumpal darah, ke telapak tangannya. "Untukmu!" katanya dengan 
+suara dingin.
 
-With a surprised voice Zhou Botong asked, “Hey, what did the Southern Emperor do to
-you that you include him in your curse?”
-
-Huang Rong was listening quietly on the side; she knew the more they talked, the
-worse the situation had become. The Old Urchin being there would only make it more
-difficult to make Ke Zhen’E’s fury subsided. She opened her mouth and said, “Old
-Urchin, ‘the weaving of mandarin ducks desiring to fly together right away’ is looking
-for you; aren’t you going to see her?”
-
-Zhou Botong was startled; he jumped three feet into the air and shouted, “What?!?”
-
-Huang Rong said, “She wants to ‘stand face to face taking a bath wearing red clothes
-when the green spring grass ripples in the deepest of dawn’s cold’ with you.”
-
-Zhou Botong was even more shocked. “Where? Where?” he shouted.
-
-Huang Rong pointed to the south and said, “Over there! Go see her, quick!”
-
-Zhou Botong said, “I won’t see her. Good Miss, I will do whatever you tell me to do; just
-don’t ever tell her that you have seen me ...” Before he even finished talking, his feet
-moved and he ran to the north.
-
-“I’ll hold on to your promise!” Huang Rong called out.
-
-From a distant came Zhou Botong’s reply, “Once the Old Urchin make a promise, I won’t
-regret it.” As the words ‘regret it’ came out of his mouth, like a flash of lightning his
-shadow had already disappeared.
-
-Huang Rong’s original intention was for him to see Ying Gu. Who would have thought
-that Zhou Botong avoided Ying Gu like a serpent or a scorpion and ran away from her
-in fear. It totally blew her mind away; nevertheless she succeeded in getting rid of him.
-
-Up to this time Guo Jing was still kneeling in front of Ke Zhen’E. With tears in his eyes,
-he said, “For disciple’s sake Seven Shifus had traveled to a faraway desert. Even if
-disciple’s body is ground to dust and my bones are shattered, it will still be difficult for
-me to repay Seven Shifus’ kindness. This palm of mine had offended Da Shifu, disciple
-does not want it anymore!” Drawing the dagger from his waist Guo Jing chopped it
-down on his left wrist.
-
-Ke Zhen’E swung his iron staff horizontally, striking the dagger to the side. Although
-the dagger was light and the iron staff heavy, when the two weapons collided sparks
-flew up; Ke Zhen’E felt a tingling sensation on his palms. He knew Guo Jing was using
-his entire strength, thus showing his sincerity.
-
-“Fine,” he said, “If that’s the case, then you must do what I say.”
-
-Guo Jing was very happy. “Whatever Da Shifu says, disciple will not dare to disobey,” he
-said.
-
-“If you don’t do what I say, I forbid you to see my face in the future and thus our mas-
-ter-disciple relationship is severed,” Ke Zhen’E said.
-
-Guo Jing said, “Disciple will do my best. If I can’t do it, I’d rather die.”
-
-Ke Zhen’E struck his iron staff heavily on the ground and shouted, “Go and cut the Old
-Heretic Huang’s and his daughter’s heads; then you can comeback to see me.”
-
-To say Guo Jing was shocked was an understatement. “Da ... Shi ... Shifu ...” he stam-
-mered with a trembling voice.
-
-“What?” Ke Zhen’E asked.
-
-“I wonder how did Huang Daozhu [Island Master Huang] offend you?” Guo Jing asked.
-
-Ke Zhen’E heaved two heavy sighs. Suddenly he gritted his teeth and said, “I really wish
-the Heaven would restore my sight if only for a moment so I can see your face; you, an
-ungrateful little animal!” Lifting his iron staff high he hacked it down toward the top of
-Guo Jing’s head.
-
-As Ke Zhen’E asked Guo Jing to do something for him, Huang Rong had already had a
-vague guess. When Ke Zhen’E’s iron staff suddenly struck and Guo Jing did not evade,
-she thought whatever happened, saving Guo Jing’s life was more important; hence
-from the side her bamboo stick intercepted the iron staff before it reached Guo Jing’s
-head with the ‘e gou lan lu’ [cutting off a vicious dog’s path] stance. As it hit the iron
-staff, the bamboo stick shook and coiled around the staff, pushing it slanting sideways.
-This Dog Beating Stick Technique was truly marvelous; although her strength was infe-
-rior, by borrowing the staff’s strength she managed to re-orient its path.
-
-Ke Zhen’E staggered; without waiting for his feet to come to a complete stop he fiercely
-beat his own chest twice and then ran away to the north. Guo Jing ran after him while
-calling out, “Da Shifu, wait!”
-
-Ke Zhen’E halted his steps and turned around; with a stern voice he said, “Guo Daye
-wants to take my old life?” His expression looked mean and ferocious. Guo Jing was
-taken aback; he did not dare to continue. Hanging his head down he heard the sound of
-the iron staff against the ground getting farther and farther away, before completely
-faded away. Remembering his Shifu’s kindness he could not help but go down on his
-knees and wept bitterly.
-
-Taking Huang Rong’s hand Hong Qigong walked to his side. He said, “Ke Daxia and the
-Old Heretic Huang both have a very strange temperament; they are always in some
-kind of disagreement with each other. Don’t worry, leave it to the Old Beggar to be the
-mediator between them.”
-
-Guo Jing wiped his tears and stood up. “Shifu,” he said, “Do you know ... do you know
-what it was about?”
-
-Hong Qigong shook his head. “The Old Urchin fell into their trick and was betting
-against them in staying still. Those traitors wanted to harm me. Luckily we met your Da
-Shifu outside the Ox Village by accident, and he protected me by taking me hiding in
-this cave. Thanks to the fierceness of his ‘du ling’ secret projectiles those traitors did not
-dare to rush in, so we could hold our ground this long. Ay, your Da Shifu has a noble
-heart, he was very brave in battle defending justice. He accompanied me in that cave
-resisting the enemy. Undoubtedly he was determined to fight to the death.”
-
-Speaking to this point he took two mouthfuls of wine, and then took a bite on the
-chicken leg. Biting and chewing the chicken went into his belly; and then he wiped his
-greasy mouth with his sleeve. Only then did he continued speaking, “The battle was
-fierce; my martial art skill is gone. I could not offer any help in fighting the enemy. I
-only saw your Da Shifu’s face, but did not have the luxury of talking to him about any-
-thing. Judging from how he was very angry, I don’t think it was because of your slip of
-hand. He is a chivalrous hero, how can he have such a narrow mind? Luckily in just a
-few more days it will be the Mid-autumn Festival of the eight month. Wait till the mar-
-tial art contest at the Misty Rain Tavern is over, the Old Beggar will speak on your be-
-half.” Swallowing his tears Guo Jing uttered his gratitude.
-
-Hong Qigong laughed and said, “Your two babies’ martial art skills have advanced
-tremendously. Ke Daxia can be considered a prominent character in the Wulin world,
-yet as soon as you two babies made your moves he fell into awkward positions. What is
-the story behind it?”
-
-In his heart Guo Jing was ashamed; he did not know what to say. Laughing and giggling
-Huang Rong told Hong Qigong everything they went through after they were separated.
-
-Hong Qigong cheered loudly when he heard that Yang Kang killed Ouyang Ke; he shot
-curse words when he heard the Beggar Clan’s Elders were swindled by Yang Kang,
-“Little Bastard! Four old muddle-headed! Lu Youjiao has feet does not have brain!” He
-was entranced when he listened to how Yideng Dashi [Reverend Yideng – great master
-Yideng] saved Huang Rong’s life; and how Ying Gu came at midnight to seek vengeance.
-Finally his expression slightly changed when he heard Ying Gu suddenly went insane at
-the ‘qing long tan’ [green dragon shore]. “Ah!” he exclaimed.
-
-“Shifu, what is it?” Huang Rong asked, “Do you also know Ying Gu?” While in her heart
-she mused, “All his life Shifu has never had a wife. Could it be that he was also mesmer-
-ized by Ying Gu? Hmm, what’s so good about this Ying Gu anyway? Mystifying, acting
-like a mad woman, but can captivate the attention of so many experts of the Wulin
-world?” Luckily Hong Qigong’s answer was pleasing to her ears.
-
-“Nothing,” Hong Qigong said, “I don’t know Ying Gu, but when Emperor Duan left home
-[meaning: become a monk], I was there by his side. That day he sent a letter to the
-north, inviting me to go to the south. I knew he wouldn’t send for the Old Beggar if he
-did not have a very important matter. I also remembered Yunnan’s ham, the ‘over the
-bridge’ rice-flour noodle, and the chunk of cakes and delicacies; so I left at once. When I
-saw him, his face was haggard, like he was suffering from a serious illness; it was com-
-pletely different from when I saw him during the Sword Meet of Mount Hua, where he
-looked alive with a dragon or a tiger’s appearance. I felt very strange. After I have been
-there for a few days with the pretense of discussing martial art he wanted to teach me
-the ‘xian tian gong’ [inborn/innate strength/energy] and ‘yi yang zhi’ [solitary yang fin-
-ger]. The Old Beggar thought: in the past his Solitary Yang Finger was in a level ground
-with my Eighteen Dragon Subduing Palms, the Old Poison’s Toad Stance, the Old
-Heretic Huang’s ‘pi kong zhang’ [splitting the air palm] and Divine Flicking Finger;
-nowadays he had mastered Wang Chongyang’s ‘xian tian gong’. In the second Sword
-Meet of Mount Hua the title of Number One Martial Artist in the World would certainly
-belong to him; why would he want to pass on these two special skills to the Old Beggar,
-without any reason whatsoever? If he wanted to exchange knowledge, why wasn’t he
-willing to learn my Eighteen Dragon Subduing Palms? There must be something behind
-this.
-
-Later on the Old Beggar mulled over this matter, I talked to him and his four main dis-
-ciples; finally I found a clue. It turned out that after he passed on these two skills to me
-he was going to commit suicide. Only why he was grieving so much, even his own disci-
-ples were unclear.”
-
-Huang Rong said, “Shifu, Emperor Duan was afraid that after he died nobody will be
-able to control Ouyang Feng anymore.”
-
-“That’s right,” Hong Qigong said, “When I found out, I was adamant of not willing to
-learn anything from him. At last he told me the truth; he said that although his four dis-
-ciples were loyal and diligent, their minds have been occupied by the kingdom’s affairs
-for a long time, that they could not concentrate on training martial art, hence it would
-be difficult for them to achieve success. It seemed like the Quanzhen Seven Masters’
-martial art also could not reach the pinnacle of perfection. He said it was fine for me
-not willing to learn the Solitary Yang Finger, but if the ‘xian tian gong’ is lost, he would
-not have any face to meet Wang Chongyang Zhenren [lit. true/real person, a respectful
-term to address a Taoist priest] in the underworld. I asked him to reconsider his deci-
-sion, but my persuasion was useless. Only, I was unyielding in my stand not to learn
-from him, with the hope of saving his life. Emperor Duan could not change my mind; fi-
-nally he relented by abdicating his throne and becoming a monk. I was by his side the
-day they shaved his head. It has been more than ten years ago. Ay, finally this enmity
-can be resolved, this is very good.”
-
-“Shifu,” Huang Rong said, “We have finished telling our story, what about you?”
-
-“About me?” Hong Qigong asked, “Hmm, at the imperial kitchen I ate four dishes of
-‘yuan yang wu zhen kuai’ [minced five-treasure mandarin duck]; it was enough to sati-
-ate my craving; and then I ate litchi fruit and kidney, quail soup, sheep tongue in thick
-sauce, snail in ginger and vinegar sauce, oyster fermented in sheep’s tripe ...” on and on
-he listed the name of the dishes he ate at the imperial kitchen, while constantly swal-
-lowing his own saliva and licking his own lips.
-
-“Why is it that later on the Old Urchin could not find you?” Huang Rong interrupted.
-
-Hong Qigong smiled, “The imperial kitchen chefs repeatedly found their prepared
-dishes vanished into thin air; they thought there was a fox fairy making disturbance in
-that place, so they burned incense and lighted candles to worship me. Later on they
-told the chief of the imperial palace guards, who then dispatched eight palace guards to
-the imperial kitchen to catch the fox. The Old Beggar thought it was a serious situation;
-and neither the Old Urchin nor his shadow could be seen. I had no choice but slipped
-away to a remote part to hide for a while. That place was called ‘e lu hua tang’ [green
-calyx flower hall] or something, it was full of plum flower trees. From the look of it, it
-was the winter quarter where that fellow, the Emperor, spends his days enjoying the
-plum blossoms. Only it was the middle of summer; except several old eunuchs sweep-
-ing the ground everyday early in the morning, not even a ghost’s shadow came to that
-place. The Old Beggar was free to roam around. Everywhere in the imperial palace
-there were things to eat; even a hundred beggars won’t die of starvation in that place,
-thereupon I was able to heal my injury in peace and quiet.
-
-I stayed there for more than ten days. One day in the middle of the night I suddenly
-heard the Old Urchin’s voice pretending to be a ghost; and then the voice turned into
-dog’s howling and cat’s meowing. He was turning the palace upside down with the
-noise. And then I heard some people call out, ‘Hong Qigong, Hong laoyezi [old master
-Hong], Hong Qigong, Hong laoyezi!’ I took a peek. Turned out they were Peng Lianhu,
-Sha Tongtian, Liang Ziweng and the other crafty fellows.”
-
-“Ah!” Huang Rong exclaimed in surprise, “Why did they look for you?”
+Guo Jing terdiam. Ia berlutut dan berkata, "Dizi pantas mati. Shifu, harap menghukumku dengan berat."
+
+Ke Zhen'E masih masih memegang tangannya, dan berkata, "Untukmu!"
+
+Guo Jing meratap. "Da Shifu..." Ia tersedak, tak tahu apa yang harus dikatakan atau dilakukannya.
+
+Zhou Botong tertawa dan berkata, "Aku sudah melihat guru memukuli muridnya, tapi aku belum pernah melihat ada murid 
+memukul gurunya sampai hari ini. Luar biasa! Sungguh luar biasa!"
+
+Mendengar hal ini Ke Zhen'E lebih murka lagi. "Baik," katanya. "Ada pepatah mengatakan 'telan gigi yang patah berikut darahnya',
+apa aku harus melakukannya untukmu?" Sambil memegang tangan Guo Jing, ia memasukkan gigi yang patah itu ke dalam mulutnya, 
+lalu menggerakkan kepalanya ke belakang seraya menelan gigi itu ke dalam tenggorokannya. Zhou Botong bertepuk tangan, ia
+tertawa terbahak-bahak dan bersorak nyaring."
+
+Hung Rong melihat situasi yang tidak biasa. Ekspresi duka di wajah Ke Zhen'E belum lenyap. Jelas sekali ke Zhen'E ingin 
+membunuhnya, hatinya dipenuhi pertanyaan. Pelan-pelan ia mendekati Hong Qigong dan menarik tangannya.
+
+Guo Jing membenturkan kepalanya ke tanah dan berkata, "Kalaupun harus mati puluhan ribu kali, Dizi tidak bakalan berani 
+menyinggung perasaan Da Shifu. Dizi sudah gila berani membiarkan tangan Dizi terpeleset dan mengenai Da Shifu."
+
+Ke Zhen'E berkata, "Shifu ini dan Shifu itu, memangnya siapa gurumu? Kau punya mertua Juragan Pulau Bunga Persik, kenapa 
+kau masih perlu seorang guru? Tujuh Orang Aneh dari Jiangnan tak punya cukup kemampuan, mana mungkin kami pantas jadi 
+guru Guo Daye[^daye]?"
+
+[^daye]: Da Ye (大爺), secara literal berarti 'Majikan Besar', alias 'Big Boss'.
+
+Guo Jing mendengar kata-katanya makin lama makin tajam, ia lagi-lagi membenturkan kepalanya ke tanah.
+
+Akhirnya Hong Qigong tidak tahan lagi, ia menyela, "Ke Daxia, guru dan murid saling menguji ilmu silat, ada yang lepas 
+kendali itu hal yang sangat biasa. Jurus yang dipakai Jing'er tadi aku yang mengajarkan. Salahkan saja Pengemis Tua ini.
+Tolong terima permohonan maafku." Dan ia sungguh-sungguh merangkapkan kedua tangannya dengan sikap penuh hormat.
+
+Mendengar ucapan Hong Qigong, Zhou Botong berpikir, "Kenapa aku tidak ikut ngomong?" Karena itu ia berkata, "Ke Daxia,
+guru dan murid saling menguji ilmu silat, ada yang lepas kendali itu hal yang sangat biasa. Jurus yang dipakai 
+Guo Xiandi untuk merebut tongkatmu ttadi aku yang mengajarkan. Salahkan saja Bocah Tua Nakal ini. Tolong terima 
+permohonan maafku." Dan ia juga merangkapkan kedua tangannya dengan sikap penuh hormat.
+
+Ia hanya asal bicara dan bermaksud melucu, tapi Ke Zhen'E sangat tersinggung. Ia sungguh percaya Zhou Botong dengan 
+sengaja ingin menghinanya, dan sebagai akibatnya ia juga menganggap niat baik Hong Qigong sebagai hal yang buruk. Dengan 
+suara nyaring ia berkata, "Kau, Si Sesat Timur, Racun Barat, Kaisar Selatan dan Pengemis Utara, selalu mengira kungfu 
+kalian tak ada bandingannya, dan kalian bisa menjungkirbalikkan dunia ini? Hm! Menurutku tindakan kalian banyak yang 
+tidak benar, sudah jelas tidak ada hal baik bisa timbul dari kalian semua."
+
+Dengan nada kaget Zhou Botong bertanya, "Hei, apa yang dilakukan Kaisar Selatan, kok kau mendampratnya juga?"
+
+Huang Rong mendengarkan secara diam-diam dari samping, ia tahu makin banyak mereka bicara, situasinya akan makin buruk.
+Kehadiran Lao Wantong di situ hanya membuat amarah Ke Zhen'E lebih sulit dihilangkan. Ia membuka mulutnya dan berkata,
+"Lao Wantong, 'sulaman bebek mandarin ingin terbang bersama secepatnya' sedang mencarimu, kau mau ketemu dia atau tidak?"
+
+Zhou Botong sangat terkejut, ia melompat tiga kaki ke udara dan berteriak, "Apa?!?"
+
+Huang Rong berkata, "Dia ingin 'mandi sambil berdiri berhadapan memakai baju merah ketika hijaunya dedaunan musim semi 
+bergelombang di kedalaman senja yang dingin' bersamamu."
+
+Zhou Botong lebih kaget lagi. "Mana? Mana?" serunya.
+
+Huang Rong menunjuk ke selatan dan berkata, "Di sana! Ayo cepat temui dia, cepat!"
+
+Zhou Botong berkata, "Aku tidak akan menemuinya. Nona yang baik, aku akan melakukan apapun yang kau katakan, pokoknya 
+jangan bilang kalau kau pernah ketemu aku..." Sebelum ia selesai bicara. kakinya bergerak dan ia melarikan diri ke Utara.
+
+"Aku akan memegang janjimu!" seru Huang Rong.
+
+Dari kejauhan terdengar jawaban Zhou Botong, "Sekali Lao Wantong berjanji, maka aku tidak akan menyesalinya." Begitu 
+kata 'menyesalinya' keluar dari mulut, secepat kilat bayangannya lenyap.
+
+Sebenarnya Huang Rong berniat untuk mempertemukannya dengan Ying Gu. Di luar dugaannya Zhou Botong menghindari Ying Gu 
+seperti menghindari ular atau kalajengking, dan lari terbirit-birit ketakutan. Betapapun juga, ia berhasil menyingkirkan 
+Zhou Botong.
+
+Sampai saat itu Guo Jing masih berlutut di hadapan Ke Zhen'E. Berlinang air mata ia berkata, "Demi muridmu ini ketujuh 
+guru sudah bertualang sampai jauh ke padang rumput. Meskipun tubuh Dizi jadi debu dan tulang Dizi hancur berantakan,
+masih tetap sulit membalas budi baik Shifu bertujuh. Tangan Dizi ini sudah menyinggung Da Shifu, Dizi tidak menginginkannya
+lagi!" Menghunus pisau dari pinggangnya Guo Jing membacok pergelangan tangan kirinya.
+
+Ke Zhen'E mengayunkan tongkat besinya secara horizontal, memukul pisau itu ke samping. Meskipun pisau itu ringan dan 
+tongkat itu jauh lebih berat, ketika kedua senjata itu bertemu, percikan bunga api tersebar kemana-mana. Ke Zhen'E 
+merasa tangannya kesemutan. Ia tahu Guo Jing menggunakan segenap tenaganya, dengan demikian membuktikan ketulusannya.
+
+"Baik," katanya. "Kalau begitu kau harus melakukan apa yang kusuruh."
+
+Guo Jing sangat gembira. "Apapun juga yang Da Shifu katakan, Dizi tidak berani membantah," katanya.
+
+"Kalau kau tidak mau melakukan apa yang kusuruh, maka aku melarangmu melihat mukaku lagi, dan mulai saat itu 
+hubungan kita sebagai guru dan murid putus," kata Ke Zhen'E.
+
+Guo Jing berkata, "Dizi akan berusaha melaksanakannya. Kalau Dizi tidak sanggup, maka lebih baik Dizi mati."
+
+Ke Zhen'E menghempaskan tongkat besinya ke tanah keras-keras sambil berteriak, "Penggal kepala Huang Laoxie dan 
+anaknya, lalu kau boleh kembali ke sini menemui aku."
+
+Kalau dikatakan bahwa Guo Jing kaget, rasanya masih terlalu ringan. "Da... Shi... Shifu..." ia tergagap dengan 
+suara gemetar.
+
+"Apa?" tanya Ke Zhen'E.
+
+"Entah apa yang dilakukan Huang Daozhu untuk menyinggung Da Shifu?" tanya Guo Jing.
+
+Ke Zhen'E menghela nafas berat dua kali. Tiba-tiba ia menggertakkan gigi dan berkata, "Aku sungguh berharap Surga 
+memulihkan mataku meskipun hanya untuk sesaat, supaya aku bisa melihat mukamu, kau, binatang kecil yang tak tahu 
+terima kasih!" Mengangkat tongkat besinya tinggi-tinggi, ia menghujamkannya ke batok kepala Guo Jing.
+
+Ketika Ke Zhen'E menyuruh Guo Jing melakukan sesuatu untuknya, Huang Rong sudah menebak samar-samar apa yang diinginkannya.
+Waktu tongkat Ke Zhen'E tiba-tiba menghujam dan Guo Jing tidak mengelak, ia berpikir bahwa apapun juga yang terjadi, 
+menyelamatkan nyawa Guo Jing adalah lebih penting, karena itu dari samping tongkat bambunya memotong laju tongkat besi itu
+sebelum mengenai kepala Guo Jing dengan menggunakan jurus E Gou Lan Lu[^anjing-jahat]. Begitu menghantam tongkat besi,
+tongkat bambu itu bergetar dan melilit tongkat besi, membuatnya melenceng ke samping. Teknik Yongkat Penggebuk Anjing 
+itu sangat menakjubkan, meskipun tenaganya lebih lemah, tapi dengan meminjam kekuatan tongkat besi ia mampu membelokkan 
+arahnya.
+
+[^anjing-jahat]: E Gou Lan Lu (惡狗攔路), bisa diterjemahkan menjadi 'Menghalangi jalan anjing galak'.
+
+Ke Zhen'E terhuyung, tanpa menunggu kakinya berhenti total, ia memukul dadanya sendiri keras-keras dua kali dan kemudian 
+lari ke Utara. Guo Jing mengejarnya sambil berseru, "Da Shifu, tunggu!"
+
+Ke Zhen'E menghentikan langkahnya dan berpaling, dengan nada tajam ia berkata, "Guo Daye ingin mengambil nyawaku?"
+Ekspresi mukanya tampak bengis dan kejam. Guo Jing sangat terkejut, ia tidak berani melanjutkan. Sambil menundukkan kepala 
+ia mendengar suara tongkat besi membentur tanah makin jauh, sebelum akhirnya tak terdengar lagi. Teringat akan kebaikan 
+hati gurunya, ia tak kuasa menahan diri untuk berlutut dan meratap dengan pahit.
+
+Sambil memegang tangan Huang Rong Hong Qigong berjalan mendekat ke sisinya. Ia berkata, "Ke Daxia dan Huang Laoxie 
+sama-sama punya temperamen aneh, mereka selalu punya semacam selisih pendapat. Jangan kuatir, serahkan saja pada 
+Pengemis Tua untuk menengahinya."
+
+Guo Jing menghapus air matanya dan bangkit berdiri. "Shifu," katanya. "Kau tahu... kau tahu apa yang sebenarnya terjadi?"
+
+Hong Qigong menggelengkan kepalanya. "Lao Wantong jatuh ke perangkap mereka dan bertaruh tentang siapa yang bisa diam 
+lebih lama. Bangsat-bangsat itu ingin mencelakai aku. Untungnya kami kebetulan ketemu guru pertamamu di luar Desa Niu,
+dan dia melindungiku dengan cara menyembunyikan aku di gua ini. Berkat kehebatan Du Ling-nya bajingan-bajingan itu 
+tidak berani mendekat, jadi kami bisa bertahan sejauh ini. Aih, gurumu itu punya hati yang sangat mulia, dia sangat 
+berani melawan ketidakadilan. Dia menemani aku di dalam gua untuk melawan musuh. Tak ragu lagi, dia pasti sudah 
+siap bertarung sampai mati."
+
+Bicara sampai di sini ia meneguk araknya dua kali, lalu menggigit kaki ayam. Setelah mengunyah dan menelan ayamnya,
+ia menghapus minyak dari mulutnya dengan lengan baju. Baru pada saat itu ia melanjutkan, "Pertarungan itu sangat 
+sengit, kungfuku sudah lenyap. Aku tidak bisa membantu melawan musuh. Aku hanya bisa melihat muka gurumu, tapi sayangnya 
+tidak sempat bicara apa-apa dengan dia. Kalau menilai dari kemarahannya, kurasa itu bukan karena tanganmu terpeleset 
+dan megenainya. Dia seorang pahlawan gagah berani, masa pikirannya sesempit itu? Untungnya dalam waktu beberapa hari 
+ini Zhongqiu Jie sudah tiba. Kita tunggu setelah selesai adu ilmu silat di Jiaxing, Pengemis Tua akan bicara untuk 
+membantumu." Sambil menahan air mata, Guo Jing mengucapkan terima kasih.
+
+Hong Qigong tertawa dan berkata, "Kelihatannya kungfu kalian — dua bocah cilik ini — sudah maju pesat. Ke Daxia bisa 
+dibilang karakter yang menonjol di Wulin, tapi setelah kalian bergerak dia langsung di bawah angin. Bagaimana ceritanya 
+sampai bisa begini?"
+
+Dalam hati Guo Jing sangat malu, ia tidak tahu apa yang harus dikatakannya. Sambil tertawa cekikikan Huang Rong 
+menceritakan kepada Hong Qigong segala hal yang telah mereka alami setelah berpisah.
+
+Hong Qigong bersorak keras-keras ketika mendengar Yang Kang membunuh Ouyang ke, ia menyumpah-nyumpah ketika mendengar 
+para penatua Kai Pang dipermainkan Yang Kang, "Bangsat kecil! Empat tua bangka tolol! Lu Youjiao punya kaki tapi 
+tidak punya otak!" Ia melamun ketika mendengar bagaimana Yideng Dashi menyelamatkan nyawa Huang Rong, dan bagaimana 
+Ying gu datang malam-malam untuk membalas dendam. Akhirnya air mukanya berubah sedikit ketika mendengar Ying Gu 
+tiba-tiba menjadi gila di Qing Long Tan. "Ah!" serunya.
+
+"Shifu, ada apa?" tanya Huang Rong. "Kau juga kenal Ying Gu?" Dalam hati ia bertanya-tanya, "Sepanjang hidupnya Shifu 
+tidak pernah punya istri, apa dia juga terpesona oleh Ying Gu? Hm, apa sih bagusnya Ying Gu ini? Sok misterius, bertingkah 
+seperti orang gila, tapi kok bisa mempesona banyak ahli kungfu di dunia persilatan?" Untungnya jawaban Hong Qigong 
+cukup menyenangkan telinganya.
+
+"Bukan apa-apa," kata Hong Qigong. "Aku tidak kenal Ying Gu, tapi waktu Kaisar Duan meninggalkan rumah dan menjadi biksu,
+dia mengundangku ke Selatan. Aku tahu dia tidak akan mengundang Pengemis Tua ini kalau tidak ada urusan penting. Aku 
+juga ingat ham dari Yunnan, bihun itu, dan juga potongan kue-kue dan cemilan lain, jadi aku langsung berangkat. Waktu 
+aku melihatnya, mukanya tirus, seperti baru sakit berat, sangat lain kalau dibandingkan waktu kulihat dia di pertandingan 
+kungfu Hua Shan, dia waktu itu kelihatan hidup, dengan penampilan seperti naga atau harimau. Aku merasa sangat heran.
+Setelah tinggal di sana beberapa hari dengan alasan diskusi tentang kungfu, dia ingin mengajariku Xian Tian Gong dan 
+Yi Yang Zhi. Pengemis Tua berpikir, di masa lalu ilmu Yi Yang Zhi dia seimbang dengan Delapan Belas Jurus Penakluk Naga,
+Jurus Kodok milik Racun Tua, Pi Kong Zhang dan sentilan jari milik Huang Laoxie. Sekarang dia menguasai Xian Tian Gong 
+milik Wang Chongyang. Dalam pertandingan Hua Shan kedua nanti, gelar Pendeka Nomor Satu Dunia pastilah akan jadi miliknya.
+Kenapa dia harus mewariskan ilmu istimewa itu kepada Pengemis Tua tanpa alasan yang jelas? Kalau dia ingin bertukar 
+ilmu, kenapa dia tidak ingin belajar Delapan Belas Jurus Penakluk Naga? Pasti ada alasan di balik semua itu.
+Belakangan Pengemis Tua merenungkan masalah ini, aku bicara dengan dia dan keempat orang muridnya, akhirnya aku 
+menemukan petunjuk. Ternyata setelah mewariskan kedua ilmu itu kepadaku dia berniat bunuh diri. Hanya saja, entah apa
+alasannya sampai dia begitu sedih, bahkan para muridnya juga tidak tahu pasti."
+
+Huang Rong berkata, "Shifu, Kaisar Duan takut kalau setelah dia meninggal nanti, tidak ada orang bisa mengendalikan 
+Ouyang feng.'
+
+"Betul," kata Hong Qigong. "etika aku tahu soal itu, aku bersikeras tidak mau belajar apa-apa dari dia. Akhirnya dia 
+menceritakan masalah yang sebenarnya, dia bilang meskipun murid-muridnya sangat setia dan rajin, tapi pikiran mereka sudah 
+terlalu lama sibuk dengan segala urusan negara, maka mereka tidak bisa berkonsentrasi untuk berlatih ilmu silat, dengan 
+begitu sangat sulit bagi mereka untuk mencapai sukses. Tampaknya ilmu silat Ketujuh Pendekar Quanzhen juga tidak bisa 
+mencapai titik sempurna. Dia bilang boleh-boleh saja kalau aku tidak ingin belajar Yi Yang Zhi, tapi kalau Xian Tian Gong 
+sampai lenyap, maka dia tidak punya lagi ketemu Wang Chongyang Zhenren di akhirat. Aku memintanya untuk mempertimbangkan 
+lagi keputusannya, tapi bujukanku tidak berguna. Hanya saja, aku sama sekali tidak bergeming dari keputusanku untuk 
+tidak belajar apa-apa dari dia, dengan harapan bisa menyelamatkan nyawanya. Kaisar Duan tidak bisa mengubah keputusanku,
+akhirnya dia mengalah dengan jalan mengundurkan diri dan menjadi biksu. Aku ada di sampingnya pada hari itu, ketika dia 
+mencukur rambut. Itu sudah lebih dari sepuluh tahun yang lalu. Aih, akhirnya permusuhan itu bisa dibereskan, ini 
+betul-betul bagus."
+
+"Shifu," kata Huang Rong. "Kami sudah selesai menceritakan pengalaman kami, bagaimana dengan Shifu?"
+
+"Aku?" tanya Hong Qigong. "Hmm, di dapur istana aku makan empat masakan Yuan Yang Wu Zhen Kuai[^bebek-giling], itu sudah 
+cukup untuk mengatasi ketagihanku. Lalu aku makan buah leci dan ginjal, sup burung puyuh, lidah domba saus kental, keong 
+dengan saus jahe dan cuka, tiram yang diawetkan dalam babat domba..." Ia terus menggumamkan daftar makanan yang dimakannya 
+di dapur istana, sambil terus menerus menelan ludah dan menjilat bibirnya sendiri.
+
+[^bebek-giling]: Yuan Yang Wu Zhen Kuai, secara literal berarti 'Bebek giling lima harta karun'.
+
+"Kenapa setelah itu Si Lao Wantong tidak bisa menemukanmu?" sela Huang Rong.
+
+Hong Qigong tersenyum. "Koki-koki di dapur istana terus-terusan menemukan bahwa masakan yang mereka siapkan menghilang 
+tanpa jejak, mereka pikir ada Peri Rubah mengganggu tempat itu, jadi mereka membakar dupa dan menyalakan lilin untuk 
+menyembah aku. Belakangan mereka mengatakan semua itu kepada kepala pengawal istana, yang kemudian mengerahkan delapan 
+orang pengawal untuk pergi dan menangkap Peri Rubah itu di dapur. Pengemis Tua merasa ini situasi yang sangat serius,
+dan baik lao Wantong maupun bayangannya sama sekali tidak kelihatan saat itu. Aku tidak punya pilihan selain menyelinap
+pergi ke tempat agak jauh untuk menyembunyikan diri sebentar. Tempat itu bernama E Lu Hua Tang[^e-lu-hua-tang] atau 
+yang semacam itu, itu penuh dengan pohon Mei Hua[^mei-hua]. Dari penampilannya, itu pasti ruangan untuk musim dingin,
+di mana sobatku itu, Si Kaisar, menghabiskan waktunya untuk menikmati mekarnya bunga-bunga Meihua. Hanya saja, ini 
+di tengah musim panas, kecuali beberapa gelintir kasim yang menyapu tanah setiap hari di pagi hari, bahkan bayangan 
+hantu pun tidak ada di tempat itu. Pengemis Tua dengan bebas bisa menjelajah kemana-mana. Di segala tempat di istana,
+pasti ada saja yang bisa dimakan, bahkan seratus pengemis pun tidak akan mati kelaparan di tempat itu, karena itu 
+aku bisa menyembuhkan cederaku dengan damai dan tenang."
+
+[^mei-hua]: Mei Hua (梅花) atau Bunga Prem adalah sebuah pohon, yang buahnya banyak beredar di Indonesia sebagai manisan. Manisan ini seringkali terlihat pada saat perayaan Tahun Baru Imlek dan sejenisnya. Warnanya bisa kuning atau hijau.
+
+"Aku tinggal di situ selama lebih dari sepuluh hari. Suatu hari di tengah malam, aku tiba-tiba mendengar suara 
+Lao Wantong pura-pura jadi hantu, dan kemudian suara itu berubah menjadi gonggongan anjing dan kucing meong-meong. Dia 
+menjungkirbalikkan istana dengan segala suara berisik. Lalu aku mendengar ada orang memanggil, 'Hong Qigong,
+Hong Laoyezi, Hong Qigong, Hong Laoyezi[^laoyezi]!' Aku mengintip. Ternyata mereka itu Peng Lianhu, Sha Tongtian, Liang Ziweng
+dan semua bangsat lainnya."
+
+[^laoyezi]: Lao Ye Zi (老爷子) adalah sebutan umum untuk seorang laki-laki tua.
+
+"Ah!" seru Huang Rong terkejut. "Kenapa mereka mencarimu?"
+
 
 “I thought it was very strange too,” Hong Qigong said, “As soon as I saw them I went
 back into hiding. Who would have thought that the Old Urchin had already spotted me.
