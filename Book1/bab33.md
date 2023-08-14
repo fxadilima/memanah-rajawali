@@ -545,7 +545,7 @@ Huang Rong berkata, "Jing Gege mengutip bagian kitab yang kacau balau itu dan Yi
 Dia menyuruh kami menceritakannya kepada Shifu supaya memakai teknik itu untuk membuka sendiri kedelapan jalan darah 
 istimewa di tubuhmu[^delapan-jalan-darah]." Ia langsung mengutip semua terjemahan Yideng Dashi itu dari ingatannya.
 
-[^delapan-jalan-darah]: Delapan Jalan Darah Istimewa yang dimaksud itu adalah Qi Jing Ba Mai (), yaitu delapan jalan darah yang bukan termasuk jalan darah utama dalam tubuh manusia menurut teori akupuntur. Titik-titik ini biasanya hanya dikenal dan dipakai secara rutin oleh para praktisi ilmu beladiri seperti Tai Chi.
+[^delapan-jalan-darah]: Delapan Jalan Darah Istimewa yang dimaksud itu adalah Qi Jing Ba Mai (奇經八脈), yaitu delapan jalan darah yang bukan termasuk jalan darah utama dalam tubuh manusia menurut teori akupuntur. Titik-titik ini biasanya hanya dikenal dan dipakai secara rutin oleh para praktisi ilmu beladiri seperti Tai Chi.
 
 Setelah mendengarkan semuanya Hong Qigong termenung lama, kemudian ia melompat kegirangan sambil berseru, "Luar biasa! 
 Luar biasa! Aku yakin aku hanya perlu waktu satu setengah tahun untuk memulihkan diri."
