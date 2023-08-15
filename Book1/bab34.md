@@ -282,6 +282,8 @@ terhadap Si Sesat Timur. Sayang sekali dia tidak punya cukup waktu." Ia meremas 
 Sambil menggertakkan rahangnya ia berkata, "Er Shifu, Er Shifu, Huang Laoxie melihat niat baikmu sebagai kejahatan."
 Pegangannya mengendur dan gumpalan kertas itu jatuh ke tanah. Sambil membungkuk ia mengangkat jenazah Zhu Cong.
 
+[^karakter-timur]: Timur dalam bahasa mandarin adalah Dong (东).
+
 Huang Rong selalu mengawasi Guo Jing ketika ia membaca kertas itu. Ia melihat air mukanya berubah beberapa kali, 
 ia tahu surat itu pastilah sangat penting. Begitu kertas itu jatuh, ia berjalan pelan mendekatinya dan memungutnya.
 Ia membaca tulisan di kedua sisi dan berkata dalam hati, "Keenam gurunya datang ke Pulau Bunga Persik dengan niat 
@@ -303,6 +305,10 @@ Quan Jinfa, dan meletakkan semuanya di dalam lubang. Ia hendak menutup lubang it
 memandang wajah ketiga gurunya ia tidak tega melakukannya. Ia berseru, "Er Shifu, San Shifu, Liu Shifu,
 kalian... kalian sudah tewas!" Suaranya lembut, dengan nada yang sama seperti yang biasa digunakannya ketika 
 berbicara dengan para gurunya di masa lalu.
+
+[^karakter-zhao]: Karakter Zhao (招) punya beberaa makna, salah satunya adalah 'merekrut'.
+
+[^karakter-bi]: Karakter Bi (比) bermakna 'kontes' atau 'lomba'.
 
 Setelah kira-kira setengah harian ia melirik tumpukan harta karun di sisi lubang itu, amarahnya meluap. Dengan 
 kedua tangannya ia meraup semuanya dan berjalan dengan mantap menuju ke makam ibu Huang Rong. Huang Rong kuatir 
