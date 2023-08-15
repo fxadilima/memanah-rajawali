@@ -461,7 +461,7 @@ putar balik dan menggali sebuah lubang di bawah pohon persik untuk menguburkan N
 
 Guo Jing tidak makan sepanjang hari, perutnya sakit karena lapar. Ia ingin menemukan jalan kembali ke tepi pantai
 dan menemukan perahu untuk kembali ke Zhong Yuan, tapi makin jauh ia berjalan, ia jadi makin bingung. Ia duduk 
-beristirahat sejenak, lalu bangkit kembali dengan semangat barudan kembali berjalan. Kali ini ia menemukan akal,
+beristirahat sejenak, lalu bangkit kembali dengan semangat baru dan kembali berjalan. Kali ini ia menemukan akal,
 tak peduli ia menemukan jalan keluar atau tidak, ia akan tetap memandang ke arah matahari di sebelah timur.
 
 Setelah berjalan beberapa waktu di hadapannya adalah sebuah hutan lebat, tampaknya tak bisa dilewati. Tak ada 
@@ -511,67 +511,57 @@ pandangannya dan juga melihat kain hijau itu. "Ayah!" serunya terkejut. Guo Jing
 mereka berari ke arah batu itu. Mereka melihat kain itu adalah jubah panjang, tersangkut di cekungan batu, mereka juga 
 melihat sebuah topeng kulit manusia tergeletak di dekatnya. Jelas sekali semua itu adalah milik Huang Yaoshi.
 
-**Batas 1**
+Huang Rong sungguh kaget, ia membungkuk untuk memungut jubah itu dan dengan jelas melihat cap tangan berdarah di 
+kerah jubah, dengan jari-jarinya meninggalkan jejak berliku. Tampaknya sangat mengerikan.
 
-Huang Rong was really alarmed; she stooped down to pick up the gown and clearly saw
-a bloody hand print on the lapel of the gown, with the fingers left winding traces. It
-looked very scary.
+Guo Jing teringat. "Setelah membunuh San Shifu dengan menggunakan Jiu Yin Baigu Zhua, Huang Yaoshi pasti membersihkan 
+jari-jarinya menggunakan pakaian ini."
 
-Guo Jing remembered, “After killing my San Shifu with the Nine Yin White Bone Claw
-Huang Yaoshi must have wiped his fingers with this cloth.”
+Semula ia sedang menggandeng tangan Huang Rong, tapi sekarang darahnya mendidih di dalam dada, ia melepaskan tangan 
+Huang Rong, merebut jubah itu, dan dengan suara 'krekk' ia merobek jubah itu menjadi dua. Ia melihat salah satu 
+sudut jubah itu robek, kelihatannya seperti potongan kain hijau yang diikatkan di kaki elang. Jejak darah itu 
+begtu jelas sehingga di bawah matahari yang cerah tampak seolah-olah telapak tangan itu hendak melompat keluar 
+dari kain jubah dan menampar muka seseorang. Tetapi hal itu memancing amarah Guo Jing lebih jauh lagi, ia merasa 
+seakan-akan ia bakal jadi gila karena sedih dan marah. Ia menyelipkan jubahnya sendiri di ikat pinggang dan 
+menceburkan diri ke air menuju ke sebuah perahu layar.
 
-Initially he was holding Huang Rong’s hand, but now his blood was boiling inside his
-chest; he shook Huang Rong’s hand away, snatched the gown, and with a ‘rip!’ sound he
-tore the gown into two parts. He saw the corner of the gown was torn, looked like it
-was the green piece of cloth tied on the eagle’s foot. The blood print was so clear that
-under the bright sunlight it looked as if the palm would jump out of the clothes and
-slap someone on the face; but it provoked Guo Jing’s anger even more so that he felt he
-was going to go insane from grief and indignation. He tucked his own gown into his
-belt and waded into the water towards a sailboat.
+Para pelayan bisu-tuli sudah lama pergi entah kemana, menghilang tanpa jejak. Tanpa menengok kembali ke arah 
+Huang Rong ia menghunus belatinya dan memotong tali, mengangkat jangkar dan berlayar di laut.
 
-The mute and deaf servants on the boat had long gone, disappeared without a trace.
-Without looking back to Huang Rong he drew his dagger out and cut the rope, hoisted
-the anchor and sailed to the sea.
+Huang Rong mengawasi perahu itu berlayar ke barat. Mula-mula ia berharap bahwa Guo Jing akan berubah pikiran, 
+membelokkan kemudi dan kembali ke pulau, menjemputnya untuk pergi bersama, tetapi kemudian ia melihat perahu 
+itu semakin lama semakin kecil, sementara hatinya makin lama makin dingin. Ia menatap kosong ke arah laut 
+sampai perahu itu menghilang di cakrawala. Tiba-tiba ia teringat bahwa ia sendirian di pulau itu, Jing Gege 
+telah pergi, dan ia tidak tahu apakah ayahnya akan pulang atau tidak. Bagaimana ia akan melewati hari-harinya?
+Akankah ia terus berdiri di pantai ini selamanya? Rong'er, Rong'er, kau jangan mengambil jalan pintas dan mati!
 
-Huang Rong watched the boat sail to the west. At first she was hoping that he would
-change his mind, turn the rudder and head back to the island to take her traveling to-
-gether; but then she saw the boat was getting smaller and smaller, while her heart was
-turning colder and colder. She stared blankly at the sea until the boat disappeared on
-the horizon. Suddenly she remembered that she was alone on the island; Jing Gege had
-gone, and she did not know whether her father would ever return. How could she pass
-the rest of her days? Would she just stand on this shore forever? Rong’er, Rong’er, you
-must not take a short cut and die!
+Guo Jing sendirian mengemudikan perahu meninggalkan Pulau Bunga Persik, menuju ke barat. Ia telah 
+berlayar beberapa puluh _li_ ketika mendengar suara pekikan elang yang cemas di atas kepalanya. Sepasang 
+elang itu mengikutinya dan bertengger di gagang kemudi. Gu Jing berpikir, "Elang-elang ini mengikuti aku,
+Rong'er sendirian di pulau, dia pasti sangat kesepian!" Dikalahkan oleh rasa kasihan dan penyesalan ia 
+secara spontan memutar balik kemudi, ingin membawanya pergi bersama. Tetapi setelah berlayar sebentar
+ia teringat, "Da Shifu menyuruhku memenggal kepala Huang Yaoshi dan Rong'er sebelum aku boleh datang menemuinya.
+Da Shifu, Er Shifu dan yang lain datang ke Pulau Bunga Persik dan jatuh ke tangan beracun Huang Yaoshi. Meskipun 
+Da Shifu buta, dia bisa mendengar dengan jelas. Karena suatu alasan dia beruntung bisa lolos dan tetap hidup,
+Dia mengangkat tongkatnya untuk membunuh Rong'er. Dia mau membunuh Rong'er, apa yang telah dilakukan Rong'er? 
+Aku tidak bisa membunuh Rong'er. Er Shifu dan yang lain bukan dibunuh oleh Rong'er. Tapi bagaimana aku bisa 
+terus bersama dengan dia? Aku harus memenggal kepala Huang Yaoshi dan membawanya menemui Da Shifu. Kalau aku 
+bukan tandingan Huang Laoxie, maka aku akan membiarkannya membunuhku." Dengan segera ia memutar balik kemudi 
+lagi, membuat sebuah lingkaran di permukaan laut, sekali lagi mengarah ke barat.
 
-All by himself Guo Jing steered the boat, leaving the Peach Blossom Island, heading
-west. He had sailed for several dozen ‘li’s when he suddenly heard the eagles’ anxious
-cry high above his head. The pair of eagles had followed him and perched on the sail
-arms. Guo Jing thought, “The eagles come after me, Rong’er is alone on the island, she
-must be very lonely!” Overcome with pity and regret he spontaneously turned the rud-
-der around, wanting to take her to travel together. But after sailing for a short while he
-remembered, “Da Shifu told me to cut Huang Yaoshi’s and Rong’er’s heads before I can
-come and see him. Da Shifu, Er Shifu and the others came to the Peach Blossom Island
-and fell under Huang Yaoshi’s poisonous hands. Although Da Shifu is blind, he can hear
-clearly. For some reason he was fortunate to escape and stay alive. He raised his iron
-staff to kill Rong’er; he wanted me to kill Rong’er, what did Rong’er do? I can’t kill
-Rong’er; Er Shifu and the others were not killed by Rong’er. But how can I be together
-with her? I must cut Huang Yaoshi’s head and take it away to see Da Shifu. If I am not
-the Old Heretic Huang’s match, then I’ll let him kill me.” Immediately he turned the
-rudder again, making a circle on the sea surface, heading west once more.
+Malam pada hari ketiga perahu itu tiba di pantai. Karena kebenciannya pada segala sesuatu yang berasal dari 
+Pulau Bunga Persik ia mengambil jangkar dan menghantam dasar perahu sebelum melompat ke pantai. Ia mengawasi 
+ketika perahu itu perlahan-lahan miring ke sisi dan tenggelam di dasar laut. Ia tak kuasa menahan rasa kehilangan
+dalam hatinya. Meninggalkan pantai ia berjalan ke barat. Ia menemukan rumah penduduk dan membeli nasi untuk dimakan.
+Setelah menemukan arah yang tepat ia langsung menuju Jiaxing.
 
-Late on the third day the boat reached the shore. Out of hatred of everything from the
-Peach Blossom Island he took the anchor and smashed the bottom of the boat before
-leaping onto the beach. He watched while the sailboat slowly leaned sideways and sunk
-to the bottom of the ocean. He could not help but feel a loss in his heart. Leaving the
-shore he walked to the west; he found a peasant home and bought some rice to eat.
-After finding the right direction he went straight to Jiaxing.
+Sore itu ia bermalam di tepi sungai Qiantang. Ia melihat pantulan terang bulan di permukaan sungai, seperti 
+sebuah roda emas besar terapung di atas air. Mendadak ia melompat kaget. Ia kuatir terlambat menghadiri adu 
+ilmu silat di Kedai Hujan Berkabut, Jiaxing. Dengan segera ia bertanya kepada pemilik rumah tempatnya bermalam,
+dan mendapat kenyataan bahwa hari ini adalah tanggal tiga belas bulan delapan. Buru-buru ia menyeberangi sungai 
+malam itu juga. Ia membeli seekor kuda yang sehat dan mencambuk kuda itu untuk berpacu cepat, dan tiba di Jiaxing
+pada siang hari keesokan harinya.
 
-That evening he spent the night by the bank of Qiantang River; he saw the reflection of
-the bright moon on the river, like a big golden wheel floating on the water. Suddenly he
-jumped up with a start; he was afraid he missed the martial art contest appointment at
-the Misty Rain Tavern. Immediately he asked the host where he lodged, and found out
-that today was the thirteenth of the eighth month. Hastily he crossed the river that very
-same night; he bought a healthy horse and whipped the horse to gallop quickly, and ar-
-rived at Jiaxing by early afternoon of the next day.
 
 Since his childhood he had heard his six shifus recounted their battle with Qiu Chuji;
 how they had a wine drinking contest out of the huge copper vat at the Drunken
