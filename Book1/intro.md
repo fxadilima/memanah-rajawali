@@ -183,6 +183,14 @@ _memang_ agak negatif — yaitu bagi pemerintah di jaman itu — karena kehadira
 mengacaukan suatu tatanan yang dibangun oleh pemerintah. Dalam konteks ini kita bisa melihat bahwa Ketua 
 Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 
+## Catatan Lain
+
+Tokoh yang menerjemahkan dan merangkum isi Jiu Yin Zhen Jing dalam terjemahan bahasa Inggris bernama Huang Shang,
+tetapi yang benar adalah Huang Chang (黃裳). Ini sebetulnya cukup penting karena Huang Shang dalam _pinyin_ sebetulnya 
+lebih sering dipakai sebagai sebutan bagi seorang Kaisar. Kalau kita memakai Google Translate, memang kedua karakter 
+tersebut akan diberi cara penyebutan Huang Shang, tetapi kalau kita menerjemahkannya menjadi bahasa Indonesia atau Inggris,
+maka nama tersebut mendapat romanisasi menjadi Huang Chang.
+
 — FX. Adi Lima
 
 [^1]: Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah

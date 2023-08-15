@@ -34,37 +34,31 @@ tetapi bau darahnya masih ada. Tampaknya darah itu sudah berumur sekitar tiga-em
 kuda itu untuk memeriksanya lebih teliti, tetapi ia tidak melihat ada luka sedikitpun di sekujur tubuhnya. Sambil melamun 
 ia duduk di tanah dan berpikir, "Apa mungkin ini darah San Shifu? Kemana dia?"
 
+Sementara Guo Jing memeriksa kudam Huang Rong berdiri diam di sampingnya, baru pada saat itu ia berkata dengan nada rendah,
+"Jangan kuatir, mari kita selidiki urusan ini dengan teliti." Sambil menyibakkan semak-semak bunga ia memandang ke tanah 
+dan berjalan maju perlahan. Guo Jing juga melihat jejak tetesan darah di tanah. Tanpa berpikir bahwa ia bisa tersesat,
+ia menyelinap melewat Huang Rong dan dengan cemas bergegas maju mengikuti jejak darah itu.
 
-While Guo Jing was examining the horse Huang Rong stood quietly on the side; only
-then did she say in a low voice, “Don’t you worry, let us investigate this matter care-
-fully.” Brushing the flower bushes away she looked to the ground and slowly walked
-forward. Guo Jing also saw the trace of dripping blood on the ground. Without thinking
-that he might get lost, he slipped through Huang Rong and anxiously rushed ahead to
-follow the bloodstain.
+Jejak itu kadang-kadang hilang, jadi Guo Jing beberapa kali salah belok. Huang Rong selalu teliti, ia mengamati semak 
+terdekat atau timbunan rumput tebal di antara bebatuan untuk menemukan jejak darah. Terkadang jejak darah hilang sama 
+sekali, maka ia mencari jejak tapak kuda atau helaian rambut kuda.
 
-The trace sometimes disappeared so Guo Jing took the wrong turn several times. Huang
-Rong was always careful; she would examine the nearby bushes or the thick patch of
-grass among the rocks to find the trace of blood. Sometimes the bloodstain vanished al-
-together so she looked for a hoof print or some horse hair.
+Setelah mengikuti jejak beberapa _li_ mereka melihat di hadapan mereka ada deretan semak bunga rendah, dengan sebuah makam 
+di tengah belukar. Huang Rong dengan cemas bergegas mendekati makam itu. Guo Jing pernah melihat ,akam ini sebelumnya 
+ketika ia pertama kali datang ke Pulau Bunga Persik, jadi ia tahu ini adalah makam ibu Huang Rong. Ia melihat batu 
+nisannya roboh tergeletak di atas tanah, maka ia menegakkannya kembali. Ia melihat sebaris kalimat di makam itu, 
+'Tao Hua Dao Nu Zhu Feng Shi Mai Xiang Zhi Zhong'[^nisan].
 
-After following the trace for several ‘li’s they saw that ahead of them was a row of short
-flower bushes, with a grave in the middle of the grove. Huang Rong anxiously rushed
-toward the grave. Guo Jing had seen this grave before when he first came to the Peach
-Blossom Island, so he knew it was Huang Rong’s mother’s grave. He saw the tombstone
-lying on the ground, so he raised it up to stand. He saw the line of characters on the
-tombstone, ‘tao hua dao nu zhu feng shi mai xiang zhi zhong’ [the fragrant burial
-ground of Mistress surnamed Feng of the Peach Blossom Island].
+[^nisan]: Kalimat itu bermakna 'Makam Harum Majikan Perempuan Pulau Bunga Persik yang bermarga Feng'.
 
-Huang Rong saw the grave’s door was open and vaguely guessed that there were radi-
-cal changes on the island. She did not enter the tomb right away, but looked carefully
-around the grave. She saw the green grass toward the left of the grave was trampled re-
-ally bad, while there were some vestiges made by blade on the door of the grave. She
-listened attentively for half a day by the doorway and did not hear anything from the
-inside, finally she stooped down and entered in.
+Huang Rong melihat pinto makam terbuka dan menebak bahwa ada perubahan yang sangat radikal di pulau itu. Ia melihat 
+rumput hijau di arah menuju ke sebelah kiri makam terinjak-injak secara kasar, sementara ada bekas guratan pedang di pintu 
+makam. Ia mendengarkan dengan cermat sampai lama di pintu masuk dan tidak mendengar suara apa-apa dari dalam, akhirya 
+ia membungkuk dan masuk.
 
-Guo Jing was afraid he might lost her, he immediately followed. Everywhere along the
-pathway inside the tomb he saw chipped or even shattered stones from the wall, a sign
-of a very fierce fight. Two people were very alarmed.
+Guo Jing takut kehilangan jejak, ia segera mengikuti. Di sepanjang jalan di dalam makam ia melihat batu-batu yang somplak,
+atau bahkan berserakan dari dinding, pertanda sebuah pertarungan sengit. Keduanya sangat takut.
+
 
 **Last line was in Page 4 in PDF**
 
