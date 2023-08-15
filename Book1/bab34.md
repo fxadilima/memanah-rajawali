@@ -277,7 +277,7 @@ ia melihat beberapa karakter dicoret-coret di belakang surat itu. Ia buru-buru m
 berdegup kencang karena melihat sebuah tulisan kasar, "Urusan ini berubah jadi lebih buruk, semua orang mewaspadai..."
 karakter terakhir itu hanya ditulis dalam tiga coretan. Kelihatannya bencana sudah tiba, karena itu tidak diselesaikan.
 
-Guo Jing berseru, "Ini jelas karakter 'Timur'[^karakter-timur]. er Shifu memperingatkan semua orang supaya waspada 
+Guo Jing berseru, "Ini jelas karakter 'Timur'[^karakter-timur]. Er Shifu memperingatkan semua orang supaya waspada 
 terhadap Si Sesat Timur. Sayang sekali dia tidak punya cukup waktu." Ia meremas kertas itu menjadi gumpalan bola.
 Sambil menggertakkan rahangnya ia berkata, "Er Shifu, Er Shifu, Huang Laoxie melihat niat baikmu sebagai kejahatan."
 Pegangannya mengendur dan gumpalan kertas itu jatuh ke tanah. Sambil membungkuk ia mengangkat jenazah Zhu Cong.
@@ -306,7 +306,7 @@ memandang wajah ketiga gurunya ia tidak tega melakukannya. Ia berseru, "Er Shifu
 kalian... kalian sudah tewas!" Suaranya lembut, dengan nada yang sama seperti yang biasa digunakannya ketika 
 berbicara dengan para gurunya di masa lalu.
 
-[^karakter-zhao]: Karakter Zhao (招) punya beberaa makna, salah satunya adalah 'merekrut'.
+[^karakter-zhao]: Karakter Zhao (招) punya beberapa makna, salah satunya adalah 'merekrut'.
 
 [^karakter-bi]: Karakter Bi (比) bermakna 'kontes' atau 'lomba'.
 
