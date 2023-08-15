@@ -259,7 +259,7 @@ Bukankah hal demikian akan sangat baik?
 
 Guo Jing mengenali tulisan tangan Er Shifu-nya, ia memegang kertas itu dengan tangan gemetar, ia berkata 
 dalam hati, "Ketika Tujuh Pendekar Quanzhen bertarung melawan Huang Yaoshi di Desa Niu, Ouyang Feng melakukan 
-serangan mendadak dan membunuh Changzhen Zi Tan Chuduan. Pada saat itu Ouyang Fengmengalihkan kesalahan 
+serangan mendadak dan membunuh Changzhen Zi Tan Chuduan. Pada saat itu Ouyang Feng mengalihkan kesalahan 
 kepada Huang Yaoshi. Huang Laoxie ini sungguh sombong, dia bahkan tidak mau repot membantah, jadi secara alamiah 
 Perguruan Quanzhen membencinya sampai ke tulang sumsum. Ketika keenam guruku tahu bahwa Perguruan Quanzhen akan 
 datang dengan kekuatan penuh untuk membalas dendam, mereka kuatir kedua belah pihak akan mengalami luka parah,
