@@ -245,15 +245,16 @@ selembar kertas. Ia membuka lipatannya dan membaca beberapa patah kata:
 Dari Jiangnan, kami orang-orang sederhana Ke Zhen'E, Zhu Cong, Han Baoju, Nan Xiren, Quan Jinfa 
 dan Han Xiaoying mengunjungi Qianbei, Majikan Pulau Bunga Persik. Beberapa waktu yang lalu kami 
 mendengar desas-desus bahwa dengan mengabaikan ketidakmampuan mereka sendiri, Enam Pendekar Quanzhen
-hendak membereskan urusan mereka dengan Pulau Bunga Persik. Kami menyadari bahwa masalah ini mengandung 
-suatu kesalahpahaman, tetapi patut kami sesalkan bahwa kami tidak mampu bertindak sebagai penengah 
-bagi kedua belah pihak. Qianbei adalah seorang ahli di masa kini, rekan dari almarhum Wang Chongyang,
-Wang Zhenren. Bagaimana mungkin Qianbei membiarkan kehomatan dan prestasi sendiri jatuh akibat bersitegang 
-dengan generasi yang lebih muda tentang salah dan benar? Di masa lali Lin Xiangru mengalah kepada Lian Po,
-dan hal itu dipandang sebagai sebuah peristiwa besar dalam sejarah. Hati seorang pria sejati yang heroik 
-adalah selapang lautan, dan pasti tidak akan terganggu dengan kehadiran ayam dan cacing. Akan tiba suatu hari 
-di mana para murid Quanzhen merendahkan diri di hadapan Daozhu, dan para pejuang di seluruh dunia akan mengagumi 
-kegagahan Qianbei yang terhormat. Bukankah hal demikian akan sangat baik?
+hendak membereskan urusan mereka dengan Pulau Bunga Persik. Kami menyadari bahwa masalah ini 
+mengandung suatu kesalahpahaman, tetapi patut kami sesalkan bahwa kami tidak mampu bertindak sebagai 
+penengah bagi kedua belah pihak. Qianbei adalah seorang ahli di masa kini, rekan dari almarhum 
+Wang Chongyang, Wang Zhenren. Bagaimana mungkin Qianbei membiarkan kehomatan dan prestasi sendiri jatuh 
+akibat bersitegang dengan generasi yang lebih muda tentang salah dan benar? Di masa lalu Lin Xiangru 
+mengalah kepada Lian Po, dan hal itu dipandang sebagai sebuah peristiwa besar dalam sejarah. Hati seorang 
+pria sejati yang heroik adalah selapang lautan, dan pasti tidak akan terganggu dengan kehadiran ayam 
+dan cacing. Akan tiba suatu hari di mana para murid Quanzhen merendahkan diri di hadapan Daozhu, 
+dan para pejuang di seluruh dunia akan mengagumi kegagahan Qianbei yang terhormat. 
+Bukankah hal demikian akan sangat baik?
 ```
 
 Guo Jing mengenali tulisan tangan Er Shifu-nya, ia memegang kertas itu dengan tangan gemetar, ia berkata 
