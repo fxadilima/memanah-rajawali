@@ -562,233 +562,197 @@ dan mendapat kenyataan bahwa hari ini adalah tanggal tiga belas bulan delapan. B
 malam itu juga. Ia membeli seekor kuda yang sehat dan mencambuk kuda itu untuk berpacu cepat, dan tiba di Jiaxing
 pada siang hari keesokan harinya.
 
+Sejak masa kanak-kanaknya ia telah mendengar keenam gurunya mengenang pertarungan mereka melawan Qiu Chuji,
+bagaimana mereka berlomba minum arak dari guci tembaga raksasa di Zui Xian Lou[^dewa-mabuk], keindahan kungfu 
+mereka dan kepahlawanan yang meliputi pertarungan itu. Mereka berenam suka menceritakan kisah itu dengan senang hati.
+Karenanya begitu memasuki pinu gerbang selatan ia menanyakan di mana letak Gedung Dewa Mabuk itu.
 
-Since his childhood he had heard his six shifus recounted their battle with Qiu Chuji;
-how they had a wine drinking contest out of the huge copper vat at the Drunken
-Immortal Tavern [zui xian lou], the exquisiteness of their martial art skills and the
-heroism surrounding that battle. Six people loved to tell the story good-naturedly. So as
-soon as he entered the southern gate he asked the location of the Drunken Immortal
-Tavern.
+[^dewa-mabuk]: Zui Xian Lou (醉仙楼) secara literal berarti 'Paviliun Dewa Mabuk'. Karena tempat itu adalah sebuah kedai atau rumah makan, atau bahkan restoran, sebaiknya kita menggunakan istilah 'Gedung' yang lebih umum dan luwes, ketimbang 'Paviliun'.
 
-The Drunken Immortal Tavern was located by the bank of Nan Hu [South Lake]. Guo
-Jing arrived at the front of the tavern. He looked up and saw this tavern’s appearance
-was exactly like what Han Xiaoying had told him. The tavern had been imprinted in his
-mind for a dozen of years, today he had seen it for the first time with his own eyes; he
-noticed the exquisiteness of the carving of the eaves, it was truly a beautiful building.
-At the front of the tavern stood a big wooden sign with ‘tai bai yi feng’ [the great (Li)
-Bai (a famous poet of the Tang Dynasty)’s left behind manner/custom/air] four letters
-engraved on it; while above the main entrance there was a sign with ‘zui xian lou’
-[Drunken Immortal Tavern], inscribed by Su Dongpo [a famous calligrapher of the Song
-Dynasty], in golden letters, gleaming under the bright sunlight.
+Zui Xian Lou terletak di tepi Danau Selatan — Nan Hu. Guo Jing tiba di depan gedung itu. Ia memandang ke atas 
+dan melihat penampilannya persis seperti apa yang diceritakan oleh Han Xiaoying. Gedung itu telah tercetak 
+dalam-dalam di benaknya selama belasan tahun, dan hari ini ia pertama kali melihatnya dengan matanya sendiri.
+Ia memperhatikan keindahan ukiran di atapnya, sungguh sebuah gedung yang indah. Di depan gedung itu berdiri 
+sebuah papan besar dari kayu yang bertuliskan Tai Bai Yi Feng, yang dikutip dari puisi karya Li Bai. Keempat 
+karakter itu diukir di atas papan kayu itu. Sementara di atas pintu masuk utama ada sebuah papan nama 
+Zui Xian Lou, ditulis oleh Su Dongpo, yang adalah seorang ahli kaligrafi terkenal Dinasti Song. Tulisan itu
+ditulis dengan warna emas, berkilau di bawah cahaya matahari.
 
-Guo Jing’s heart was thumping madly; walking and leaping, he went upstairs. A wine
-shop attendant welcomed him and said, “Honorable Guest, please use the downstairs
-room, since the upstairs is already reserved for some other guests.”
+Jantung Guo Jing berdegup kencang, berjalan dan melompat ia menuju ke lantai atas. Seorang pelayan kedai arak 
+menyambutnya dan berkata, "Tamu yang terhormat, silakan memakai lantai dasar, karena lantai atas ini sudah dipesan 
+oleh tamu lain."
 
-Guo Jing was about to reply when suddenly someone was calling, “Jing’er, you are
-here!” Guo Jing looked up and saw a Taoist priest sitting and drinking wine, his long
-beard reached his chest, his face was ruddy; it was none other than Changchun Zi
-[Eternal Spring] Qiu Chuji.
+Guo Jing baru hendak menjawab ketika tiba-tiba seseorang memanggilnya, "Jing'er, kau datang!" Guo Jing menengok 
+dan melihat seorang pendeta Tao sedang duduk sambil minum arak, jenggot panjangnya mencapai dada, mukanya cerah 
+kemerahan. Ternyata itu Changchun Zi, Qiu Chuji.
 
-Guo Jing rushed forward and bowed to the ground, “Qiu Daozhang [Taoist Priest Qiu]!”
-he called out. His voice was somewhat choked.
+Guo Jing bergegas maju dan membungkuk ke lantai, "Qiu Daozhang!" sapanya. Suaranya agak tersedak.
 
-Qiu Chuji held out his hand to raise him up; he said, “You are a day early, that is very
-good. I am also a day early. I thought tomorrow we are going to fight Peng Lianhu, Sha
-Tongtian and the others, so I want to be here early to drink wine and reminisce about
-the past with your Six Shifus. Have your Six Shifus arrived? I have prepared some ta-
-bles for them.”
+Qiu Chuji mengulurkan tangan untuk membangkitkannya, ia berkata, "Kau kepagian sehari, itu bagus sekali.
+Aku juga kepagian sehari. Kupikir karena besok kita akan bertarung melawan Peng Lianhu, Sha Tongtian dan lainnya,
+maka aku ingin mampir ke sini untuk minum arak dan mengenang masa lalu dengan keenam gurumu. Enam gurumu juga 
+sudah tiba? Aku sudah menyiapkan meja untuk mereka."
 
-Guo Jing saw there were nine tables on this upstairs floor; except for Qiu Chuji’s table,
-which was full with dishes and wine, the other eight tables only had a pair of chop-
-sticks and a wine cup. Qiu Chuji said, “Eighteen years ago I met your Seven Shifus for
-the very first time in this place; they arranged the tables just like this. This one table of
-vegetarian dishes was for Jiaomu Da Shi [Reverend Burnt Wood], it’s a pity that I can no
-longer meet him and your Wu Shifu [Fifth Shifu].” He sounded very grieved. Guo Jing
-turned his head around, did not dare to look at him straight ahead.
+Guo Jing melihat ada sembilan meja di lantai atas ini. Kecuali meja Qiu Chuji, yang dipenuhi makanan dan 
+arak, kedelapan meja lainnya hanya punya sepasang sumpit dan sebuah cawan arak. Qiu Chuji berkata, "Delapan 
+belas tahun yang lalu aku bertemu ketujuh gurumu untuk pertama kalinya di tempat ini. Mereka mengatur meja 
+persis seperti ini. Meja yang satu ini diisi dengan makanan tanpa daging untuk Jiaomu Dashi, sayangnya aku 
+sudah tidak bisa lagi ketemu dia dan Wu Shifu-mu." Ia terdengar sangat berduka. Guo Jing memalingkan mukanya,
+tidak berani menatapnya secara langsung.
 
-Qiu Chuji did not notice anything, he kept talking, “That day we had a contest on drink-
-ing from the copper vat, so today I went to ‘fa hua si’ [magnificent (Buddhist) way tem
-ple] and fetched the vat. As soon as your Six Shifus are here we can drink again just
-like in the old days.”
+Qiu Chuji tidak memperhatikan apa-apa, ia terus bicara, "Hari itu kami berlomba minum dari guci tembaga. Begitu
+enam gurumu tiba kita bisa minum lagi persis seperti masa lalu."
 
-Guo Jing turned his head to look at the big copper vat by the screen. The outside of the
-vat was blackish green from the copper rust, but the inside had been washed and
-scrubbed clean, and filled to the brim with high quality wine, the fragrance attacked
-his nostrils. Guo Jing stared blankly at the copper vat for half a day then he turned his
-attention to the eight empty tables. He thought, “Other than Da Shifu, nobody would be
-able to enjoy the banquet again. If only I can see my seven benevolent masters sit to-
-gether, drinking wine, talking and laughing, getting drunk for the whole day, I would
-be very happy even if I have to die immediately.”
+Guo Jing memalingkan kepalanya melihat ke arah guci tembaga raksasa di dekat tirai. Sebelah luarnya tampak hijau 
+kehitaman karena karat tembaga, tetapi sebelah dalamnya dicuci dan disikat bersih-bersih, dan diisi sampai meluap 
+dengan arak berkualitas tinggi, aroma harum arak mengusik hidungnya. Guo Jing menatap kosong ke arah guci tembaga 
+itu sampai lama, lalu ia mengalihkan perhatiannya pada delapan meja kosong. Ia berpikir, "Kecuali Da Shifu, tak 
+seorang pun bisa menikmati perjamuan lagi. Seandainya saja aku bisa melihat tujuh orang guruku duduk bersama, 
+minum arak, bicara dan tertawa, mabuk sepanjang hari, aku akan sangat bahagia meskipun aku sebentar lagi mati."
 
-He heard Qiu Chuji continue, “At that time we agreed that on the twenty-fourth day of
-the third month this year, you and Yang Kang will have a martial art contest in here. I
-respect your Seven Shifus as noble hearted chivalrous warriors; I was hoping you
-would win and lift up the name of the Seven Freaks of Jiangnan in the world. Besides, I
-was always wandering everywhere, weeding out the criminals from this world; I did
-not have enough time to spend on nurturing Yang Kang. It was all right not to teach
-him a good martial art, but I should have taught him to have loyalty and chivalry. For
-this I am so ashamed toward your Uncle Yang. Although he now thoroughly repented of
-his former misdeeds, the evil influence in his life will be difficult to eradicate com-
-pletely; when I think about this, my heart is filled with utmost regret.”
+Ia mendengar Qiu Chuji melanjutkan, "Pada saat itu kami sepakat bahwa pada tanggal dua puluh empat bulan ketiga
+tahun ini, kau dan Yang Kang akan mengadu ilmu silat di sini. Aku menghormati tujuh gurumu sebagai pejuang gagah 
+berani berhati mulia. Aku berharap kau akan menang dan mengangkat nama Tujuh Orang Aneh dari Jiangnan di dunia 
+persilatan. Aku tidak punya cukup waktu untuk membina Yang Kang. Boleh saja tidak mengajarinya ilmu silat yang 
+hebat, tapi aku seharusnya mengajarinya untuk menjadi setia dan gagah berani. Untuk ini aku sangat malu kepada 
+Paman Yang-mu. Meskipun dia sekarang sudah bertobat dari jalannya yang salah, tapi pengaruh jahat dalam hidupnya 
+akan sulit disingkirkan sampai bersih. Kalau aku memikirkan hal ini, hatiku penuh dengan penyesalan."
 
-Guo Jing wanted to recount Yang Kang’s dishonorable behavior, but it was a long story
-so he did not know where to start. Meanwhile Qiu Chuji continued, “In a person’s life,
-literary or martial art skill is not everything, the most important things are two charac-
-ters, loyalty and patriotism. Even if Yang Kang’s martial art skill is better than yours a
-hundred folds, speaking of character, the martial art contest of the Drunken Immortal
-Tavern is still won by your shifus. Hey, hey, Qiu Chuji lost with a satisfied heart.” He
-laughed a big laugh. Suddenly he saw Guo Jing’s tears flow down like rain, he was sur-
-prised, “Ah, why are you so sad?”
+Guo Jing ingin menceritakan tentang kelakuan tercela Yang Kang, tapi itu cerita yang sangat panjang, karena itu 
+ia tak tahu dari mana harus mulai. Sementara itu Qiu Chuji melanjutkan, "Dalam hidup seseorang, kemampuan sastra 
+atau seni bela diri bukan segalanya. Yang paling utama adalah dua karakter — kesetiaan dan patriotisme. Kalaupun 
+kungfu Yang kang lebih baik darimu seratus kali lipat, bicara soal karakter, adu ilmu silat di Zui Xian Lou tetap
+dimenangkan oleh guru-gurumu. Hehe... Qiu Chuji kalah dengan puas hati." Ia tertawa keras-keras. Tiba-tiba ia 
+melihat air mata Guo Jing menetes seperti hujan, ia terkejut. "Ah, kenapa kau begitu sedih?"
 
-Guo Jing scrambled over one step, he bowed to the ground and wept, “My ... my ... my
-five benevolent masters have passed away.”
+Guo Jing mundur selangkah, ia embungkuk ke tanah dan meratap, "Guruku... guruku... lima guruku yang baik sudah 
+meninggal."
 
-Qiu Chuji was shocked. “What?!?” he almost shouted.
+Qiu Chuji terperanjat. "Apa?!?" ia hampir berteriak.
 
-Still crying Guo Jing said, “Except for my Da Shifu, the other five are ... are dead.”
+Masih menangis, Guo Jing berkata, "Kecuali Da Shifu, lima orang lainnya... mereka tewas."
 
-These two sentences struck Qiu Chuji like a loud thunder in bright sunlight; he was
-silent for half a day. He was hoping he would meet some old friends and have a good
-time together, who would have thought that suddenly disaster struck. Although his
-time together with the Seven Freaks of Jiangnan was not much, for the last eighteen
-years he had already regarded them as his lifelong friends. Now that he heard this
-shocking news, his heart was filled with grief. He went over to the railings in big
-strides; he looked out toward the vast lake in front of him, throwing his head backward
-he let out a long cry. One by one faces of the Seven Freaks flashed in his mind. He
-turned around and picked up the copper vat, with a loud voice he cried out, “My
-friends are dead, what use do I have of you?” Sending his strength to his arms he threw
-the vat away. The copper vat fell into the lake with a loud splash, the water flew every-
-where. Turning his head toward Guo Jing he grabbed Guo Jing’s arms and asked, “How
-did they die? Tell me!”
+Kedua kalimat itu menyengat Qiu Chuji seperti petir di siang bolong. Ia terdiam lama sekali. Ia berharap 
+untuk bertemu dengan beberapa orang sahabat lama dan menikmati saat-saat yang indah bersama, tak disangka tiba-tiba 
+malapetaka datang menimpa. Meskipun hari-harinya bersama dengan Tujuh Orang Aneh dari Jiangnan tidak banyak,
+selama delapan belas tahun belakangan ini ia sudah menganggap mereka sebagai sahabat seumur hidup. Sekarang ia 
+mendengar kabar mengejutkan ini, hatinya jadi penuh duka. Ia berjalan ke pagar dengan langkah lebar, ia memandang 
+ke arah danau yang luas di hadapannya, melemparkan kepalanya ke belakang ia menangis lama. Satu per satu wajah 
+Tujuh Orang Aneh dari Jiangnan berkelebat di benaknya. Ia berpaling dan mengangkat guci tembaga itu, dengan 
+suara nyaring ia berteriak, "Teman-temanku sudah tewas, untuk apa aku menyimpanmu?" Sambil mengirimkan tenaga 
+ke tangannya ia melemparkan guci itu jauh-jauh. Guci tembaga itu jatuh ke tengah danau dengan suara keras, percikan 
+air beterbangan kemana-mana. Memalingkan kepalanya ke arah Guo Jing ia memegang lengan Guo Jing sambil bertanya,
+"Bagaimana mereka tewas? Katakan!"
 
-Guo Jing was about to reply when with the corner of his eye he caught sight of someone
-silently enter the room; he was wearing green clothes, his face was elegant and unre-
-strained, it was the Master of the Peach Blossom Island, Huang Yaoshi. Guo Jing looked
-twice, he was afraid of mistaking him for someone else; he fixed his eyes with rapt at-
-tention. Who was he but Huang Yaoshi?
+Guo Jing hendak menjawab ketika dengan sudut matanya ia melihat seseorang diam-diam memasuki ruangan, ia mengenakan 
+pakaian hijau, mukanya sangat elegan dan tanpa beban, orang itu adalah majikan Pulau Bunga Persik, Huang Yaoshi.
+Guo Jing melihat sampai dua kali, ia takut keliru mengenali orang. Ia menatapnya lekat-lekat dengan penuh perhatian.
+Siapa lagi kalau bukan Huang Yaoshi!
 
-Huang Yaoshi also saw him here and was surprised. Suddenly he felt a gust of wind on
-his face; Guo Jing attacked him over the table using the Proud Dragon Repents. In this
-one palm Guo Jing had sent out his whole strength, the power was astonishing. Huang
-Yaoshi slightly moved sideways, his left hand shot out and pushed Guo Jing’s palm to
-the side. A series of cracking noise were heard, Guo Jing could not hold his ground; he
-bored through the wooden partition and fell downstairs.
+Huang Yaoshi juga melihatnya dan terkejut. Tiba-tiba ia merasakan terpaan angin tajam di mukanya, Guo Jing menyerangnya 
+dari atas meja dengan meggunakan Kang Long You Hui. Dalam satu jurus itu Guo Jing mengerahkan seluruh tenaganya, 
+kekuatannya sangat menakjubkan. Huang Yaoshi bergerak sedikit ke samping, tangan kirinya meluncur dan mendorong 
+telapak tangan Guo Jing ke samping. Terdengar serangkaian suara benda patah, Guo Jing tidak bisa menahan serangan 
+itu, ia meluncur menembus papan kayu dan jatuh ke lantai bawah.
 
-It was a bad day for the Drunken Immortal Tavern, Guo Jing happened to land on the
-shelf containing cups and bowls. ‘Bing! Bang! Bing! Bang!’ bowls, plates, trays, wine
-cups; everything was smashed to hundreds and thousands of pieces.
+Hari itu sungguh sial bagi Gedung Dewa Mabuk, Guo Jing mendarat di sebuah rak berisi mangkuk dan cangkir. 'trang! trang!
+trang! trang!' mangkuk, piring-piring, baki, cawan arak, semuanya hancur berkeping-keping.
 
-That afternoon, when the old innkeeper heard Qiu Chuji ordered the tables to be ar-
-ranged in such a way, also saw him bringing the huge copper vat upstairs, he remem-
-bered what happened eighteen years ago; he had already had a queasy feeling about it.
-Now that the upstairs and downstairs were shattered, he could not help but bitterly cry
-out. He prayed head over heels, “Please help those in distress, oh Goddess of Mercy, the
-Jade Emperor of Heaven, the God of the City ...”
+Siang itu, ketika pengelola gedung yang sudah tua mendengar pesanan Qiu Chuji supaya mengatur meja sedemikian rupa,
+juga melihatnya membawa guci tembaga raksasa ke lantai atas, ia teringat apa yang pernah terjadi delapan belas tahun
+yang lalu, ia juga sudah muak tentang hal itu. Sekarang lantai atas dan bawah berantakan, ia tak kuasa menahan diri 
+dan menjerit penuh kepahitan. Ia berdoa dengan segenap hati, "Tolonglah orang-orang yang kesusahan, ya Dewi Maha Pengampun,
+Kaisar Giok Di Surga, Dewa Kota..."
 
-Guo Jing was afraid the dishes and bowls fragments would injure his palm, so he did
-not dare to push himself up. He twisted his waist and leaped up, and rushed back upstairs 
-immediately. He only saw a grey shadow flashed, followed by a green shadow;
-Qiu Chuji and Huang Yaoshi leaped down the window one after another. Guo Jing
-thought, “This old thief’s martial art is above mine; I can’t fight him barehanded.” He
-drew two kinds of weapons from his waist, with his mouth he bit the dagger given by
-Qiu Chuji, in his right hand he held the golden blade given by Genghis Khan. He
-thought, “Even if I have to stake it all and endure that old thief’s fist or kick, I have to
-make a couple of holes on his body.” He rushed to the window and jumped down.
+Guo Jing kuatir pecahan mangkuk dan perabot dapur itu melukai telapak tangannya, karenanya ia tidak berani mendorong
+tubuhnya untuk bangkit. Ia memutar pinggangnya dan melompat ke atas, dan menerjang kembali ke lantai atas dengan segera.
+Ia hanya melihat sosok abu-abu berkelebat, diikuti oleh sosok hijau, Qiu Chuji dan Huang Yaoshi satu per satu melompat 
+turun melalui jendela. Guo Jing berpikir, "Kungfu bajingan tua ini di atasku, aku tidak bisa melawannya dengan 
+tangan kosong." Ia menghunus dua senjata dari pinggangnya, dengan mulut ia menggigit pisau pemberian Qiu Chuji, di 
+tangan kanannya ia menghunus golok emas pemberian Genghis Khan. Ia berpikir, "Meskipun aku harus taruhan segalanya 
+untuk melawan kepalan dan tendangan bajingan tua ini, aku harus membuat beberapa lubang di tubuhnya." Ia menerjang 
+ke jendela dan melompat turun.
 
-By now the street was bustling with pedestrians; they heard that some people jumped
-out from the tavern and came to take a look. Suddenly they saw that someone else was
-jumping out of the window with a shining blade in his hand; the crowd cried out in
-alarm, they pushed and shoved each other and several people tumbled down. Guo Jing
-could not see Qiu, Huang two people because of the crowd; he quickly took the dagger
-from his mouth and asked an old man nearby, “Where did the two people that jumped
-down from the upstairs go?”
+Saat itu jalanan dipenuhi pejalan kaki, mereka mendengar ada orang melompat dari gedung dan bergegas datang ke situ 
+untuk menonton. Mendadak mereka melihat ada orang lain melompat melalui jendela dengan belati berkilau di tangan,
+kerumunan orang itu menjerit kaget, mereka saling dorong sehingga beberapa orang jatuh. Guo Jing tidak bisa melihat 
+Qiu Chuji dan Huang Yaoshi akibat kerumunan orang. Ia cepat-cepat mengambil pisau dari mulutnya dan bertanya kepada 
+seseorang di dekatnya, "Kemana perginya dua orang yang tadi melompat dari jendela itu?"
 
-That old man was startled, he cried out, “Mr. Hero, please spare my life, it’s none of my
-business.”
+Orang tua itu terkejut. Ia berkata, "Tuan pendekar, mohon ampuni aku, itu bukan urusanku."
 
-Guo Jing repeated his question, but that old man was so scared that he kept calling out,
-“Help! Help!” Guo Jing gently pushed him aside and rushed out from the crowd, but Qiu
-and Huang two people had disappeared completely.
+Guo Jing mengulangi pertanyaannya, tapi orang tua itu begitu ketakutan sampai-sampai berteriak, "Tolong! Tolong!"
+Guo Jing mendorongnya dengan lembut ke samping dan keluar dari kerumunan, tetapi Qiu Chuji dan Huang Yaoshi telah 
+sama sekali menghilang.
 
-He rushed back upstairs and looked to all directions, he saw a small boat on the lake
-carrying Qiu and Huang two people; it looked like they were heading toward the Misty
-Rain Tavern on the island in the middle of the lake. Huang Yaoshi sat in the cabin,
-while Qiu Chuji sat on the stern, rowing. When he saw this Guo Jing was startled, he
-thought, “Those two people will certainly fight to the death at the Misty Rain Tavern.
-Qiu Daozhang is brave, but how can he be that old thief’s match?” Anxiously he rushed
-back downstairs, grabbed a small boat and paddled furiously to catch up with them.
+Ia bergegas kembali ke lantai atas dan memandang ke semua penjuru, a melihat sebuah perahu kecil di danau membawa 
+Qiu Chuji dan Huang Yaoshi, kelihatannya mereka sedang menuju ke Kedai Hujan Berkabut di pulau yang terletak di 
+tengah danau. Huang Yaoshi duduk di kabin, sementara Qiu Chuji duduk di kemudi, mendayung. Ketika melihat hal itu 
+Guo Jing terkejut, ia berpikir, "Kedua orang itu pasti akan bertarung mati-matian di Kedai Hujan Berkabut. Qiu Daozhang 
+memang pemberani, tapi dia bukan tandingan bajingan tua itu." Ia bergegas kembali ke lantai bawah dengan cemas,
+mengambil sebuah perahu kecil dan mendayung dengan panik untuk mengejar mereka.
 
-Seeing his enemy ahead it was very difficulty for him to be calm, but he knew he ought
-to be patient on the water; ‘snap’ the handle of oar was broken because he exerted too
-much energy. He was furious and anxious at the same time; he took a plank from the
-boat and used it to paddle the boat. Now instead of going faster he was going slower;
-the distance between his boat and the two people’s boat gradually increased. By the
-time he managed to land the boat with a great deal of trouble, those two had already
-gone.
+Melihat musuh di depannya sangat sulit baginya untuk menenangkan diri, tapi ia tahu bahwa ia harus bersabar di air.
+'Krekk!' gagang dayung patah karena ia memakai terlalu banyak tenaga. Ia marah dan sekaligus cemas. Ia mengambil 
+sebuah palang dari perahu dan memakainya untuk mendayung. Sekarang bukannya lebih cepat ia malah makin lambat, jarak 
+antara perahu kedua orang itu dan perahunya sendiri semakin jauh. Ketika dengan susah payah akhirnya ia berhasil 
+mendaratkan perahu itu di pulau, kedua orang itu telah menghilang.
 
-Guo Jing thought aloud, “I have to swallow my anger, I can’t lose my life before aveng-
-ing this enmity.” He took a deep breath and spat three times; then he cocked his ears in
-full attention. He heard from behind the tavern faintly came the noise of blades split-
-ting the air, mixed with people calling and responding each other; apparently it was
-not Qiu and Huang two people. Guo Jing looked around assessing the situation around
-him, and then tiptoeing into the Misty Rain Tavern. He saw nobody downstairs, so he
-rushed upstairs only to see by the window someone was leaning against the railings,
-looking out, his mouth was still noisily chewing something. It was none other than
-Hong Qigong.
+Guo Jing berpikir keras, "Aku harus menelan amarahku, aku tidak boleh kehilangan nyawa sebelum membalas dendam." Ia 
+menarik nafas panjang dan meludah tiga kali, lalu ia memasang telinga dengan penuh perhatian. Samar-samar ia 
+mendengar suara dentingan suara pedang dari balik kedai, bercampur dengan suara orang saling memanggil dan menjawab,
+tampaknya itu bukan Qiu Chuji dan Huang Yaoshi. Guo Jing memandang ke sekeliling untuk mempelajari keadaan di sekitarnya,
+lalu berjingkat memasuki kedai. Ia tidak melihat siapapun di bawah, karenanya ia bergegas naik ke lantai atas, hanya 
+untuk menemukan seseorang sedang bersandar di pagar, di dekat jendela, memandang ke luar, mulutnya masih mengunyah 
+sesuatu dengan suara keras. Itu tak lain adalah Hong Qigong.
 
-“Shifu!” Guo Jing rushed forward and called out. Hong Qigong nodded his head,
-pointed outside and raised a cooked half lamb leg in his hand and took a big bite.
+"Shifu!" seru Guo Jing sambil bergegas maju. Hong Qigong menganggukkan kepalanya, menunjuk ke luar dan mengangkat 
+setengah potong kaki domba rebus di tangannya dan menggigitnya.
 
-Guo Jing quickly went to the window. He saw flashing swords in the clearing behind
-the tavern, eight, nine people were surrounding Huang Yaoshi. Seeing the enemy was
-fighting a multitude of opponents he was slightly relieved; but after looking clearly at
-who these people were, he could not help but feel surprised. He saw his Da Shifu Ke
-Zhen’E wielding his iron staff with a young Taoist priest standing behind him. He
-thought, “How come Da Shifu is also here?” He looked again and found out that the
-young priest was Qiu Chuji’s disciple Yin Zhiping; who was wielding his long sword to
-protect Ke Zhen’E’s back, not to attack Huang Yaoshi. The other six were all Taoist
-priests, they were Ma Yu, Qiu Chuji and the rest of the Quanzhen Six Masters.
+Guo Jing buru-buru melongok ke jendela. Ia melihat kilatan pedang di belakang kedai. Delapan-sembilan orang 
+mengelilingi Huang Yaoshi. Melihat musuh bertarung melawan banyak orang ia agak lega, tapi setelah melihat 
+dengan lebih jelas siapa saja mereka semua, ia tak bisa menahan kaget. Ia melihat 
+Da Shifu-nya — Ke Zhen'E — menggunakan tongkat besinya, bersama dengan seorang pendeta Tao muda berdiri di 
+belakangnya. Ia berpikir, "Bagaimana Da Shifu bisa sampai ke sini?" Ia melihat lagi dan menemukan kenyataan 
+bahwa pendeta muda itu adalah murid Qiu Chuji, Yin Zhiping, yang memakai pedang panjangnya untuk melindungi 
+punggung Ke Zhen'E, bukan untuk menyerang Huang Yaoshi. Enam orang lainnya juga adalah pendeta Tao, mereka 
+adalah Ma Yu, Qiu Chuji, dan anggota Enam Pendekar Quanzhen lainnya.
 
-Guo Jing watched for a moment and realized the Quanzhen Sect was using their Big
-Dipper Formation to fight the enemy. Only the Changzhen Zi [Eternal Truth] Tan
-Chuduan had died, so the ‘tian xuan’ [sky jade/gem] position was occupied by Ke
-Zhen’E. Too bad his martial art skill was not on par with the others, plus he was not fa-
-miliar with the formation, so Yin Zhiping was protecting his back while giving him di-
-rections. The Quanzhen Six Masters were brandishing their swords, advancing and re-
-treating, dispersing and gathering together, keeping Huang Yaoshi inside their circle
-fighting an intense battle.
+Guo Jing menonton sejenak dan menyadari bahwa Sekte Quanzhen menggunakan 
+[Formasi Bintang Utara](referensi-karakter.md#formasi-7-bintang) untuk melawan 
+musuh. Hanya karena Changzhen Zi Tan Chuduan telah tewas, maka posisi Tian Xuan diambil alih oleh 
+Ke Zhen'E. Sayangnya kungfu Ke Zhen'E tidak bisa mengimbangi rekan-rekannya, ditambah lagi ia tidak 
+menguasai formasi itu, maka Yin Zhiping melindungi punggungnya sambil memberi petunjuk tentang arah.
+Enam Pendekar Quanzhen mengacungkan pedang mereka, bergerak maju mundur, menyebar dan berkumpul, mengurung 
+Huang Yaoshi di dalam lingkaran dalam pertarungan yang sangat menegangkan.
 
-That day during the fierce battle at the Ox Village only two of the Quanzhen Seven
-Masters wielded their long swords; the rest of them were fighting using their bare
-palms, the battle was already very intense. This time there were seven long swords and
-one iron staff, so the fierceness was scary.
+Hari itu dalam pertarungan sengit di Desa Niu, hanya dua dari Tujuh Pendekar Quanzhen menggunakan pedang 
+panjang mereka, sisanya bertarung dengan tangan kosong, dan pertarungan sudah begitu menegangkan. Kali ini 
+tujuh pedang panjang dan sebuah tongkat besi hadir di situ, kedahsyatannya sangat mengerikan.
 
-Huang Yaoshi remained barehanded; he floated around amidst the flashing swords and
-staff, as if he was forced to defend himself without being able to launch any counterat-
-tack; for dozens of moves he only moved around to avoid the enemies’ blades without
-launching a single fist or kick. Guo Jing was secretly delighted, “Regardless of your re-
-sourcefulness, it will be difficult for you to run away from justice today.”
+Huang Yaoshi tetap menggunakan tangan kosong, ia melayang di tengah kilatan pedang dan tongkat, seolah-olah 
+ia terpaksa mempertahankan diri tanpa mampu melancarkan serangan balasan. Selama beberapa jurus ia hanya 
+bergerak untuk menghindari mata pedang tanpa melancarkan satu pun pukulan atau tendangan. Guo Jing diam-diam 
+merasa senang, "Tak peduli seberapa banyak pengetahuanmu, akan sulit melarkan diri dari pengadilan hari ini."
 
-Suddenly he saw that Huang Yaoshi swept his right foot around his body twice with his
-left foot firmly on the ground; compelling eight people to simultaneously withdraw
-three steps. “Excellent Sweeping Leaves Kick Technique!” Guo Jing praised.
+Tiba-tiba ia melihat Huang Yaoshi menyapu dua kali dengan kaki kanannya ke sekeliling tubuhnya dan kaki kirinya
+tetap teguh di atas tanah, membuat kedelapan orang itu serentak mundur tiga langkah. "Teknik Tendangan 
+Menyapu Daun yang hebat!" puji Guo Jing.
 
-Huang Yaoshi turned his head and waved his hand toward Hong and Guo two people
-upstairs and nodded his head in greeting. Guo Jing saw his face was relaxed and com-
-posed; he did not look like someone who was gasping for breath, which caused Guo
-Jing to be suspicious. He saw Huang Yaoshi’s left palm sweep diagonally towards the
-top of Changsheng Zi [Eternal Life], Liu Chuxuan’s head; so Huang Yaoshi had moved
-abruptly from defensive to offensive.
+Huang Yaoshi memalingkan kepalanya dan melambaikan tangan kepada Hong Qigong dan Guo Jing di lantai atas
+dan menganggukkan kepalanya untuk memberi salam. Guo Jing melihat mukanya tampak santai dan tenang, ia tidak 
+tampak seperti orang yang terengah-engah kehabisan nafas, yang membuat Guo Jing curiga. Ia melihat telapak 
+tangan kiri Huang Yaoshi menyapu diagonal ke arah batok kepala Changsheng Zi, Liu Chuxuan, dengan demikian 
+Huang Yaoshi berubah dari posisi bertahan menjadi menyerang.
 
-Actually Liu Chuxuan should not fend off against this palm; the ‘tian quan’ [sky
-power/authority], Qiu Chuji and the ‘tian xuan’ Ke Zhen’E should have made flank at-
-tacks from the side to rescue him; however, Ke Zhen’E was blind, unlike average peo-
-ple, he relied on his acute hearing, how could he guard against Huang Yaoshi’s silent
-and brilliant palm technique? Qiu Chuji’s sword flickered toward Huang Yaoshi’s right
-armpit, Ke Zhen’E moved following Yin Zhiping’s direction, but he was one step too
-late. Liu Chuxuan heard the palm slicing the wind just above his head, in his shock he
-threw himself to the ground and rolled away.
+Sebetulnya Liu Chuxuan tidak bisa menangkis telapak tangan ini, Tian Quan, Qiu Chuji dan Tian Xuan Ke Zhen'E
+seharusnya melakukan serangan mengapit dari kedua sisi untuk menyelamatkannya. Akan tetapi Ke Zhen'E buta,
+tidak seperti rata-rata orang, ia mengandalkan pendengarannya, bagaimana mungkin ia bisa mengatasi teknik 
+telapak tangan Huang Yaoshi yang brilian dan tenang? Pedang Qiu Chuji berkedip ke arah ketiak kanan 
+Huang Yaoshi, Ke Zhen'E bergerak mengikuti arahan Yin Zhiping, tetapi ia terlambat selangkah. Liu Chuxuan 
+mendengar suara telapak tangan membelah angin tepat di atas kepalanya, dalam kaget ia melemparkan diri ke 
+tanah dan bergulingan.
+
 
 **Last line was in Page 24 in PDF**
 
