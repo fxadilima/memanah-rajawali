@@ -719,7 +719,7 @@ punggung Ke Zhen'E, bukan untuk menyerang Huang Yaoshi. Enam orang lainnya juga 
 adalah Ma Yu, Qiu Chuji, dan anggota Enam Pendekar Quanzhen lainnya.
 
 Guo Jing menonton sejenak dan menyadari bahwa Sekte Quanzhen menggunakan 
-[Formasi Bintang Utara](referensi-karakter.md#formasi-7-bintang) untuk melawan 
+[Formasi Bintang Utara](referensi-karakter.md#formasi-7-bintang "Formasi ini dikenal dengan nama Ursa Major") untuk melawan 
 musuh. Hanya karena Changzhen Zi Tan Chuduan telah tewas, maka posisi Tian Xuan diambil alih oleh 
 Ke Zhen'E. Sayangnya kungfu Ke Zhen'E tidak bisa mengimbangi rekan-rekannya, ditambah lagi ia tidak 
 menguasai formasi itu, maka Yin Zhiping melindungi punggungnya sambil memberi petunjuk tentang arah.
