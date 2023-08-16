@@ -753,6 +753,280 @@ Huang Yaoshi, Ke Zhen'E bergerak mengikuti arahan Yin Zhiping, tetapi ia terlamb
 mendengar suara telapak tangan membelah angin tepat di atas kepalanya, dalam kaget ia melemparkan diri ke 
 tanah dan bergulingan.
 
+Ma Yu dan Wang Chuyi menyadari situasinya kritis, mereka melancarkan serangan serempak dari dua sisi menggunakan 
+pedang. Liu Chuxuan lolos dari bahaya, tapi Formasi Tujuh Bintang Utara rusak. Huang Yaoshi tertawa dan maju ke
+arah Sun Bu'er. Ia hanya bergerak tiga langkah, tiba-tiba berbalik dan memukul dada Guangning Zi Hao Datong. 
+Hao Datong belum pernah melihat gerakan aneh seperti itu, ia ragu sejenak sebelum menikam punggung Huang Yaoshi 
+dengan pedangnya. Huang Yaoshi bergerak seperti kelinci, ia menerobos kepungan dan berdiri skitar dua _zhang_ 
+dari kerumunan.
 
-**Last line was in Page 24 in PDF**
+Hong Qigong tertawa dan berkata, "Huang Laoxie, itu langkah cerdik!"
+
+"Aku mau turun," seru Guo Jing sambil bergerak ke tangga.
+
+"pelan-pelan, pelan-pelan!" kata Hong Qigong. "Dari awal mertuamu tidak pernah membalas. Semula aku kuatir 
+tentang Da Shifu-mu, tapi kelihatannya dia tidak berminat menyakiti siapa pun."
+
+Guo Jing kembali ke jendela dan bertanya, "Shifu tahu dari mana?"
+
+Hong Qigong menjawab, "Kalau dia bermaksud mencelakai orang, kau kira pendeta monyet kurus itu masih tetap hidup?
+Pendeta kecil itu bukan tandingannya, sama sekali bukan tandingannya!" Ia menggigit kaki dombanya lagi dan 
+berkata, "Sebelum mertuamu dan Qiu Chuji datang, aku melihat pendeta-pendeta tua ini dan Da Shifu-mu megatur 
+formasi di sana, tapi mana mungkin Formasi Bintang Utara dipelajari dalam waktu singkat begini? Pendeta-pendeta 
+tua itu membujuk Da Shifu-mu supaya mengisi posisi untuk sementara. Da Shifu-mu menggertakkan gigi tanpa 
+mengatakan apa-apa. Aku tidak tahu apa yang membuat Da Shifu-mu bermusuhan dengan mertuamu. Dia mengikuti 
+pendeta kecil itu untuk mengambil posisi Tian Xuan, tapi akhirnya mereka masih tidak bisa menangkis tangan 
+maut mertuamu."
+
+"Dia _bukan_ mertuaku," kata Guo Jing, penuh kebencian.
+
+Hong Qigong terkejut. "Eh, apa maksudmu dia bukan mertuamu?" tanyanya.
+
+Sambil menggertakkan gigi Guo Jing berkata, "Dia... dia... hmm!"
+
+"Bagaimana kabarnya Rong'er?" tanya Hong Qigong. "Kau ribut sama dia ya?"
+
+"Ini tidak ada hubungannya dengan Rong'er," jawab Guo Jing. "Bajingan tua itu, dia, dia membunuh 
+lima guruku. Kebencianku sedalam lautan."
+
+Hong Qigong melompat saking kagetnya, ia cepat-cepat bertanya, "Benarkah?" Tetapi Guo Jing tidak mendengar 
+pertanyaannya, perhatiannya sedang tertuju pada pertarungan sengit di bawah. Saat itu situasi telah berubah,
+Huang yaoshi menggunakan teknik Pi Kong Zhang Fa[^pi-kong-zhang], menciptakan hembusan angin kuat, menangkis 
+serangan kedelapan lawannya."
+
+[^pi-kong-zhang]: Pi Kong Zhang Fa (劈空掌法) adalah ilmu pukulan tangan kosong jarak jauh yang mengandalkan tenaga dalam. Istilah itu sendiri secara literal berarti 'Teknik Membelah Dengan Tangan Kosong'. Berbagai aliran punya variasi teknik yang agak berbeda dengan tujuan yang sama. Karena Huang Yaoshi juga menciptakan Ilmu Pedang Dewa, dengan tangan berfungsi sebagai pedang, maka teknik ini sedikit banyak terpengaruh, dan gerakannya mirip pedang yang membelah sesuatu.
+
+Kalau bicara dari sisi ilmu silat Ma Yu, Qiu Chuji, Wang Chuyi dan lainnya, maka Huang Yaoshi seharusnya tidak bisa 
+menembus pertahanan mereka dalam jarak satu _zhang_ dengan hanya mengandalkan tangan kosong. Tetapi dalam Formasi 
+Tujuh Bintang Utara, mereka bergerak kesana-kemari bersama-sama, kungfu Sun Bu'er, Ke Zhen'E dan Yin Zhiping secara 
+mencolok lebih lemah ketimbang yang lain, begitu satu orang terpaksa mundur, maka yang lain tak punya pilihan kecuali 
+mengikuti. Dengan demikian semua orang dipaksa mundur dua langkah, mereka terpisah lebih jauh dari posisi Huang Yaoshi,
+tetapi Formasi Tujuh Bintang Utara sama sekali tidak kacau.
+
+Saat itu pedang-pedang panjang milik para pendekar Quanzhen sudah terlalu jauh untuk menjangkau tubuh Huang Yaoshi.
+Tampaknya ia hanya menunggu kesempatan untuk menyerang. Beberapa jurus kemudian Hong Qigong berkata, "Hmm, jadi 
+begitu rupanya."
+
+"Apanya?" tanya Guo Jing buru-buru.
+
+Hong Qigong menjawab, "Huang Laoxie dengan sengaja memaksa mereka untuk membuka formasi, karena ia ingin mempelajari
+misteri Formasi Tujuh Bintang Utara ini. Itu sebabnya dia tidak melakukan menyerang maut. Kurang dari sepuluh jurus 
+setelah ini dia akan memperkecil lingkaran sekali lagi."
+
+Meskipun Hong Qigong kehilangan kekuatan kungfunya, tapi penilaiannya masih tetap sangat jernih, dan terbukti,
+tenaga tebasan tangan Huang Yaoshi melemah, para Pendekar Quanzhen secara bertahap memperketat kepungan mereka.
+Dalam waktu yang diperlukan untuk menghabiskan teh semuanya semua orang terkumpul menjadi mirip gumpalan 
+manusia. Liu Chuxuan, Qiu Chuji, Wang Chuyi dan Hao Datong serempak menghujamkan pedang mereka ke tubuh 
+Huang Yaoshi, tetapi dengan salah satu cara ketika pedang mereka hampir menyentuh kulit Huang Yaoshi, mereka 
+semua meleset beberapa inci. Kalu bukan karena reaksi mereka yang cepat, keempat pedang itu akan melubangi 
+tubuh rekan mereka sendiri.
+
+Bertarung dalam lingkaran kecil ini perbedaan antara satu gerakan dengan gerakan lain hanya tinggal selebar 
+helaian rambut. Guo Jing tahu segera setelah Huang Yaoshi mengenal formasi itu dengan baik, ia tidak akan 
+melawan mereka semua dengan santai lagi. Untuk mengacaukan formasi ia harus menyerang titik terlemah, yang mana 
+adalah Da Shifu-nya dan Yin Zhiping. Ia berada terlalu jauh dari mereka berdua, jika situasi berubah meenjadi 
+kritis ia tidak akan punya waktu untuk menolong, sementara saat itu ia melihat situasi berbahaya datang satu 
+per satu. "Dizi turun," katanya kepada Hong Qigong. Tanpa menunggu jawaban ia melaju ke lantai bawah.
+
+Ketika ia mendekati arena, situasi pertarungan itu sudah berubah lagi. Huang Yaoshi terus menerus maju ke 
+sebelah kiri Ma Yu, tapi semakin jauh ia maju, semakin jauh juga jaraknya dari kerumunan, seolah-olah ia ingin
+melarikan diri. Guo Jing menggenggam pisau di tangannya, bersiap untuk menyerang begitu ia punya peluang. Mendadak
+Wang Chuyi bersiul dan bersama dengan Hao Datong dan Sun Bu'er, yang membentuk ekor dari 'biduk'[^biduk], ia 
+berbalik dari arah kiri ke depan, untuk menjaga supaya Huang Yaoshi tetap berada di tengah formasi.
+
+[^biduk]: untuk menyederhanakan penjelasan, Anda bisa membayangkan bentuk formasi itu seperti panci yang biasa kita pakai untuk memasak mie instan, yang pegangannya lurus. Posisi 'ekor biduk' itu adalah pegangan panci.
+
+
+Huang Yaoshi changed his position three times, but Wang Chuyi also moved the handle
+of the Big Dipper, just like Qiu Chuji was also moving the four stars of the Dipper, pre-
+venting Huang Yaoshi from occupying the position by Ma Yu’s left side. As he was mak-
+ing his fourth attempt suddenly Guo Jing understood, “Ah, right, he wants to steal the
+north polar star position.”
+
+When he was treating his injury at the Ox Village, from behind the wall he saw the
+Quanzhen Seven Masters fought Mai Chaofeng, and later on Huang Yaoshi, using the
+Big Dipper Formation. Later on he learned in detail from Huang Rong the Big Dipper
+constellation and the north polar star; he knew that the ‘tian shu’ [sky pivot] and ‘tian
+xuan’ [sky jade/gem] were linked in a straight line with the north polar star. Since the
+north polar star is always on the north, every night the Big Dipper constellation would
+revolve around this star. Later on he was captured by the Beggar Clan on Mount Jun at
+the Dongting Lake, again he pondered about this Big Dipper constellation; not only did
+he gain more than a few understanding of the Big Dipper characteristics, but also the
+movement of the Big Dipper Formation, and applied this ingenious method to advance
+his own martial art skill.
+
+Huang Yaoshi’s intelligence was a hundred folds better than Guo Jing’s; he was also
+well-versed in astronomy and the study of yin-yang wu hang [lit. negative and positive
+five lines]. After he failed to break the Quanzhen Seven Masters’ Big Dipper Formation
+during the battle at the Ox Village he meditated over this for a long time, until he fi-
+nally comprehended the flaw of this formation.
+
+Guo Jing was thinking about this formation because he wanted to ‘learn’ it; while
+Huang Yaoshi thought it was not worth his time to learn Wang Chongyang’s technique,
+so he concentrated on ‘breaking’ the formation. He knew that all he needed to do was
+to snatch the north polar star position, and the formation would break; or at least if he
+occupied the central position, he would be able to control the formation, he could wait
+leisurely for the enemy to be exhausted, while he himself would stand in an invincible
+position.
+
+The Quanzhen Masters were also aware that he was trying to break the formation by
+stealing the crucial position; they were inwardly anxious. If Tan Chuduan were still
+alive, the seven of them could move as one body, certainly they would not let Huang
+Yaoshi steal the north polar star position. This time the ‘tian xuan’ was occupied by Ke
+Zhen’E and Yin Zhiping; which, admittedly had inferior martial art skill, and were not
+familiar with the formation technique, as a result the Big Dipper Formation’s effective-
+ness was significantly reduced.
+
+Ma Yu and the others knew that a prolonged fight would not do them any good; more-
+over, Guo Jing was standing on the side, if Huang Yaoshi was in a real danger, as a son-
+in-law, how could he not help? But their martial uncle’s and brother’s death must be
+avenged. Their deceased master Wang Chongyang was the number one martial artist of
+the world; if six of his disciples joined forces against one Huang Yaoshi and still could
+not gain any victory, the reputation of Quanzhen Sect would be ruined.
+
+They heard Huang Yaoshi laugh and say, “I didn’t know Chongyang’s disciples are so
+stubborn that they do not know what’s good for them!” While talking he moved swiftly
+towards Sun Bu’er and hacked with his palms three times. Ma Yu and Hao Datong
+raised their swords to rescue her. Huang Yaoshi slightly leaned sideways to evade the
+swords, ‘swish! swish! swish!’ he hacked three more times toward Sun Bu’er.
+
+The Master of the Peach Blossom Island’s palm technique was naturally very exquisite.
+Even if Wang Chongyang lived again, or Hong Qigong recovered from his injury, they
+would not be able to evade these six palms easily; how could Sun Bu’er block them off?
+She saw the palm was coming swiftly, she had no choice but to brandish her sword in a
+flower pattern and furiously protect her face with all her might. Suddenly Huang
+Yaoshi swept his legs repeatedly and kicked her six times. These ‘luo ying shen jian
+zhang’ [falling (leaves) divine sword palm technique] and ‘sao ye tui’ [sweeping leaves
+kick technique] were the Peach Blossom Island’s ‘kuang feng jue ji’ [fierce wind
+stunt/unique skill]; if the enemy did not retreat within the first six moves, the next six
+moves would follow, faster than the previous ones. Within six by six, thirty six moves
+even if a hero or a warrior could avoid the slap, he would not be able to evade the kick.
+
+Ma Yu and the others noticed that Huang Yaoshi concentrated his ferocious attack to-
+ward Sun Bu’er; immediately they came to her rescue, as a result, in this pressing situa-
+tion the formation became disorderly. Ke Zhen’E was blind, so the movement of the for-
+mation was somewhat delayed; Huang Yaoshi let out a long laugh and he was already
+on Ke Zhen’E’s back. “Aiyo!” suddenly Ke Zhen’E heard someone cry out in midair, that
+person was flying to the top of the roof of the Misty Rain Tavern. It turned out that
+Huang Yaoshi grabbed Yin Zhiping’s back and threw him away.
+
+The gap in the formation was getting bigger. Without giving the enemy any opportunity
+to mend the formation, Huang Yaoshi dashed toward Ma Yu, fully expecting Ma Yu to
+evade. To his surprise as his sword fended off the attack, the sword in Ma Yu’s left hand
+went straight toward Huang Yaoshi’s eyebrow; his movement was steady, backed by a
+profound internal energy.
+
+Huang Yaoshi was forced to lean sideways to evade, he could not restrain from prais-
+ing, “Good! You deserve to be the Quanzhen Sect’s head disciple.” Suddenly his leg
+swept downward, kicking Hao Datong’s leg while at the same time he stooped down to
+snatch Hao Datong’s sword and stabbed it toward his chest. Liu Chuxuan was shocked;
+he wielded his sword to parry. Huang Yaoshi laughed a big laugh and flicked his hand.
+‘Crack!’ both swords were broken.
+
+A dark green shadow flashed, the Master of the Peach Blossom Island was moving to-
+ward the north polar star position. By this moment the formation was in total chaos,
+nobody was able to stop him. The Quanzhen Masters cried out bitterly, they knew
+Huang Yaoshi was about to exercise mastery over them. Ma Yu heaved a deep sigh and
+was about to throw his sword to admit defeat and ready to take whatever punishment
+the enemy would send their way. Suddenly he saw the dark green shadow flashed
+back; there was already someone occupying the north polar star position. It was Guo
+Jing.
+
+Among the Quanzhen Masters, only Qiu Chuji was overjoyed; he had seen Guo Jing
+staked it all in attacking Huang Yaoshi at the Drunken Immortal Tavern. Ma Yu and
+Wang Chuyi knew Guo Jing was kind-hearted and honest; even though they thought he
+was going to help his father-in-law, certainly he would not harm his own shifu Ke
+Zhen’E. The rest of the Masters were shocked, they saw Guo Jing had already occupied
+the north polar star position; as soon as these father-in-law and son-in-law joined
+hands, Quanzhen Sect would die without any burial place. But they were even more
+surprised to see Guo Jing was attacking Huang Yaoshi with a bare left palm and a
+sword in his right hand.
+
+As he succeeded in breaking the formation, Huang Yaoshi wanted to force Quanzhen
+Sect to admit they were wrong; who would have thought that suddenly someone was
+occupying the north polar star position. His attention was focused on fighting the
+Quanzhen Masters, so without looking back he sent his palm backward using the ‘pi
+kong zhang’ toward the enemy’s chest. That person stretched out his left palm to parry
+the incoming force, yet he did not move even for half a step. Huang Yaoshi was sur-
+prised, he thought, “Very few people in the world have the strength to block my palm,
+who is this person?” He turned his head to look and saw that it was Guo Jing.
+
+By this time Huang Yaoshi was surrounded by the enemies front and rear; if he could
+not drive Guo Jing away, the Big Dipper Formation would outflank him from behind
+and that would put him in a very dangerous situation. He sent out three palm attacks in
+succession toward Guo Jing, one palm was fiercer than the last, but each time Guo Jing
+simply blocked it away. The fourth palm contain a fake and a real attack, expecting Guo
+Jing to take advantage of an opening and launch a counterattack; who would have
+thought that Guo Jing only took a defensive position and did not counterattack. Guo
+Jing lifted the dagger up in front of his chest, while his left palm slowly swept across his
+own lower abdomen. In this way although he received one stance with two attacks
+from Huang Yaoshi, both attacks were neutralized.
+
+Huang Yaoshi was startled, he thought, “This dumb kid knew how to defend and break
+the formation; he steadily defending the north polar star position and did not want to
+move even half a step. Ah, right, he must have received Quanzhen Masters’ instruction
+and came here to help them to fight me.”
+
+He did not know that his guess was only half correct. Guo Jing did indeed know the se-
+cret of the Big Dipper Formation, but he learned it from the Nine Yin Manual and not
+from the Quanzhen Masters. As Guo Jing was facing the enemy with whom he held an
+enormous enmity, he suppressed his anger to keep his position; it was as if his feet
+were firmly planted to the ground, he simply turned his eyes blind to whatever trick
+Huang Yaoshi used to tempt him to attack.
+
+Huang Yaoshi groaned silently; he thought, “This dumb kid doesn’t know when to pro-
+ceed and when to retreat! Humph! Even if Rong’er blames me, I am going to hurt you
+today; otherwise you won’t want to back off.” His left hand made a circle about seven
+inches in front of his chest, his right palm rode on the left hand; borrowing the strength
+from the left hand it was propelled forward, the force doubled. But before it hit Guo
+Jing’s face, he suddenly remembered, “If he doesn’t evade, this palm will certainly
+cause him a heavy injury. Whatever the reason, Rong’er will not be happy for the rest
+of her life.”
+
+Guo Jing saw him borrow the strength of his left hand to launch a palm attack, he knew
+the incoming force would not be a small matter; gritting his teeth he launched the ‘xian
+long zai tian’ [dragon appears on the field], a stake-it-all stance from the Eighteen
+Dragon Subduing Palms. He realized his martial art was far inferior to the enemy’s; he
+would suffer serious injury if he took the incoming palm head-on, but in order to evade
+the attack, he would have to leave the north polar star position, which would set him
+back into a more difficult situation. Hence in this one move he was ready to sacrifice
+his own life. Who would have thought that as his palm was about a foot away from his
+face, Huang Yaoshi suddenly withdrew his attack and called out, “Dumb Kid, go away!
+Why do you make things difficult for me?”
+
+Guo Jing held his sword tight, he looked at Huang Yaoshi with full attention to protect
+himself against any trick he might do; he did not reply. By now the Quanzhen Masters
+had already reorganized their formation; they made encirclement some distance away
+from Huang Yaoshi’s back, waiting for an opportunity to attack.
+“Where is Rong’er?” Huang Yaoshi asked.
+
+Guo Jing still did not answer, his face looked gloomy, his eyes spouted anger. Seeing his
+expression Huang Yaoshi’s suspicion grew; he was afraid his daughter had met some
+accident. “What did you do to her? Speak up!” he barked.
+Guo Jing gritted his teeth and bit his lips; his right hand, which was holding the sword,
+slightly trembled. Huang Yaoshi’s attention was focused on him; each slight movement
+
+Guo Jing made did not escape his eyes. Seeing Guo Jing’s unusual expression he was
+even more alarmed. “Why is your hand trembling? Why aren’t you talking?” he called
+out.
+
+Guo Jing recalled how his shifus died a horrible death on the Peach Blossom Island,
+grief and indignation burst forth in his heart; his body shook violently, his eyes blood-
+shot. Seeing him not willing to talk, tears streaming down his face, Huang Yaoshi was
+more alarmed. He knew his daughter had a heated argument with Guo Jing over the
+Princess Huazheng’s affair; he was afraid Guo Jing had killed Huang Rong. He kicked
+his feet and pounced forward.
+
+As soon as Huang Yaoshi made his move Qiu Chuji thrust his long sword out, at the
+same time the Big Dipper Formation started to move. Wang Chuyi and Hao Datong at-
+tacked from Huang Yaoshi’s left and right, one with sword in his hand, the other with a
+bare palm. Guo Jing’s palm neutralized the incoming attack, while his dagger stung
+with a lightning speed to make a counterattack move. Huang Yaoshi did not fend it off;
+he flipped his hand over trying to seize the dagger. Although his movement was accu-
+rate and swift, Wang Chuyi’s sword had already arrived at his back; he had no choice
+but to twist his waist to evade, and thus his fingers missed Guo Jing’s dagger by two
+inches. Guo Jing used this opportunity to stab forward. This fierce battle was several
+times more intense than the previous one.
+
+**Last line was in Page 31 in PDF**
 
