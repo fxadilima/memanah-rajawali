@@ -7,8 +7,6 @@
 
 ***
 
-**DRAFT**
-
 Ketika Huang Rong sedang menari di udara, tiba-tiba ia berseru tertahan, "Ah!" dan melompat turun dari pohon. Memberi 
 isyarat kepada Guo Jing ia berjalan masuk kedalam hutan. Guo Jing takut tersesat, maka ia mengikutinya dalam jarak dekat
 dan tidak berani menjauh lebih dari setengah langkah di belakangnya. Huang Rong berjalan cepat di sepanjang jalan berliku
@@ -1492,6 +1490,4 @@ setengah bagian langit, badai akan tiba. Tepat pada saat itu mereka mendengar su
 delapan kapal besar di danau datang mendekat. Kapal itu dihias dengan lentera merah, di lambung kapal-kapal 
 itu tertera tanda seperti 'Su Jing' dan 'Hui Bi', tampaknya semua kapal itu milik pejabat teras.
 
-
-**Last line was in Page 39 in PDF**
 
