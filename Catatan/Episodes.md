@@ -48,3 +48,8 @@ Bab 34:
 [![Perubahan di pulau Persik](images/perubahan-di-pulau-persik.jpg)](https://youtube.com/clip/UgkxyCst_JJXnhWDLQ6em83D1B8T0aXj87Yg)
 
 
+Bab 35:
+
+[![Ke Zhen'E digotong dua orang prajurit Jin](images/ke-zhene-digotong-prajurit.jpg)](https://youtube.com/clip/UgkxgPyhRYgvzNkP7gzQ6JrTBXrwUEkP4CbW)
+
+
