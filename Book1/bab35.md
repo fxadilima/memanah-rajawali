@@ -62,34 +62,34 @@ menonton dengan penuh perhatian di samping, siap menyerang. Enam Pendekar Quanzh
 akan membuat mereka tewas, maka dari itu mereka membulatkan tekad dan melawan Ouyang Feng dengan segenap hati, tetapi 
 hanya dalam beberapa jurus mereka berenam mengeluh dalam hati.
 
+Kali ini niat Ouyang feng adalah untuk memamerkan kekuatannya di hadapan semua orang, semua jurus yang ditampilkannya
+sangat cepat dan mematikan, khususnya kedua ular yang ada di kepala tongkatnya, yang maju mundur, menyerang atau 
+mengelak dalam gerakan mendadak, pada hakekatnya tidak mungkin dilawan. Qiu Chuji, Wang Chuyi dan yang lain beberapa 
+kali mencoba untuk menikam ular-ular itu, tetapi mereka tidak bisa mengimbangi kecepatannya.
 
-This time the Western Poison’s intention was to show off his power in front of every-
-body; everything he displayed was swift and deadly move, particularly the two snakes
-on the head of his staff, which was extended or withdrawn, striking or evading in sud-
-den movements, it was virtually impossible to guard against. Qiu Chuji, Wang Chuyi
-and the others had tried several times to stab these snakes, but how could they match
-their speed?
+Huang Rong melihat Guo Jing masih menatap ayahnya dengan marah. Hanya karena Hong Qigong menghalanginya ia tidak berani 
+menyerang. Ia tiba-tiba terinspirasi dan berkata, "Sepajang hari ngomong soal membalas dendam ayahnya, hmm, sekarang 
+pembunuhnya ada di sini tapi dia takut."
 
-Huang Rong saw Guo Jing was still staring angrily at her father; it was only because
-Hong Qigong was on his way that he did not dare to attack. She got a sudden inspira-
-tion and said, “All day long talking about avenging his father, humph, now that the
-killer is here he is afraid.”
+Kata-katanya mengingatkan Guo Jing, ia mengalihkan pandangannya kepada Huang Rong dan berpikir, "Membunuh anjing Jin itu 
+dulu, baru kemudian mencari Huang Yaoshi juga masih belum terlambat." Sambil menghunus pisaunya ia menerjang ke arah 
+Wanyan Honglie.
 
-Her words reminded Guo Jing, he turned his gaze to her and thought, “Kill the Jin dog
-first, then look for Huang Yaoshi; it won’t be too late.” Drawing his dagger he charged
-toward Wanyan Honglie.
+Secara serempak Sha Tongtian dan Penglianhu maju untuk menghadang di depan Wanyan Honglie. Guo Jing memutar pergelangan 
+tangannya dan belati di tangannya menikam miring ke bawah. Peng Lianhu menangkis dengan sepasang penanya, 'tring!'
+senjata-senjata itu beradu dan ia merasakan sensasi kesemutan di telapak tangannya. Guo Jing berturut-turut melewati
+dua orang. Teknik Yi Xing Huan Wei[^ilmu-pindah] milik Sha Tongtian juga tidak bisa menahan langkahnya. Buru-buru 
+Sha Tongtian berusaha mengejarnya. Lingzhi Shangren dan Lian Ziweng masing-masing dengan senjata di tangan 
+memposisikan diri untuk menghadang Guo Jing.
 
-Together Sha Tongtian and Peng Lianhu dashed forward, blocking in front of Wanyan
-Honglie. Guo Jing flicked his wrist and the dagger in his hand stabbed slanting down.
-Peng Lianhu blocked with his pair of judge pens, ‘clang!’ the weapons collided and he
-felt tingling sensation on his palms. Guo Jing successively went passed two people. Sha
-Tongtian’s ‘yi xing huan wei’ [altering form changing position] technique was also un-
-able to stop him; hastily Sha Tongtian tried to pursue him. Lingzhi Shangren and Liang
-Ziweng, each with weapon in their hands positioned themselves to intercept Guo Jing.
+Guo Jing berkelebat ke samping untuk menghindari dua Jarum Penembus Tulang milik[^tou-gu-ding] Liang Ziweng,
+kedua tangannya, satu dengan belati dan yang lain telapak tangan kosong, melancarkan Di Yang Chu Fan[^di-yang-chu-fan],
+melemparkan tubuhnya ke depan.
 
-Guo Jing flashed sideways to evade two of Liang Ziweng’s ‘tou gu ding’ [bone penetrat-
-ing nail]; his both hands, one with a dagger the other with a palm, launched ‘di yang
-chu fan’ [ram charging fence], throwing his whole body forward.
+[^di-yang-chu-fan]: Di Yang Chu Fan (羝羊触藩) adalah sebuah ungkapan yang terdapat di dalam Kitab Perubahan (Yijing). Biasanya digunakan untuk menggambarkan dilema yang dialami seseorang. Arti literal 4 karakter tersebut adalah 'kambing/domba jantan yang tanduknya diikat ke sebuah pagar'.
+
+Liang Ziweng melihat bahwa tenaga yang datang sangat cepat dan dahsyat, ia bergulingan menjauh di tanah untuk 
+menghindarinya.
 
 Liang Ziweng saw that the incoming force was swift and fierce; he rolled away on the
 ground to evade. Lingzhi Shangren was big and fat, he was not as agile; he thought if he
