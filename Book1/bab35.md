@@ -91,41 +91,36 @@ melemparkan tubuhnya ke depan.
 [^di-yang-chu-fan]: Di Yang Chu Fan (羝羊触藩) adalah sebuah ungkapan yang terdapat di dalam Kitab Perubahan (Yijing). Biasanya digunakan untuk menggambarkan dilema yang dialami seseorang. Arti literal 4 karakter tersebut adalah 'kambing/domba jantan yang tanduknya diikat ke sebuah pagar'.
 
 Liang Ziweng melihat bahwa tenaga yang datang sangat cepat dan dahsyat, ia bergulingan menjauh di tanah untuk 
-menghindarinya.
+menghindarinya. Lingzhi Shangren tinggi dan gemuk, ia tidak segesit itu, ia merasa jika ia menghindar maka lawan 
+akan mendapat jalan mulus ke arah Pangeran Zhao, maka ia mengangkat sepasang simbalnya, berusaha menangkis serangan 
+itu. Dengan dua suara 'tring! tring!' tangannya tergetar dan kedua simbal itu melayang ke udara, sementara hembusan 
+angin dari telapak tangan Guo Jing terus menerpa mukanya. Mengandalkan kekuatan dan racun di telapak tangannya, 
+Lingzhi Shangren menangkis telapak tangan Guo Jing, hanya untuk merasa dadanya sesak dan lengannya kesemutan dan 
+pegal-pegal, telapak  tangannya terkulai lemas, persendian di pergelangan tangannya tergetar dan yang mengejutkannya
+adalah ia tidak dapat menggunakan tangan beracunnya. Ia berdiri bengong tanpa tahu apa yang harus dilakukan. Jika 
+Guo Jing memanfaatkan kesempatan dan mengirimkan sebuah pukulan, maka ia dengan mudah akan mencabut nyawa Lingzhi 
+Shangren, tetapi ia ingat bahwa sasaran utamanya adalah Wanyan Honglie, jadi ia tidak menengok lagi ke arah 
+Lingzhi Shangren.
 
-Liang Ziweng saw that the incoming force was swift and fierce; he rolled away on the
-ground to evade. Lingzhi Shangren was big and fat, he was not as agile; he thought if he
-evaded, the enemy would have clear access to the Prince Zhao, so he raised his pair of
-cymbals, trying to block this attack. With two loud ‘Bang! Bang!’ his hands were shaken
-and the two cymbals flew to the air, while the wind from Guo Jing’s palm continued
-hacking toward his face. Relying on the strength of, and poison on, his palms, Lingzhi
-Shangren fended off Guo Jing’s palm, only to feel his chest constricted and his arm sore
-and numb; his palms hang loosely down, his wrist joints were shaken and to his shock
-he could not use his poisonous palm skill. He stood dumbly without knowing what to
-do. If Guo Jing took this opportunity and sent out a palm, he could easily take Lingzhi
-Shangren’s life, but he remembered his main target was Wanyan Honglie, so he did not
-give Lingzhi Shangren another look.
+Sepasang simbal tembaga itu terbang di udara dan berkilau di bawah sinar bulan, satu per satu simbal-simbal itu 
+bebrjatuhan ke tanah. 'Gong!' salah satu simbal jatih di atas kepala Lingzhi Shangren. Untungnya simbal itu 
+dalam posisi horizontal, kalau tidak maka pinggirannya yang setajam pisau akan membelah kepala botak biksu 
+Tibet itu menjadi dua. Suara 'Gong!' lain menyusul, lebih nyaring dan jelas ketimbang yang pertama, simbal 
+yang kedua mendarat di atas yang pertama, menciptakan gema berkesinambungan, yang mencapai jauh ke tengah 
+danau dan terpantul ke permukaan air danau.
 
-The pair of copper cymbals flew in the air and glimmering under the moonlight one af-
-ter another they fell back down to the earth. ‘Bang!’ the first cymbal landed on Lingzhi
-Shangren’s head. Luckily it was in a horizontal position; otherwise with its knife-like
-sharp edge it would chop the Tibetan monk’s bald head in two. Another loud ‘Bang!’ fol-
-lowed, louder and brighter than the first; the second cymbal landed on the first, creat-
-ing a continuous buzzing noise, which reached far into the lake and echoed back on the
-surface of the lake.
+Wanyan Honglie melihat betapa Guo Jing mampu menerobos empat ahli silat tanpa kehilangan langkah dan tiba-tiba 
+muncul di hadapannya, ia tidak dapat menahan keterkejutannya dan menjerit, "Aiyo!" sambil memutar tubuhnya dan 
+melarikan diri.
 
-Wanyan Honglie saw how Guo Jing was able to go through four martial art masters
-without missing a step and suddenly arrive in front of him, he was unable to restrain
-his great shock and cried out, “Aiyo!” while turning his body around and run away.
+Dengan belati di tangan Guo Jing mengejarnya, tapi ia hanya berhasil mengejar beberapa langkah ketika tiba-tiba 
+sebuah bayangan kuning berkelebat lewat, sepasang telapak tangan datang dalam posisi miring ke arahnya. Guo Jing
+melangkah ke samping untuk mengelak, sementara belati di tangannya menikam ke depan, tetapi tubuhnya terayun 
+oleh serangan yang datang itu, buru-buru ia meneguhkan langkahnya dan melihat bahwa musuh yang datang itu 
+adalah Ketua Telapak Besi, Qiu Qianren. Guo Jing tahu kungfu lawan lebih tinggi dari kungfunya, jadi ia tidak 
+akan bisa mengejar musuhnya. Dengan belati di tangan kanan dan telapak tangan kiri kosong ia memusatkan perhatian
+untuk menghadapi Qiu Qianren.
 
-With the dagger in his hand Guo Jing chased him; but he only managed to pursue sev-
-eral steps when suddenly a yellow shadow flashed by, a pair of palms came slanting
-down on him. Guo Jing stepped aside to evade, while the dagger in his hand stabbed
-forward; but his body was swayed by the incoming palms; hastily he steadied his step
-and saw that the enemy was the Clan Leader of the Iron Palm Clan, Qiu Qianren. Guo
-Jing knew the enemy’s martial art skill is superior to his own, so he would not be able
-to pursue his personal enemy; immediately, with the dagger in his right hand and a
-bare palm on his left, he focused his attention to fight the enemy.
 
 Peng Lianhu knew the critical situation had passed as he saw Guo Jing was tied down
 by Qiu Qianren while Liang Ziweng and Sha Tongtian were guarding in front of
