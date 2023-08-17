@@ -10,7 +10,7 @@
 Ketika Huang Rong sedang menari di udara, tiba-tiba ia berseru tertahan, "Ah!" dan melompat turun dari pohon. Memberi 
 isyarat kepada Guo Jing ia berjalan masuk kedalam hutan. Guo Jing takut tersesat, maka ia mengikutinya dalam jarak dekat
 dan tidak berani menjauh lebih dari setengah langkah di belakangnya. Huang Rong berjalan cepat di sepanjang jalan berliku
-dan kemudian berhenti mendadak. Ia menjuk ke arah sebuah tumpukan kuning di atas tanah sambil bertanya, "Apa itu?"
+dan kemudian berhenti mendadak. Ia menunjuk ke arah sebuah tumpukan kuning di atas tanah sambil bertanya, "Apa itu?"
 
 Guo Jing bergegas maju beberapa langkah dan melihat seekor kuda kuning tergeletak di atas tanah. Ia buru-buru mendekat dan 
 berjongkok untuk mengamati. Ia mengenalinya sebagai kuda kuning milik guru ketiganya, Han Baoju. Ia meraba punggung kuda itu 
