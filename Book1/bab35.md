@@ -82,9 +82,11 @@ dua orang. Teknik Yi Xing Huan Wei[^ilmu-pindah] milik Sha Tongtian juga tidak b
 Sha Tongtian berusaha mengejarnya. Lingzhi Shangren dan Lian Ziweng masing-masing dengan senjata di tangan 
 memposisikan diri untuk menghadang Guo Jing.
 
-Guo Jing berkelebat ke samping untuk menghindari dua Jarum Penembus Tulang milik[^tou-gu-ding] Liang Ziweng,
+Guo Jing berkelebat ke samping untuk menghindari dua Jarum Penembus Tulang[^tou-gu-ding] milik Liang Ziweng,
 kedua tangannya, satu dengan belati dan yang lain telapak tangan kosong, melancarkan Di Yang Chu Fan[^di-yang-chu-fan],
 melemparkan tubuhnya ke depan.
+
+[^tou-gu-ding]: Tou Gu Ding (透骨钉) bisa diartikan 'Jarum Penembus Tulang'. Sebetulnya karakter Ding (钉) lebih cocok kalau kita artikan 'Paku', tetapi senjata rahasia Lian Ziweng sebelumnya digambarkan 'sangat halus dan tipis', karena itu istilah 'paku' terasa kurang cocok.
 
 [^di-yang-chu-fan]: Di Yang Chu Fan (羝羊触藩) adalah sebuah ungkapan yang terdapat di dalam Kitab Perubahan (Yijing). Biasanya digunakan untuk menggambarkan dilema yang dialami seseorang. Arti literal 4 karakter tersebut adalah 'kambing/domba jantan yang tanduknya diikat ke sebuah pagar'.
 
