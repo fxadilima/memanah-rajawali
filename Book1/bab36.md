@@ -8,9 +8,11 @@
 
 ***
 
-Huang Rong berkata dengan tenang, "Aku menghargai lujian Paman Ouyang. Sayangnya Guo Jing mudah dibodohi, sampai-sampai
+Huang Rong berkata dengan tenang, "Aku menghargai pujian Paman Ouyang. Sayangnya Guo Jing mudah dibodohi, sampai-sampai
 sekarang ini dia tidak mau hidup di bawah langit yang sama dengan ayahku dan aku. Setelah kau menyelamatkan ayah, kalau 
 keponakanmu ini masih hidup, aih! Masih bisakah lamaran yang lalu itu dilanjutkan lagi?"
+
+**DRAFT**
 
 Ouyang Feng’s heart was stirred, “What is she getting at by bringing this matter up?” he
 pondered. In the meantime, Huang Rong continued, “Shagu, this good brother is very
