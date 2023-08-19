@@ -53,3 +53,9 @@ Bab 35:
 [![Ke Zhen'E digotong dua orang prajurit Jin](images/ke-zhene-digotong-prajurit.jpg)](https://youtube.com/clip/UgkxgPyhRYgvzNkP7gzQ6JrTBXrwUEkP4CbW)
 
 
+Bab 36: Perjalanan ke Barat
+
+[![Ouyang Feng bermaksud menghabisi Ke Zhen'E](images/ouyang-feng-mau-membunuh-ke-zhene.jpg)](https://youtube.com/clip/Ugkxx2QwAxpkIVJNqUJfax1HPunZKCG0QeAE)
+
+***
+
