@@ -114,284 +114,245 @@ Shagu ketakutan setengah mati. "Aku tidak membunuhnya, jangan sakiti aku! Jangan
 keras, tetapi cekalan Ouyang Feng mirip belenggu baja, mana mungkin Shagi melepaskan diri. Makin keras ia meronta, 
 makin erat cekalan itu. Shagu menjerit ngeri, "Ibu!"
 
-Ouyang Feng repeated his question several times; Shagu became so scared from crying
-that she did not dare to cry anymore. She only stared at Ouyang Feng’s face with a
-blank expression.
+Ouyang Feng mengulangi pertanyaannya beberapa kali. Shagu jadi begitu takut, dari menangis ia tidak berani 
+menangis lagi. Ia hanya menatap muka Ouyang Feng dengan tatapan kosong.
 
-“Shagu,” Huang Rong soothingly said, “Don’t be afraid, this nice grandpa is going to
-give you a cake.”
+"Shagu," kata Huang Rong dengan nada menghibur. "Jangan takut, Yeye yang baik ini akan memberimu kue."
 
-Her words reminded Ouyang Feng. He realized that if he used force, Shagu would not
-dare to talk; therefore, he groped inside his pocket and produced a dried and already
-cold steamed bun and held it out to Shagu’s hand. “That’s right! Here, you can eat this
-cake.”
+Kata-kataya mengingatkan Ouyang Feng. Ia menyadari bahwa jika ia menggunakan kekerasan, Shagu tidak akan 
+berani bicara. Karena itu ia merogoh sakunya dan mengeluarkan bakpao kering dan sudah dingin, dan menyodorkannya
+ke tangan Shagu. "Betul! Ini, kau boleh makan kue ini."
 
-Shagu grabbed the bun, her fear was gone. “Yeye, you grabbed my arm, it hurt, you
-must not grab me anymore,” she said.
-
-“Good Shagu, you are an obedient child,” Ouyang Feng warmly said, “Yeye won’t grab
-your arm anymore.”
-
-Huang Rong said, “That day the mister without legs was hugging a lady. Tell me, was
-she pretty?”
-
-Shagu nodded. “Very pretty. I wonder where she is going.”
-
-Huang Rong asked again, “Do you know who she is? You don’t know, do you?”
-
-Shagu’s face lit, she was so proud of herself; she clapped her hands and said, “I know, I
-know! She is this good brother’s wife!”
-
-Hearing this, any doubt left in Ouyang Feng’s heart was gone. He knew his nephew’s
-lecherous character; it must be because of Mu Nianci that his nephew met his fate. But,
-Ouyang Ke’s martial art was higher than Yang Kang’s; even though his legs were in-
-jured, Yang Kang was still not his match; he could not figure out how Yang Kang was
-able to kill him? He turned his head toward Yang Kang and said, “My nephew was
-oblivious to what’s good and what’s not, he dared to offend the Xiao Wangye’s concu-
-bine; he deserved to die ten thousand times.”
-
-“No ... No ...” Yang Kang stammered. “It wasn’t me ...”
-
-“Then who?” Ouyang Feng sternly asked.
-
-Yang Kang was so scared that his knees turned into rubber, cold sweats pouring down
-his forehead; his usual shrewdness was gone, he was unable to utter a single word.
-
-Huang Rong sighed, “Uncle Ouyang, you can’t blame the Xiao Wangye of being heart-
-less, you can’t blame your nephew flirtatious character either, you have only your su-
-perb martial art to blame.”
-
-“How so?” Ouyang Feng was puzzled.
-
-Huang Rong answered, “I don’t know why, but in that house at the Ox Village I heard a
-couple, a man and a woman, were talking. I do not understand what they were
-discussing.”
-
-Listening to this muddy talk with so many unknown Ouyang Feng was more con-
-founded, “What did they say?” he asked.
-
-Huang Rong answered, “I will repeat what they said word for word, I won’t add or sub-
-tract a single word; please Uncle hear me out. I did not see their faces, I don’t know
-who the man was, I don’t know who the woman was either; what I heard was that man
-said, ‘If this fact that I killed Ouyang Ke ever leaks out, won’t that be a disaster?’ That
-woman replied, ‘A real man is not afraid to take responsibility of his action. If you are
-afraid, you shouldn’t have killed him yesterday. Even though his uncle is very fierce,
-we can run away to some far away place, he won’t be able to find us.’”
+Shagu mengambil bakpao, rasa takutnya hilang. "Yeye, kau memegang tanganku, itu sakit, kau jangan memegangku lagi."
 
-Listening to Huang Rong, Ouyang Feng said, “That woman was right. What did the man
-say?”
-
-While these two were talking, one asked the questions and the other answered, Yang
-Kang was getting more and more afraid than ever. The moon cast its light through the
-temple’s door, throwing a slanting column of light illuminating the face of the temple’s
-idol. Yang Kang slowly moved away from the light, quietly walked toward Huang
-Rong’s back. He heard Huang Rong answered Ouyang Feng’s question.
-
-“That man said, ‘Meizi [sister/beloved], I have another thought: his uncle’s martial art is
-unparalleled, I wanted to take him as my master, I have had this thought for a while,
-but they followed a very strict rule: they only take one disciple per generation. Now
-that this man is dead, his uncle might take me as his disciple!”
-
-Huang Rong did not mention anybody’s name, but she had an uncanny ability to imi-
-tate Yang Kang’s accent. Yang Kang grew up in the northern area, but Bai Xirou, his
-mother, was a native of Lin’an in the south; so Yang Kang’s accent was a mixture be-
-tween northerners and southerners. As soon as Huang Rong said these things, every-
-body knew it was Yang Kang she was imitating.
-
-Ouyang Feng laughed coldly; he turned his head but did not see Yang Kang.
-
-Suddenly they heard ‘whack!’, then ‘Aiyo!’ Someone was crying in alarm. They saw
-Yang Kang standing under the moonlight with blood dripping from his right hand, his
-face was deathly pale.
-
-Turned out that when Yang Kang heard Huang Rong was revealing his secret he could
-not restrain himself much longer; he leaped ferociously, his claw was aimed toward
-Huang Rong’s head. As Huang Rong imitated Yang Kang’s accent, she was fully aware
-he would certainly attack her; therefore, she had guarded against this attack from the
-start. Her martial art level was higher than Yang Kang’s. As soon as she heard the gust
-of wind she leaned her head sideways to elude, so the claw fell on her shoulder.
-
-Yang Kang had launched the ‘Nine Yin White-bone Claw’ with all his might, his five fin-
-gers landed on the soft hedgehog armor Huang Rong was wearing. A shot of pain trav-
-eled from his fingers to his brain; he almost pass out.
-
-The others were clueless as whether it was Yang Kang who made the sneak attack, or
-was it Huang Rong or Ouyang Feng who attacked him. They were all scared of Ouyang
-Feng, so nobody dared to say anything.
-
-Wanyan Honglie rushed forward, trying to help. “Kang’er, what happened to you?
-Where does it hurt?” he asked. Casually he took out the dagger on his belt and placed it
-on Yang Kang’s hand. He realized Ouyang Feng would not have good intention. He was
-hoping that in a chaotic battle they, father and son, would be able to save their lives.
-
-Enduring his pain Yang Kang said, “I am all right.” He held out his hand to grab the dag-
-ger, but his hand was numb, ‘clank!’ the dagger fell on the floor. Hastily he stooped
-down to pick it up, but strangely his arm was stiff; it did not want to follow his com-
-mand anymore. He was extremely shocked. He tried to pinch his right arm with his left
-fingers, but he did not feel anything. He looked up toward Huang Rong and cried out in
-horror, “Poison! Poison! You used poison to harm me!”
-
-Peng Lianhu and the others knew they were going to offend Ouyang Feng, but Wanyan
-Honglie was the Great Jin’s prominent Prince; surely this Ouyang Ke affair could be dis-
-cussed peacefully later. Seeing Yang Kang’s frightened expression, they immediately
-rushed forward to offer words of sympathy and called out to Huang Rong, “Quickly
-give the antidote to Xiao Wangye!” but everybody stayed as far as possible from
-Ouyang Feng.
-
-Huang Rong was indifferent, “Don’t make a fuss; my soft hedgehog armor does not
-have any poison on it. There is somebody here who wants to kill him, I don’t have to lift
-a finger to harm him.”
-
-But suddenly Yang Kang shouted, “I ... I ... I can’t move!” His knees buckled, his body
-slowly slid down, his mouth was producing a growling noise much like a wild beast.
-
-Huang Rong felt strange and she turned toward Ouyang Feng, but saw that he was car-
-rying a puzzled expression as well. She turned back toward Yang Kang, she saw Yang
-Kang was strangely happy, a crack of smile appeared on the corners of his mouth.
-Under the silvery moonlight he looked inhumanly ghastly. Suddenly a thought came
-into her mind, she said, “It was Uncle Ouyang who poisoned you.”
+"Shagu baik, kau anak penurut," kata Ouyang Feng dengan hangat. "Yeye tidak akan memegang tanganmu lagi."
 
-Ouyang Feng was puzzled, “From the look of him, it was indeed my marvelous snake’s
-poison. I had wanted him to taste it, this little girl had done it on my behalf. Wonderful!
-Wonderful! But those snakes, I am the only one in this world who owns them, where
-did the little girl get it from?”
-
-“Where can I get that kind of snakes?” Huang Rong asked, “This is your own poison,
-you have unwittingly poison him yourself.”
+Huang Rong berkata, "Hari itu Gongzi yang tidak punya kaki memeluk seorang wanita. Coba katakan, dia cantik
+apa tidak?"
 
-“You are talking weird,” Ouyang Feng said.
+Shagu mengangguk. "Sangat cantik. Entah ke mana dia."
 
-“Uncle Ouyang,” Huang Rong said, “I remember your bet against the Old Urchin. You
-took the poison from your snakes and feed it to a shark. As this shark died of the poi-
-son, the second shark ate its flesh and died of the same poison. This way the poison was
-spreading endlessly. Isn’t that so?”
+Huang Rong bertanya lagi, "Kau tahu siapa dia? Kau tahu, kan?"
 
-Ouyang Feng laughed, “If my poison is not extraordinary, won’t my title ‘Western
-Poison’ be in vain?”
+Muka Shagu bersinar cerah, ia bangga pada dirinya sendiri. Ia bertepuk tangan dan berkata, "Aku tahu,
+aku tahu! Dia istri kakak yang baik ini!"
 
-“That’s right,” Huang Rong said, “Nan Xiren was the first shark.”
+Mendegar ini, semua keraguan Ouyang Feng lenyap. Ia tahu sifat cabul keponakannya. Pasti karena Mu Nianci keponakannya 
+kehilangan nyawa. Tapi kungfu Ouyang Ke lebih tinggi dari Yang Kang, meskipun kakinya cedera Yang Kang tetap bukan 
+tandingannya. Ia tidak bisa menebak bagaimana Yang Kang bisa membunuhnya. Ia berpaling kepada Yang Kang dan berkata,
+"Keponakanku tidak tahu apa yang baik, dia berani menyinggung Selir Xiao Wangye, dia pantas mati sepuluh ribu kali."
 
-By that time Yang Kang was already rolling around on the ground like a madman.
-Liang Ziweng wanted to comfort him, but how could he stop him?
+"Tidak... tidak..." Yang Kang tergagap. "Itu bukan aku..."
 
-Ouyang Feng ignored everything, he knitted his eyebrows trying to understand what
-Huang Rong was saying, but it was still dark to him. “Please elaborate,” he said.
+"Lalu siapa?" tanya Ouyang Feng dengan nada tajam.
 
-“Hmm, you used your viper to bite Nan Xiren. That day I came across him on the Peach
-Blossom Island and he hit me. His fist landed on my left shoulder. The sharp needles of
-my soft hedgehog armor punctured his hand, so his poisonous blood was transferred to
-my soft hedgehog armor, which became the second shark. When Xiao Wangye attacked
-me, heaven’s net tightened, his claw grabbed my shoulder. Nan Xiren’s poisoned blood
-was transferred once again to him. Hey, hey, he is the third shark.”
+Yang Kang begitu takutnya sampai lututnya berubah menjadi karet, keringat dingin membahasi dahinya. Kelicikannya 
+yang biasa lenyap, ia tidak mampu mengatakan apa-apa.
 
-Hearing Huang Rong’s explanation everybody realized how deathly Ouyang Feng’s poi-
-son was. They also remembered Yang Kang’s treacherous plan in killing the Five
-Freaks; in the end it was Nan Xiren’s blood which kill him. It was truly a revenge well-
-deserved. A chill crept into everybody’s back.
+Huang Rong menghela nafas. "Paman Ouyang, kau tidak bisa menyalahkan Xiao Wangye karena tidak punya hati, dan kau juga 
+tidak bisa menyalahkan sifat cabul keponakanmu juga, kau hanya bisa menyalahkan kungfumu yang hebat."
 
-Wanyan Honglie walked toward Ouyang Feng, knelt in front of him and asked, “Mr.
-Ouyang, please help save my son’s life; Xiao Wang will always remember your
-benevolence.”
+"Kenapa bisa begitu?" kata Ouyang Feng bingung.
 
-Ouyang Feng laughed sinisterly, “Your son’s life is a life indeed, my nephew’s life was
-not a life!” His gaze swept through Peng Lianhu and the others’ faces and coldly said,
-“Which hero does not agree with me, please speak up!” Everybody recoiled simultane-
-ously. Who would dare to open his mouth?
+Huang Rong menjawab, "Aku tidak tahu kenapa, tapi di kedai itu, di Desa Niu, aku mendengar sepasang pria dan
+wanita bicara. Aku tidak mengerti apa yang mereka bicarakan."
 
-Yang Kang suddenly leaped up, ‘bang!’ he hit Liang Ziweng, sending him somersaulted
-in the air and passed out. Wanyan Honglie stood up, calling, “Quick! Take Xiao Wangye
-back to Lin’an; we’ll find a good doctor to cure his injury.”
+Mendengarkan ucapan samar-samar itu, yang mengandung begitu banyak 'tidak tahu', Ouyang Feng makin bingung.
+"Mereka bilang apa?" tanyanya.
 
-Ouyang Feng laughed, “Who in this world can neutralize The Old Poison’s venom?
-Which doctor won’t want to live and dare to mess up my handiwork?”
+Huang Rong menjawab, "Akan kuulangi apa pun juga yang mereka bicarakan, kata per kata, aku tidak akan 
+menambah atau mengurangi satu kata pun. Tolong Paman dengarkan baik-baik. Aku tidak melihat wajah mereka,
+aku tidak tahu siapa pria itu, aku juga tidak tahu siapa wanita itu. Yang kudengar adalah, pria itu berkata,
+'Kalau fakta bahwa aku membunuh Ouyang Ke sampai bocor, apa itu bukan malapetaka?' Wanita itu menjawab,
+'Pria sejati tidak takut bertanggung jawab atas perbuatannya sendiri. Kalau kau takut, seharusnya kau 
+tidak membunuhnya kemarin. Meskipun pamannya sangat kejam, kita bisa melarikan diri ke tempat terpencil,
+dia tidak akan bisa menemukan kita.'"
 
-Wanyan Honglie ignored him, he shouted toward his martial artists, “What are you
-waiting for? Quickly take Xiao Wangye away.”
+Mendengarkan Huang Rong, Ouyang feng berkata, "Wanita itu benar. Apa yang dikatakan pria itu?"
 
-Suddenly Yang Kang jumped high until his head almost hit the beam. He pointed his
-finger at Wanyan Honglie and he shouted, “You are not my father! You killed my
-mother, now you kill me!”
+Sementara mereka berdua bertanya jawab, Yang Kang merasa lebih takut dari sebelumnya. Cahaya bulan menerobos
+pintu kuil, menciptakan segaris sinar miring yang menerangi wajah patung di kuil itu. Yang Kang perlahan bergerak
+menjauh dari sumber cahaya, diam-diam berjalan menuju ke punggung Huang Rong. Ia mendengar Huang Rong menjawab 
+pertanyaan Ouyang Feng.
 
-Wanyan Honglie stepped back and stumbled down. Sha Tongtian said, “Xiao Wangye,
-please calm down.” He stepped forward to grab Yang Kang’s arms. Unexpectedly Yang
-Kang flipped his hand to push away Sha Tongtian’s hand and quickly seized his arm.
-Yang Kang’s left hand formed a claw scratching Sha Tongtian’s arm.
+"Pria itu berkata, 'Meizi, aku punya pikiran lain. Kungfu pamannya tak bisa ditandingi siapapun, aku ingin 
+mengangkatnya menjadi guruku, aku sudah punya pikiran ini sebelumnya, tapi mereka punya aturan ketat. Mereka 
+hanya menerima satu murid dalam satu generasi. Sekarang orang ini sudah mati, pamannya mungkin akan mengangkatku 
+menjadi muridnya!'"
 
-Sha Tongtian cried in pain, hastily he rolled backward to escape, but a moment later he
-felt itchiness on his arm. He was terror-stricken!
+Huang Rong tidak menyinggung nama siapa pun, tetapi ia punya kemampuan yang luar biasa untuk menirukan logat 
+Yang Kang. Yang Kang dibesarkan di daerah Utara, tetapi Bai Xirou, ibunya, adalah penduduk asli Lin'an, di 
+Selatan. Karena itu logat Yang Kang adalah campuran antara orang Utara dan Selatan. Begitu Huang Rong mengatakan
+semua itu, semua orang tahu bahwa ia sedang menirukan Yang Kang.
 
-“This is the fourth shark,” Huang Rong coldly said.
+Ouyang Feng tertawa dingin, ia memalingkan kepalanya untuk menatap Yang Kang.
 
-Peng Lianhu and Sha Tongtian were good friends, moreover, Peng Lianhu was also an
-expert poison user, he knew Sha Tongtian was poisoned and his life was in grave dan-
-ger. In this critical moment almost without thinking he took the saber from his waist
-and swiftly chopped Sha Tongtian’s arm halfway down.
+Tiba-tiba mereka mendengar suara 'duk!', lalu 'Aiyo!'. Semua orang menjerit kaget. Mereka melihat Yang Kang
+sedang berdiri di bawah cahaya bulan dengan darah menetes dari tangan kanannya, mukanya sepucat mayat.
 
-Hou Tonghai did not understand Peng Lianhu’s good intention, “Peng Lianhu, you dare
-to hurt my ‘Shige’? [Elder martial brother]” He charged Peng Lianhu disregarding his
-own safety.
+Ternyata ketika Yang Kang mendengar Huang Rong sedang membingkar rahasianya, ia tak dapat lagi menahan diri,
+ia melompat dengan ganas, cakarnya mengincar kepala Huang Rong. Ketika sedang menirukan logat Yang Kang,
+Huang Rong sepenuhnya sadar bahwa Yang Kang akan menyerangnya. Karena itu ia telah mewaspadai serangan itu 
+sejak awal. Kungfunya lebih tinggi dari Yang Kang. Begitu ia mendengar hembusan angin, ia memiringkan kepalanya 
+ke samping untuk menghindar, maka cakar itu jatuh di bahunya.
 
-Sha Tongtian endured the pain and shouted, “Idiot, back-off! Brother Peng was saving
-my life!”
+Yang Kang melancarkan Cakar Tengkorak Putih[^cakar-1] dengan segenap tenaganya, kelima jarinya mendarat di Rompi Kulit Landak 
+yang dipakai Huang Rong. Rasa sakit menjalar dari jari-jarinya ke otak, ia hampir pingsan.
 
-By this time Yang Kang’s mind was cloudy, he was charging to the east and striking to
-the west, kicking and biting randomly. Everybody saw what happened to Sha Tongtian,
-nobody dared to come close to him; shouting and yelling they darted out of the temple.
+[^cakar-1]: Jiu Yin Baigu Zhua (九陰白骨爪), atau kita terjemahkan menjadi 'Cakar Tengkorak Putih'. Ini adalah pecahan dari ilmu yang terdapat di dalam Jiu Yin Zhen Jing, dan dikembangkan menurut jalurnya sendiri oleh kedua murid Huang Yaoshi, yaitu Chen Xuanfeng dan Mei Chaofeng. Istilah Cakar Tengkorak Putih digunakan bergantian dengan Jiu Yin Baigu Zhua supaya kita lebih mudah terbiasa dengan keduanya.
 
-It was a very chaotic situation; the crows on the pagoda were startled, they flew around
-in confusion under the moonlight around the temple’s courtyard. Their noisy cries in-
-termingled with Yang Kang’s neighing voice.
+Semua orang lain tidak punya gambaran, entahkah Yang Kang menyerang secara diam-diam, ataukah Huang Rong atau 
+Ouyang Feng yang menyerangnya. Mereka semua takut kepada Ouyang Feng, tak seorang pun berani bicara.
 
-As Wanyan Honglie was heading toward the temple door he turned his head one more
-time and called out, “Kang’er! Kang’er!”
+Wanyan Honglie bergegas maju, berusaha membantu. "Kang'er, kau kenapa? Di mana yang sakit?" tanyanya. Dengan santai ia 
+mengambil belati di ikat pinggangnya dan menaruhnya di tangan Yang Kang. Ia sadar, Ouyang Feng tidak akan punya 
+niat baik. Ia berharap dalam keadaan kacau, mereka berdua, ayah dan anak, bisa melarikan diri dari situ.
 
-Yang Kang’s eyes were brimming with tears; he also called out, “Fu Wang! Fu Wang!
-[Father King]” He walked toward Wanyan Honglie.
+Menahan rasa sakit Yang Kang berkata, "Aku tidak apa-apa." Ia megulurkan tangan hendak mengambil belati itu, 
+tetapi tangannya mati rasa. 'trang!' belati itu jatuh ke lantai. Buru-buru ia membungkuk untuk memungutnya,
+tetapi anehnya lengannya kaku, lengan itu tidak lagi mau mengikuti keinginannya. Ia sangat terkejut. Ia berusaha 
+mencubit lengan kanannya dengan tangan kiri, tetapi ia tidak merasakan apa-apa. Ia menatap Huang Rong dan menjerit
+ngeri, "Racun! Racun! Kau menggunakan racun untuk mencelakaiku!"
 
-Wanyan Honglie was delighted, he spread out his arms and hugged Yang Kang tightly,
-“Child, are you feeling better?”
+Peng Lianhu dan yang lain tahu bahwa mereka akan menyinggung Ouyang Feng, tap Wanyan Honglie adalah 
+Pangeran yang berpengaruh dari Kekaisaran Jin. Sudah pasti urusan Ouyang Ke ini akan bisa didiskusikan
+dengan damai nantinya. Melihat ekspresi ngeri Yang Kang, mereka bergegas maju untuk mengucapkan simpati 
+dan berseru kepada Huang Rong, "Cepat berikan penawarnya kepada Xiao Wangye!" Tapi semuanya menjaga jarak
+sejauh mungkin dari Ouyang Feng.
 
-Under the moonlight Yang Kang’s face suddenly changed; he opened his mouth, reveal-
-ing two rows of white teeth, ready to bite. Wanyan Honglie was shocked. His left hand
-pushed out, breaking the hug. Yang Kang’s strength was completely gone; he fell back-
-wards. He struggled hard to crawl back up to no avail.
+Huang Rong acuh tak acuh. "Jangan bikin bingung, rompi kulit landakku tidak beracun. Ada orang di sini 
+yang ingin membunuh dia, aku tidak perlu mengangkat jariku untuk melukai dia."
 
-Wanyan Honglie did not dare to linger much longer, without looking back he hurriedly
-went out the temple, mounted his horse and ran as fast as he could. The others were
-close on his heels, and in a short moment the temple was quiet again.
+Tapi tiba-tiba Yang Kang berteriak, "Aku... aku... aku tidak bisa bergerak!" Lututnya tertekuk, tubuhnya pelan-pelan 
+merosot ke bawah, mulutnya menggeram seperti binatang buas.
 
-Ouyang Feng and Huang Rong saw Yang Kang was rolling around on the ground, each
-with his/her own thought, nobody said anything. A moment later Yang Kang’s body
-curled up and then ceased to move altogether.
+Huang Rong merasa heran, ia berpaling kepada Ouyang Feng, tapi Ouyang Feng juga tampak bingung.
+Ia berpaling kepada Yang Kang, ia melihat Yang Kang tampak gembira tidak wajar, sebuah senyuman tersungging 
+di bibirnya. Di bawah sinar bulan yang keperakan ia tampak pucat mengerikan seperti mayat. Tiba-tiba sebuah 
+pikiran melintas di benaknya, ia berkata, "Itu Paman Ouyang yang meracunimu."
 
-“Enough commotion for half a night,” Ouyang Feng coldly said, “It’s almost daybreak;
-let us go looking for your father.”
+Ouyang Feng bingung. "Dari penampilannya, itu memeang benar racun ularku yang luar biasa. Aku sungguh ingin 
+supaya dia mencicipinya, Nona sudah melakukannya untukku. Luar biasa! Luar biasa! Tapi ular-ular itu, hanya aku 
+satu-satunya orang di dunia ini yang punya, dari mana Nona mendapatkannya?"
 
-“Right now my father is on the Peach Blossom Island,” Huang Rong said, “Why do you
-want to look for him?”
+"Dari mana aku bisa mendapatkan ular sejenis ini?" tanya Huang Rong. "Ini racunmu sendiri, kau sendiri yang 
+tanpa sadar meracuninya."
 
-Ouyang Feng was taken aback, “So the little girl was lying all along,” he sneered.
+"Omonganmu aneh," kata Ouyang Feng.
 
-“The first few sentences were indeed to swindle you,” Huang Rong admitted, “What
-kind of man do you think my father is? How could he let himself surrounded by a
-bunch of stinky Quanzhen priests? If I did not mention the Nine Yin Manual you
-wouldn’t let me interrogate Shagu.”
+"Paman Ouyang," kata Huang Rong. "Aku ingat kau bertaruh melawan Lao Wantong. Kau mengambil racun dari ularmu
+dan mencekoki seekor hiu. Waktu hiu itu mati keracunan, hiu kedua makan dagingnya dan mati gara-gara racun yang
+sama. Dengan cara ini racun itu tersebar tanpa batas. Betul tidak?"
 
-By this time Ke Zhen’E had totally admired Huang Rong, but he was sad and full of re-
-gret at the same time. He only hoped she would find a clever trick to escape soon. He
-heard Ouyang Feng said, “There were three parts truth in your lies, otherwise, the Old
-Poison wouldn’t be so easily deceived. All right then, recite your father’s translation to
-me from the beginning to the end, don’t skip even half a word.”
+Ouyang feng tertawa. "Kalau racunku tidak luar biasa, berarti julukanku 'Racun Barat' akan sia-sia."
 
-“What if I don’t remember?” Huang Rong asked.
+"Betul," kata Huang Rong. "Nan Xiren adalah hiu yang pertama."
 
-“It will be best if you remember, otherwise the beautiful face of a smart little girl would
-be bitten by my snakes, now that won’t be fun, will it?” Ouyang Feng threatened.
+Pada saat itu Yang Kang suda berguling-gulingan di lantai seperti orang gila. Liang Ziweng ingin menghiburnya,
+tapi bagaimana ia bisa menghentikannya.
 
-When Huang Rong jumped out from behind the idol she was ready to die; but seeing
-Yang Kang’s pitiful death she could not help but feeling frightened. She thought, “Even
-if I give him Reverend Yideng’s translation he still won’t let me go. Is it so difficult to es-
-cape from his grip?”
+Ouyang Feng tidak menghiraukan semua itu. Ia mengerutkan keningnya berusaha memahami apa yang dikatakan
+Huang Rong, tapi hal itu masih gelap baginya. "Tolong jelaskan," katanya.
+
+"Hmm, kau menggunakan ularmu untuk menggigit Nan Xiren. Saat itu aku ketemu dia di Pulau Bunga Persik dan 
+dia memukulku. Tinjunya mendarat di bahu kiriku. Jarum tajam di rompiku menusuk tangannya, jadi darahnya yang 
+beracun menular ke rompiku, yang menjadi hiu kedua. Ketika Xiao Wangye menyerangku, Jaring Surga diperketat,
+cakarnya memegang bahuku. Racun dari darah Nan Xiren menular sekali lagi. Hehe... hehe.. dia adalah _hiu_ ketiga."
+
+Mendengarkan keterangan Huang Rong, semua orang menyadari betapa mematikan racun milik Ouyang Feng. Mereka juga 
+teringat rencana jahat Yang kang untuk membunuh Lima Orang Aneh, akhirnya ternyata darah Nan Xiren yang membunuhnya.
+Itu betul-betul pembalasan yang setimpal. Hawa dingin menjalar ke punggung semua orang.
+
+Eanyan Honglie berjalan ke arah Ouyang Feng, berlutut di hadapannya dan memohon, "Ouyang Xiansheng, tolong 
+selamatkan nyawa anakku. Xiao Wang akan terus mengingat kemurahan hatimu."
+
+Ouyang Feng tertawa sinis. "Nyawa anakmu memang _sungguh_ nyawa, dan nyawa keponakanku _bukan_ nyawa!" Pandangannya 
+menyapu muka Peng Lianhu dan yang lain dan ia berkata dengan dingin, "Pendekar mana yang tidak setuju dengan 
+kata-kataku, silakan bicara!" Semua orang segera mundur. Siapa yang berani membuka mulut?
+
+Yang Kang tba-tiba melompat, 'buk!' ia menubruk Liang Ziweng, mengirimnya jungkir balik di udara dan pingsan.
+Wanyan Honglie bangkit berdiri. "Cepat! Bawa Xiao Wangye kembali ke Lin'an! Kita akan mencari tabib terbaik untuk 
+menyembuhkan cederanya."
+
+Ouyang Feng tertawa. "Siapa di dunia ini yang bisa menawarkan racun ular Lao Du? Tabib mana yang sudah bosan hidup,
+dan mau mengacaukan pekerjaanku?"
+
+Wanyan Honglie mengabaikannya, ia berteriak ke arah para pesilatnya, "Apa lagi yang kalian tunggu?
+Cepat bawa Xiao Wangye pergi!"
+
+Tiba-tiba Yang Kang melompat tinggi-tinggi, hingga kepalanya nyaris membentur palang. Ia menuding Wanyan Honglie
+dan berteriak, "Kau bukan ayahku! Kau membunuh ibuku, dan sekarang kau membunuhku!"
+
+Wanyan Honglie mundur dan terhuyung jatuh. Sha Tongtian berkata, "Xiao Wangye, harap tenang." Ia melangkah maju untuk 
+memegang lengan Yang Kang. Tak terduga Yang Kang membalikkan tangannya dan mendorong tangan Sha Tongtian, dan dengan
+cepat mencekal lengannya. Tangan kiri Yang Kang membentuk cakar dan menggaruk lengan Sha Tongtian.
+
+Sa Tongtian menjerit kesakitan, buru-buru ia bergulingan untuk meloloskan diri, tapi detik berikutnya ia merasa
+lengannya gatal. Ia dilanda teror!
+
+"Nah, ini _hiu_ keempat," kata Huang Rong dengan nada dingin.
+
+Peng Lianhu adalah teman dekat Sha Tongtian, lebih jauh lagi, Peng Lianhu juga adalah pengguna racun, ia tahu 
+Sha Tongtian keracunan dan nyawanya dalam bahaya. Dalam saat kritis, nyaris tanpa berpikir, ia mengambil golok 
+dari pinggangnya dan dengan cepat memotong lengan Sha Tongtian setengahnya.
+
+Hou Tonghai tidak mengerti niat baik Peng Lianhu. "Peng Lianhu, kau berani menyakiti kakak seperguruanku?" Ia 
+menyerang Peng Lianhu dengan mengabaikan keselamatannya sendiri.
+
+Sha Tongtian menahan rasa sakit dan berteriak, "Tolol, cepat mundur! Peng Xiong menyelamatkan nyawaku!"
+
+Pada saat itu pikiran Yang kang gelap, ia menerjang dan memukul kesana-kemari, menendang dan menggigit tanpa 
+arah dan tujuan. Semua orang melihat apa yang terjadi dengan Sha Tongtian, tak seorang pun berani mendekatinya.
+Sambil berteriak-teriak mereka keluar dari kuil itu.
+
+Itu situasi yang sangat kacau. Burung-burung gagak di atas pagoda terkejut, mereka beterbangan dalam 
+kebingungan di bawah sinar bulan mengelilingi halaman belakang kuil. Pekikan mereka tumpang-tindih dengan 
+suara Yang Kang.
+
+Sambil menuju ke pintu kuil, Wanyan Honglie memalingkan kepala sekali lagi dan memanggil, "Kang'er! Kang'er!"
+
+Mata Yang Kang berlinang air mata, ia berseru, "Fu Wang! Fu Wang!" Ia berjalan ke arah Wanyan Honglie.
+
+Wanyan Honglie senang sekali, ia merentangkan tangannya untuk memeluk Yang Kang erat-erat, "Nak, kau merasa 
+lebih baik?"
+
+Di bawah sinar bulan muka Yang Kang tiba-tiba berubah. Ia membuka mulutnya, memamerkan dua baris gigi putih,
+siap menggigit. Wanyan Honglie terperanjat. Tangan kirinya mendorong, melepaskan pelukan. Yang Kang kehabisan 
+tenaga, ia jatuh terjengkang. Ia berusaha keras untuk merangkak bangkit, tapi sia-sia.
+
+Wanyan Honglie tidak berani tinggal lebih lama lagi, tanpa menengok lagi ia buru-buru keluar dari kuil,
+naik ke atas kudanya dan berpacu secepat mungkin. Yang lain mengikutinya dengan ketat, dalam waktu singkat
+kuil itu menjadi kembali sunyi.
+
+Ouyang Feng dan Huang Rong melihat Yang Kang bergulingan di lantai, mereka sibuk dengan pikiran masing-masing,
+tak seorang pun mengatakan apa-apa. Sesaat kemudia tubuh Yang Kang meringkuk dan berhenti bergerak sama sekali.
+
+"Cukuplah keributan untuk sehari," kata Ouyang Feng dengan dingin. "Ini sudah menjelang fajar, ayo kita pergi 
+mencari ayahmu."
+
+"Saat ini ayahku ada di Pulau Bunga Persik," kata Huang Rong. "Kenapa kau ingin mencarinya?"
+
+Ouyang Feng terkejut. "Jadi Nona berbohong sejak tadi," ia mencibir.
+
+"Beberapa kalimat pertama memang untuk menipumu," kata Huang Rong mengaku. "kau kira ayahku orang macam apa?
+Masa dia membiarkan dirinya dikepung sekelompok pendeta busuk Quanzhen? Kalau aku tidak menyinggung tentang 
+Jiu Yin Zhen Jing kau juga pasti tidak akan mengijinkanku menginterogasi Shagu."
+
+Pada saat itu Ke Zhen'E sudah sepenuhnya mengagumi Huang Rong, tapi ia merasa sedih dan sekaligus penuh 
+penyesalan. Ia hanya berharap Huang Rong akan segera menemukan trik pintar untuk meloloskan diri. Ia mendengar
+Ouyang Feng berkata, "Ada tiga bagian kebenaran dalam kebohonganmu, kalau tidak, Racun Tua tidak akan semudah 
+itu tertipu. Baiklah kalau begitu, kau hafalkan terjemahan ayahmu utnukku dari mula sampai akhir, jangan ada 
+yang dilompati setengah kata pun."
+
+"Bagaimana kalau aku tidak ingat?" tanya Huang Rong.
+
+"Sebaiknya kau ingat, kalau tidak maka wajah cantik dari anak perempuan pintar ini akan digigit ularku.
+Nah, itu sama sekali tidak lucu, kan?" ancam Ouyang Feng.
+
+Ketika Huang Rong melompat keluar dari belakang patung itu ia sudah siap mati, tetapi ketika melihat 
+kematian Yang Kang yang mengenaskan, ia mau tak mau jadi ngeri. Ia berpikir, "Kalaupun kuberikan hasil 
+terjemahan Yideng Dashi, dia pasti tetap tidak akan membebaskanku. Masa sesulit itu lolos dari genggamannya?"
+
 
 She paced back and forth for a while but still could not think of a good way to escape,
 so she decided to buy some time and think again later. “If I read the original text I
