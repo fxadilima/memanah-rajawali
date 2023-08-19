@@ -389,4 +389,18 @@ Karakter _dash_ pendek: —
 [ep 50](https://www.youtube.com/watch?v=wGh88GV2e_Q)
 
 
+# Zodiak
+
+         tikus
+               kerbau
+                      kelinci
+                             macan
+                                  naga
+                                      ular
+                                  kuda
+                             kambing
+                      monyet
+                ayam
+            anjing
+        babi
 

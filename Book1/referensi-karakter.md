@@ -388,7 +388,7 @@ Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` be
         Barangkali cukup menarik untuk disimak bahwa kedua karakter Jiang (江) dan Hu (湖) tersebut sama-sama memiliki
         elemen 氵yang bermakna 'air'.
     </dd>
-    <dt id="tie">Bi Wu (比武)</dt>
+    <dt id="biwu">Bi Wu (比武)</dt>
     <dd>Adu ilmu silat.</dd>
     <dt id="niubi">Niu Bi (牛鼻)</dt>
     <dd>
