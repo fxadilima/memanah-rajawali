@@ -1285,6 +1285,12 @@ Jelaskan mengenai formasi perang dari Wumu: ‘tian fu’ [high
 as the sky], ‘di zai’ [strong as the earth], ‘feng yang’ [scattered like a wind], ‘yun chui’
 [dangling like a cloud] , ‘long fei’ [flying dragon], ‘hu yi’ [winged tiger], ‘niao xiang’
 [soaring bird], and ‘she pan’ [coiling snake].
+The horns were sounded, the drums were beaten, the noise was deafening. The thirty-
+thousand strong vanguard cavalry unit started to gallop majestically to the west. The
+great army moved farther and farther west, entering Khoresm territory with irre-
+sistible force. Muhammad’s army was bigger, but they were not the Mongolian’s army
+match. Guo Jing led his unit destroying cities and killing the enemies, he had rendered
+not a few merits.
 
 
 
