@@ -938,231 +938,214 @@ raja anjing itu."
 Genghis Khan berseru, "Anjing Jin bekerja sama dengan Khwarezmia, mereka ingin menekan kita dari dua sisi, apakah 
 kita takut?"
 
+Majelis itu menjawab dengan satu suara, "Khan Agung kita tak tertandingi di dunia. Kau menyuruh kami menyerang 
+Khwarezmia, kami akan menghancurkan kota-kotanya, membakar habis gedung-gedungnya, membunuh semua laki-laki, 
+menangkap para wanita dan ternak-ternaknya!"
 
-The assembly answered with one voice, “Our Great Khan is peerless in the world. You
-order us to attack the Khoresm, we will crush their cities, burn down their buildings,
-kill their men off, taking captive of their women and livestock!”
+Genghis Khan berseru, "Kita harus menangkap Muhammad! Kita harus menangkap Wanyan Honglie!" Majelis itu menjawab 
+teriakannya dengan gemuruh sorak-sorai, hingga lilin-lilin di dalam tenda bergoyang. Genghis Khan menghunus 
+goloknya dan mengayunkannya di hadapannya. Ia bergegas keluar tenda, melompat ke atas kudanya. Majelis itu 
+mengikutinya keluar dan menaiki kuda mereka.
 
-Genghis Khan shouted, “We must capture Muhammad! We must capture Wanyan
-Honglie!” The assembly answered his cry with a cheering so loud that the candle lights
-inside the tent swayed. Genghis Khan took his saber out and swung it in front of him.
-He rushed outside the tent, leaped onto his horseback. The assembly followed him out
-of the tent and mounted their horses.
+Genghis Khan menunggang kuda beberapa _li_ memasuki padang rumput hingga ia tiba di sebuah bukit kecil. Majelis itu 
+tahu ia ingin ditinggalkan sendirian untuk berpikir, maka mereka tidak mengikutinya naik ke atas bukit, tapi 
+membentuk lingkaran mengelilingi bukit itu. Genghis Khan melihat Guo Jing sedang berdiri tidak jauh dari tempatnya,
+ia memanggil, "Nak, kemarilah." Guo Jing melarikan kudanya menaiki bukit.
 
-Genghis Khan rode his horse several ‘li’s into the prairie until he arrived at a small hill.
-The assembly knew he wanted to be left alone to think, so they did not go up the hill,
-but formed a ring surrounding the small hill. Genghis Khan saw Guo Jing was standing
-not too far from him, he called, “Son, come here.” Guo Jing galloped his horse uphill.
+Genghis Khan menyapukan pandangannya ke padang rumput, di mana cahaya dari kemah pasukannya berkedip seperti 
+bintang-bintang di langit, tersebar di seluruh padang rumput nan luas. Ia mengangkat cambuknya dan berkata,
+"Nak, hari itu ketika kita dikepung oleh Senggum dan Jamukha di pegunungan, aku mengatakan sesuatu kepadamu.
+Kau masih ingat apa yang kukatakan?"
 
-Genghis Khan swept his gaze on the prairie, where the light from his army camp flick-
-ered like stars scattered throughout the vast grassland. He raised his whip and said,
-“Son, that day we were surrounded by Sangum and Jamukha on the mountain, I had
-said something to you. Do you remember what I said?”
+"Aku ingat," jawab Guo Jing. "Khan Agung bilang kita orang-orang Mongolia punya banyak orang gagah. Selama kita 
+tidak saling berperang dan bekerja sama, kita akan bisa menyebut dunia adalah peternakan kita."
 
-“I remember,” Guo Jing answered, “The Great Khan said that we the Mongolians have
-many valiant men. As long as we do not fight our own people and join our forces, we
-will be able to call the world our grazing land.”
+'Tar!' Genghis Khan melecut cambuk kudanya ke udara, ia berseru, "Benar! Sekarang orang-orang Mongolia sudah 
+bekerja sama, mari kita pergi dan menangkap Wanyan Honglie."
 
-‘Crack!’ Genghis Khan twirled his horse whip into the air, he called out, “That’s right!
-Now the Mongolians have joined forces, let us go and capture that Wanyan Honglie.”
+Guo Jing telah memutuskan untuk kembali ke Selatan bersama ibunya besok, tiba-tiba urusan ini mencuat,
+bagaimana ia bisa melupakan balas dendam bagi ayahnya? Terlebih lagi, ia dan ibunya telah menerima kemurahan 
+hati Khan. Sekarang kesempatan untuk membalas hutang budi itu ternyata mendatangi dirinya, maka ia pun berseru,
+"Kali ini kita pasti akan menangkap bajingan Wanyan Honglie itu."
 
-Guo Jing had decided to go back south with his mother the next day, suddenly this mat-
-ter arose, how could he forget to avenge his father’s death? Moreover, his mother and
-he have received Khan’s generosity. The opportunity had presented itself for him to re-
-pay this debt of gratitude; so he called out, “This time we will surely capture that
-scoundrel Wanyan Honglie.”
+"Ada desas-desus bahwa pasukan Khwarezmia berjumlah satu juta orang, tapi aku memperkirakan jumlah mereka 
+hanya mendekati enam-tujuh ratus ribu orang," kata Genghis Khan. "Jumlah kita dua ratus ribu orang, tapi kita 
+harus menyisihkan beberapa ribu orang untuk melawan anjing-anjing Jin. Seratus lima puluh ribu orang melawan
+tujur ratus ribu orang, menurutmu bagaimana? Kita akan menang?"
 
-“Rumor has it that the Khoresm army is one million men strong, but I estimate their
-number to be close to six, seven hundred thousands,” Genghis Khan said, “We only
-have two-hundred thousand men, but we have to spare several thousands men to fight
-the Jin dogs. A hundred and fifty thousands against seven hundreds, what would you
-say? Will we win?”
+Guo Jing sama sekali tidak mengerti strategi perang, tetapi ia bukan seorang pengecut. Mendengar pertanyaan 
+Khan Agung ia dengan berani menjawab, "Kita akan menang!"
 
-Guo Jing was completely oblivious of battle strategy, but he was not a coward. Hearing
-the Great Khan so inquired, he boldly said, “We will win!”
+"Tentu saja kita akan menang," kata Genghis Khan. "Hari itu aku bilang akan memperlakukanmu sebagai putraku sendiri.
+Sekali Temujin mengatakan sesuatu, dia tidak akan melupakannya. Kau ikut denganku dalam ekspedisi ke Barat, begitu 
+kita berhasil menangkap Muhammad dan Wanyan Honglie, kita akan pulang dan melaksanakan perkawinanmu dengan putriku."
+Ini tepat seperti apa yang diharapkannya, maka Guo Jing segera setuju.
 
-“Of course we will win,” Genghis Khan said, “That day I said I will treat you as my own
-son. Once Temujin says something, he won’t forget it. You come with me on this expedi
-tion to the west; once we have captured Muhammad and Wanyan Honglie, we will go
-back home and consummate your marriage with my daughter.” This was precisely
-what he was hoping for, so Guo Jing agreed immediately.
+Genghis Khan menaiki kudanya menuruni bukit. "Panggil para prajurit!" Ia memberikan perintahnya. Dengan segera 
+para pengawal pribadinya membunyikan terompet sementara Genghis Khan dengan kecepatan tinggi kembali ke kemahnya.
 
-Genghis Khan rode his horse descending that hill, “Summon the soldiers!” he gave his
-command. Immediately his personal guard sounded the bugle while Genghis Khan
-speedily went back to his camp.
+Sepanjang jalan terlihat orang-orang bergerak seperti bayangan, dan kuda-kuda hilir-mudik kian kemari tetapi 
+tak terdengar mereka bersuara, sebuah pertanda pasukan yang sangat disiplin. Bahkan sebelum Khan tiba di Tenda Emas, 
+tiga puluh ribu prajuritnya telah berbaris rapi di padang rumput. Terang bulan menyinari deretan tombak dan golok,
+membuat padang rumput itu gemerlap dengan kilau keperakan.
 
-Along the way men were seen moving around like shadows and horses were galloping
-back and forth but not a single voice was heard; a sign of a highly disciplined army.
-Before the Khan even arrived at the Golden Tent, his thirty thousand soldiers had al-
-ready neatly arranged on the prairie. The bright moonlight shone on row upon row of
-spears and blade, making the prairie glittered with silvery gleams.
+Genghis Khan memasuki Tenda Emas dan memanggil juru tulisnya, memberinya tugas menulis sebuah deklarasi perang.
+Sekretaris itu segera menyusun sebuah sura panjang di atas selembar kertas, lalu ia berlutut di hadapan Khan Agung
+untuk membacakan suratnya: "Surga telah menunjukku sebagai Khan Agung bagi banyak negara, meluaskan wilayahku sejauh 
+puluhan ribu _li_, membantuku menaklukkan negara-negara yang tak terhitung banyaknya. Sejak jaman kuno tak ada orang 
+yang bisa disebut sebagai tandinganku. Sekali petirku menyambar, bagaimana caramu bertahan? Keberadaan negaramu sampai
+hari ini tergantung tiga hal. Kecuali kau mengirim upeti, pasukan Mongolia akan..."
 
-Genghis Khan entered the Golden Tent and called his secretary, assigning him to write
-a war declaration. The secretary immediately composed a lengthy letter on a sheet or
-parchment; then he knelt down in front of the Great Khan to read his letter: “The
-Heaven has appointed me as the Great Khan over many nations, enlarged my territory
-by tens of thousands ‘li’s, helped me to crush countless countries. From the ancient of
-days there is no one who can be called my equal. Once my thunder strikes, how can
-you resist? Your country’s existence until today depends on three things: unless you
-send a tribute, the great Mongolian army will ...”
+Makin lama Genghis Khan mendengar, ia makin marah. Ia menendang sekretaris berjenggot putih itu sampai jungkir balik 
+dan memakinya, "Kau menulis kepada siapa? Kenapa Genghis Khan harus memakai kata-kata semanis itu untuk seorang 
+raja anjing?" Mengangkat cambuk kudanya, ia melecut muka sekretaris itu beberapa kali, dan kemudian berkata,
+"Dengarkan aku, tulis apa yang kukatakan."
 
-The more Genghis Khan heard, the angrier he became; he kicked that white-bearded
-secretary upside down and cursed him, “Who are you writing to? Why would Genghis
-Khan used such flowery words toward a dog king?” Raising his horse whip he struck
-the secretary’s face several times, and then called out, “Listen to me, what I say, you
-write down.”
+Sekretaris itu merangkak bangkit, ia mengambil lembaran baru dan berlutut di lantai, menatap dengan penuh perhatian 
+ke bibir Genghis Khan.
 
-That secretary gingerly crawled back up, he took a fresh parchment and knelt on the
-floor, looking intently to the Great Khan’s lips.
+Genghis Khan berjalan ke pintu masuk tenda dan membuka tirai, memandang ke arah tiga puluh ribu kavalerinya yang tangguh.
+Dngan suara rendah dan tenang ia berkata, "Tulis seperti ini, hanya enam karakter." Ia berhenti sejenak, lalu berseru,
+"Kau ingin perang, maka jadilah perang!"[^surat-6]
 
-Genghis Khan walked to the tent entrance and opened up the curtain, looking toward
-his thirty-thousand strong cavalry. With a low and calm voice he said, “Write it this
-way, only six characters.” He paused for a moment then shouted, “If you want to fight,
-then fight!” [ni yao zhan, bian zou zhan – 6 characters]
+[^surat-6]: Dalam bahasa mandarin, kalimat itu hanya 6 karakter, 'Ni yao zhan, bian zou zhan'.
 
-The secretary was stunned, thinking this kind of official document was so scandalously
-unusual, but his face was still burning from the whip earlier, how could he dare to ob-
-ject? He wrote those six characters in large letters immediately.
+Sekretaris itu terkejut, berpikir bahwa surat resmi seperti ini adalah skandal yang sangat tidak biasa, tapi mukanya
+masih serasa terbakar oleh cambuk, bagaimana ia berani menyatakan keberatan? Ia segera menulis keenam karakter itu dengan 
+huruf besar.
 
-“Put my gold seal on it and send it by the fastest horse,” Genghis Khan commanded.
-Mukhali put the seal on the letter and dispatch a ‘qian fu zhang’ [leader of a 1000 men
-unit] with his troops to deliver the letter.
+"Bubuhkan stempel emasku di atasnya dan kirimkan segera dengan kuda tercepat," perintah Genghis Khan. Muqali membubuhkan
+stempel pada surat itu dan mengutus seorang Pemimpin Seribu Prajurit dengan pasukannya untuk mengirimkan surat itu.
 
-The rest of the assembly learned about the Great Khan’s letter, which only had six char-
-acters on it, their spirit rose. They heard the hoof beats of the messengers gradually dis-
-appear into the prairie, suddenly as if by prior agreement they shouted in one voice, “If
-you want to fight, then fight!” While outside, the thirty-thousand soldiers cheered, “He
-hu! He hu! [lit. ‘hey! (or ‘I say!) Shout!’] It was the Mongolian cavalry’s battle cry. As the
-horses heard their masters shout they neighed loudly while lifting up their front legs.
-The noise on the prairie that night was deafening, as if they were in an actual battle.
+Semua anggota majelis diberitahu tentang isi surat Khan Agung, yang hanya berisi enam karakter, semangat mereka bangkit.
+Mereka mendengar derap kaki kuda para kurir secara berangsur-angsur menghilang ke dalam padang rumput, tiba-tiba seolah 
+dengan kesepakatan sebelumnya mereka berteriak dalam satu suara, "Kau ingin perang, maka jadilah perang!" Sementara
+di luar, tiga pulluh ribu prajurit bersorak, "He hu! He hu!" Itu pekikan perang kavaleri Mongolia. Ketika kuda-kuda 
+mereka mendengar majikan mereka berteriak, mereka meringkik keras sambil mengangkat kaki depan. Suara di padang rumput
+malam itu memekakkan telinga, seolah mereka berada di medan perang yang sebenarnya.
 
-Genghis Khan dismissed his army then he sat alone in his Golden Tent, deep in thought.
-The chair he was sitting on was taken from the Jins; a dragon snatching a giant pearl
-was carved on its back, while a pair of ferocious tiger heads was carved on its two arm-
-rests. It was the throne that belonged to the Jin emperor.
+Geenhis Khan membubarkan pasukannya, lalu ia duduk sendirian di dalam Tenda Emas, larut dalam pikiran. Kursi yang 
+didudukinya adalah rampasan dari bangsa Jin. Seekor naga merebut sebutir mutiara raksasa terukir di bagian punggungnya,
+sementara sepasang kepala harimau ganas terukir di kedua sandaran tangannya. Itu adalah singgasana milik Kaisar Jin.
 
-Genghis Khan reminisced his own youth, which was full of sufferings and difficult
-times; he recalled his own mother, his wife, his four sons and a beloved daughter; he
-also remembered his beautiful concubines, his ever-victorious army, his vast and
-boundless empire; at last he thought about the upcoming war against a powerful
-enemy.
+Genghis Khan mengenang masa mudanya, yang penuh dengan sengsara dan masa-masa sulit. Ia teringat ibunya, istrinya,
+keempat putranya dan seorang putri kesayangannya. Ia juga teringat para selirnya, pasukannya yang jaya, wilayah 
+kekuasaannya yang luas dan tak terbatas. Akhirnya ia berpikir tentang peperangan yang akan datang melawan lawan
+tangguh.
 
-Although he was getting old his hearing was as keen as when he was young; he heard a
-distant mournful cry of a warhorse, then the cry stopped abruptly. He understood it
-was an old horse with an incurable disease; its master could not bear to see it suffer, so
-he must have killed the horse. Suddenly he remembered, “I am also getting old, this
-time I am going to war, will I go back home alive? If I lose my life in the battlefield, my
-four sons will fight over the Great Khan position; it definitely will be a devastating
-fight. Ay, I wish I can live forever and not see death.”
+Meskipun ia mulai tua tetapi pendengarannya masih setajam ketika ia masih muda. Ia mendengar ringkikan kuda perang 
+di kejauhan, kemudian ringkikan itu berhenti mendadak. Ia mengerti bahwa itu adalah kuda tua yang menderita sakit
+ttak tersembuhkan. Majikannya tidak tahan melihatnya menderita, maka tampaknya ia telah membunuh kudanya. Tiba-tiba 
+ia teringat, "Aku juga semakin tua, kali ini aku akan berperang, apakah aku akan pulang dalam keadaan hidup? Kalau 
+aku kehilangan nyawaku di medan perang, keempat putraku akan berperang memperebutkan posisi Khan Agung. Itu sudah 
+pasti akan jadi peperangan sengit. Aih, aku sungguh berharap bisa hidup selamanya dan tidak usah menghadapi 
+kematian."
 
-Even if one was an invincible, fearless warrior; once one’s strength gradually faded,
-one’s mind would involuntarily think about ‘death’. He could not help but feeling trepi-
-dation; his heart trembled with fear.
+Meskipun seseorang adalah pejuang tak terkalahkan, tak kenal takut, sekali kekuatannya berangsur-angsur menghilang,
+otaknya tanpa sadar akan memikirkan tentang 'maut'. Ia mau tak mau merasa sedih, hatinya gemetar oleh rasa takut.
 
-“I heard in the south there exists a class of people called ‘Taoist Priests’ who can teach
-people how to become deity who will never grow old and never see death. I wonder if
-it is true?” he mused. Clapping his hands twice he called a guard to summon Guo Jing
-into the tent.
+"Kudengar di Selatan ada sekelompok orang yang disebut 'Pendeta Tao', yang bisa mengajar orang bagaimana menjadi 
+dewa, yang tak akan pernah tua dan tak akan melihat maut. Entah hal ini benar atau tidak?" pikirnya. Menepuk tangannya
+dua kali ia memanggil seorang pengawal supaya memanggil Guo Jing ke dalam tenda.
 
-As soon as Guo Jing arrived Genghis Khan asked him about this matter. “I don’t know
-about becoming immortal deity, but there indeed some people who can teach you how
-to meditate, to do breathing exercise, circulating your energy; in the end, it will prolong
-your life,” Guo Jing answered.
+Segera setelah Guo Jing datang, Genghis Khan menanyakan urusan itu. "Aku tidak tahu tentang menjadi dewa, tapi memang
+sungguh ada orang yang bisa mengajarmu untuk bermeditasi, melatih pernafasan, mengedarkan tenaga ke seluruh tubuh,
+dan akahirnya hal itu akan memperpanjang usia." jawab Guo Jing.
 
-Genghis Khan was delighted, “Do you know such person? Quickly go and find one to
-see me,” he said.
+Genghis Khan senang sekali. "Kau kenal orang seperti itu? Cepat pergi dan panggil dia menemuiku," katanya.
 
-“This kind of people won’t come with any casual invitation,” Guo Jing replied.
+"Orang-orang semacam ini tidak akan datang dengan undangan biasa," jawab Guo Jing.
 
-“Correct,” Genghis Khan said, “I am going to send a high official to invite him to the
-north. Tell me, whom should I invite?”
+"Betul," kata Genghis Khan. "Aku akan mengirim pejabat penting untuk mengundangnya ke Utara. Coba katakan,
+siapa yang harus kuundang?"
 
-Guo Jing thought, “Among the Taoist orthodox sects, the Quanzhen is the best. Among
-the Quanzhen Six Masters, Qiu Daozhang’s [Taoist Priest] martial art is the highest, he
-is also the most amiable, perhaps he would be willing to come.” Therefore, he men-
-tioned the name of Changchun Zi [Eternal Spring] Qiu Chuji.
+Guo Jing berpikir, "Di antara aliran Tao ortodoks, Quanzhen adalah yang terbaik. Di antara Enam Pendekar Quanzhen,
+kungfu Qiu Daozhang adalah yang paling tinggi, dia juga yang paling bersahabat, mungkin dia bersedia datang." 
+Karena itu ia menyebutkan nama Changchun Zi, Qiu Chuji.
 
-Genghis Khan was ecstatic; he summoned his secretary immediately, told him his inten-
-tion and ordered him to write an imperial letter.
+Genghis Khan kegirangan, ia segera memanggil sekretarisnya, memberitahukan niatnya dan menyuruhnya menulis
+sebuah surat resmi.
 
-The secretary had a bitter experience earlier that day, he thought for a long time, then
-finally wrote the imperial letter, “I have something to talk, please come immediately
-[zhen you shi, bian ji lai].” He followed the Great Khan’s literary style, also only used six
-characters. He thought this time surely the Great Khan would be pleased with his work.
-Who would have thought that as soon as Genghis Khan heard the letter, he was angry,
-and once again his whip hit the secretary’s face.
+Sekretaris itu punya pengalaman pahit sebelumnya hari itu, ia berpikir lama, lalu akhirnya menulis,
+"Aku ingin membicarakan sesuatu, harap segera datang."[^surat-2] Ia mengikuti gaya penulisan surat Khan Agung
+sebelumnya, juga hanya memakai enam karakter. Ia merasa pasti kali ini Khan Agung akan senang membaca hasil karyanya.
+Di luar dugaan begitu mendengar isi surat itu, ia marah, dan sekali lagi ia melecut muka sekretaris itu.
 
-“I said that way to a dog king, but how can I treat an honorable Taoist Priest the same
-way?” Genghis Khan scolded, “You must write a long letter, a modest and respectful
-one.”
+"Aku bilang begitu kepada si raja anjing, tapi mana bisa aku memperlakukan seorang Pendeta Tao yang terhormat
+dengan cara yang sama?" omel Genghis Khan. "Kau harus menulis surat yang panjang, yang bernada rendah hati dan 
+hormat."
 
-The secretary knelt down on the ground and started to compose this imperial letter:
+Si sekretaris berlutut di lantai dan mulai menyusun surat resmi itu:
 
-‘The Heaven despises the arrogant in the Central Plains, I rule in the northern desert
-yet I also share the sentiment. I wish for a simple and pure character, shun the extrava-
-gance and embrace frugality. Each clothes each meal, along with the livestock in the
-corral enjoying the Heaven providence. Regarding the people like newborn babies, rais-
-ing warriors like brothers, seeking harmony with the earth’s element and the living
-beings.
+```
+Surga membenci kesombongan di Zhong Yuan, aku memerintah di padang gurun Utara tetapi 
+aku juga punya perasaan yang sama. Aku mengharapkan karakter yang sederhana dan murni, 
+menghindari pemborosan dan merangkul kesederhanaan. Setiap pakaian setiap makanan,
+bersama ternak-ternak di kandang menikmati pemeliharaan Surga. Menyapa rakyat seperti 
+bayi yang beru lahir, membesarkan para prajurut seperti saudara, mencari keharmonisan
+dengan unsur-unsur yang ada di bumi dan makhluk hidup.
 
-Training tens of thousands soldiers, dispatching hundreds of military expeditions with
-me leading in the front; within seven years I have completed great undertakings, unit-
-ing six elements into harmony. Not by my own virtue, but because of the Jin’s
-government’s lack of patience and the Heaven bestowed its blessing and gave honor to
-me.
+Melatih puluhan ribu tentara, mengirim ekspedisi militer dengan aku memimpin di depan,
+dalam tujuh tahun aku menyelesaikan pekerjaan besar, menyatukan enam unsur dalam 
+harmoni. Bukan dengan kebajikanku sendiri, tetapi akibat kurangnya kesabaran pemerintahan
+bangsa Jin dan Surga telah menganugerahkan restunya dan memberiku kehormatan.
 
-To the south I made an alliance with the Zhao family’s Song Dynasty, to the north an-
-nexed the Hui Ge, to the east Xia and to the west Yi [name of countries, not sure the ex-
-act location]; all acknowledging Genghis Khan’s sovereignty, unparalleled since the
-founding of my Great Mongolia for thousands of years and hundreds of generations.
-However, my responsibilities are heavy; there is something I lack to maintain peace.
+Di Selatan aku bersekutu dengan keluarga Zhao dari Dinasti Song, di Utara membasmi
+Huo Ge, di Timur Xia dan di Barat Yi. Semuanya mengakui kedaulatan Genghis Khan,
+tak tertandingi sejak berdirinya Mongolia Agung selama ribuan tahun dan ratusan 
+generasi. Tetapi tanggung jawabku berat, aku kekurangan sesuatu untuk memelihara perdamaian.
 
-Just like marking the side of the boat where the sword fell into the lake, thinking that
-the water did not flow [meaning: vanity, something stupid]. I need worthy men to assist
-me in achieving peace under the sky. I assumed the throne with diligent mind to build
-a better nation; but three out of nine positions is not filled properly.
+Seperti menandai sisi perahu tempat pedang jatuh ke danau, berpikir bahwa airnya tidak akan
+mengalir. Aku membutuhkan seorang yang layak untuk membantuku mencapai kedamaian di bawah langit.
+Aku naik tahta dengan pikiran yang giat untuk membangun bangsa yang lebih baik, namun tiga dari 
+sembilan posisi tidak terisi dengan baik.
 
-I seek Master Teacher Qiu to give guidance, governing nature, nourishing an exhausted
-mind; applying the strong Taoist virtue, cherishing the respected manners of honorable
-people of old; embracing the sage’s elegant deeds, living above the cliffs and valleys
-leading an invisible life. Enlightened forefathers have left behind a message: to devote
-one’s life in the way of the warrior.
+Aku mencari Guru Qiu untuk mencari bimbingan, mengatur alam, merawat pikiran yang lelah.
+Menerapkan kebajikan Tao yang kuat, menghargai perilaku orang-orang terhormat di masa lalu,
+merangkul perbuatan anggun orang-orang bijak, hidup di atas tebing dan lembah untuk menjalani
+kehidupan yang tak terlihat. Para leluhur yang tercerahkan telah meninggalkan sebuah pesan:
+Mengabdi di jalan para pejuang.
 
-An ancient saying shows the paths to immortality, every single one worthy of praise.
-Even after taking up arms, I am aware that the Master still possesses secret ancient way
-which I look up to cherish as my own.’
+Pepatah kuno menunjukkan jalan menuju hidup abadi, masig-masing layak dipuji. Bahkan setelah 
+mengangkat senjata, aku menyadari bahwa Guru masih memiliki rahasia jalan kuno yang kuhargai
+sebagai milikku sendiri.
+```
 
-The secretary wrote to this point, he raised his head and asked, “Is it long enough?”
+Sekretaris itu menulis sampai di sini, ia mengangkat kepalanya dan bertanya, "Sudah 
+cukup panjang?"
 
-Genghis Khan smiled and said, “Such a nice letter. Enough. Write that I am dispatching
-a Han high ranking officer, Liu Zhonglu with my greetings to invite him over.”
+Genghis Khan tersenyum dan berkata, "Sungguh surat yang baik. Cukup. Tulis bahwa aku mengirim 
+seorang Han berpangkat tinggi, Liu Zhonglu dengan salamku untuk mengundangnya datang."
 
-The secretary continued,
+Sekretaris itu melanjutkan:
 
-‘If not for the battle how can one realize he needs the assistance of a secluded expert,
-that he visited the thatched hut three times? [Background info: Liu Bei visited Zhuge
-Liang three times before the latter agreed to help the former] The mountains and
-rivers are vast, yet missed to give a revered welcome.
+```
+Jika bukan karena pertempuran, bagaimana seseorang bisa menyadari bahwa dia membutuhkan bantuan 
+seorang ahli yang hidup menyepi, bahwa dia mengunjungi gubuk jerami tiga kali? Gunung dan sungai 
+sangat luas, namun tidak memberikan sambutan yang terhormat.
 
-It is time for me to leave my position. I fast and clean up my body, and I send my officer
-Liu Zhonglu, riding a plain carriage, enduring a thousand ‘li’s travel, to respectfully in-
-vite the Master to spare a moment from your journey treading immortal path, to brave
-the desolate desert in distant land, to tend to the affair of common people; and perhaps
-to give relief to the weary.
+Sudah waktunya bagiku untuk meninggalkan posisiku. Aku berpuasa dan membersihkan tubuhku, 
+dan aku mengirim petugasku Liu Zhonglu, mengendarai kereta biasa, menanggung perjalanan seribu li, 
+demi mengundang Guru supaya dengan hormat sudi meluangkan waktu sejenak dari perjalananmu menapaki 
+jalan abadi, untuk menantang gurun yang sunyi di tanah yang jauh, untuk mengurus urusan rakyat jelata, 
+dan mungkin untuk memberi kelegaan kepada yang lelah.
 
-I long to go to the immortal place and wish not the immortal Master to spit on my de-
-sire. I will be happy to hear just one word of encouragement clearly; sincerely hope the
-Master would be willing to take the higher road to befriend me and not disappoint the
-hope of all living beings. Herewith the imperial letter ends; to be read by the appropri-
-ate addressee.’
+Aku rindu untuk pergi ke tempat yang abadi dan berharap agar Guru tidak meludahi keinginanku. 
+Aku akan senang mendengar dengan jelas satu kata pendukung, sangat berharap Guru sudi mengambil 
+jalan yang lebih tinggi untuk berteman denganku dan tidak mengecewakan harapan semua makhluk hidup. 
 
-Genghis Khan said, “Good, let it be like that.” He rewarded that secretary five ‘liang’s of
-gold; he also asked Guo Jing to write a personal letter of invitation to earnestly ask Qiu
-Chuji to come over. That very same day he sent Liu Zhonglu with the imperial letter to
-the south.
+Dengan ini surat kekaisaran berakhir. Untuk dibaca oleh penerima yang tepat.
+```
 
-[Author’s note: Genghis Khan’s invitation to Qiu Chuji was based on the original text ac-
-cording to historical documents]
+Cerita tentang Liu bei yang mengunjungi Zhuge Liang sampai tiga kali sebelum akhirnya Zhuge Liang sepakat 
+untuk membantunya telah memberikan inspirasi bagi sekretaris itu untuk menulis.
+
+Genghis Khan berkata, "Bagus, biarkan seperti itu." Ia memberi hadiah lima _liang_ emas bagi sekretaris itu.
+Ia juga meminta Guo Jing untuk menulis sebuah surat undangan pribadi, untuk dengan sungguh-sungguh meminta Qiu
+Chuji datang. Pada hari yang sama ia mengirim Liu Zhonglu bersama dengan surat kekaisarannya ke Selatan.[^catatan-1]
+
+[^catatan-1]: Undangan Genghis Khan untuk Qiu Chuji adalah berdasarkan teks asli sesuai apa yang tertulis dalam dokumen sejarah.
+
 
 The next day Genghis Khan held a general assembly of all his high-ranking officials dis-
 cussing the expedition to the west; conferring Guo Jing the title of ‘Noyon’, placing him
