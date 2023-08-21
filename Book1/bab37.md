@@ -18,7 +18,7 @@ dari kursinya dan berseru, "Mana Nona Huang?"
 "Aku baru ingin menanyakannya kepadamu," jawab Ouyang Feng. "Mana anak itu? Cepat bawa dia kemari!"
 
 Mendengar hal ini, kegembiraan Guo Jing sungguh tak terkira. "Jadi Rong'er masih hidup, dan bukan hanya itu, dia juga 
-bisa melarikan diri dari tangan jahatnya juga," pikirnya.
+bisa melarikan diri dari tangan jahatnya," pikirnya.
 
 "Mana anak itu?" tanya Ouyang Feng lagi dengan nada galak.
 
