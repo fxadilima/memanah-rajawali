@@ -1279,3 +1279,12 @@ Kelihatannya lagu ini adalah lagu rakyat, yang syairnya bisa berubah-ubah.
 Ini sebuah peribahasa, 'Di atas langit ada langit, di atas manusia ada manusia lain', yang ingin mengungkapkan
 bahwa di dunia ini tak seorang pun sungguh-sungguh nomor satu di atas segalanya.
 
+### <a name="delapan-formasi" id="delapan-formasi">Delapan Formasi</a>
+
+Jelaskan mengenai formasi perang dari Wumu: ‘tian fu’ [high
+as the sky], ‘di zai’ [strong as the earth], ‘feng yang’ [scattered like a wind], ‘yun chui’
+[dangling like a cloud] , ‘long fei’ [flying dragon], ‘hu yi’ [winged tiger], ‘niao xiang’
+[soaring bird], and ‘she pan’ [coiling snake].
+
+
+

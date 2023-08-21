@@ -1146,434 +1146,354 @@ Chuji datang. Pada hari yang sama ia mengirim Liu Zhonglu bersama dengan surat k
 
 [^catatan-1]: Undangan Genghis Khan untuk Qiu Chuji adalah berdasarkan teks asli sesuai apa yang tertulis dalam dokumen sejarah.
 
+Hari berikutnya Genghis Khan menggelar Sidang Umum Majelis yang terdiri dari para pejabat tingginya
+untuk membicarakan ekspedisi ke Barat, menganugerahkan pangkat Noyon kepada Guo Jing, menempatkannya
+dalam komando bagi sepuluh ribu prajurit. Noyon adalah pangkat tertinggi dalam jajaran pejabat Mongolia,
+sewajarnya hanya diberikan kepada para kerabat dekat Khan Agung sendiri atau seorang jendral senior. 
+Pada saat itu kungfu Guo Jing telah berkembang sangat pesat, tetapi pengetahuannya tentang strategi 
+militer mendekati nol. Ia tak punya jalan lain kecuali datang kepada Jebe, Subutai dan para jendral 
+senior lainnya, meminta nasihat. Tetapi ia lamban dan taktik militer punya variasi yang tak terhingga,
+mana mungkin ia mempelajarinya dalam waktu sesingkat itu?
+
+Ia melihat para jendral lain sedang sibuk mempersiapkan pasukan mereka, mengumpulkan perbekalan dan memilih 
+kuda dan persenjataan. Semua orang sangat sibuk. Seratus lima puluh ribu kavaleri berangkat dalam sebuah 
+ekspedisi ke Barat, melewati padang gurun yang dingin dan tandus, persiapan itu sudah pasti bukan masalah 
+kecil. Ia tak punya petunjuk mengenai apa yang harus dilakukannya, karena itu ia hanya menugaskan sepuluh
+orang Pemimpin Seribu Orang di bawah komandonya untuk secara terpisah menangani persiapan itu. Jebe dan
+Tolui seringkali memberinya nasihat untuk membantunya.
+
+SEkitar sebulan kemudian ia masih merasa persiapannya tidak cukup. Ia menyadari adalah di luar kemampuannya
+untuk memimpin pasukan. Untuk menyerang pasukan tangguh yang terdiri dari satu juta orang menggunakan 
+Delapan Belas Jurus Penakluk Naga atau bahkan kungfu dari Jiu Yin Zhen Jing tentu saja tidak mungkin.
+Kalau ia sampai memberikan perintah yang salah, meskipun hanya sekali, maka ia akan dikalahkan musuh. 
+Tak hanya reputasi Genghis Khan akan rusak, tetapi juga nyawa sepuluh ribu orang akan dipertaruhkan.
+
+Hari itu ia dengan serius berpikir untuk menemui Khan Agung dan mengundurkan diri dari posisinya. Ia 
+bersedia menjadi prajurit berpangkat rendah di bawah komando orang lain, menghadapi musuh sebagai seorang
+individu, ketika tiba-tiba wakil komandannya datang untuk melaporkan bahwa lebih dari seribu orang Han 
+sedang menunggunya di luar, mereka ingin bertatap muka.
+
+Guo Jing kegirangan, ia berpikir, "Qiu Daozhang tiba secepat ini?" Buru-buru ia keluar tenda untuk 
+menyambut tamu. Tapi yang mengejutkannya adalah, ia melihat di padang rumput itu berdiri sekelompok 
+orang berdandan sebagai pengemis. Tiga orang bergegas maju dan membungkuk untuk menyapanya. Ternyata 
+mereka adalah para penatua Kai Pang, Lu Youjiao, Jian dan Liang Zhanglao.
+
+"Kalian sudah mendengar sesuatu mengenai Nona Huang?" tanya Guo Jing dengan cemas.
+
+"Xiao Ren menunggu kabar dengan cemas, tapi keberadaan Bangzhu masih tidak diketahui. Kami mendengar 
+Gongzi sedang memimpin tentara dalam ekspedisi ke Barat. Kami datang untuk menawarkan bantuan." jawab
+Lu Youjiao.
+
+Guo Jing sangat terkejut. "bagaimana kalian bisa tahu?"
+
+"Khan Agung mengirim seorang utusa untuk mengundang Qiu Chuji, Pendeta Qiu. kami mendengar semuanya
+dari orang-orang Quanzhen," jawan Lu Youjiao.
+
+Guo Jing terdiam lama, menatap kosong ke arah awan di cakrawala Selatan, ia berpikir, "Kai Pang punya 
+mata dan telinga di seluruh dunia, tapi mereka tidak tahu di mana Rong'er berada. Aku kuatir, dia lebih 
+mungkin sedang dalam bahaya, dan bukan baik-baik saja." Memikirkan Huang Rong matanya tanpa sadar memerah.
+Ia menugaskan wakil komandannya untuk membantu para pendatang baru itu untuk beristirahat, sementara ia sendiri
+pergi untuk melapor kepada Khan Agung.
+
+"Bagus," kata genghis Khan. "Tempatkan mereka dalam komandomu."
+
+Ketika Guo Jing mengutarakan maksudnya untuk mengundurkan diri, Genghis Khan marah, Siapa yang bisa berperang
+sejak mereka dilahirkan? Tidak ada. Setelah terlibat pertempuran beberapa kali kau akan belajar. Kau tumbuh 
+bersamaku, kau takut apa? Bagaimana mungkin menantu Genghis Khan tidak pergi berperang?"
+
+Guo Jing tidak berani mengatakan apa-apa lagi. Ia kembali ke tendanya dengan muka cemas. Lu Youjiao menanyakan
+masalah yang membebaninya, dan kemudian berusaha untuk menghibur. ketika menjelang senja Lu Youjiao datang 
+ke tendanya dan berkata, "Kalau tahu akan seperti ini, Xiaoren akan membawa Kitab Seni Perang Sun Tzu, atau 
+Kumpulan Strategi Militer Tai Gong dari Selatan, dan semuanya akan beres."
+
+Tiba-tiba Guo Jing teringat bahwa ia masih punya buku warisan Wumu. Itu adalah buku strategi militer, kenapa 
+ia bisa melupakan hal ini? Dengan segera ia mengambil buku itu dari perbekalannya, dan kemudian membacanya
+di bawah lentera sepanjang malam hingga keesokan harinya, ia berhenti hanya karena merasa lelah.
+
+Buku ini berisi segala macam strategi militer, mulai dari teknik pengintaian, merencanakan serangan, strategi
+pertahanan, latihan militer, mengelola pejabat, penempatan pasukan, operasi lapangan, berikut ikhtisar situasi 
+aan dan berbahaya dan teknik untuk melarikan diri. Semuanya dijjabarkan dengan gamblang.
+
+Hari itu Guo Jing telah menelusuri semuanya di atas perahu di Yuanjiang, tetapi ia tidak memberikan terlalu banyak 
+perhatian. Kali ini ia embutuhkan panduan militer, jadi ia membaca sampai ia mendapatkan pemahaman yang baik 
+mengenai apa yang ditulis di situ. Ketika ia tidak memahami salah satu bagian dari buku itu, ia akan mengundang 
+Lu Youjiao untuk bertanya. Lu Youjiao akan menjawab, "Saat ini Xiaoren tidak memahaminya, biar kupikirkan dulu."
+Ia akan meninggalkan tenda Guo Jing hanya beberapa saat, lalu kembali dengan penjelasan terperinci. Guo Jing 
+senang sekali, dan akan menanyakan beberapa pertanyaan lagi. Anehnya, Lu Youjiao akan selalu tidak bisa segera 
+menjawab, ia selalu meminta waktu untuk berpikir, tapi kemudian akan selalu muncul dengan jawaban tak peduli 
+sesulit apapun masalahnya. Awalnya Guo Jing tidak memperhatikan, tapi setelah beberapa kali terjadi pengulangan
+proses tanya-jawab itu, mau tak mau ia jadi curiga.
+
+Suatu sore Guo Jing memilih salah satu karakter dalam buku, dan menanyakan apa maknanya. Lu Youjiao berkata 
+bahwa ia merasa tidak pasti mengenai karakter itu, maka ia perlu waktu untuk memikirkannya, lalu ia keluar tenda.
+Guo Jing berpikir, "Buku ini memang sulit, boleh saja kalau kau perlu waktu untuk berpikir. Tapi ini hanya satu 
+karakter, mana mungkin kau tidak tahu apa maknanya?"
+
+Meskipun memegang posisi jendral, tetapi Guo Jing masih sangat muda dan ia masih punya sifat kekanak-kanakan.
+Begitu Lu Youjiao keluar dari tendanya, ia segera membuntutinya. Ia menyembunyikan diri di antara rerumputan
+yang tinggi karena ingin tahu rahasia Lu Youjiao. Ia melihat Lu Youjiao memasuki tenda kecil, dalam waktu 
+sangat singkat ia keluar lagi. Guo Jing buru-buru kembali ke tendanya. lu Youjiao masuk dan berkata, "Xiaoren
+sudah memikirkannya." lalu ia menjelaskan cara menyebutkan karakter itu dengan benar beserta maknanya.
+
+Guo Jing tersenyum. "Lu Zhanglao, kau punya seorang guru yang ahli. Kenapa kau tidak mengundangnya menemui aku?"
+
+Lu Youjiao terkejut. "Aku tidak punya," katanya.
+
+Guo Jing mencekal tangannya dan tersenyum. "Kita akan keluar dan menemuinya." Ia menarik tangannya dan keluar tenda,
+berjalan ke arah tenda kecil yang tadi dilihatnya.
+
+Di luar tenda kecil itu dua orang pengemis sedang bertugas menjaga tenda. Begitu melihat Guo Jing mereka batuk-batuk
+ringan. Guo Jing memperhatikan batuk itu, ia melepaskan tangan Lu Youjiao dan bergegas masuk ke dalam tenda. Segera
+setelah ia membuka penutup tenda, ia melihat bagian belakang tenda berkibar sedikit. Sudah jelas seseorang baru 
+saja keluar dari situ. Guo Jing bergegas keluar dan mengangkat tenda, tapi ia hanya melihat rerumputan tinggi,
+tak satu bayangan manusia pun terlihat. Ia bingung, diam sejenak.
+
+Guo Jing berbalik dan menatap Lu Youjiao, tapi Lu Youjiao mengatakan bahwa tenda itu miliknya, tak ada orang lain
+tinggal di situ.
+
+Guo Jing tidak menyerah, ia terus menghiujani Lu Youjiao dengan sejumlah pertanyaan sulit dari buku Warisan Wumu,
+tetapi mulai saat itu Lu Youjiao akan menunggu sampai hari berikutnya sebelum bisa menjawab pertanyaannya.
+
+Guo Jing tahu orang di dalam tenda itu tidak punya niat buruk, hanya tidak ingin menemuinya. Guo Jing menyimpulkan
+bahwa orang itu pastilah seorang ahli di Jianghu, dan akan sulit berurusan dengan orang semacam itu, jadi untuk 
+sementara ia meletakkan persoalan ini.
+
+Ia mempelajari buku itu di malam hari, lalu melatih para prajuritnya sepanjang hari sesuai dengan metode yang 
+dipelajarinya dari buku. Kavaleri Mongolia sudah terbiasa bertarung dalam perang terbuka, sekarang mereka harus 
+latihan formasi perang. Mereka mengalami saat-saat sulit. Tapi perintah adalah perintah, mereka tidak berani 
+membantah, jadi mereka tak punya pilihan selain berlatih keras.
+
+Sebulan berlalu. Pasukan Genghis Khan dan logistiknya telah siap. Guo Jing berhasil melatih sepuluh ribu tentaranya
+dalam delapan formasi perang: Tian Fu, Di Zai, Feng Yang, Yun Chui, Long Fei, Hu Yi, Niao Xiang,
+dan She Pan[^delapan-formasi], yang mereka kuasai sepenuhnya.
+
+[^delapan-formasi]: [Baca selengkapnya](referensi-karakter.md#delapan-formasi "Keterangan singkat mengenai nama-nama formasi tersebut") mengenai nama-nama ini di halaman terpisah.
+
+Delapan formasi ini aslinya adalah hasil karya Zhuge Liang berdasarkan metode kuno. Ketika sampai di tangan Yue Fei,
+ia menambahkan beberapa perubahan dan variasi. Ketika Yue Fei masih muda, ia pergi berperang di bawah komando Zong Ze,
+yang berkata, "Keberanian, kebijaksanaan dan keterampilanmu melebihi mereka-mereka dari jaman kuno. Tetapi dalam 
+perang yang sesungguhnya kita tidak bisa menduga apapun." Ia merujuk pada metode penempatan pasukan. Yue Fei menjawab,
+"Dalam perang yang sesungguhnya, seni perang tidak berubah. Siapapun yang berhasil menggunakan keajaibannya akan 
+menyelamatkan hati dan pikiran mereka sendiri." Zong Ze mau tak mau menyetujui apa yang dikatakannya. Di kemudian 
+hari Yue Fei memimpin pergerakan lebih banyak pasukan lain. Ia sadar bahwa ia tidak bisa selalu mengikuti metode 
+tertentu, meskipun demikian ia masih tetap melatih para pejabat dan prajuritnya sesuai dengan metode-metode itu. 
+Hanya dalam pertempuran yang sesungguhnya ia mengeksekusi rencana secara dinamis, dengan cara itu ia mengalahkan 
+sejumlah besar musuh. Proses tersebut juga dicatat dalam buku Warisan Wumu.
+
+Suatu hari cuaca cerah dan udaranya begitu segar, langit terentang sejauh sepuluh ribu mil, sebiru pakaian yang baru 
+keluar dari tempat pencucian. Seratus lima puluh ribu kavaleri Mongolia teratur dalam barisan di padang rumput.
+Genghis Khan mempersembahkan kurban kepada langit dan bumi, mengucapkan ikrar sebelum berangkat berperang. Kepada 
+para jendralnya ia berkata, "Batu tak punya kulit, tapi hidup manusia ada batasnya. Rambut dan jenggotku semuanya 
+telah memutih. Kali ini aku berangkat berperang, tidak tahu apakah aku akan pulang dalam keadaan hidup. Selirku 
+telah mengingatkanku semalam, dan kukira dia benar. Aku harus menetapkan salah seorang putraku hari ini, untuk 
+mengangkat tinggi panji-panjiku setelah aku pergi."
+
+Para jendral telah mengalami ratusan peperangan, mengikuti Genghis Khan menyerang ke segala penjuru angin. Rambutnya
+telah memutih. Tiba-tiba mendengar Khan Agung hendak menunjuk ahli warisnya, mereka semua terkejut dan sekaligus 
+gembira. Semua mata memandang wajahnya, menunggunya mengatakan siapa nama penerusnya.
+
+Genghis Khan berkata, "Jochi, kau adalah putra tertuaku, coba katakan, siapa yang harus kutunjuk?" Jantung Jochi 
+berdegub kencang. Ia sangat layak, ia juga telah menyumbangkan paling banyak jasa, selain itu, ia adalah putra 
+tertua. Ia selalu berpikir bahwa ketika ayahnya meninggal, sewajarnya posisi itu akan jatuh ke tangannya. Sekarang 
+Khan Agung tiba-tiba bertanya, ia tidak tahu bagaimana harus menjawab.
+
+Putra kedua Genghis Khan, Chagatai, tanpak seperti api yang mengamuk. Ia tidak dalam hubungan yang harmonis dengan 
+kakaknya. Mendengar ayahnya bertanya kepada kakaknya, ia membuka mulut, "Dia ingin supaya Jochi bicara, perintah apa
+yang akan diterimanya? Mana mungkin kita membiarkan anak haram Merkit ini memimpin kita?"
+
+Sebenarnya ketika Genghis Khan masih muda, pasukannya lemah. Sebagai akibatnya istrinya tertangkap oleh musuh, yaitu
+suku Merkit. Setelah beberapa tahun ditawan, istrinya dibawa pulang, tapi pada saat itu ia telah melahirkan Jochi.
+Genghis Khan menerima kenyataan tersebut dengan lapang dada, ia menganggap Jochi sebagai putranya sendiri.
+
+Mendengar penghinaan adiknya sendiri, Jochi tidak bisa menahan kesabarannya lagi, ia menerjang maju, mencekal dada
+Chagatai sambil berteriak, "Ayah tidak pernah menganggapku orang luar, berani amat kau menghinaku? Keterampilan macam 
+apa yang kau miliki, dam tidak kumiliki? Kau tidak lebih dari orang sombong emosional yang menyebalkan. Mari kita 
+keluar dan berduel. Kalau aku sampai kalah dalam memanah, aku akan mematahkan ibu jariku sendiri. Kalau aku sampai 
+kalah dalam seni bela diri, aku akan membanting diriku ke tanah dan tidak akan bangun lagi!" Sambil berpaling kepada 
+Genghis Khan ia berkata, "Ayah, mohon berikan perintah." Kedua bersaudara itu saling mencengkeram dada saudaranya,
+siap untuk berduel saat itu dan di situ juga.
+
+Para jendral yang lain maju untuk memisahkan mereka. Borchu menarik tangan Jochi, sementara Muqali memegang tangan 
+Chagatai.
+
+Genghis Khan diam. Ia teringat aib yang dialaminya di masa muda ketika ia bahkan tidak mampu mempertahankan 
+kehormatan istrinya sendiri, yang mengakibatkan keributan pada hari ini. Semua jendral menyalahkan Chagatai 
+karena mengungkit masa lalu dan menyakiti hati kedua orang tuanya.
+
+"Kalian berdua, hentikan!" kata Genghis Khan akhirnya. "Jochi adalah anak sulungku, aku akan selalu mencintainya 
+apapun juga yang terjadi. Aku melarang semua orang untuk membicarakan hal-hal buruk tentang dia."
+
+Chagatai melepaskan Jochi, ia berkata, "Jochi punya kemampuan, semua orang tahu itu. Tapi kalau bicara soal
+kemurahan hati dan kebijaksanaan, dia kalah dari adik ketiga, Ogedei. Aku pilih Ogedei."
+
+"Jochi, bagaimana menurutmu?" tanya Genghis Khan.
+
+Jochi bisa melihat situasi yang kurang menguntungkan. Ia tahu harapannya untuk menjadi Khan Agung telah hancur.
+Ia selalu punya hubungan baik dengan adik ketiganya. Ia tahu bahwa adik ketiganya baik hati, sudah pasti tidak 
+akan mencelakainya di masa depan. Karena itu ia berkata, "Bagus sekali, aku juga mendukung Ogedei."
+
+Pangeran keempat, Tolui, tidak menantang nominasi tersebut, Ogedei bermaksud menolak, tetapi Genghis Khan 
+berkata, "Kau tidak perlu menolak. Kemampuanmu di medan tempur kalau dibandingkan kedua kakakmu, tapi kau 
+memperlakukan orang dengan baik. Ketika kau menjadi Khan Agung nanti, para pangeran dan jendral tidak akan 
+saling berperang. Kita orang Mongolia tidak punya musuh selama kita tidak saling berperang sendiri. Apa yang 
+kita cemaskan kalau begitu?"
+
+Hari itu Genghis Khan menggelar pesta besar untuk merayakan Putra Mahkota yang baru ditunjuk. Semua pasukan,
+dari jendral sampai prajurit, minum-minum hingga larut malam.
+
+Guo Jing pulang ke kemahnya dalam keadaan agak mabuk. Ia baru hendak melepaskan pakaiannya untuk tidur, 
+ketika tiba-tiba salah seorang pejabatnya buru-buru masuk, memberinya laporan, "Fu Ma Ye, celaka! Pangeran 
+pertama dan kedua mabuk. Masing-masing membawa pasukan mereka untuk saling membunuh."
+
+Guo Jing terperanjat, ia buru-buru berkata, "Beritahu Khan Agung!"
+
+"Khan Agung juga mabuk, kami tidak bisa membangunkannya," jawab pejabat itu.
+
+Guo Jing tahu Jochi dan Chagatai masing-masing punya pegikut setia, pasukan di bawah komando mereka sangat 
+bengis. Jika mereka saling melukai, maka pasukan Mongolia akan terluka parah. Mereka ribut-ribut di hadapan
+Genghis Khan sebelumnya, tapi kali ini mereka mabuk. Ia ingin membantu, tapi bagaimana ia bisa melerai? Ia 
+kehilangan akal bagaimana harus bertindak, mobdar-mandir di dalam tenda sambil mengetuk-ngetuk dahinya sendiri,
+dan berpikir, "Seandainya saja Rong'er ada di sini, dia pasti tahu apa yang seharusnya dilakukan." Ia mendengar
+pekikan perang di kejauhan, tampaknya kedua pasukan itu sudah siap saling membunuh.
+
+Guo Jing semakin cemas, tapi tiba-tiba Lu Youjiao masuk dan memberikan sehelai kertas dengan sebuah pesan,
+"Gunakan She Pan untuk memutuskan kedua pasukan, lalu gunakan Hu Yi untuk menangkap semua yang tidak mau 
+menyerah." Pada saat itu Guo Jing telah menguasai buku warisan Wumu dari awal hingga akhir. Begitu melihat
+kedua baris kalimat itu pikirannya tercerahkan. Ia berseru, "Kenapa aku begitu bodoh? Apa gunanya membaca
+buku strategi militer?" Dengan segera ia memerintahkan pasukannya sendiri untuk bergerak.
+
+Kedisiplinan di dalam pasukan Mongolia sangat ketat, meskipun para pejabat dan prajurit itu dalam 
+keadaan mabuk, tetapi begitu perintah diturunkan, mereka segera mengambil senjata dan naik ke punggung kuda.
+Dalam waktu singkat mereka telah membentuk barisan perang yang rapi.
+
+Genderang berbunyi tiga kali, terompet ditiup, pasukan di bawah komando Guo Jing mulai bergerak ke arah timur laut.
+Bberapa _li_ kemudian pengintainya kembali dengan laporan bahwa pasukan pangeran pertama dan kedua telah mulai 
+berperag sendiri. Suara 'He hu! He hu!' mereka terdengar dari kejauhan.
+
+Guo Jing gelisah. "Rasanya aku terlambat selangkah, dan tidak bisa mencegah bencana besar ini." Buru-buru ia 
+melambaikan tangan untuk memberikan perintah. Sepuluh ribu prajuritnya membagi diri. Bagian kanan tiga sumbu
+Hou Tian melangkah maju, bagian kanan tiga sumbu Hou Di bergerak ke arah ekor. Kanan Hou Tian dan Hou Di maju,
+bergerak masing-masing ke arah timur laut dan barat laut mereka menduduki posisi kanan. Tim sebelah kiri yang 
+berkaitan melakukan hal yang sama di posisi kiri, sementara panji-panji besar Guo Jing bergerak di tengah,
+diikuti oleh barisan She Pan yang menerobos ke garis depan.
+
+Jochi dan Chagatai masing-masing membawa dua puluh ribu prajurit mereka, bertempur dengan golok panjang di tangan.
+Pasukan She Pan di bawah komando Guo Jing tiba-tiba menerjang masuk di antara kedua pasukan itu, masih mempertahankan
+barisan rapi mereka. Pasukan yang tengah bertempur itu terkejut, mereka berserakan dengan agak kacau.
+
+Suara lantang Chagatai terdengar, "Siapa itu? Siapa itu? Kau datang membantuku atau membantu anak haram Jochi ini?"
+
+Guo Jing mengabaikannya, bendera komandonya berkibar, pasukannya bergerak melingkar, barisan She Pan segera berubah 
+menjadi Hu Yi, empat kelompok yang lebih kecil, bagian kiri dan kanan Qian Tian menduduki garis depan, sisa
+kelompok itu membungkus pasukan Chagatai dari kedua sisi, di bagian kiri kelompok berkaitan mengepung pasukan Jochi 
+dari sisi lain.
+
+Pada saat itu Chagatai bisa melihat bendera Guo Jing dengan jelas. Dengan marah ia menyumpah-nyumpah,
+"Aku tahu sejak awal orang barbar dari Selatan bukan orang baik." Ia memerintahkan pasukannya untuk membunuh
+pasukan Guo Jing. Tetapi bagian sayap dari Hu Yi itu mengandung variasi samar, masing-masing sangat kuat. Itu adalah
+formasi yang digunakan Han Xin untuk menghancurkan Xiang Yu di Gai Xia. Barisan itu disebut 'Sepuluh Prinsip 
+Untuk Mengepung Lawan' dalam buku strategi militer. Digambarkan bahwa barisan itu memiliki kekuatan untuk mengepung
+lawan yang sepuluh kali lebih kuat, prinsip untuk menggunakan jumlah yang lebih kecil mengepung yang lebih banyak dengan
+memakai pergerakan yang selalu berubah.
+
+Pasukan Chagatai melihat kelompok kecil Guo Jing datang dan bergerak terus-menerus, mereka tidak tahu berapa tepatnya
+jumlah mereka dan hati mereka tergetar. Dalam waktu singkat dua puluh ribu pasukan Chagatai telah berhasil dipisahkan,
+masing-masing kelompok tidak bisa membantu kelompok lainnya.
+
+Pertempuran melawan pasukan Jochi agak berbeda karena semangat juang mereka telah bangkit. Pertama-tama, mereka adalah 
+sesama oorang Mongolia. Kedua, mereka takut kepada Genghis Khan. Segera setelah kelompok kecil Guo Jing mengepung 
+mereka, pasukan itu kehilangan semangat untuk bertempur.
+
+Di antara pergerakan pasukan itu suara lantang Guo Jing bisa terdengar, "Kita orang-orang Mongilia adalah saudara,
+tidak pernuh saling membunuh. Cepat letakkan tombak, golok, busur dan anak panah untuk menghindari hukuman mati 
+dari Khan Agung." Hampir semua pejabat dan prajurit mendengar permohonannya, dengan segera mereka turun dari kuda 
+dan melemparkan senjata ke tanah.
+
+Chagatai bersama sekitar seribu orang pengikut setianya menerjang dengan beringas ke arah pasukan Guo Jing,
+tetapi tiga bunyi genderang terdengar, delapan kelompok berkuda datang mengepung mereka dari semua penjuru.
+Mereka membawa tali laso. Satu per satu seribu prajurit itu terjatuh dari kuda mereka. Dari delapan kelompok
+itu, empat-lima prajurit mengepung seorang pengikut setia Chagatai. Mereka dipaksa duduk di tanah dengan tangan 
+terikat di belakang punggung.
+
+Jochi melihat bagaimana pasukan Guo Jing melabrak Chagatai, ia mau tak mau merasa takut tetapi gembira.
+Ia baru saja ingin maju untuk bicara dengan Guo Jing ketika tiba-tiba suara terompet terdengar lagi,
+tim Guo Jing di garis depan bergerak ke belakang dan tim garis belakang bergerak ke depan, dengan segera
+Jochi terkepung dari segala penjuru.
+
+Pengalaman Jochi di medan tempur sangat banyak, tetapi ia tidak pernah melihat sesuatu seperti ini. Ia segera 
+memerintahkan orang-orangnya untuk menyerang, tetapi sepuluh ribu prajurit Guo Jing membagi diri menjadi dua belas
+kelompok kecil, tidak maju menyerang, sebaliknya malah bergerak ke belakang. Jochi terkagum-kagum, ia tidak tahu
+bahwa dua belas kelompok itu adalah: Da Hei Zi, Po Di Chou, Zuo Tu Yin, Qing She Mao, Cui Xiong Chen, 
+Qian Chong Si, Da Chi Wu, Xian Feng Wei, You Ji Shen, Bai Yun You, Jue Sheng Xu dan Hou Wei Hai[^kelompok-12]. Semuanya 
+itu diatur menurut aturan dua belas jam dalam sehari, dengan variasi aneh, bergerak cepat dari belakang ke depan 
+dan sebaliknya.
+
+[^kelompok-12]: Masing-masing kelompok itu mendapat nama yang sesuai dengan kedua belas jam terkait, yang sebenarnya sama dengan nama-nama zodiak dalam tradisi masyarakat Tionghoa. Misalnya kelompok Da Hei Zi, yang secara literal berarti 'Kegelapan Besar' menduduki posisi jam pertama, yang dalam hal ini adalah antara jam 11 malam dan jam 1 dini hari, karenanya dinamakan 'Kegelapan Besar', alias _gelap total_. [Baca lebih lanjut](referensi-karakter.md#kelompok-12).
+
+Kedua belas kelompok itu bergerak kesana-kemari, kelompok di sebelah kanan menerjang ke kiri, kelompok kiri menyerang ke kanan.
+Pasukan Jochi bingung. Dalam waktu kurang dari yang diperlukan untuk makan semangkuk nasi, Jochi dan pasukannya telah dikepung
+dan ditangkap.
+
+Jochi teringat ketika mereka masih anak-anak ia telah mencambuk Guo Jing setengah mati. Chagatai juga teringat ketika
+ia melepas anjingnya dan menggigit Guo Jing. Keduanya takut Guo Jing akan membalas dendam, mereka segera tersadar. Mereka 
+juga takut kalau-kalau ayah mereka akan menjatuhkan hukuman berat.
+
+Setelah menangkap kedua orang itu Guo Jing berpikir bahwa sebagai orang luar ia telah mencampuri urusan persaingan 
+antar saudara. Ia tidak yakin tindakannya ini akan membawa bencana atau keberuntungan. Ia berpikir untuk membicarakan
+hal ini dengan Ogedei dan Tolui ketika tiba-tiba terdengar suara terompet keras. Di tengah-tengah obor yang berkedip
+sembilan bendera Genghis Khan datang menderu dengan cepatnya.
+
+Genghis Khan telah tersadar dari mabuknya, ia menerima laporan bahwa kedua putranya sedang saling membunuh. Ia terkejut
+dan melompat dari tempat tidur dengan marah. Tanpa memakai baju perang, dengan rambut acak-acakan, ia melompat ke atas 
+kudanya dan berpacu ke padang rumput.
+
+Ketika mendekat, ia melihat kedua putranya duduk di tanah, dengan pasukan Guo Jing berdiri di sekeliling, mengawal
+mereka. Kedua putranya, meskipun masih duduk di atas kudanya, tetapi masing-masing dikepung oleh delapan prajurit 
+Guo Jing dengan golok terhunus di tangan. Ia sangat terkejut.
+
+Guo Jing melangkah maju dan berlutut di tanah, melaporkan semuanya. Menyadari bahwa bencana besar secara tak terduga
+telah berhasil diredam, kegembiraan Genghis Khan sungguh tak terkatakan. Ia datang dengan pikiran bahwa kedua pasukan
+Mongolia itu sedang saling berperang, kerugian yang timbul pasti sangat serius, kedua putranya mungkin telah tewas.
+
+Tak terduga kedua putranya masih hidup dan baik-baik saja, ketiga pasukan itu masih lengkap. Tentu saja ia kegirangan.
+
+Dengan segera ia menggelar rapat umum bagi para pangeran dan jendral. Ia memaki-maki Jochi dan Chagatai, dan 
+menganugerahkan hadiah besar bagi Guo Jing dan pasukannya. Ia berkata kepada Guo Jing, "Kau masih mengatakan bahwa
+kau tidak mampu memimpin pasukan untuk maju berperang? Jasamu dalam urusan ini sendiri dengan mudah bisa mengecilkan
+arti peperangan melawan Negara Jin. Kalau kita tidak mampu menjebol tembok musuh hari ini, kita masih bisa kembali
+besok dan berusaha lagi. Tapi kalau putra-putraku tewas, bagaimana kita bisa membuat mereka bangkit kembali?"
+
+Guo Jing menerima anugerah tersebut, tetapi membagikan emas, perak dan kewan-hewan ternak kepada para prajuritnya.
+Sorak-sorai terdengar di antara pasukannya hari itu. Semua jendral datang untuk memberi selamat untuk jasa besarnya.
+
+Setelah mengantar tamu pulang, Guo Jing mengambil catatan yang diberikan Lu Youjiao. Ia mengamatinya dengan teliti,
+tulisan tangan itu kasar, kemungkinan besar tulisan Lu Youjiao, tetapi ia curiga. "Meskipun aku sudah melatih pasukanku
+dalam barisan She Pan dan Hu Yi, tapi aku tidak pernah menyebut-nyebut nama ini di depan Lu Zhanglao. Semua bagian sulit
+yang pernah kutanyakan sebelumnya juga tidak ada kaitannya dengan barisan perang ini. Dari mana dia tahu? Apa dia membaca
+buku strategi militer tanpa seijinku?"
+
+Dengan segera ia mengundang Lu Youjiao ke tendanya. "Lu Zhanglao, kalau kau suka membaca buku militer ini,
+dengan senag hati aku akan meminjamkannya."
+
+Lu Youjiao tersenyum. "Pengemis miskin sepertiku tidak akan pernah menjadi jendral di sepanjang umurku, memimpin
+segelintir pengemis kecil juga tidak memerlukan seni perang. Apa gunanya buku strategi militer itu bagiku?"
+
+Guo Jing menunjuk catatan itu dengan jarinya. "Lalu bagaimana kau tahu tentang barisan She Pan dan Hu Yi?"
+
+"Gongzi yang memberitahu Xiaoren, masa Gongzi lupa?" kata Lu Youjiao. Guo Jing tahu ia sedang berbohong.
+Makin dipikir ia makin bingung, tetapi ia tidak yakin apa yang disembunyikan Lu Youjiao.
+
+Hari berikutnya Genghis Khan menggelar rapat umum lagi. Pasukan garis depan berada di bawah komando Chagatai
+dan Ogedei. Sayap kiri di bawah komando Jochi, sementara sayap kanan di bawah komando Guo Jing. Masing-masing
+garis depan, bagian kiri dan kanan, terdiri dari tiga puluh ribu orang. Genghis Khan dan Tolui memimpin lebih dari
+enam puluh ribu prajurit sebagai pasukan inti. Setiap prajurit menunggangi satu dari sepasang kuda, mereka
+di setiap waktu akan menunggangi seekor dari kedua kuda itu untuk menghemat tenaga kuda mereka. Para pejabat
+membawa lebih banyak kuda. Dengan seratus lima puluh ribu orang, mereka membawa hampir satu juta ekor kuda.
+
+terompet dibunyikan, genderang dipukul, suaranya memekakkan telinga. Tiga puluh ribu tentara garis depan mulai 
+bergerak dengan anggun menuju ke Barat. Pasukan raksasa itu bergerak makin jauh ke Barat, memasuki wilayah
+teritorial Khwarezmia dengan kekuatan tak tertahankan. Pasukan Muhammad lebih besar, tetapi mereka bukan 
+tandingan pasukan Mongolia. Guo Jing memimpin kelompoknya menghancurkan kota-kota dan membunuh lawan, ia 
+telah mencatat prestasi yang tidak kecil.
 
-The next day Genghis Khan held a general assembly of all his high-ranking officials dis-
-cussing the expedition to the west; conferring Guo Jing the title of ‘Noyon’, placing him
-in command of a ten-thousand men unit. ‘Noyon’ was the Mongolian highest official ti-
-tle, normally given only to the Great Khan’s close relative or a very senior general. By
-this time Guo Jing’s martial art had advanced immensely, but his military strategy
-knowledge was next to zero. He had no alternative but went to Jebeh, Subotai and
-other senior generals, asking for some advice. But he was slow and military tactics had
-an almost infinite variation; how could he learn it all in just a short period of time?
-
-He saw the other generals were busy preparing their soldiers, gathering provisions and
-choosing their horses and weaponry; everybody was very busy. One hundred and fifty
-thousands cavalry went on an expedition to the west, going through bitter cold and
-barren desert lands, the preparation was certainly not a small matter. He had no clue
-on what to do, hence he simply assigned ten ‘qian fu zhang’ [leader of a 1000 men unit]
-under his command to separately handle the preparations and Jebeh and Tuolei often-
-times giving their advice to help him out.
-
-A month or so later he still felt his preparation to be inadequate. He realized it was be-
-yond him to command his troops. To attack a strong army of a million using the ’18-
-Dragon Subduing Palms’ or even the Nine Yin Manual would not be possible. If he is
-sued a wrong order even for only one time, he would be defeated by the enemy. Not
-only Genghis Khan’s reputation would be marred, but the lives of ten thousand men
-would be jeopardized as well.
-
-That day he was seriously contemplating to see the Great Khan and resign from his po-
-sition; he was willing to be a low ranking soldier under somebody else’s command,
-fighting the enemy as an individual, when suddenly his second-in-command came to
-report that more than a thousand Han people were waiting outside, they were seeking
-an audience with him.
-
-Guo Jing was delighted, he thought, “Qiu Daozhang has arrived this soon?” Hastily he
-went out his tent to welcome the visitor. To his surprised however, he saw on the
-prairie stood a group of people dressed as beggars. Three men rushed forward and
-bowed to greet him; turned out they were the Beggar Clan’s Lu Youjiao, along with Jian
-and Liang Zhanglao [Elders].
-
-“Have you heard anything about Miss Huang Rong?” Guo Jing anxiously asked.
-
-“Xiao Ren [lit. little/lowly person] had anxiously waited for any news, but the Bangzhu’s
-whereabouts is still unknown. We heard Sir [‘guan ren’, lit. government officer] is com-
-manding a troop on the expedition to the west. We come to offer our assistance,” Lu
-Youjiao answered.
-
-Guo Jing was greatly surprised, “How did you know?”
-“The Great Khan sent a messenger inviting Qiu Chuji, Priest Qiu; we heard it from the
-Quanzhen people,” Lu Youjiao replied.
-
-Guo Jing was silent for half a day, staring blankly toward the clouds on the southern
-horizon, he thought, “The Beggar Clan has eyes and ears all over the world, yet they
-don’t know Rong’er’s whereabouts. I am afraid her being in danger is more likely than
-not.” Thinking about Huang Rong his eyes turned red involuntarily. He assigned his sec-
-ond-in-command to help the newcomers settled down while he himself went to inform
-the Great Khan.
-
-“Good,” Genghis Khan said, “Place them under your command.”
-
-When Guo Jing conveyed his intention to resign, Genghis Khan was angry, “Who can
-fight a battle as soon as they are born? Nobody can. After fighting several battles you
-will pick up. You grew up with me, what are you afraid of? How could Genghis Khan’s
-son-in-law not go to war?”
-
-Guo Jing did not dare to say another word. He returned to his tent with an anxious face.
-Lu Youjiao asked him what the matter was, and then tried to console him. When
-evening came Lu Youjiao came to his tent and said, “If I knew it would be this way, Xiao
-Ren would have brought ‘Sun Tzu’s Art of War’, or ‘Tai Gong’s Summary of Military
-Strategy’ from the south; then everything will be all right.”
-
-It suddenly dawned on Guo Jing that he had the ‘Wumu’s Legacy’ by his side. It was a
-military manual; how could he forget about it? Right away he took the book out from
-his clothes pouch, and then read it by the lantern light all night long through the next
-day, stopping only because he felt tired.
-
-This book contained all kinds of military strategy; from reconnaissance, planning an at-
-tack, defense strategy, to military training, officer management, troop disposition, field
-operation, as well as safety and danger situation overview and escape strategy, all were
-discussed in details.
-
-That day Guo Jing had browsed through it on the boat at Yuanjiang, he did not pay too
-much attention. But this time he needed military guidance, so he read until he had a
-good grasp of what was written. When he did not understand any part of the book, he
-would invite Lu Youjiao to ask his advice. Lu Youjiao would answer, “Right now Xiao
-Ren does not understand, but let me think about it.” He would leave Guo Jing’s tent only
-for a moment then came back with a very detailed explanation. Guo Jing was delighted
-and would ask him more questions. Strangely, Lu Youjiao would always not able to an-
-swer immediately; he always asked for some time to think, but then afterwards would
-always come up with answers no matter how difficult the problem was. At first Guo
-Jing did not notice, but after several days this answer-finding-process repeated, he
-could not help but feeling suspicious.
-
-One evening Guo Jing picked a character from the book and asked him what it meant.
-Lu Youjiao said he wasn’t clear about that, so he needed sometime to think about it,
-then he went out the tent. Guo Jing thought, “The book is difficult, it’s all right if you
-need some time to ponder its meaning; but it is only a character, how could you not
-know its meaning?”
-
-Although holding a position of general, Guo Jing was still very young and he still had a
-childish character. As soon as Lu Youjiao exited his tent he followed immediately. He
-stealthily hid among the tall grass wanting to know Lu Youjiao’s secret. He saw Lu
-Youjiao entered a tiny tent, and in just a short while he went out the tent again. Guo
-Jing hastily went back to his own tent. Lu Youjiao went in and said, “Xiao Ren has
-thought about it.” Then he proceeded by explaining the character’s correct pronuncia-
-tion and its meaning.
-
-Guo Jing smiled, “Lu Zhanglao, you have an expert master; why don’t you invite your
-master to see me?”
-
-Lu Youjiao was startled, “I don’t,” he said.
-
-Guo Jing grabbed his hand and smiled, “We will go out and see.” He pulled his hand
-and went out the tent, walked toward that tiny tent he saw earlier.
-
-Outside that tiny tent two Beggar Clan members were standing on guard duty. As soon
-as they saw Guo Jing they coughed lightly. Guo Jing noticed their coughs he let Lu
-Youjiao’s hand go and darted toward the tent. As soon as he lifted the tent’s entrance he
-saw the rear part of the tent fluttered a little bit. Definitely someone has just gone out
-the tent. Guo Jing rushed forward and lifted up the tent, but he only saw tall grass, not a
-single human’s shadow was to be seen. He was perplexed, was silent for a while.
-
-Guo Jing turned around and asked Lu Youjiao, but Lu Youjiao said the tent was his, no-
-body else lived there.
-
-Guo Jing did not give up, he kept asking Lu Youjiao difficult questions from the
-‘Wumu’s Legacy’, but from now on Lu Youjiao would wait for the next day before he
-could answer his questions.
-
-Guo Jing knew the person in that tent did not have any ill intention, only did not want
-to see him. Guo Jing decided that person must be an expert from the Jianghu, and it
-would be difficult to deal with people like that, so he put this matter aside temporarily.
-
-He studied the book in the evening then trained his soldiers during the day according
-to method he learned from the book. The Mongolian cavalry was used to fight an open
-battle, now they had to train battle formations; they were having a very difficult time.
-But an order is an order, they did not dare to disobey, so they had no choice and
-trained hard.
-
-Another month had passed; Genghis Khan’s army and its logistic were ready. Guo Jing
-managed to train his ten thousand soldiers in all eight battle formations: ‘tian fu’ [high
-as the sky], ‘di zai’ [strong as the earth], ‘feng yang’ [scattered like a wind], ‘yun chui’
-[dangling like a cloud] , ‘long fei’ [flying dragon], ‘hu yi’ [winged tiger], ‘niao xiang’
-[soaring bird], and ‘she pan’ [coiling snake]; which they have mastered skillfully.
-
-These eight formations were originally created by Zhuge Liang based on ancient meth-
-ods; when they got to Yue Fei’s hand, he added many changes and variations. When
-Yue Fei was young, he went to war under Zong Ze who said, “Your bravery, wisdom and
-skill have exceeded those of the ancient times; however, in a real battle we can’t pre-
-dict everything.” He was referring to the troop disposition method. Yue Fei answered,
-“In a real battle, the art of war does not change. Whoever manages to utilize its wonder
-will save their own hearts and minds.” Zong Ze could not help but agree to what he
-said. Later on Yue Fei led many other troop movements. He was aware that he could
-not always follow certain method, yet he still trained his officers and soldiers according
-to these methods. Only when it came to the real battle he executed his plan dynami-
-cally, thus had defeated countless enemies. This process was also recorded in the
-‘Wumu’s Legacy’ book.
-
-One particular day the weather was clear and the air was fresh, the sky stretched out
-for tens of thousands miles, blue like it was fresh from the laundry. The one hundred
-and fifty thousand Mongolian cavalry were arranged in row after row on the prairie.
-Genghis Khan offered a sacrifice to the heaven and earth, making a vow before going
-into battle. Toward all his generals he said, “Stone has no skin, but there is a limit to
-human’s life. My hair and beard have all turned white. This time I go to war, don’t
-know if I am going back home alive. My concubine has reminded me last night, and I
-think she was right. I have to assign one of my sons today to lift high my banner after I
-am gone.”
-
-The generals had fought hundreds of battle, following Genghis Khan’s attacks to the
-east and expeditions to the west. His white hair had been gray. Suddenly hearing the
-Great Khan was going to appoint his successor, they were all surprised and delighted at
-the same time. All eyes gazed toward his face, waiting for him to say his successor’s
-name.
-
-Genghis Khan said, “Jochi, you are my eldest son, tell me, whom should I appoint?”
-Jochi’s heart skipped a beat. He was very capable, had rendered the most service, be-
-sides, he was the eldest son. He had always thought that when his father king died, nat-
-urally the position would fall into his lap. Now that the Great Khan suddenly asked, he
-did not know how to reply.
-
-Genghis Khan’s second son, Chagatai, was like a raging fire. He did not live harmo-
-niously with his eldest brother. Hearing his father king asking his brother, he opened
-his mouth, “He wants Jochi to speak, what order will he receive? How can we let this
-Mergid bastard rule over us?”
-
-Actually when Genghis Khan was young, his army was weak; as a result his wife was
-captured by their enemy, the Mergids. After several years in captivity, his wife was
-taken back, but by that time she had already given birth to Jochi. Genghis Khan ac-
-cepted this fact with an open mind; he regarded Jochi as his own son.
-
-Listening to his own brother’s insult Jochi could not hold his patience any longer, he
-charged forward, grabbing Chagatai’s chest, shouted, “Father King had never regarded
-me as an outsider, how dare you insulted me? What skill do you have that I don’t? You
-are nothing more than an irritable hot-tempered arrogant man. Let’s go out and have a
-duel; if I lost to you in archery, I will rip my own thumb. If I lost to you in martial arts, I
-will throw myself on the ground and never get up!” Turning his head toward Genghis
-Khan he said, “Father King, please give your order.” Two brothers grabbed each other’s
-chest, ready to have a duel right then and there.
-
-The rest of the generals stepped forward to separate them; Bourchu pulled Jochi’s hand,
-while Mukhali held Chagatai’s hand.
-
-Genghis Khan was silent; he remembered his own disgrace in his youth that he was not
-even able to defend his wife’s honor, which had caused today’s dispute. The generals all
-blamed Chagatai for bringing up past events and hurt their parents’ hearts.
-
-“Both of you, drop it!” finally Genghis Khan said, “Jochi is my eldest son; I will always
-love him no matter what. I forbid anyone to speak bad about him.”
-
-Chagatai let Jochi go, he said, “Jochi is very capable, everybody knows that. But in term
-of generosity and benevolence, he is inferior to the third brother, Ogedei. I vote for
-Ogedei.”
-
-“Jochi, what do you say?” Genghis Khan asked.
-
-Jochi could see the unfavorable situation; he knew his hope to be the Great Khan was
-shattered. He had always had good relationship with his third brother; he knew the
-third brother was kindhearted, certainly would not do him any harm in the future,
-therefore, he said, “Very well, I also support Ogedei.”
-
-The fourth prince Tuolei did not challenge that nomination, Ogedei was about to de-
-cline; but Genghis Khan said, “You don’t need to decline. Your battle skill is inferior to
-your two elder brothers, but you treat people kindly. When you become the Great Khan
-in the future, all princes and generals won’t fight each other. We the Mongolian people
-will have no enemy as long as we don’t fight each other. What are we anxious about
-then?”
-
-That day Genghis Khan threw a big feast in celebration of the newly appointed crown
-prince. All the troops, from the generals to the soldiers drank until very late that night.
-
-Guo Jing went back to his tent a little tipsy. He was just about to take out his clothes to
-sleep when suddenly one of his officers came rushing in, gave him this report, “’Fu Ma
-Ye’ [Master Consort], it’s not good; the First Prince and the Second Prince were drunk.
-Each took his troops to kill each other.”
-Guo Jing was stunned, quickly said, “Inform the Great Khan!”
-
-“The Great Khan is also drunk, we couldn’t wake him up,” the officer replied.
-
-Guo Jing knew both Jochi and Chagatai had loyal followers, the troops under their flags
-were ferocious; if they killed each other the Mongolian army’s strength would be hurt
-considerably. They were having a brawl in the Great Khan’s presence earlier, but this
-time both were drunk; he had the urge to help, but how could he separate them? He
-was lost at what to do, pacing back and forth inside his tent while tapping his own fore-
-head, musing, “If only Rong’er is here, she would know what to do.” He heard a distant
-battle cry, looked like both troops were about to kill each other.
-
-Guo Jing was getting more anxious than ever; but suddenly Lu Youjiao rushed in and
-handed him a piece of paper with this message, “Use ‘coiled snake’ to cut off two
-armies, then use ‘winged tiger’ to capture those who refuse to surrender.” By that time
-Guo Jing had mastered the ‘Wumu’s Legacy’ from top to bottom. As soon as he saw
-these two lines of characters his mind was enlightened. He shouted, “How could I be so
-stupid? What’s the use of reading the military strategy book?” Immediately he gave or-
-ders for his own troops to move.
-
-The discipline among the Mongolian army was very strict; even though all the officers
-and soldiers were drunk once the order was given, they armed themselves and
-mounted their horse; in a very short time had formed a neat battle formation.
-
-The drums were sounded three times, the bugle was blown, the troops under Guo Jing’s
-command started to move toward the northeast. Several li’s later his scout came back
-reporting that the First and the Second Princes’ troops had started to battle each other;
-their ‘He hu! He hu!” shouts were heard from afar.
-
-Guo Jing was anxious, “I am afraid I come one step too late and not able to prevent this
-big calamity.” Hastily he waved his hand to give orders; his ten thousand men divided
-itself, the right-hand ‘hou tian’ [rear sky]’s three axes moved forward, the right-hand
-‘hou di’ [rear earth]’s three axes moved toward the tail; the right ‘hou tian’ charged, the
-right ‘hou di’ charged, moved toward northwest and northeast they occupied the right-
-hand position. Their corresponding left-hand teams did the same and occupied the left-
-hand position; while Guo Jing’s big banner moved in the center, followed by a ‘coiled
-snake’ formation fiercely broke through the front.
-
-Jochi and Chagatai had each brought their twenty-thousand men, fighting with long
-saber in their hands. Guo Jing’s ‘coiled snake’ suddenly charged in between still main-
-taining their neat formation. The battling troops were startled, they scattered slightly
-disorderly.
-
-Chagatai’s loud voice was heard, “Who’s there? Who’s there? Are you coming to help
-me or to help this bastard Jochi?”
-
-Guo Jing paid no attention, his command flag waved, his teams moved around, the
-‘coiled snake’ changed into ‘winged tiger’ immediately, the four smaller groups left-
-hand and right-hand ‘qian tian’ [front sky] occupied the front position, the rest of the
-groups enveloped Chagatai’s troops from both sides, their corresponding left groups
-outflanked Jochi’s troops on the other side.
-
-By this time Chagatai could see Guo Jing’s banner clearly; angrily he swore, “I knew
-from the start the southern barbarian is not a good person.” He gave an order to his
-troops to kill Guo Jing’s. But those tiger’s wings contained subtle variations; each was
-very powerful; it was the formation Han Xin used to crush Xiang Yu at Gai Xia. It was
-called, “Ten principles to surround the enemy” in the military strategy books. It was
-said to have a power of surrounding the enemy ten times stronger, the principle of
-small number surrounding many using ever changing movements.
-
-Chagatai’s troops saw Guo Jing’s small groups came and went continually, they did not
-know the exact number of the enemy and their hearts trembled with fear. In a short
-moment Chagatai’s twenty-thousand troops had been cut off, each group could not help
-the other.
-
-The fight against Jochi’s troops took a different turn since their fighting spirit was al-
-ready weakened. First, it was their fellow countrymen, more than half of them were
-good friends to each other. Second, they were afraid of the Great Khan’s wrath. As soon
-as Guo Jing small groups surrounded them in confusing movements, they lost their will
-to fight.
-
-Among the troop movement Guo Jing’s loud voice could be heard, “We are all
-Mongolian brothers, no need to kill each other. Quickly put down your sabers, spears,
-bows and arrows to avoid the Great Khan’s beheadings.” Almost all officers and sol-
-diers listened to his plea; immediately they dismounted their horses and threw their
-weapons to the ground.
-
-Chagatai and about a thousand of his loyal followers charged ferociously toward Guo
-Jing’s troops, but three drumbeats were heard, eight groups of riders came surrounding
-them from all directions; they carried horse-tripping ropes. One by one the thousand
-troops fell down their horsebacks. From those eight groups, four or five soldiers sur-
-rounded one of Chagatai’s loyal followers. They were forced to sit on the ground with
-their hands tied behind their backs.
-
-Jochi saw how Guo Jing’s troops routed Chagatai, he could not help but feeling scared
-but happy. He was about to move forward to talk to Guo Jing when suddenly the horn
-sounded again, Guo Jing’s front teams moved backward and the rear teams moved for-
-ward, very soon Jochi was surrounded on all directions.
-
-Jochi had an extensive battle experience, but he had never seen anything like this.
-Hastily ordered his men to attack, but Guo Jing’s ten thousand men split into twelve
-smaller groups, did not charge forward, but moved backward instead. Jochi was mar-
-veled; he did not know that these twelve groups were:
-
-‘da hei zi’ [black darkness, 11pm – 1am, the first hour],
-
-‘po di chou’ [worn out enemy, 1 – 3am, the second hour],
-
-‘zuo tu yin’ [dashing to the left, 3 – 5am, the third hour],
-
-‘qing she mao’ [green snake, 5 – 7am, the fourth hour],
-
-‘cui xiong chen’ [terrible devastation, 7 – 9am, the fifth hour],
-
-‘qian chong si’ [charge forward, 9 – 11am, the sixth hour],
-
-‘da chi wu’ [great scarlet, 11am – 1pm, the seventh hour],
-
-‘xian feng wei’ [first tip (of the tool/weapon), 1 – 3pm, the eight hour],
-
-‘you ji shen’ [right-hand strike, 3 – 5pm, the ninth hour],
-
-‘bai yun you’ [white cloud, 5 – 7pm, the tenth hour],
-
-‘jue sheng xu’ [sure victory, 7 – 9pm, the eleventh hour],
-
-and ‘hou wei hai’ [rear guard, 9 – 11pm, the twelfth hour ], according to the twelve two-
-hour periods of the day; with strange variations, swiftly moved back and forth.
-
-These twelve groups moved around, the right-hand groups charged to the left, the left-
-hand groups strike to the right; Jochi’s troops were confused. Less than the time to eat a
-bowl of rice later Jochi and his men were also surrounded and captured.
-
-Jochi remembered when all of them were kids he had whipped Guo Jing half-dead.
-Chagatai also remembered he let his dogs loose and bite Guo Jing really bad. Both were
-afraid that Guo Jing would seek revenge; they sobered up immediately. They were also
-really scared that their father king would punish them severely.
-
-After capturing these two people Guo Jing thought that as an outsider he had interfered
-in this sibling rivalry; he was not sure if his action might result in disaster or good luck.
-He was thinking of discussing this matter over with Ogedei and Tuolei when suddenly
-he heard loud horn sound; amidst the flickering torches the Great Khan’s nine big ban-
-ners came galloping fast.
-
-Genghis Khan had sobered up from wine, he received the report that his two sons were
-about to kill each other. He was startled and angrily jumped out of his bed. Without
-wearing clothes or armor, with his hair unkempt he jumped on his horse and sped to
-the prairie.
-
-When he came near, he saw his sons’ troops sat on the ground, with Guo Jing’s troops
-standing around, guarding them. His two sons, although they were still sitting on the
-horsebacks, but each were surrounded by eight of Guo Jing’s men wielding unsheathed
-blades in their hands. He was very surprised.
-
-Guo Jing stepped forward and knelt down on the ground, reporting everything.
-Realizing that a major disaster had been unexpectedly thwarted, Genghis Khan’s de-
-light was unspeakable. He came rushing in thinking that two Mongolian armies had
-fought each other, the casualty must be serious; his two sons might be dead already.
-
-Who would have thought that his two sons were alive and well, three armies were in-
-tact. Of course he was delighted.
-
-Immediately he called a general assembly of all the princes and generals. He scolded
-Jochi and Chagatai, and heavily rewarded Guo Jing and his men. He said to Guo Jing,
-“Do you still say that you cannot lead troops to war? Your merit in this matter alone can
-easily dwarf the war against the Jin country. If we cannot destroy the enemy’s city wall
-today, we can always come back tomorrow and try again. But if my sons were dead,
-how can we make them alive again?”
-
-Guo Jing took the rewards, but divided the gold, silver and livestock to his troops. There
-was a thunderous cheering and applause among his troops that day. All generals came
-to congratulate him on this great merit.
-
-After sending off the guests, Guo Jing took out the note given to him by Lu Youjiao. He
-examined it carefully, the handwriting was shoddy, most likely it was Lu Youjiao’s
-handwriting, but he was suspicious, “Although I have trained my troops in ‘coiled
-snake’ and ‘winged tiger’ formations, but I have never mentioned these names to Lu
-Zhanglao. The difficult parts of the book that I asked him for advice also do not have
-anything to do with this battle formations. How did he know? Did he read my military
-strategy book without my knowledge?”
-
-Right away he invited Lu Youjiao into his tent. “Lu Zhanglao, if you like to read this mil-
-itary strategy book, I will gladly lend it to you.”
-
-Lu Youjiao smiled, “A poor beggar like me will not become a general in my lifetime;
-leading a whole bunch of little beggars also did not need to use the art of war. What use
-will the military strategy book for me?”
-
-Guo Jing pointed his finger to the note, “Then how did you know about the ‘coiled
-snake’ and ‘winged tiger’ formations?”
-
-“Sir has mentioned it to Xiao Ren, have you forgotten?” Lu Youjiao said. Guo Jing knew
-he was not telling the truth. The more he thought about it the more he was perplexed;
-but he was not sure what did Lu Youjiao hide.
-
-The next day Genghis Khan held another general assembly. The vanguard was under
-Chagatai and Ogedei’s command. The left flank was under Jochi’s command, while the
-right was under Guo Jing’s. Each of the vanguard, left and right units were thirty thou-
-sand men strong. Genghis Khan and Tuolei commanded over sixty thousand soldiers as
-the main army. Each soldier rode on one of a pair of horses; they would ride one horse
-at a time to conserve the horses’ strength. The officers took even more horses. With one
-hundred and fifty thousand men, they took with them nearly a million horses.
-
-The horns were sounded, the drums were beaten, the noise was deafening. The thirty-
-thousand strong vanguard cavalry unit started to gallop majestically to the west. The
-great army moved farther and farther west, entering Khoresm territory with irre-
-sistible force. Muhammad’s army was bigger, but they were not the Mongolian’s army
-match. Guo Jing led his unit destroying cities and killing the enemies, he had rendered
-not a few merits.
 
