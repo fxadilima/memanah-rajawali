@@ -1024,7 +1024,7 @@ di luar, tiga pulluh ribu prajurit bersorak, "He hu! He hu!" Itu pekikan perang 
 mereka mendengar majikan mereka berteriak, mereka meringkik keras sambil mengangkat kaki depan. Suara di padang rumput
 malam itu memekakkan telinga, seolah mereka berada di medan perang yang sebenarnya.
 
-Geenhis Khan membubarkan pasukannya, lalu ia duduk sendirian di dalam Tenda Emas, larut dalam pikiran. Kursi yang 
+Genghis Khan membubarkan pasukannya, lalu ia duduk sendirian di dalam Tenda Emas, larut dalam pikiran. Kursi yang 
 didudukinya adalah rampasan dari bangsa Jin. Seekor naga merebut sebutir mutiara raksasa terukir di bagian punggungnya,
 sementara sepasang kepala harimau ganas terukir di kedua sandaran tangannya. Itu adalah singgasana milik Kaisar Jin.
 
@@ -1082,7 +1082,7 @@ Surga membenci kesombongan di Zhong Yuan, aku memerintah di padang gurun Utara t
 aku juga punya perasaan yang sama. Aku mengharapkan karakter yang sederhana dan murni, 
 menghindari pemborosan dan merangkul kesederhanaan. Setiap pakaian setiap makanan,
 bersama ternak-ternak di kandang menikmati pemeliharaan Surga. Menyapa rakyat seperti 
-bayi yang beru lahir, membesarkan para prajurut seperti saudara, mencari keharmonisan
+bayi yang baru lahir, membesarkan para prajurit seperti saudara, mencari keharmonisan
 dengan unsur-unsur yang ada di bumi dan makhluk hidup.
 
 Melatih puluhan ribu tentara, mengirim ekspedisi militer dengan aku memimpin di depan,
