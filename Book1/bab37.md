@@ -829,31 +829,31 @@ ketika mereka pertama kali berkenalan di Kalgan. Hatinya tergerak, ia menggengga
 Keduanya duduk saling bersandar sejenak. Akhirnya Guo Jing memecahkan keheningan, "Rong'er, Da Shifu bilang kau
 ditangkap Ouyang Feng di Kuil Tombak Besi, bagaimana kau bisa melarikan diri?"
 
-Huang Rong menghela nafas. "Aku sungguh menyesal untuk Gui Yun Zhuang Lu Shige[^rumah-awan] yang nyaman itu.
+Huang Rong menghela nafas. "Aku sungguh menyesal untuk Gui Yun Zhuang milik Lu Shige[^rumah-awan] yang nyaman itu.
 Racun Tua menyuruhku menjelaskan isi Jiu Yin Zhen Jing untuknya. Aku bilang penjelasannya tidak sulit, tapi aku 
 perlu tempat yang sepi dan nyaman. Racun Tua bilang kalau itu masalahnya, kita akan mencari kuil terpencil. Kubilang
 biksu Buddha itu menjijikkan, aku tidak suka makan makanan vegetarian. Lalu Racun Tua menanyakan aku mau apa.
-Aku bilang di dekat Danau Tai ada empat yang bernama Gui Yun Zhuang, pemandangannya sangat indah, makanan dan araknya
+Aku bilang di dekat Danau Tai ada tempat yang bernama Gui Yun Zhuang, pemandangannya sangat indah, makanan dan araknya
 luar biasa. Satu-satunya masalah adalah pemiliknya adalah temanku, itu membuat Racun Tua curiga."
 
-[^rumah-awan]: Baca lagi [Bab 14](bab14.md#cloud-manor) yang menceritakan Lu Chengfeng dan keluarganya.
+[^rumah-awan]: Gui Yun Zhuang bisa diterjemahkan menjadi 'Rumah Awan'. Baca lagi [Bab 14](bab14.md#cloud-manor) yang menceritakan Lu Chengfeng dan keluarganya.
 
+"Itu betul," kata Guo Jing. "Dia memutuskan untuk tidak pergi ke sana?"
 
-“That’s right,” Guo Jing said, “Did he decide not to go?”
+"Tidak, dia sombong," kata Huang Rong. "Dia tidak pernah takut siapapun. Makin kubilang begitu, ia makin ingin 
+ke situ. Katanya seberapa banyak pun teman-temanku, Racun Tua akan menghadapi mereka semua. Waktu kami sampai di 
+Rumah Awan, sebetulnya Lu Shige, ayah dan anak, sedang tidak ada di rumah. Mereka sedang pergi ke Utara, ke kota 
+Baoying, mengunjungi keluarga menantunya, Cheng Da Xiaojie. Kau sudah tahu kan, Zhuangzhu itu — Lu Shige — belajar 
+teknik membangun rumah dari ayahku menurut aturan Wu Xing Bagua[^wuxing-bagua]. Begitu Racun Tua masuk ke situ, dia 
+merasa ada sesuatu yang salah. Dia ingin menarikku keluar dari situ, tapi aku masuk kesana-kemari, dengan cepat 
+dia kehilangan jejakku. Bagaimana pun dia berusaha, tetap saja tidak bisa menangkapku, akhirnya dia marah dan 
+membakar Rumah Awan."
 
-“No, he is arrogant,” Huang Rong said, “He is never afraid of other people. The more I
-told him, the more he wanted to go. He said no matter how many friends I have, the
-Old Poison would face them all. When we arrived at the Cloud Village, actually Lu Shige
-father and son were not home; they went north of the river to the city of Baoying, to
-visit their in-laws, Cheng Da Xiaojie’s [Eldest Miss Cheng] family. You know that the
-Zhuangzhu [Village Master] had learned building technique from my father according
-to the ‘wu xing ba gua’ [five ways eight diagram]. As soon as the Old Poison stepped
-into the village, he felt something was not right. He wanted to pull me out of there, but I
-entered to the east and turned to the west, very soon he lost my track. Hard as he tried,
-he could not find me, and in his anger he burned the Cloud Village down.”
+[^wuxing-bagua]: Wu Xing Ba Gua (五行八卦) adalah 'Lima Elemen Delapan Diagram'. Baca lagi mengenai [Delapan Diagram](referensi-karakter.md#ba-gua) dan [Lima Elemen](referensi-karakter.md#wuxing-qimen) di halaman lain.
 
-“Ah!” Guo Jing gasped, “I did stop by the Cloud Village looking for you, but I found it in
-rubble. Turned out it was the Old Poison’s doing.”
+"Ah!" seru Guo Jing, terkesiap. "Aku memang mampir ke Gui Yun Zhuang mencarimu, tapi aku menemukannya dalam 
+keadaan payah, tinggal puing-puing. Ternyata itu perbuatan Racun Tua."
+
 
 “I knew he was going to destroy the village,” Huang Rong said, “So I warned everybody
 to get out. Although he could not catch me, the Old Poison is really evil and cruel. He
