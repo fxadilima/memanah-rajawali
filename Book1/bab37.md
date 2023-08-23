@@ -989,7 +989,7 @@ dan bertanya, "Jing Gege, menurutmu kita masih harus mengampuninya kali ini?"
 Huang Rong tersenyum. "Aku punya ide," katanya. "Kau tidak harus melanggar kesepakatan, tapi kau bisa membunuhnya
 untuk membalas dendam guru-gurumu."
 
-Guo Jing kegirangan. "Rong'er, kau ini sungguh banyak akal bukus," katanya. "Coba katakan apa idemu?"
+Guo Jing kegirangan. "Rong'er, kau ini sungguh banyak akal bulus," katanya. "Coba katakan apa idemu?"
 
 Huang Rong tersenyum. "Ini tidak sulit," katanya. "Kita biarkan saja Ouyang Feng makan angin Barat Laut selama
 sepuluh hari sepuluh malam. Biarkan dia kedinginan dan kelaparan, dia akan kelelahan setengah mati. Lalu kita 
