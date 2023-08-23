@@ -1002,473 +1002,406 @@ ya kan?"
 "Kita tunggu saja di bawah. Begitu dia sampai di bawah, kita bisa mulai melawannya. Kita akan punya bantuan dari
 tiga penatua Kai Pang. Lima orang melawan satu orang yang setengah mati, menurutmu kita bisa membunuhnya?"
 
+"Kita pasti bisa," kata Guo Jing. "Tapi dengan cara ini tidak terlalu sesuai dengan cara seorang pendekar, betul kan?'
+
+"Hei," omel Huang Rong. "Masa kita perlu bicara soal pendekar dengan orang jahat dan kejam? Apa dia pakai cara pendekar
+ketika membunuh lima orang gurumu?"
 
-“We certainly can,” Guo Jing said, “But this way we are not acting too gentlemanly,
-don’t you think?”
-
-“Hey,” Huang Rong scolded, “Do we need to talk gentlemanly toward this kind of evil
-and cruel man? Did he act gentlemanly when he killed your five masters?”
-
-Thinking about his benevolent masters’ cruel death, Guo Jing was enraged. He also
-thought that Ouyang Feng’s skill was so high that if he let him off this time, he might
-not find another opportunity to seek revenge. Therefore, he gritted his teeth and said,
-“Very well, let’s do it.”
-
-Two people went inside the tent. This time they discussed the Nine Yin Manual for real.
-They found out that the other party’s martial art was progressing tremendously, they
-were really grateful.
-
-After the discussion Guo Jing said, “That traitor Wanyan Honglie is inside the city wall.
-We know he is there, but there is nothing we can do. Can you think of some marvelous
-way to break the city’s defense?”
-
-Huang Rong was doubtful. “These past several days I have been racking my brain,” she
-said, “I can think of at least a dozen ways to do it, but none of these guarantees victory.”
-
-Guo Jing replied, “Within the Beggar Clan there are some brothers, perhaps a dozen of
-them, whose lightness kungfu is superb. What if they plus we, two people, try to climb
-the city wall?”
-
-Huang Rong shook her head. “Not that easy,” she said, “Every ‘zhang’ of the wall is
-heavily guarded by soldiers with bows and arrows. Let’s not talk about climbing the
-wall; once inside, there are more than a hundred-thousand troops. We can’t even force
-our way to open up the gate.”
-
-Two people talked all night long; they did not even go to sleep.
-
-The next day Genghis Khan attacked the city again. About ten thousand Mongolian sol-
-diers used rock-throwers, rained the city with large rocks. But the soldiers defending
-the city took shelter inside blockhouses; the stones devastated the common people’s
-residences, but the casualty among the defending troops was actually only a few. The
-attack went on until the third day. The Mongolian army had used hundreds of different
-tactics, but so far the result was minimal.
-
-On the fourth day snowflakes came floating down from the sky. Guo Jing looked up the
-peak and said, “I think we don’t have to wait for ten days, Ouyang Feng would be
-frozen to half-dead.”
-
-“His internal energy is very profound,” Huang Rong said, “Chances are he will survive
-for ten days.” She was just closing her mouth when both of them cried out in alarm;
-something was falling from the peak, it looked like Ouyang Feng.
-
-Huang Rong clapped her hands, “The Old Poison can’t take it anymore, he is killing
-himself!” she said; but straight away she called out in wonder, “Uh, strange! How did he
-do that?” Ouyang Feng did not fall straight down, but his body was floating in the sky
-like a kite.
-
-Jing and Rong, two people were extremely astonished; how could someone fall from
-thousands of ‘zhang’ tall mountain peak did not meet a violent death, but floating
-slowly instead? Could it be the Old Poison possessed some witchcraft?
-
-In the meantime, Ouyang Feng had fallen further down. Now two people could see
-clearly that he was naked, but there were two balloon-like things on top of his head.
-Suddenly Huang Rong understood what was going on, “It’s too bad!” she called out.
-
-Turned out when Ouyang Feng was stranded on the ‘bald wooden peak’, although his
-martial art was profound, he knew he could not slide down this thousand-zhang peak.
-After enduring several days of hunger and cold he had a sudden inspiration. He
-stripped down to his underpants and firmly tied his trousers into knots. Afraid that his
-trousers might not be enough, he took the robe and tied it to his pants, then tied the
-whole thing onto his waist. Clenching up his teeth he jumped down from the mountain
-peak.
-
-It was an extremely risky endeavor, but he was desperate; he had no other alternative.
-Once he jumped from the peak, his pair of trousers ballooned up and weakened his fall.
-He was naked, his hands were nearly frozen; he fought the cold and the wind by circu-
-lating his deep internal energy.
-
-Huang Rong was amused and upset at the same time; momentarily she was at lost on
-how to deal with this new development.
-
-By this time both armies inside and outside the city wall had found out about this; tens
-of thousand pairs of eyes looked up to see this flying man in the sky. Many low-ranking
-soldiers thought it was a deity descending to the earth; they all knelt down on the
-ground, worshiping.
-
-Guo Jing saw the direction Ouyang Feng was falling; looked like he was going to land
-inside the city wall. He waited until Ouyang Feng was dozens of ‘zhang’s away, then
-grabbing an iron bow and an arrow he shot Ouyang Feng’s body. He thought being air-
-borne, Ouyang Feng would not be able to fend off; however, he still remembered his
-agreement to spare Ouyang Feng’s life three times, so he aimed at a non-fatal spot;
-Ouyang Feng’s thigh.
-
-While he was airborne, however, Ouyang Feng opened his eyes wide, looking to all di-
-rections. He saw the arrow coming his way, he bent his waist, swept his legs and struck
-down Guo Jing’s arrows one by one.
-
-Although in a different army unit, Genghis Khan was also aware of Guo Jing’s agree-
-ment. He ordered his troops to shoot arrows. Immediately tens of thousands arrows
-shot out like a swarm of locusts flying toward Ouyang Feng.
-
-Even if he had a thousand hands and ten thousands legs, it was no way Ouyang Feng
-could knock all the arrows down. He was naked, and being airborne his movement was
-limited; perhaps very soon he would look like a porcupine. In this dire situation
-Ouyang Feng let his hands go, he fell down head first to the ground. Hundreds of thou-
-sands people shouted with one voice, the noise was earth-shattering.
-
-Amazingly Ouyang Feng flexed his waist midair and threw himself toward a flag inside
-the city. That time the northwesterly wind was blowing very strong, the flag fluttered
-straight from west to east. Ouyang Feng stretched out his left hand and grabbed the cor-
-ner of the flag, tearing it into two pieces. Borrowing the strength of the flag, Ouyang
-Feng made a somersault, hurling his legs toward the flag pole. Hugging the pole he slid
-downward and vanished inside the city wall.
-
-Both armies witnessed this marvelous show, they talked about it to each other, momen-
-tarily forgot they are in the midst of a battle.
-
-“This can’t be considered sparing his life,” Guo Jing thought, “How can I still have to
-spare his life next time? Rong’er must be very upset.” Who would have thought that as
-he turned his head he saw Huang Rong’s eyes were gleaming with smile on her face.
-Quickly he asked, “Rong’er, what’s wrong? Why are you so happy?”
-
-Huang Rong clapped her hands and laughed, “I present to you a great gift, wonder if
-you’ll like it or not?”
-
-“What gift?” Guo Jing asked.
-
-“The City of Samarkhand,” Huang Rong replied.
-
-Guo Jing was dumbstruck.
-
-“The Old Poison has taught me a method to break the city’s defense,” Huang Rong said,
-“Go and prepare your troops. Tonight you will render a great service.” Then she whis-
-pered in Guo Jing’s ear, explaining what to do next. Once he understood, Guo Jing was
-so happy that he repeatedly cheered and applauded.
-
-That afternoon Guo Jing issued a secret order, assigned his troops to take their tents
-down and cut them into round umbrella shapes; then to tie leather ropes to this um-
-brella. He wanted ten thousands of umbrellas to be sewn and ready within an hour.
-
-All the officers and soldiers were puzzled. They thought without tents in this bitter cold
-weather, the nights were unendurable. But the commander-in-chief had issued an or-
-der; they had no alternative but to comply.
-
-Guo Jing also ordered his army to gather the cattle and sheep under the snowy peak.
-Furthermore he assigned a ten thousand men unit to be ready outside the north gate in
-four battle formations: ‘tian fu’ [sky high], ‘di zai’ [strong earth], ‘feng yang’ [scattered
-wind], and ‘yun chui’ [dangling cloud]; ready to assault the enemy. Then he placed an-
-other ten thousand men unit on the either sides of the north gate in four battle forma-
-tions: ‘long fei’ [flying dragon], ‘hu yi’ [winged tiger], ‘niao xiang’ [soaring bird], and
-‘she pan’ [coiled snake]. Their main assignment was to drive the enemy into the first
-unit’s ambush. The third ten thousand men unit was readied on the side to be deployed
-later.
-
-That evening Guo Jing’s troops ate their provisions until everybody was satisfied, then
-the two ten-thousand men units moved to their appointed position on the north gate.
-Around the end of the eleventh hour, early the twelfth hour [approximately 9pm] Guo
-Jing dispatched one of his guards to report to the Great Khan, asking him to dispatch
-the army to surround the city, for the gates were about to be broken. Genghis Khan was
-surprised, he was doubtful. He told the guard to go and summon Guo Jing to his Golden
-Tent. That guard replied, “The Golden Blade Consort [jin dao fu ma] at this very moment 
-has already led his troops to launch an attack. He is waiting for the Great Khan to
-render assistance.”
-
-Right around that moment a horn sounded from the direction of Guo Jing’s troops;
-about a thousand soldiers started to butcher the cattle and the sheep, building the
-sheep ladder on the peak wall. The Beggar Clan disciples with their high level of mar-
-tial arts skill went up and down lending their hands; very soon dozens of ‘sheep lad-
-ders’ were constructed.
-
-Guo Jing shouted his command, and was the first to go up the peak. Ten thousand offi-
-cers and soldiers followed, with long ropes tied to their waists, slowly climbing up the
-ladder. They were all under a strict order that was issued earlier not to make any noise
-at all.
-
-In the dark night dozens of long strings of soldiers crawling and twisting like gigantic
-dragon slithering up the peak.
-
-The top was actually not very wide, so it was impossible to hold ten thousand men at
-once. As soon as he had gathered enough people, Guo Jing led the soldiers to tie the um-
-brella to their waist; then with unsheathed weapons in their hands they were ready to
-leap into the city. Their target was the south gate.
-
-With a clap of his hands Guo Jing was the first to jump down, followed by several hun-
-dreds of the Beggar Clan disciples.
-
-Actually this jumping down from the peak was very dangerous, but the Mongolian sol-
-diers were very brave. Earlier that day they saw Ouyang Feng had jumped from the
-peak with a pair of trousers as his parachute; they believed their umbrellas were a lot
-safer than the trousers; moreover, their commander-in-chief had given them the exam-
-ple; therefore, one by one they leaped down courageously. Very soon the sky was full
-with thousands of blooming parachutes, taking the officers and soldiers slowly down.
-
-Huang Rong was sitting on an ice block on the peak. She saw the first phase of their
-plan was successfully completed; she could not help but feeling ecstatic. “Whether
-Genghis Khan can break the city defense or not, it has nothing to do with me. But if Jing
-Gege listens to what I say, he can seize the opportunity to do great things.”
-
-Once his feet landed on the ground Guo Jing tore the parachute from his waist, bran-
-dishing his big saber he fiercely swept the defending troops. By that time there were
-some defending troops on night watch duty. They saw thousands of enemy troops descending 
-from the sky; they were amazed and scared, they lost their will to fight.
-Moreover, those who landed first were the Beggar Clan disciples, each one skilled in
-martial art. In a short moment they were approaching the city gate.
-
-After that the Mongolian army successively landed. Although there were some soldiers
-who lost their lives because their parachutes failed to open, but in ten soldiers, nine ac-
-tually made it to the ground safe and sound. Some of them were blown away by the
-strong wind and landed outside the city gate; some landed separate from their unit,
-these soldiers were either captured or killed by the enemy. But those who landed suc-
-cessfully were numbered around one or two thousands. Guo Jing ordered half of them
-to fight the enemy, while the other half moved toward the city gate.
-
-Genghis Khan saw Guo Jing’s troops flew into the city, he was amazed and pleasantly
-surprised. He ordered all three units of his army to attack concurrently. They saw the
-south gate was widely open; several hundreds Mongolian soldiers with spears in their
-hands guarded the gate, letting several thousands of their companions enter the city;
-and then they immediately joined themselves with Guo Jing’s troops, decimating the
-enemies.
-
-The hundred-thousand defending troops were in panic; they did not know where the
-enemy came from. The Mongolians killed and splashed oil everywhere, setting the city
-on fire. The inferno reached the sky, Khoresm army was in total chaos.
-
-It was almost dawn, the defending troops were scattered everywhere. The Khoresm
-king, Muhammad, received a report that there was no enemy at the north gate, so he
-rushed to the north to escape. Unexpectedly to him, Guo Jing’s ten thousand men had
-already waited at the either sides of the north gate; arrows and spears moved and
-made a great kill.
-
-Muhammad did not want to prolong the fight. He ordered Wanyan Honglie to com-
-mand the defending troops, while he took his personal guards trying to save his own
-life.
-
-Guo Jing’s sole purpose was to find Wanyan Honglie; seeing his golden helmet flashing
-among the chaotic battle, Guo Jing ordered his troops to hunt him down. The Khoresm
-army knew they had lost, but their number was greater; they fought desperately, al-
-most to the point of disregarding their own lives. Guo Jing’s troops were smaller, their
-movement was hindered. From the front came a fast horse reporting that the enemy
-troops soon would make a break through.
-
-Guo Jing remembered the military strategy book had this saying, “Do not eat enemy’s
-bait, do not stop retreating troops. Surrounded troops are not necessarily weak, ex-
-hausted enemy should not be pursued too far.” He issued an order to change tactic im-
-mediately. His signal flag unfolding, the four formations: sky, earth, wind and cloud,
-dispersed to surround the enemy. By that time the enemy troops remained around the
-palace was about ten thousand men; although all were warriors, but they realized the
-imminent defeat and had lost their fighting spirit; they were easily captured by Guo
-Jing’s troops.
-
-Guo Jing examined the prisoners, but did not see Wanyan Honglie among them. Even
-though he had achieved victory, but his heart was unavoidably discontented.
-
-By daybreak the city defense was completely destroyed. Genghis Khan held a general
-assembly inside Muhammad’s imperial palace. Guo Jing was in the process of going
-through his troops, taking care of the dead and comforting the wounded, when he
-heard the Great Khan’s golden horn sounded. Immediately he rushed toward the royal
-palace.
-
-By the palace gate he saw a small squad of soldiers; Huang Rong, Lu Youjiao and the
-other elders were standing among them. Huang Rong clapped her hands and two sol-
-diers stepped forward carrying a big gunnysack. She smiled and said, “Hey, can you
-guess what’s inside this sack?”
-
-Guo Jing laughed, “This city has all kinds of strange and wonderful things, how can I
-guess?” he said.
-
-“This one is my gift to you, I am sure you will like it,” Huang Rong said.
-
-Suddenly Guo Jing remembered; could it be that she found a good looking woman in
-the city and gave her to him as a joke? Quickly he shook his head, “I don’t want it,” he
-said.
-
-Huang Rong laughed, “Are you sure?” she asked. “You can’t change your mind after you
-see it.”
-
-Immediately she shook the sack and indeed somebody rolled out of it. His hair was di-
-sheveled, his face was full of blood; he was wearing a Khoresm army uniform. Guo Jing
-looked at his face intently, and to his awe, found out that he was the Great Jin’s Prince
-Zhao, Wanyan Honglie. Guo Jing was ecstatic, “Amazing! Where did you capture him?”
-he asked.
-
-Huang Rong said, “I saw the defeated and dispersed soldiers were fleeing toward the
-north gate. A squad of soldiers bearing the Prince Zhao’s banner were heading east
-with someone wearing a golden helmet leading them. I thought this scoundrel Wanyan
-Honglie was slyer than that; in no way would he blatantly flaunt the Prince Zhao’s ban-
-ner in time of defeat. I thought if his banner flew to the east, he must be running to the
-west; so I took Elder Lu and the others to prepare an ambush in the west. We did in-
-deed capture this scoundrel immediately.”
-
-Guo Jing bowed deeply to her, he said, “Rong’er, you have avenged my dear father for
-me. I really don’t know how to express my gratitude.”
-
-Huang Rong pursed her lips and smiled, “It was just a coincidence. You have rendered
-this great service, the Great Khan will generously reward you. Won’t that be great?” she
-said.
-
-“I don’t want anything,” Guo Jing said.
-
-Huang Rong stepped to the side and whispered, “Come here.” Guo Jing followed. “You
-really don’t want anything in the world?” Huang Rong asked.
-
-Guo Jing was taken aback, “All I want is never to be separated from you anymore,” he
-earnestly said.
-
-Huang Rong smiled. “Today you have rendered this great service. Whatever you ask, I
-believe the Great Khan won’t get angry at you.”
-
-“Hmm,” Guo Jing still did not understand. Huang Rong continued, “Right this moment if
-you ask him to appoint you as some high ranking official, he won’t deny it. If you ask
-him not to appoint you, it will also be difficult for him to deny. Important thing is, you
-have to make him promise in advance. Whatever you ask, he has to grant it.”
-
-“Right!” Guo Jing said.
-
-Listening to his short reply ‘Right!’ without saying anything else, Huang Rong shook her
-head; she was mad. “Looks like becoming the Golden Blade Consort is the best thing
-that ever happened to you, isn’t it?”
-
-Her words made Guo Jing understand, he called out, “Hmm, I understand. You want me
-to ask the Great Khan to cancel my marriage; but I have to make sure he promises in
-advance he won’t deny whatever I ask.”
-
-Huang Rong was hurt, “It all depends on you. You probably do want to be the Consort?”
-
-“Rong’er,” Guo Jing said, “Sister Huazheng treats me with nothing but sincerity, but my
-love to her is a brotherly love. At first I thought I was holding to my gentleman’s agree-
-ment, since I did not object to the marriage arrangement a long time ago. But if the
-Great Khan is willing to nullify the agreement, that would certainly satisfy all parties
-involved.”
-
-Huang Rong was overjoyed; she cast a sidelong glance to him with the sweetest smile
-on her face. Guo Jing wanted to stay and talk with her some more, but the horn was
-sounded for the second time from the palace. He placed his hand on hers and said,
-“Rong’er, wait for my good news here.” He dragged Wanyan Honglie inside the palace
-to see the Great Khan.
-
-Genghis Khan was very delighted to see Guo Jing arrived; he left his throne to greet
-him, and then took his hand to enter the hall together. He ordered Guo Jing to take a
-stool covered with embroidery work and tell him to sit next to him. Listening to Guo
-Jing’s report on the capture of Wanyan Honglie he was even happier. Seeing Wanyan
-Honglie kneel down in front of him Genghis Khan lifted his right foot to tread on
-
-Wanyan Honglie’s head. Smiling broadly he said, “That day you came to Mongolia
-flaunting your military power and prestige, did you ever think that there will come a
-day like today?”
-Wanyan Honglie knew his death was imminent, he raised his head boldly and said,
-“That time my Great Jin country was rich and powerful. I regret the fact that we did not
-extinguish your tiny Mongolia early on, rather than living to this day.”
-
-Genghis Khan laughed a big laugh, ordering his guard to take Wanyan Honglie out and
-behead him in front of the palace. Guo Jing remembered his father’s death was finally
-avenged; his heart was filled with happiness and grief.
-
-Genghis Khan said, “I have promised that whoever breaks the city defense and capture
-Wanyan Honglie I will give this city’s women and children, with all its gold and silk. Go
-ahead and receive your rewards.”
-
-Guo Jing shook his head, “My mother and I have enjoyed the Great Khan’s benevolence.
-We have enough food and clothing. I don’t have any use of slaves or gold and silk.”
-
-“Good,” Genghis Khan said, “That was precisely the true quality of a hero. What then
-you do want? All you have to do is ask, I will not deny anything.”
-
-Guo Jing left his seat and bowed in front of the Khan. “I do have a favor to ask; Great
-Khan, please do not get angry,” he said.
-
-Genghis Khan laughed, “Just say it,” he said.
-
-Guo Jing was about to talk about the betrothal when suddenly he heard a heart-rend-
-ing, earth-shaking cry of thousands of people from a distance. The assembled generals
-leaped up from their seats, unsheathing their weapons. They thought the surrendered
-Khoresm soldiers and people suddenly staged a rebellion; they were ready to dash out
-and suppress it. Genghis Khan laughed. “It’s all right! It’s all right!” he said, “This dog
-city refuses to subdue under the Heaven’s power, had killed many of my officers and
-soldiers, it even killed my beloved grandson; it has to be cleansed by slaughter. Let us
-go and take a look.” He left his seat immediately followed by the generals.
-
-They left the palace on horseback heading toward the western part of the city. The
-nearer they got, the more miserable the cry became. Just outside the city gate they saw
-hundreds of thousands common people running around wailing loudly, they pushed
-and rolled and threw themselves down in panic, with Mongolian soldiers on horseback
-chasing them, killing the people with long sabers.
-
-Earlier the Mongolian soldiers ordered all the inhabitants to go out of the city, nobody
-was left behind. At the beginning the people thought the Mongolians were going to
-search for spies among them; who would have thought that after searching for weap-
-ons, they also searched for all kinds of valuables; then they took all good looking young
-women, married or not, tied them together with long ropes. Samarkhand’s residents
-now realized that they were facing a grave danger. Some people showed resistance, but
-they were killed immediately with long sabers. Finally several thousands of Mongolian
-soldiers with loud battle cries charged toward these people, and went on a killing spree
-with their long sabers. Male or female, young or old, they were randomly chopped
-down. This massacre was truly with unprecedented brutality; from white or gray
-haired old men and women, to babies on their mothers’ arms, nobody could escape by
-luck.
-
-When Genghis Khan and his entourage arrived to watch; more than ten thousands peo-
-ple had already fallen victim to the soldiers’ brutality; flesh and blood splattered to all
-directions, the Mongolian horses’ iron horseshoes tread on corpses everywhere; going
-back and forth among the people and kill some more.
-
-Genghis Khan laughed big and called out, “Kill well! Kill well! Let them know my
-fierceness.”
-
-After watching for a short moment, Guo Jing could not endure patiently, he dashed to
-the front of Genghis Khan’s horse and called out, “Great Khan, please spare their lives.”
-
-Genghis Khan waved his hand, shouted loudly, “Kill them all, don’t leave anybody
-standing.”
-
-Guo Jing did not dare to say anything, but then he saw a boy about seven, eight years
-old, dash out from the crowd and threw himself down at a woman who was just
-knocked down by a horse, calling out, “Mama!” A Mongolian soldier dashed in and
-swung his long saber, mother and son were chopped into four parts. The child’s hands
-were still clutching tightly to his mother.
-
-Guo Jing’s blood boiled; he forgot everything and called out, “Great Khan, you said that
-this city’s women and children, along with all gold and silk are mine; why did you give
-your order to massacre them?”
-
-Genghis Khan was startled; he smiled, “You said you didn’t want it.”
-
-“You said that whatever I ask you, you will not deny it, didn’t you?” Guo Jing asked.
-
-Genghis Khan nodded, still smiling.
-
-With a loud voice Guo Jing said, “The Great Khan’s words are like a mountain; I am ask-
-ing you to spare this tens of thousands lives.”
-
-Genghis Khan was greatly astounded, not in his wildest dream would he guess Guo Jing
-would ask him this; but he had already given his promise, how could he refuse? He was
-enraged, his eyes blazing with fire looking at Guo Jing. His hand squeezed his saber’s
-hilt, he roared, “Kid, you really want this?”
-
-All the princes and generals were scared to see Genghis Khan this angry. Genghis Khan
-was surrounded by brave warriors, each one had fought countless battles, none were
-weak or had a feeble heart, they faced death straight in the face; but facing Genghis
-Khan’s anger they could not help but tremble.
-
-Guo Jing had never seen Genghis Khan look at him this way, he was also extremely
-scared; his body could not stop shivering, but he said, “I am asking the Great Khan to
-spare these people’s lives.”
-
-With a low growling voice Genghis Khan asked, “You won’t regret it?”
-
-Guo Jing remembered Huang Rong told him to ask for cancellation of his betrothal;
-now he let this good opportunity slipped away. He had lost the Great Khan’s favor for-
-ever, which he didn’t mind; but he actually realized his relationship with Huang Rong
-was just being thrown down the drain. He had seen and heard these hundreds of thou-
-sands common people wailing pitifully; how could he see others facing death and do
-nothing? Therefore, boldly he said, “I won’t regret it.”
-
-Genghis Khan heard his trembling voice, he knew Guo Jing was scared to death, but
-still he boldly made a request. He was forced to admire Guo Jing’s guts; drawing a long
-saber he called out, “Withdraw troops!”
-
-His guard blew the horn. Tens of thousands Mongolian cavalry with blood all over their
-bodies reined their horses and arranged themselves in neat formation.
-
-Since Genghis Khan became the Great Khan, nobody had ever dared to defy his order.
-This time Guo Jing bravely hampered his order to massacre the city; he was really an-
-gry. With a loud shout he threw his long saber to the ground; then sped his horse back
-to the city.
-
-The other generals cast their angry looks toward Guo Jing; now that the Great Khan
-was angry who knew who would be unlucky enough to bear the brunt of his anger.
-They were also discontented, since as Samarkhand’s defense was broken, they were
-hoping to plunder and kill to their hearts’ content for several days; but now their hopes
-were shattered.
+Berpikir tentang guru-gurunya yang mulia tewas dengan cara keji, Guo Jing murka. Ia juga berpikir bahwa kungfu 
+Ouyang Feng begitu tinggi, kalau ia melepaskan orang itu sekarang, ia belum tentu akan mendapat kesempatan lain
+untuk membalas dendam. Karena itu ia menggertakkan giginya dan berkata, "Baiklah, kita lakukan seperti itu."
+
+Keduanya masuk ke dalam tenda. Kali ini mereka benar-benar mendiskusikan Jiu Yin Zhen Jing. Mereka saling menemukan 
+fakta bahwa pasangannya telah mengalami kemajuan cukup pesat, mereka sangat bersyukur.
+
+Setelah diskusi itu selesai Guo Jing berkata, "Si keparat Wanyan Honglie itu ada di dalam tembok kota. Kita tahu
+dia ada di sana, tapi kita tidak bisa berbuat apa-apa. Kau punya cara untuk menjebol pertahanan kota itu?"
+
+Huang Rong ragu-ragu. "Beberapa hari ini aku sudah memeras otak," katanya. "Aku punya setidaknya selusin cara untuk 
+melakukannya, tapi tak ada satu pun yang bisa kujamin pasti sukses."
+
+Guo Jing menjawab, "Di antara anggota Kai Pang ada beberapa saudara, mungkin belasan orang, yang punya _qinggong_
+bagus. Bagaimana kalau kita berdua, ditambah mereka, mencoba memanjat tembok kota?"
+
+Huang Rong menggelengkan kepalanya. "Itu tidak gampang," katanya. "Setiap _zhang_ dari tembok itu dikawasl ketat
+oleh prajurit bersenjata busur dan anak panah. Tidak perlu cerita soal memanjat tembok. Begitu sampai di dalam,
+ada lebih dari seratus ribu orang prajurit. Kita bahkan tidak bisa memaksa diri untuk membuka pintu gerbang."
+
+Keduanya bicara sepanjang malam, mereka bahkan tidak tidur.
+
+Hari berikutnya Genghis Khan menyerang kota lagi. Sekitar sepuluh ribu prajurit Mongolia menggunakan alat 
+pelempar batu, menghujani kota itu dengan batu-batu besar. Tetapi para prajurit yang mempertahankan kota 
+bersembunyi di rumah-rumah petak. Batu-batu itu menghancurkan rumah-rumah penduduk, tetapi kerugian bagi 
+para prajurit yang bertahan itu sebetulnya sangat ringan. Serangan itu bertahan hingga hari ketiga, tetapi 
+sejauh ini hasilnya sangat kecil.
+
+Pada hari keempat salju melayang turun dari langit. Guo Jing memandang ke puncak tebing dan berkata, "Kupikir
+kita tidak perlu menunggu sampai sepuluh hari, Ouyang Feng pasti akan membeku setengah mati."
+
+"Tenaga dalamnya sangat kuat," kata Huang Rong. "Kemungkinan besar dia akan bertahan sampai sepuluh hari."
+Ia beru menutup mulutnya ketika mereka berdua menjerit kaget. Sesuatu _jatuh_ dari puncak itu, dan kelihatannya
+itu Ouyang Feng.
+
+Hang Rong bertepuk tangan. "Racun Tua tidak tahan lagi, dia bunuh diri!" katanya. Tapi ia langsung berseru
+sambil bertanya-tanya, "Uh, aneh! Bagaimana dia melakukannya?" Ouyang Feng tidak langsung jatuh ke bawah,
+tetapi tubuhnya melayang di udara seperti layang-layang.
+
+Guo Jing dan Huang Rong sangat takjub. Bagaimana caranya seseorang yang jatuh dari puncak gunung setinggi
+ribuan _zhang_ bisa tidak mati secara mengerikan, tetapi malah melayang perlahan-lahan? Mungkinkah Racun Tua
+menggunakan ilmu sihir?
+
+Pada saat itu Ouyang Feng telah jatuh lebih jauh. Sekarang keduanya bisa melihat dengan jelas bahwa ia telanjang,
+tetapi ada dua buah benda seperti balon di atas kepalanya. Tiba-tiba Huang Rong memahami apa yang terjadi. 
+"Gawat!" serunya.
+
+Ternyata ketika Ouyang Feng terdampar di Puncak Kayu Gundul itu, meskipun kungfunya hebat, ia tahu bahwa ia tidak
+bakal bisa meluncur ke bawah dari puncak setinggi ribuan _zhang_ ini. Setelah bertahan beberapa hari dalam 
+kelaparan dan kedinginan ia mendadak terinspirasi. Ia melepaskan semua pakaiannya, termasuk semua pakaian dalamnya,
+dan dengan kuat mengikat celananya menjadi beberapa simpul. Karena kuatir celananya mungkin tidak cukup, ia 
+mengambil jubahnya dan mengikatnya ke celananya, kemudian mengikatkan semuanya ke pinggangnya. Sambil menggertakkan 
+gigi ia melompat turun dari puncak gunung.
+
+Itu sebuah upaya yang penuh resiko, tapi ia dalam keadaan terdesak, ia tak punya alternatif lain. Sekali ia 
+melompat dari puncak itu, sepasang celananya menggelembung dan memperlemah lajunya ke bawah. Ia telanjang, kedua 
+tangannya nyaris membeku. Ia memerangi hawa dingin dan angin dengan cara mengedarkan tenaga dalamnya yang kuat 
+ke seluruh tubuh.
+
+Huang Rong merasa geli dan sekaligus kesal. Untuk sementara ia tidak tahu bagaimana harus menangani perkembangan
+masalah ini.
+
+Pada saat itu kedua pasukan di dalam dan di luar tembok kota telah melihat pemandangan itu. Puluhan ribu pasang
+mata melihat manusia terbang ini di udara. Beberapa prajurit berpangkat rendah mengira itu adalah seorang dewa
+yang turun ke bumi, mereka semua berlutut di atas tanah untuk menyembahnya.
+
+Guo Jing melihat arah jatuh Ouyang Feng, tampaknya ia akan mendarat di dalam tembok kota. Ia menunggu sampai 
+jarak Ouyang Feng tinggal puluhan _zhang_, kemudian ia mengambil sebuah busur dan anak panah untuk menembak
+tubuh Ouyang Feng. Ia mengira ketika sedang di udara Ouyang Feng tidak akan bisa menangkisnya. Tetapi bagaimanapun
+juga ia masih ingat akan kesepakatannya untuk mengampuni Ouyang Feng tiga kali, maka ia mengincar titik yang 
+tidak fatal, lutut Ouyang Feng.
+
+Sementara di udara, trenyata Ouyang Feng membuka matanya lebar-lebar, melihat ke semua penjuru. Ia melihat anak
+panah datang ke arahnya, ia menekuk pinggangnya, menyapu dengan kakinya dan memukul jatuh panah-panah Guo Jing
+satu per satu.
+
+Meskipun berbeda pasukan, tetapi Genghis Khan juga menyadari kesepakatan antara Guo Jing dengan Ouyang Feng.
+Ia memerintahkan pasukannya untuk menembakkan panah. Dengan segera puluhan ribu anak panah meluncur seperti
+gerombolan jangkrik terbang ke arah Ouyang Feng.
+
+Kalaupun punya seribu tangan dan sepuluh ribu kaki, mustahil bagi Ouyang Feng untuk memukul jatuh semua anak panah 
+itu. Ia telanjang, dan karena sedang di udara gerakannya sangat terbatas. Rasanya sebentar lagi ia akan tampak
+seperti landak. Dalam situasi mengerikan itu Ouyang Feng melepaskan tangannya, ia terjun bebas dengan kepala di bawah.
+Ratusan ribu orang berteriak dalam satu suara, suara yang timbul beyul-betul menggetarkan bumi.
+
+Secara menakjubkan Ouyang Feng melenturkan pinggangnya di tengah udara dan melemparkan diri ke arah sebuah bendera
+di dalam kota. Pada saat itu angin Barat Laut sedang bertiup kencang, bendera itu berkibar lurus dari barat ke timur.
+Ouyang Feng mengulurkan tangan kirinya dan menangkap salah satu sudut bendera, merobeknya menjadi dua. Meminjam 
+tenaga dari bendera itu, Ouyang Feng bersalto, melontarkan kakinya ke arah tiang bendera. Memeluk tiang bendera
+ia meluncur turun dan menghilang di dalam tembok kota.
+
+Kedua pasukan menyaksikan tontonan menakjubkan itu, mereka saling berbicara tentang hal ini, untuk sementara mereka
+lupa bahwa mereka sedang berperang.
+
+"Ini tidak bisa dihitung sebagai 'mengampunimu'," pikir Guo Jing. "Bagaimana aku masih bisa mengampuninya lain kali,
+Rong;er pasti akan marah." Tak terduga ketika ia memalingkan mukanya ia melihat mata Huang Rong sedang bersinar 
+kegirangan dan mukanya tersenyum. Buru-buru ia bertanya, "Rong'er, ada apa? Kenapa kau begitu senang?"
+
+Huang Rong bertepuk tangan dan tertawa. "Aku mempersembahkan seuah hadiah besar untukmu, entah kau menyukainya atau tidak?"
+
+"Hadiah apa?" tanya Guo Jing.
+
+"Kota Samarkand," jawab Huang Rong.
+
+Guo Jing terdiam.
+
+"Racun Tua mengajari aku bagaimana cara menjebol benteng pertahanan kota itu," kara Huang Rong. "Cepat siapkan pasukanmu.
+Malam ini kau akan mempersembahkan jasa besar." Kemudian ia berbisik ke telinga Guo Jing, menjelaskan apa yang harus 
+dilakukan selanjutnya. Begitu memahaminya, Guo Jing begitu kegirangan sampai ia bersorak dan bertepuk tangan berkali-kali.
+
+Siang itu Guo Jing mengeluarkan perintah rahasia, menugaskan pasukannya untuk membongkar tenda mereka dan memotong bahannya
+menjadi payung bundar, kemudian mengikat tali kulit ke payung itu. Ia menginginkan sepuluh ribu payung dijahit dan siap
+dalam waktu satu jam.
+
+Semua petugas dan prajurit itu terheran-heran. Mereka berpikir tanpa tenda di tengah cuaca dingin ini, malam hari akan tak
+tertahankan. Tetapi wakil komandan yang bertugas telah mengeluarkan perintah, mereka tak punya alternatif lain kecuali 
+mematuhinya.
+
+Guo Jing juga memerintahkan pasukannya untuk mengumpulkan anak sapi dan domba di bawah puncak bersalju itu. 
+Lebih jauh lagi ia menugaskan unit sepuluh ribu orang untuk siaga di luar pintu gerbang utara dalam 
+empat barisan perang: Tian Fu, Di Zai, Feng Yang dan Yun Chui, siap untuk menyerang. Kemudian ia menempatkan
+unit sepuluh ribu orang lainnya di kedua sisi lain pintu gerbang utara dalam empat formasi: Long Fei, Hu Yi,
+Niao Xiang dan She Pan. Tugas utama mereka adalah untuk menggiring musuh ke dalam jebakan unit pertama. Unit 
+sepuluh ribu orang yang ketiga dipersiapkan di samping untuk dikirim kemudian.
+
+Sore itu pasukan Guo Jing makan sampai puas, lalu dua unit sepuluh ribu orang bergerak ke posisi mereka 
+masing-masing di pintu gerbang utara. Sekitar akhir jam ke sebelas, awal jam ke dua belas, Guo Jing salah
+seorang pengawalnya untuk melapor kepada Genghis Khan, memintanya untuk mengirim pasukan untuk mengepung kota,
+karena pintu gerbang itu akan didobrak. Genghis Khan terkejut, ia sangat ragu. Ia memberitahu pengawal untuk
+pergi memanggil Guo Jing ke Tenda Emasnya. Pengawal itu menjawab, "Saat ini juga Pangeran Golok Emas telah 
+memimpin pasukannya untuk melancarkan serangan. Beliau menunggu Khan Agung untuk membantunya."
+
+Tepat pada saat itu suara terompet berbunyi dari arah pasukan Guo Jing. Sekitar seribu prajurit mulai 
+menyembelih anak sapi dan domba, membangun tangga kaki domba di dinding puncak. Para anggota Kai Pang dengan 
+kungfu mereka yang tinggi naik turun untuk mengulurkan tangan. Dengan sangat cepat lusinan tangga kaki domba
+telah terbangun.
+
+Guo Jing menyerukan perintahnya, dan ia adalah orang pertama yang mendaki ke puncak. Sepuluh ribu petugas dan 
+prajurit mengikutinya dengan tali panjang terikat di pinggang, perlahan-lahan mereka menaiki tangga itu. Mereka
+semua bekerja di bawah perintah ketat yang diberikan sebelumnya, yaitu supaya beroperasi tanpa suara.
+
+Di kegelapan malam puluhan deret panjang prajurit merangkak dan berputar seperti naga yang merayap ke puncak itu.
+
+Puncak itu sebenarnya tidak terlalu lebar, maka mustahil untuk menampung spuluh ribu orang sekaligus. Begitu ia
+berhasil mengumpulkan cukup banyak orang, Guo Jing memimpin para prajurit untuk mengikatkan payung ke pinggang 
+mereka, kemudian dengan senjata terhunus di tangan mereka siap melompat ke dalam kota. Sasaran mereka adalah
+pintu gerbang selatan.
+
+Dengan sebuah tepukan tangan Guo Jing adalah orang pertama yang melompat turun, diikuti oleh beberapa ratus
+murid Kai Pang.
+
+Sebenarnya lompatan dari atas puncak itu sangat berbahaya, tetapi para prajurit Mongolia sangat berani. Sebelumnya
+pada hari itu mereka telah melihat Ouyang Feng melompat dari puncak dengan sepasang celana sebagai parasut. Mereka
+yakin payung mereka jauh lebih aman ketimbang celana. Terlebih lagi, komandan mereka telah memberi contoh, karenanya
+satu per satu mereka melompat turun dengan berani. Dengan segera langit dipenuhi ribuan parasut yang mengembang, 
+membawa para petugas dan prajurit itu turun.
+
+Huang Rong duduk di atas es balok di puncak. Ia melihat tahap pertama rencana mereka telah diselesaikan dengan sukses.
+Ia tak bisa menahan kegirangannya. "Genghis Khan bisa menjebol pertahanan kota atau tidak, itu bukan urusanku. Tapi 
+kalau Jing Gege mendengarkan apa yang kukatakan, dia bisa meraih kesempatan untuk melakukan hal besar."
+
+Begitu kakinya mendarat di tanah Guo Jing merobek parasut dari pinggangnya, mengacungkan golok besarnya ia dengan 
+ganas menyapu pasukan pertahanan. Pada saat itu ada beberapa pasukan yang sedang bertugas jaga malam. Mereka melihat 
+ribuan pasukan musuh turun dari langit, mereka takjub dan takut, mereka kehilangan minat untuk bertempur. Terlebih 
+lagi, semua orang yang pertama kali mendarat adalah para murid Kai Pang, masing-masing orang adalah ahli silat. Dalam
+waktu singkat mereka mendekat ke pintu gerbang kota.
+
+Setelah itu pasukan Mongolia mendarat dengan sukses. Meskipun ada beberapa prajurit yang tewas karena parasutnya 
+tidak mengembang, tetapi sembilan dari sepuluh orang berhasil mendarat dengan selamat. Beberapa di antaranya tertiup
+angin dan mendarat di luar gerbang kota. Beberapa orang mendarat terpisah dari unit mereka, prajurit-prajurit ini 
+akhirnya tertangkap atau tewas di tangan musuh. Tetapi yang mendarat dengan sukses berjumlah antara seribu sampai 
+dua ribu orang. Guo Jing memerintahkan setengahnya untuk menggempur musuh, sementara setengah lainnya bergerak ke
+pintu gerbang kota.
+
+Genghis Khan melihat pasukan Guo Jing terbang memasuki kota, ia takjub dan terkejut karena senang. Ia memerintahkan 
+ketiga unit lain dari pasukannya untuk menyerang secara serempak. Mereka melihat pintu selatan terbuka lebar. Beberapa
+ratus prajurit Mongolia dengan tombak di tangan pengawal gerbang itu, membiarkan beberapa ribu rekan mereka memasuki 
+kota. Dan kemudian mereka segera menggabungkan diri dengan pasukan Guo Jing, menghancurkan musuh.
+
+Ratusan ribu pasukan yang mempertahankan kota panik, mereka tidak tahu dari mana datangnya musuh. Orang-orang Mongolia
+membunuh dan mengguyur minyak di mana-mana, membakar kota itu. Neraka itu mencapai langit, pasukan Khwarezmia kacau
+balau.
+
+Menjelang fajar, pertahanan kota tercerai-berai. Raja Khwarezmia, Muhammad, menerima laporan bahwa tidak ada musuh
+di pintu gerbang utara, maka ia bergegas menuju gerbang utara untuk melarikan diri. Di luar dugaannya, sepuluh ribu 
+prajurit Guo Jing telah menantinya di kedua sisi pintu gerbang utara. Panah dan tombak bergerak dan membunuh 
+sejumlah besar orang.
+
+Muhammad tidak ingin memperpanjang pertempuran. Ia memerintahkan Wanyan Honglie untuk memimpin pasukan pertahanan,
+sementara ia membawa para pengawal pribadinya untuk berusaha menyelamatkan nyawanya sendiri.
+
+Tujuan Guo Jing satu-satunya adalah menemukan Wanyan Honglie. Melihat helmnya berkilau di tengah kekacauan perang, 
+Guo Jing memerintahkan pasukannya untuk memburunya. Pasukan Khwarezmia tahu bahwa mereka telah kalah, tapi jumlah
+mereka lebih besar. Mereka bertempur mati-matian, nyaris di titik mengabaikan keselamatan sendiri. Pasukan 
+Guo Jing lebh kecil, pergerakan mereka terbatas. Dari depan datang seekor kuda cepat melaporkan bahwa pasukan musuh 
+dengan segera akan menerobos masuk.
+
+Guo Jing ingat sebuah ajaran dari buku strategi militer, "Jangan makan umpan musuh, jangan menghentikan pasukan 
+yang sedang mundur. Pasukan yang terkepung belum tentu lemah, musuh yang kelelahan tidak boleh dikejar terlalu jauh."
+Ia mengeluarkan perintah untuk segera mengubah taktik. Panji-panji isyaratnya terbuka, empat barisan: Tian Fu,
+Di Zai, Feng Yang dan Yun Chui, menyebar untuk mengepung musuh. Pada saat itu pasukan musuh yang tersisa di istana
+adalah sekitar sepuluh ribu orang. Meskipun semuanya adalah pejuang tangguh, tetapi mereka menyadari kekalahan dan
+telah kehilangan semangat bertempur. Mereka dengan mudah ditangkap oleh pasukan Guo Jing.
+
+Guo Jing mengamati para tawanan itu, tetapi tidak melihat Wanyan Honglie di antara mereka. Meskipun ia telah
+mencapai kemenangan, tetapi hatinya tidak puas.
+
+Pada saat fajar pertahanan kota itu telah hancur total. Genghis Khan menggelar rapat umum di dalam istana Muhammad.
+Guo Jing sedang mengurus pasukannya, menangani para korban dan menghibur yang terluka, ketika mendengar bunyi terompet
+emas Khan Agung. Ia bergegas menuju ke istana.
+
+Di dekat pintu gerbang istana ia melihat sekelompok kecil prajurit. Juang Rong, Lu Youjiao dan para penatua
+lainnya sedang berdiri di antara mereka. Huang Rong menepuk tangannya dan dua orang prajurit melangkah maju
+sambil membawa sebuah karung goni. Ia tersenyum dan berkata, "Hei, kau bisa menebak apa isi karung ini?"
+
+Guo Jing tertawa. "Kota ini punya banyak barang aneh dan luar biasa, mana aku tahu?" katanya.
+
+"Yang ini hadiah untukmu, aku yakin kau akan menyukainya," kata Huang Rong.
+
+Tiba-tiba Guo Jing teringat. Mungkinkah ia menemukan seorang perempuan cantik di kota itu dan memberikannya
+kepada dirinya untuk? Ia cepat-cepat meggelengkan kepalanya dan berkata, "Aku tidak menginginkannya," katanya.
+
+Huang Rong tertawa. "Kau yakin?" tanyanya. "Kau masih bisa berubah pikiran setelah melihatnya."
+
+Dengan segera ia mengguncangkan karung itu dan memang benar ada seseorang menggelinding keluar dari situ.
+Rambutnya acak-acakan, mukanya penuh darah. Ia memakai seragam pasukan Khwarezmia. Guo Jing melihat mukanya
+dengan teliti, dan ia takjub. Ia mengenalinya sebagai Pangeran Zhao dari Kekaisaran Jin, Wanyan Honglie.
+Guo Jing kegirangan. "Luar biasa! Di mana kau menangkapnya?" tanyanya.
+
+Huang Rong berkata, "Aku melihat para prajurit yang kalah dan tercerai-berai sedang melarkan diri ke arah 
+pintu utara. Sekelompok prajurit yang membawa panji-panji Pangeran Zhao sedang menuju ke timur dipimpin
+oleh seseorang yang memakai helm emas. Kupikir si keparat Wanyan Honglie ini lebih licik dari itu, tidak
+mungkin dia terang-terangan memamerkan panji-panji Pangeran Zhao di saat kalah. Kukira kalau panji-panji
+ini menuju ke timur, maka ia pasti ada di barat, jadi aku membawa Lu Zhanglao dan yang lain untuk menyiapkan 
+perangkap di barat. Kami ternyata benar-benar berhasil menangkap keparat ini dengan segera."
+
+Guo Jing membungkuk kepadanya, ia berkata, "Rong'er, kau membalaskan dendam ayahku. Aku sungguh tidak tahu bagaimana
+harus mengucapkan berterima kasih."
+
+Huang Rong memonyongkan bibirnya dan tersenyum. "Itu sih hanya kebetulan. Kau sudah berjasa besar, Khan Agung pasti 
+akan memberimu hadiah besar. Itu bagus, kan?" katanya.
+
+"Aku tidak menginginkan apa-apa," kata Guo Jing.
+
+Huang Rong melangkah ke samping dan berbisik. "Ke sini." Guo Jing mengikutinya. "Kau benar-benar tidak menginginkan
+apa-apa di dunia ini?" tanya Huang Rong.
+
+Guo Jing terkejut. "Yang kuinginkan hanya tidak berpiisah denganmu lagi," katanya dengan sungguh-sungguh.
+
+Huang Rong tersenyum. "Hari ini kau membuat prestasi besar. Apapun yang kau minta, aku yakin Khan Agung tidak akan
+marah kepadamu."
+
+"Hmm," gumam Guo Jing, ia masih tidak mengerti. Huang Rong melanjutkan, "Saat ini kalau kau memintanya untuk 
+mengangkatmu menjadi pejabat tinggi, dia pasti tidak akan menolaknya. Kalau kau minta supaya jangan mengangkatmu,
+dia juga akan sulit menolak. Yang penting adalah, kau harus membuatnya berjanji di depan. Apapun yang kau minta, dia 
+akan mengabulkannya."
+
+"Betul!" kata Guo Jing.
+
+Mendengarnya menjawab singkat "Betul!" tanpa mengatakan apapun lainnya, Huang Rong menggelengkan kepala. Ia marah.
+"Kelihatannya menjadi Pangeran Golok Emas adalah hal terbaik yang pernah terjadi dalam hidupmu ya?"
+
+Ucapannya membuat Guo Jing mengerti, ia berkata, "Hmm, aku mengerti. Kau ingin supaya aku meminta Khan Agung 
+membatalkan perkawinanku, tapi aku harus lebih dulu membuatnya berjanji bahwa dia tidak akan menolak apapun yang 
+kuminta."
+
+Huang Rong terluka. "Itu semua tergantung kepadamu. Kau mungkin saja memang ingin menjadi Pangeran Menantu!"
+
+"Rong'er," kata Guo Jing. "Huazheng Meizi memperlakukanku dengan tulus, tapi cintaku kepadanya adalah cinta seorang
+kakak. Mula-mula kupikir aku harus mematuhi kesepakatan yang kubuat, karena aku tidak menolak perjodohan itu 
+lama sebelumnya. Tapi kalau Khan Agung bersedia membatalkan kesepakatan itu, maka hal itu pasti akan memuaskan
+semua pihak yang terlibat."
+
+Huang Rong sangat bahagia, ia meliriknya dengan senyum paling manis tersungging di wajahnya. Guo Jing ingin
+tetap tinggal dan mengobrol dengannya lebih lama, tetapi terompet telah berbunyi kedua kalinya dari istana.
+Ia meletakkan tangannya di atas tangan Huang Rong sambil berkata, "Rong'er, tunggu kabar baik dari aku di sini."
+Ia menyeret Wanyan Honglie ke dalam istana untuk menemui Khan Agung.
+
+Genghis Khan sangat gembira melihat Guo Jing datang, ia meninggalkan singgasananya untuk menyapa Guo Jing, dan
+kemudian menggandeng tangannya untuk memasuki gedung bersama-sama. Ia memerintahkan Guo Jing supaya mengambil
+sebuah bangku yang dilapisi sulaman dan menyuruh Guo Jing duduk di sisinya. Mendengar laporan Guo Jing tentang
+tertangkapnya Wanyan Honglie, kegembiraannya bertambah. Melihat Wanyan Honglie berlutut di hadapannya, Genghis Khan
+mengangkat kaki kanannya untuk menginjak kepala Wanyan Honglie. Sambil tersenyum lebar ia berkata, "Hari itu
+kau datang ke Mongolia memamerkan kekuatan militer dan prestasimu, pernahkah kau berpikir bahwa akan datang
+hari seperti ini?"
+
+Wanyan Honglie tahu ajalnya sudah sangat dekat, ia mengangkat kepalanya dengan berani dan berkata, "Saat itu
+negaraku Jin Agung kaya raya dan kuat. Aku sangat menyesali kenyataan bahwa kami tidak memadamkan Mongolia
+kecilmu itu lebih awal, alih-alih hidup sampai hari ini."
+
+Genghis Khan tertawa terbahak-bahak, memerintahkan pengawalnya untuk membawa Wanyan Honglie keluar dan memenggalnya
+di depan istana. Guo Jing ingat kematian ayahnya akhirnya terbalas. Hatinya bahagia dan sekaligus sedih.
+
+Genghis Khan berkata, "Aku telah berjanji bahwa siapapun yang menjebol pertahanan kota dan menangkap Wanyan Honglie,
+aku akan memberinya para wanita dan anak-anak di kota ini, dengan semua emas dan sutra. Terimalah hadiahmu."
+
+Guo Jing enggelengkan kepalanya. "Ibuku dan aku sudah menikmati kebaikan hati Khan Agung. Kami tidak kekurangan 
+makanan dan pakaian. Aku tidak membutuhkan budak atau emas dan sutra."
+
+"Bagus," kata Genghis Khan. "Itulah kualitas dari seorang pahlawan sejati. Lalu apa yang kau inginkan? Kau hanya
+perlu mengatakannya, aku tidak akan menolak apapun."
+
+Guo Jing meninggalkan kursinya dan membungkuk di hadapan Khan. "Aku memang punya sebuah permohonan. Khan Agung,
+mohon jangan marah," katanya.
+
+Genghis Khan tertawa. "Katakan saja," katanya.
+
+Guo Jing hendak mengatakan tentang perjodohan ketika tiba-tiba ia mendengar jeritan yang menyayat hati dan 
+mengguncangkan bumi dari ribuan rakyat di kejauhan. Para jendral yang sedang berkumpul itu melompat dari 
+kursi mereka, menghunus senjata. Mereka mengira para prajurit Khwarezmia yang menyerah dan rakyat tiba-tiba
+memberontak.Mereka bersiap untuk lari keluar dan mengatasinya. Genghis Khan tertawa. "Tidak ada apa-apa!
+Tidak ada apa-apa!" katanya. "Kota anjing ini menolak untuk tunduk pada kekuatan Surga, membunuh banyak prajurit
+dan pejabatku, bahkan membunuh cucuku. Harus dibersihkan dengan menyembelih mereka. Mari kita pergi untuk 
+melihatnya." Ia segera meninggalkan tempat duduknya diikuti para jendral.
+
+Mereka meninggalkan istana menunggang kuda, menuju ke bagian barat kota. Semakin mereka mendekat ke tempat tujuan,
+semakin menyayat hati jeritan yang terdengar. Di luar pintu gerbang kota mereka melihat ratusan ribu rakyat
+berlarian sambil meratap keras-keras, salin dorong dan bergulingan dan menjatuhkan diri dengan panik, dikejar-kejar
+oleh para prajurit Mongolia di atas kuda, yang membunuh orang-orang itu menggunakan golok panjang.
+
+Sebelumnya para prajurit Mongolia memerintahkan seluruh penduduk untuk keluar dari kota, tak seorang pun ketinggalan.
+Awalnya rakyat mengira orang-orang Mongolia akan melacak mata-mata di tengah-tengah mereka. Di luar dugaan setelah 
+mencari-cari persenjataan, mereka juga mencari segala macam barang berharga. Kemudian mereka membawa wanita-wanita
+muda yang cantik, menikah ataupun tidak, mengikat mereka semua dengan tali panjang. Penduduk Samarkand sekarang 
+menyadari bahwa mereka sedang menghadapi malapetaka besar. Beberapa orang berusaha melakukan perlawanan, tapi 
+mereka segera tewas oleh golok panjang. Akhirnya beberapa ribu prajurit Mongolia dengan pekikan perang keras
+menyerbu rakyat itu, dan melanjutkan pesta pembunuhan itu dengan golok panjang mereka. Laki-laki dan perempuan,
+tua dan muda, mereka secara acak dipenggal. Pembantaian ini sungguh dilakukan dengan kebrutalan yang belum pernah 
+terjadi sebelumnya. Dari orang-orang tua berambut putih dan kelabu, sampai bayi-bayi di pelukan ibunya, tidak ada
+yang beruntung bisa lolos.
+
+Ketika Genghis Khan dan rombongannya tiba di situ untuk menyaksikan, lebih dari sepuluh ribu penduduk telah menjadi
+korban kebrutalan para prajurit. Daging dan darah berceceran di segala penjuru. Tapal besi kuda-kuda Mongolia
+menginjak-injak mayat di mana-mana, mondar-mandir di antara rakyat jelata dan membunuh lebih banyak orang.
+
+Genghis Khan tertawa terbahak-bahak dan berteriak, "Bagus! Bagus! Biar mereka tahu kekejamanku."
+
+Setelah menyaksikan adegan tersebut beberapa saat, Guo Jing tidak bisa menahan kesabarannya lagi, ia bergegas maju 
+ke depan kuda Genghis Khan dan berkata, "Khan Agung, mohon ampuni mereka."
+
+Genghis Khan melambaikan tangannya, berteriak lantang, "Bunuh mereka semua, jangan sisakan seorang pun!"
+
+Guo Jing tidak berani mengatakan apa-apa, tapi kemudian ia melihat seorang bocah berumur kira-kira tujuh-delapan tahun,
+menyelinap keluar dari kerumunan dan menjatuhkan diri di tubuh seorang wanita yang baru saja dijatuhkan oleh
+seekor kuda sambil berseru, "Mama!" Seorang prajurit Mongolia bergegas datang dan mengayunkan golok panjangnya,
+ibu dan anak itu terpotong menjadi empat bagian. Tangan anak itu masih mencengkeram ibunya erat-erat.
+
+Darah Guo Jing mendidih. Ia melupakan segalanya dan berseru, "Khan Agung, kau bilang bahwa semua wanita dan 
+anak-anak di kota ini, berikut semua emas dan sutra adalah milikku. Kenapa kau memberi perintah untuk 
+membantai mereka?"
+
+Genghis Khan terkejut, ia tersenyum. "Kau bilang kau tidak menginginkannya."
+
+"Kau bilang bahwa apapun yang kuminta, kau tidak akan menolaknya, bukan begitu?" tanya Guo Jing.
+
+Genghis Khan mengangguk, masih tersenyum.
+
+Dengan suara lantang Guo Jing berkata, "Ucapan Khan Agung adalah seperti gunung. Aku memintamu untuk mengampuni 
+puluhan ribu nyawa ini."
+
+Genghis Khan tercengang, dalam mimpi pun ia tidak menduga bahwa Guo Jing akan memintanya melakukan hal ini.
+Tetapi ia sudah berjanji, bagaimana ia bisa menolaknya? Ia sangat marah, matanya menatap Guo Jing berapi-api.
+Tangannya mencengkeram gagang goloknya, ia membentak, "Nak, kau sungguh-sungguh menginginkan ini?"
+
+Semua pangeran dan jendral ketakutan melihat Genghis Khan semarah itu. Genghis Khan dikelilingi oleh para
+pejuang pemberani, masing-masing telah berperang entah berapa kali, tak seorang pun lemah, mereka menghadapi
+kematian tepat di depan mata, tapi ketika menghadapi kemarahan Genghis Khan mereka mau tak mau gemetar.
+
+Guo Jing belum pernah melihat Genghis Khan menatapnya seperti ini, ia juga merasa sangat ngeri. Tubuhnya
+gemetaran tanpa henti, tetapi ia berkata, "Aku meminta Khan Agung untuk mengampuni nyawa orang-orang ini."
+
+Dengan geraman bernada rendah Genghis Khan bertanya, "Kau tidak akan menyesali hal ini?"
+
+Guo Jing teringat bahwa Huang Rong menyuruhnya meminta pembatalan pernikahannya, sekarang ia membiarkan kesempatan
+itu lepas dari tangannya. Ia kehilangan berkat dari Genghis Khan untuk selamanya, yang mana ia tidak keberatan,
+tetapi ia sungguh sadar hubungannya dengan Huang Rong baru saja terlempar ke tempat sampah. Ia melihat dan mendengar
+ratusan ribu rakyat jelata ini meratap memelas hati, bagaimana ia bisa melihat orang menderita dan berpangku tangan?
+Maka dari itu, dengan berani ia berkata, "Aku tidak akan menyesal."
+
+Genghis Khan mendengar suaranya gemetar, ia tahu Guo Jing ketakutan setengah mati, tapi ia tetap dengan berani
+mengajukan permohonan. Ia terpaksa mengagumi keberanian Guo Jing. Menghunus golok panjangnya ia berseru,
+"Tarik mundur pasukan!"
+
+Para pengawalnya meniup terompet. Puluhan ribu kavaleri Mongolia dengan darah di sekujur tubuh mereka mengekang kuda
+mereka dan berbaris rapi.
+
+Sejak Temujin menjadi Genghis Khan, tak pernah seorang pun berani membantah perintahnya. Kali ini Guo Jing dengan
+berani menghambat perintahnya untuk membantai kota. Ia benar-benar marah. Dengan teriakan lantang ia melemparkan
+golok panjangnya ke tanah, kemudian ia memacu kudanya kembali ke kota.
+
+Para jendral lainnya menatap marah ke arah Guo Jing. Sekarang setelah Genghis Khan marah, mana ada yang tahu siapa
+yang akan cukup sial untuk menjadi sasaran kemarahannya. Mereka juga tidak puas, karena sejak pertahanan Samarkand
+jebol, mereka berharap untuk merampas dan membunuh sepuasnya sampai beberapa hari, tetapi sekarang harapan mereka pupus.
+
+
 
 Guo Jing knew the resentment of others, but he ignored them all, he rode his little red
 horse slowly to a secluded place. Since the beginning of the war, thousands upon thou-
