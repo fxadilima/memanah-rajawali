@@ -987,7 +987,7 @@ dan bertanya, "Jing Gege, menurutmu kita masih harus mengampuninya kali ini?"
 "Ini adalah kali ketiga," kata Guo Jing. "Kita tidak boleh melanggar kesepakatan."
 
 Huang Rong tersenyum. "Aku punya ide," katanya. "Kau tidak harus melanggar kesepakatan, tapi kau bisa membunuhnya
-untuk membalas dendam gutu-gurumu."
+untuk membalas dendam guru-gurumu."
 
 Guo Jing kegirangan. "Rong'er, kau ini sungguh banyak akal bukus," katanya. "Coba katakan apa idemu?"
 
