@@ -854,72 +854,65 @@ membakar Rumah Awan."
 "Ah!" seru Guo Jing, terkesiap. "Aku memang mampir ke Gui Yun Zhuang mencarimu, tapi aku menemukannya dalam 
 keadaan payah, tinggal puing-puing. Ternyata itu perbuatan Racun Tua."
 
+"Aku tahu dia akan menghancurkan perkampungan itu," kata Huang Rong. "Jadi aku memperingatkan semua orang supaya
+mereka bisa lari. Meskipun dia tidak bisa menangkapku, tapi Racun Tua sangat jahat dan kejam. Dia selalu mengawasi
+jalan ke arah Pulau Bunga Persik, berharap bisa menangkapku di situ. Beberapa kali aku nyaris tertangkap. Setelah 
+itu aku lari ke Utara, ke arah perbatasan Mongolia, dan dia mengikutiku. Sha Gege, untungnya kau ini bodoh. Kalau
+kau secerdik Racun Tua, maka kalian berdua akan mengepung aku dari dua sisi, dan aku jadi tidak tahu harus pergi 
+ke mana."
 
-“I knew he was going to destroy the village,” Huang Rong said, “So I warned everybody
-to get out. Although he could not catch me, the Old Poison is really evil and cruel. He
-guarded the way toward the Peach Blossom Island, hoping to catch me there. Several
-times I was nearly caught. Afterwards I ran to the north, toward the Mongolian border,
-and he followed. ‘Sha gege’ [dumb big brother], luckily you are dumb. If you are as
-smart as the Old Poison, you two will surround me from both directions. I may not
-know where to hide.”
+Guo Jing hanya tersipu dan tersenyum konyol.
 
-Guo Jing simply blushed and smiled stupidly.
+"Tapi akhirnya kau mulai lebih pintar, kau bisa menekan Lu Youjiao untuk memikirkan sesuatu," kata Huang Rong.
 
-“But finally you are getting smarter, you knew how to push Lu Youjiao to think of
-something,” Huang Rong said.
+"Rong;er, kau yang mengajari aku," kata Guo Jing.
 
-“Rong’er, it was you who taught me,” Guo Jing said.
+Huang Rong tercengang. "_Aku_ mengajarimu?"
 
-Huang Rong was astonished, “I taught you?”
+"kau mengajar di dalam mimpiku," jawab Guo Jing. Lalu ia menceritakan mimpinya malam itu.
 
-“You taught me in a dream,” Guo Jing replied. Then he told her the dream he had the
-other night.
+Kali ini Huang Rong tidak menertawakan dia, bahkan sesungguhnya hatinya tergerak. Ia buru-buru berkata, "Orang-orang 
+kuno biasa mengatakan bahwa kejujuran dan ketulusan bisa membuka logam dan batu. Kau berpikir tentang aku dan 
+merindukan aku sampai sejauh ini, seharusnya aku membiarkanmu melihatku lebih awal."
 
-This time Huang Rong did not laugh at him, in fact, her heart was moved. She said qui-
-etly, “The people of ancient times used to say that perfect honesty and sincerity could
-open up metal and stone. You think about me and miss me this much; I should’ve let
-you see me sooner.”
+"Rong'er," kata Guo Jing. "Nantinya kau tidak akan meninggalkanku lagi selamanya, bukankah itu bagus?"
 
-“Rong’er,” Guo Jing said, “Later on you will never leave me forever, won’t that be
-good?”
+Huang Rong menyapukan pandangannya ke arah struktur luar biasa yang berserakan di puncak itu. "Jing Gege,
+aku kedinginan," katanya, agak mendadak.
 
-Huang Rong swept her gaze around the marvelous structures cluttered on the peak.
-“Jing Gege, I am cold,” she suddenly said.
+Guo Jing cepat-cepa menanggalkan mantel bulunya sendiri dan mengenakannya di tubuh Huang Rong. "Ayo kita turun,"
+katanya.
 
-Guo Jing hastily took his own fur coat off and wrapped it on Huang Rong’s body. “Let us
-go down,” he said.
+"Baik," kata Huang Rong. "Kita kembali ke sini besok malam. Aku akan menjelaskan Jiu Yin Zhen Jing secara terperinci
+kepadamu."
 
-“All right,” Huang Rong said, “We’ll come back here tomorrow night. I am going to ex-
-plain the Nine Yin Manual in detail for you.”
+Guo Jing tercengang. "Apa?" tanyanya.
 
-Guo Jing was astounded, “What?” he asked.
+Tangan kanan Huang Rong masih memegang tangan kiri Guo Jing, ia meremas tangannya dan berkata, "Ayahku sudah 
+menerjemahkan bagian terakhir kitab itu, di mana ada kalimat-kalimat kacau. Aku akan menjelaskan semuanya besok 
+malam."
 
-Huang Rong’s right hand was still holding Guo Jing’s left hand; she squeezed her hand
-and said, “My father has translated the last part of the manual, where the sentences
-were jumbled. I’ll explain everything to you tomorrow night.”
+"Bagian yang berisi bahasa Sansekerta itu jelas diterjemahkan oleh Yideng Dashi," pikir Guo Jing. "Kenapa dia 
+bilang ayahnya yang menerjemahkan?" Ia dipenuhi keraguan, dan akan bertanya lagi ketika Huang Rong mmeremas 
+tangannya sekali lagi. Ia tahu pasti ada alasan tertentu di balik semua itu, maka ia mengiyakan tanpa bertanya.
+Keduanya menuruni puncak itu.
 
-“This Sanskrit part is obviously translated by Reverend Yideng,” Guo Jing thought,
-“Why did she say it was his father?” He was full of doubts, was about to ask again when
-Huang Rong squeezed his hand one more time. He knew there must be a reason, so he
-agreed without asking anymore questions. Two people went down the peak.
+Begitu sampai di tendanya, Huang Rong berbisik di telinganya, "Ouyang Feng juga ikut mendaki puncak itu, dia 
+bersembunyi di belakang kita waktu kita bicara, diam-diam ikut mendengarkan."
 
-Once they were in his tent, Huang Rong whispered in his ear, “Ouyang Feng also
-climbed the ‘bald wooden peak’, he hid behind us as we speak, secretly listening to us.”
+Guo Jing terkejut. "Ah! Aku bahkan tidak tahudia ada di situ."
 
-Guo Jing was startled, “Ah! I didn’t even know he was there.”
+"Dia bersembunyi di balik es balok besar," kata Huang Rong. "Racun Tua teramat sangat licik, tapi kali ini dia lupa,
+es itu kan tembus pandang, tidak bisa menyembunyikan sesuatu. Baru setelah sinar bulan meneranginya aku bisa melihat
+ada bayangan samar-samar di belakangnya."
 
-“He was hiding behind a huge ice block,” Huang Rong said, “The Old Poison is ex-
-tremely crafty, but this time he forgot that the ice is transparent, it could not conceal
-anything. It was not until the moonlight shone on it did I see a blurry shadow behind
-it.”
+"jadi rupanya kau bicara tentang Jiu Yin Zhen Jing sebetulnya untuk dia." kata Guo Jing.
 
-“So you talked about the Nine Yin Manual was actually for his benefit,” Guo Jing said.
+"Hmm, aku ingin menggiringnya ke puncak itu, lalu kita singkirkan tangga kaki domba itu. Kita lihat saja,
+apa dia bisa bermeditasi untuk hidup kekal di puncak itu, mungkin dia bisa menjadi dewa," kata Huang Rong.
 
-“Hmm, I want to lure him to the peak, then we remove the ‘sheep ladder’; let’s see if he
-can meditate to become an immortal on that mountain peak, maybe he’ll become a de-
-ity,” Huang Rong said.
+Guo Jing sangat gembira, ia bertepuk tangan dan bersorak.
 
-Guo Jing was very happy; he clapped his hands and cheered.
 
 The next day Genghis Khan attacked the city again. Another thousand or so Mongolian
 soldiers died. The Khoresm soldiers on the city wall threw some insults and cursed
