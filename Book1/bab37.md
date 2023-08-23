@@ -906,113 +906,758 @@ Guo Jing terkejut. "Ah! Aku bahkan tidak tahudia ada di situ."
 es itu kan tembus pandang, tidak bisa menyembunyikan sesuatu. Baru setelah sinar bulan meneranginya aku bisa melihat
 ada bayangan samar-samar di belakangnya."
 
-"jadi rupanya kau bicara tentang Jiu Yin Zhen Jing sebetulnya untuk dia." kata Guo Jing.
+"Jadi rupanya kau bicara tentang Jiu Yin Zhen Jing sebetulnya untuk dia." kata Guo Jing.
 
 "Hmm, aku ingin menggiringnya ke puncak itu, lalu kita singkirkan tangga kaki domba itu. Kita lihat saja,
 apa dia bisa bermeditasi untuk hidup kekal di puncak itu, mungkin dia bisa menjadi dewa," kata Huang Rong.
 
 Guo Jing sangat gembira, ia bertepuk tangan dan bersorak.
 
+Hari berikutnya Genghis Khan menyerbu kota itu lagi. Lagi-lagi ribuan prajurit Mongolia tewas. Para prajurit 
+Khwarezmia di atas tembok kota melontarkan berbagai penghinaan dan mengutuk musuh mereka. Genghis Khan murka,
+tetapi ketika menyapu medan laga dengan matanya ia melihat mayat-mayat prajurit Mongolia dan kuda-kuda mereka,
+ia sangat berduka.
 
-The next day Genghis Khan attacked the city again. Another thousand or so Mongolian
-soldiers died. The Khoresm soldiers on the city wall threw some insults and cursed
-their enemy. Genghis Khan flew into rage; but sweeping the battlefield with his eyes he
-saw the dead body of Mongolian soldiers and horses; he was upset.
+Pada sore itu Guo Jing, Huang Rong dan ketiga penatua Kai Pang mempersiakan diri, mereka tinggal menunggu 
+sampai Ouyang Feng medaki ke puncak, kemudian mereka akan segera menghancurkan tangga kaki domba itu. Di luar 
+dugaan, Ouyang Feng ternyata sudah mengantisipasi hal ini. Begitu tahu Guo Jing dan Huang Rong tidak mendaki,
+ia juga tetap tinggal di bawah, bersembunyi.
 
-That very evening Guo Jing, Huang Rong and the three Beggar Clan Elders readied
-themselves, they only had to wait for Ouyang Feng to climb the peak, then they would
-destroy the sheep ladder immediately. Who would have thought that Ouyang Feng was
-so cunning and had anticipated this; as long as Guo Jing and Huang Rong did not climb
-up, he also stayed down, hiding.
+Huang Rong terpaksa memikirkan cara lain. Ia mengambil beberapa utas tali dan merendamnya dalam minyak. 
+Khwarezmia sangat kaya akan minyak, lebih dai seribu tahun yang lalu orang-orang menggali sumur untuk mencari 
+air, tapi mereka malah menemukan minyak bumi. Sejak saat itu orang mulai menggunakan minyak untuk memasak.
+Para prajurit Mongolia telah mencuri beberapa barel minyak dan memakainya sebagai bahan bakar.
 
-Huang Rong was forced to think of something else. She took some ropes and soaked
-them in oil. Khoresm was rich in petroleum; more than a thousand years ago the peo-
-ple dug a well to find water, but they found oil instead. Since then the people had used
-oil to cook their meals. The Mongolian army had seized several barrels of this oil and
-used them as fuel.
+Guo Jing dan Huang Rong memanjat ke puncak dengan tali yang sudah direndam minyak di punggung mereka. Kemudian
+mereka menyembunyikan tali-tali itu di balik sebuah es balok besar. Keduanya duduk di dalam istana kristal 
+untuk mengobrol. Tal terlalu lama kemudian mereka melihat bayangan khas Ouyang Feng muncul dari balik sebuah 
+es balok besar. Ilmu meringankan tubuhnya terlatih mendekati sempurna, gerakannya nyaris tak bersuara, ia 
+tak pernah menyangka bahwa kedua anak muda itu menyadari kehadirannya.
 
-Jing and Rong, two people climbed to the peak with ropes soaked in oil on their back.
-Then they hid the ropes behind a big ice block. Two people sat inside the crystal palace
-talking to each other. Not too long afterwards they saw Ouyang Feng’s indistinct
-shadow appeared behind a big ice block. His lightness kungfu had been trained to per-
-fection; he was extremely quiet, he never expected those two people to be aware that
-he was there.
+Dengan segera Huang Rong mulai bicara tentang isi kitab, yang mereka diskusikan dengan sungguh-sungguh, 
+tentu saja mereka mendiskusikan isi kitab yang asli. Ouyang feng mendengarkan dengan cermat, ia menemukan
+fakta bahwa isi kitab itu benar-benar luar biasa, ia kegirangan. Ia berpikir kalaupun ia memaksa anak perempuan
+ini menjelaskan semuanya, ia belum tentu akan menceritakan seluruh isi kitab, tapi sekarang ia mencuri dengar,
+dan ia merasa sangat beruntung.
 
-Right away Huang Rong started talking about the manual, which they discussed
-earnestly. Of course they were discussing the real Manual. Ouyang Feng listened atten-
-tively, he found the manual was really marvelous; could not help but feeling ecstatic.
-He thought even if he compelled this little girl to explain, she might not tell him the
-whole thing, but right now he was eavesdropping he felt very fortunate.
+Huang Rong menjelaskan perlahan-lahan, dan Guo Jing pura-pura melontarkan sejumlah besar pertanyaan. Ouyang Feng 
+berpikir, "Ia tidak bisa memahami kebenaran yang sesederhana itu, betul-betul dungu."
 
-Huang Rong slowly explained, and Guo Jing pretended to ask a lot of questions. Ouyang
-Feng thought, “He did not get such a simple truth, he is really stupid.”
+Tiba-tiba terompet dibunyikan dengan nada sangat mendesak di dasar tebing. Guo Jing segera melompat. "Khan Agung
+memanggil para jendral, aku harus pergi." serunya. Sebetulnya ini suara terompet palsu, ia telah mengatur tipuan
+ini sebelumnya.
 
-Suddenly the horn was sounded urgently on the ground. Guo Jing jumped up immedi-
-ately, “The Great Khan summons the generals, I have to go,” he called out. Actually it
-was a false alarm; he had made this arrangement in advance.
+"Kita turun bersama," kata Huang Rong.
 
-“We’ll go down together,” Huang Rong said.
+"Kita harus naik-turun ke puncak ini, betul-betul merepotkan," kata Guo Jing. "Apa tidak bisa di tendaku saja?"
 
-“We are going up and down this peak, so much hassle,” Guo Jing said, “Can’t we do it in-
-side my tent?”
+"Tidak bisa, Ouyang feng sudah mencariku kemana-mana, dia sangat licik. Sulit sekali menemukan tempat untuk 
+bersembunyi," kata Huang Rong. "Tapi kalaupun dia sepuluh kali lipat lebih licik, dia pasti tidak akan menduga
+bahwa kita bisa naik ke puncak ini."
 
-“No, that Old Ouyang Feng has been looking for me everywhere, he is so cunning; it is
-extremely difficult to find a place to hide from him,” Huang Rong said, “But even if he
-were ten times more cunning, definitely he won’t guess that we are able to come up to
-this peak.”
+Dasar Ouyang Feng memang sombong, ia berpikir, "Hei, puncak kecil begini sih bukan apa-apa. Kalaupun kalian 
+lari ke ujung dunia aku tetap akan mengejar kalian."
 
-Ouyang Feng was really smug, he thought, “Hey, this tiny, tiny peak is nothing; even if
-you run to the end of the earth I will still chase you.”
+"Kalau begitu sebaiknya kau tunggu di sini saja," kata Guo Jing. "Aku seharusnya selesai dalam waktu sekitar 
+satu jam. Aku akan cepat-cepat kembali ke sini."
 
-“Then you’d better wait here,” Guo Jing said, “I should be finished within an hour or so;
-I’ll hurry back up here.”
+Huang Rong mengangguk setuju.
 
-Huang Rong nodded her approval.
+Tanpa mengaakan apa-apa lagi Guo Jing segera menuruni puncak itu. Ia merasa kurang nyaman meninggalkan 
+Huang Rong sendirian di atas bersama dengan Ouyang Feng, tapi ia berpikir bahwa Ouyang Feng pasti sudah tidak sabar
+ingin mendengarkan rahasia kitab itu, maka ia pasti tidak akan mencelakai Huang Rong.
 
-Without saying anything else Guo Jing climbed down the peak. He was a little bit appre-
-hensive about leaving Huang Rong alone on the top with Ouyang Feng, but he thought
-Ouyang Feng must be dying to listen to the Manual’s secret; certainly he would not
-harm Huang Rong yet.
+Dalam waktu sekitar yang diperlukan untuk menghabiskan semangkuk nasi kemudian, Huang Rong berdiri dan sengaja
+menuangkan apa yang ada di pikirannya keras-keras, "Kenapa Jing Gege masih belum kembali? Entah ada hantu atau 
+tidak di puncak ini. Mungkin hantu Yang Kang atau Ouyang Ke muncul di sini. Kurasa sebaiknya aku turun, aku akan
+kembali bersama Jing Gege nanti."
 
-About the time needed to eat a bowl of rice later Huang Rong stood up and thought
-aloud, “Why is Jing Gege not back yet? I wonder if there are ghosts on this peak. Maybe
-Yang Kang or Ouyang Ke’s ghosts are here. I think I’d better go down, I’ll comeback
-with Jing Gege later on.”
+Ouyang Feng takut Huang Rong akan memergokinya, ia melingkar di belakang es balok, tidak berani bergerak
+sedikit pun. Ia melihat Huang Rong turun dari puncak itu.
 
-Ouyang Feng was afraid she might see him, he curled up behind the ice block, did not
-dare to move even so slightly. He saw Huang Rong was climbing down the peak.
+Guo Jing dan ketiga penatua Kai Pang sedang menunggu di bawah. Begitu Huang Rong turun, mereka menyalakan api 
+dan membakar tali. Ternyata ketika Guo Jing turun, ia melilitkan tali yang sudah dicelup minyak ke setiap kaki 
+domba. Begitu tali terbakar, panasnya melelehkan es yang menahan kaki-kaki domba beku di dinding tebing,
+maka kaki-kaki domba itu berjatuhan ke dasar tebing.
 
-Guo Jing and the three elders were waiting on the ground. As soon as Huang Rong was
-down, they lighted a fire and burned the rope. Turned out when Guo Jing went down,
-he wrapped the oil-soaked rope on each of the sheep legs. As the rope was burned, the
-heat melted the ice that held the legs frozen to the wall, so that the legs dropped one by
-one to the ground.
+Api itu pelan-pelan menjalar ke atas di sepanjang tali. Kegelapan malam membuat pantulan api yang sedang menjalar
+itu di permukaan salju dan es terlihat indah dan sekaligus menyeramkan. Huang Rong bertepuk tangan kegirangan
+dan bertanya, "Jing Gege, menurutmu kita masih harus mengampuninya kali ini?"
 
-The fire slowly crept upward along the winding rope. The dark night made the fire’s re-
-flection on the snow and ice looked frighteningly beautiful. Huang Rong clapped her
-hands in delight and asked, “Jing Gege, would you say we should spare his life this
-time?”
+"Ini adalah kali ketiga," kata Guo Jing. "Kita tidak boleh melanggar kesepakatan."
 
-“This is the third time,” Guo Jing said, “We can’t break our agreement.”
+Huang Rong tersenyum. "Aku punya ide," katanya. "Kau tidak harus melanggar kesepakatan, tapi kau bisa membunuhnya
+untuk membalas dendam gutu-gurumu."
 
-Huang Rong smiled, “I have an idea,” she said, “You don’t have to break your agree-
-ment, but you can kill him to avenge your masters.”
+Guo Jing kegirangan. "Rong'er, kau ini sungguh banyak akal bukus," katanya. "Coba katakan apa idemu?"
 
-Guo Jing was delighted, “Rong’er, you are always full of ideas,” he said, “Tell me your
-marvelous idea.”
+Huang Rong tersenyum. "Ini tidak sulit," katanya. "Kita biarkan saja Ouyang Feng makan angin Barat Laut selama
+sepuluh hari sepuluh malam. Biarkan dia kedinginan dan kelaparan, dia akan kelelahan setengah mati. Lalu kita 
+buat lagi tangga kaki domba untuk membantunya turun. Itu akan menjadi ketiga kalinya kita mengampuninya, 
+ya kan?"
 
-Huang Rong smiled, “It’s not difficult,” she said, “We let the Old Poison eats the north-
-west wind for ten whole days and nights; let him freeze and starve, he will be dead
-tired. Then we rebuild the ‘sheep ladder’, help him get back down. That will be the
-third time we spare his life, won’t it?”
+"Itu betul," kata Guo Jing.
 
-“That’s correct,” Guo Jing said.
-
-“You have spared his life three times by then, you don’t have to show leniency any-
-more,” Huang Rong said. “We wait here on the ground. As soon as he is down, we can
-start fighting him. We will have the three elders’ help; so with five people against a
-half-dead man, you say can we kill him?”
+"Kau sudah mengampuninya tiga kali saat itu, berarti kau tidak harus menahan diri lagi," kata Huang Rong.
+"Kita tunggu saja di bawah. Begitu dia sampai di bawah, kita bisa mulai melawannya. Kita akan punya bantuan dari
+tiga penatua Kai Pang. Lima orang melawan satu orang yang setengah mati, menurutmu kita bisa membunuhnya?"
 
 
-**Last line was Page 30 in PDF**
+“We certainly can,” Guo Jing said, “But this way we are not acting too gentlemanly,
+don’t you think?”
+
+“Hey,” Huang Rong scolded, “Do we need to talk gentlemanly toward this kind of evil
+and cruel man? Did he act gentlemanly when he killed your five masters?”
+
+Thinking about his benevolent masters’ cruel death, Guo Jing was enraged. He also
+thought that Ouyang Feng’s skill was so high that if he let him off this time, he might
+not find another opportunity to seek revenge. Therefore, he gritted his teeth and said,
+“Very well, let’s do it.”
+
+Two people went inside the tent. This time they discussed the Nine Yin Manual for real.
+They found out that the other party’s martial art was progressing tremendously, they
+were really grateful.
+
+After the discussion Guo Jing said, “That traitor Wanyan Honglie is inside the city wall.
+We know he is there, but there is nothing we can do. Can you think of some marvelous
+way to break the city’s defense?”
+
+Huang Rong was doubtful. “These past several days I have been racking my brain,” she
+said, “I can think of at least a dozen ways to do it, but none of these guarantees victory.”
+
+Guo Jing replied, “Within the Beggar Clan there are some brothers, perhaps a dozen of
+them, whose lightness kungfu is superb. What if they plus we, two people, try to climb
+the city wall?”
+
+Huang Rong shook her head. “Not that easy,” she said, “Every ‘zhang’ of the wall is
+heavily guarded by soldiers with bows and arrows. Let’s not talk about climbing the
+wall; once inside, there are more than a hundred-thousand troops. We can’t even force
+our way to open up the gate.”
+
+Two people talked all night long; they did not even go to sleep.
+
+The next day Genghis Khan attacked the city again. About ten thousand Mongolian sol-
+diers used rock-throwers, rained the city with large rocks. But the soldiers defending
+the city took shelter inside blockhouses; the stones devastated the common people’s
+residences, but the casualty among the defending troops was actually only a few. The
+attack went on until the third day. The Mongolian army had used hundreds of different
+tactics, but so far the result was minimal.
+
+On the fourth day snowflakes came floating down from the sky. Guo Jing looked up the
+peak and said, “I think we don’t have to wait for ten days, Ouyang Feng would be
+frozen to half-dead.”
+
+“His internal energy is very profound,” Huang Rong said, “Chances are he will survive
+for ten days.” She was just closing her mouth when both of them cried out in alarm;
+something was falling from the peak, it looked like Ouyang Feng.
+
+Huang Rong clapped her hands, “The Old Poison can’t take it anymore, he is killing
+himself!” she said; but straight away she called out in wonder, “Uh, strange! How did he
+do that?” Ouyang Feng did not fall straight down, but his body was floating in the sky
+like a kite.
+
+Jing and Rong, two people were extremely astonished; how could someone fall from
+thousands of ‘zhang’ tall mountain peak did not meet a violent death, but floating
+slowly instead? Could it be the Old Poison possessed some witchcraft?
+
+In the meantime, Ouyang Feng had fallen further down. Now two people could see
+clearly that he was naked, but there were two balloon-like things on top of his head.
+Suddenly Huang Rong understood what was going on, “It’s too bad!” she called out.
+
+Turned out when Ouyang Feng was stranded on the ‘bald wooden peak’, although his
+martial art was profound, he knew he could not slide down this thousand-zhang peak.
+After enduring several days of hunger and cold he had a sudden inspiration. He
+stripped down to his underpants and firmly tied his trousers into knots. Afraid that his
+trousers might not be enough, he took the robe and tied it to his pants, then tied the
+whole thing onto his waist. Clenching up his teeth he jumped down from the mountain
+peak.
+
+It was an extremely risky endeavor, but he was desperate; he had no other alternative.
+Once he jumped from the peak, his pair of trousers ballooned up and weakened his fall.
+He was naked, his hands were nearly frozen; he fought the cold and the wind by circu-
+lating his deep internal energy.
+
+Huang Rong was amused and upset at the same time; momentarily she was at lost on
+how to deal with this new development.
+
+By this time both armies inside and outside the city wall had found out about this; tens
+of thousand pairs of eyes looked up to see this flying man in the sky. Many low-ranking
+soldiers thought it was a deity descending to the earth; they all knelt down on the
+ground, worshiping.
+
+Guo Jing saw the direction Ouyang Feng was falling; looked like he was going to land
+inside the city wall. He waited until Ouyang Feng was dozens of ‘zhang’s away, then
+grabbing an iron bow and an arrow he shot Ouyang Feng’s body. He thought being air-
+borne, Ouyang Feng would not be able to fend off; however, he still remembered his
+agreement to spare Ouyang Feng’s life three times, so he aimed at a non-fatal spot;
+Ouyang Feng’s thigh.
+
+While he was airborne, however, Ouyang Feng opened his eyes wide, looking to all di-
+rections. He saw the arrow coming his way, he bent his waist, swept his legs and struck
+down Guo Jing’s arrows one by one.
+
+Although in a different army unit, Genghis Khan was also aware of Guo Jing’s agree-
+ment. He ordered his troops to shoot arrows. Immediately tens of thousands arrows
+shot out like a swarm of locusts flying toward Ouyang Feng.
+
+Even if he had a thousand hands and ten thousands legs, it was no way Ouyang Feng
+could knock all the arrows down. He was naked, and being airborne his movement was
+limited; perhaps very soon he would look like a porcupine. In this dire situation
+Ouyang Feng let his hands go, he fell down head first to the ground. Hundreds of thou-
+sands people shouted with one voice, the noise was earth-shattering.
+
+Amazingly Ouyang Feng flexed his waist midair and threw himself toward a flag inside
+the city. That time the northwesterly wind was blowing very strong, the flag fluttered
+straight from west to east. Ouyang Feng stretched out his left hand and grabbed the cor-
+ner of the flag, tearing it into two pieces. Borrowing the strength of the flag, Ouyang
+Feng made a somersault, hurling his legs toward the flag pole. Hugging the pole he slid
+downward and vanished inside the city wall.
+
+Both armies witnessed this marvelous show, they talked about it to each other, momen-
+tarily forgot they are in the midst of a battle.
+
+“This can’t be considered sparing his life,” Guo Jing thought, “How can I still have to
+spare his life next time? Rong’er must be very upset.” Who would have thought that as
+he turned his head he saw Huang Rong’s eyes were gleaming with smile on her face.
+Quickly he asked, “Rong’er, what’s wrong? Why are you so happy?”
+
+Huang Rong clapped her hands and laughed, “I present to you a great gift, wonder if
+you’ll like it or not?”
+
+“What gift?” Guo Jing asked.
+
+“The City of Samarkhand,” Huang Rong replied.
+
+Guo Jing was dumbstruck.
+
+“The Old Poison has taught me a method to break the city’s defense,” Huang Rong said,
+“Go and prepare your troops. Tonight you will render a great service.” Then she whis-
+pered in Guo Jing’s ear, explaining what to do next. Once he understood, Guo Jing was
+so happy that he repeatedly cheered and applauded.
+
+That afternoon Guo Jing issued a secret order, assigned his troops to take their tents
+down and cut them into round umbrella shapes; then to tie leather ropes to this um-
+brella. He wanted ten thousands of umbrellas to be sewn and ready within an hour.
+
+All the officers and soldiers were puzzled. They thought without tents in this bitter cold
+weather, the nights were unendurable. But the commander-in-chief had issued an or-
+der; they had no alternative but to comply.
+
+Guo Jing also ordered his army to gather the cattle and sheep under the snowy peak.
+Furthermore he assigned a ten thousand men unit to be ready outside the north gate in
+four battle formations: ‘tian fu’ [sky high], ‘di zai’ [strong earth], ‘feng yang’ [scattered
+wind], and ‘yun chui’ [dangling cloud]; ready to assault the enemy. Then he placed an-
+other ten thousand men unit on the either sides of the north gate in four battle forma-
+tions: ‘long fei’ [flying dragon], ‘hu yi’ [winged tiger], ‘niao xiang’ [soaring bird], and
+‘she pan’ [coiled snake]. Their main assignment was to drive the enemy into the first
+unit’s ambush. The third ten thousand men unit was readied on the side to be deployed
+later.
+
+That evening Guo Jing’s troops ate their provisions until everybody was satisfied, then
+the two ten-thousand men units moved to their appointed position on the north gate.
+Around the end of the eleventh hour, early the twelfth hour [approximately 9pm] Guo
+Jing dispatched one of his guards to report to the Great Khan, asking him to dispatch
+the army to surround the city, for the gates were about to be broken. Genghis Khan was
+surprised, he was doubtful. He told the guard to go and summon Guo Jing to his Golden
+Tent. That guard replied, “The Golden Blade Consort [jin dao fu ma] at this very moment 
+has already led his troops to launch an attack. He is waiting for the Great Khan to
+render assistance.”
+
+Right around that moment a horn sounded from the direction of Guo Jing’s troops;
+about a thousand soldiers started to butcher the cattle and the sheep, building the
+sheep ladder on the peak wall. The Beggar Clan disciples with their high level of mar-
+tial arts skill went up and down lending their hands; very soon dozens of ‘sheep lad-
+ders’ were constructed.
+
+Guo Jing shouted his command, and was the first to go up the peak. Ten thousand offi-
+cers and soldiers followed, with long ropes tied to their waists, slowly climbing up the
+ladder. They were all under a strict order that was issued earlier not to make any noise
+at all.
+
+In the dark night dozens of long strings of soldiers crawling and twisting like gigantic
+dragon slithering up the peak.
+
+The top was actually not very wide, so it was impossible to hold ten thousand men at
+once. As soon as he had gathered enough people, Guo Jing led the soldiers to tie the um-
+brella to their waist; then with unsheathed weapons in their hands they were ready to
+leap into the city. Their target was the south gate.
+
+With a clap of his hands Guo Jing was the first to jump down, followed by several hun-
+dreds of the Beggar Clan disciples.
+
+Actually this jumping down from the peak was very dangerous, but the Mongolian sol-
+diers were very brave. Earlier that day they saw Ouyang Feng had jumped from the
+peak with a pair of trousers as his parachute; they believed their umbrellas were a lot
+safer than the trousers; moreover, their commander-in-chief had given them the exam-
+ple; therefore, one by one they leaped down courageously. Very soon the sky was full
+with thousands of blooming parachutes, taking the officers and soldiers slowly down.
+
+Huang Rong was sitting on an ice block on the peak. She saw the first phase of their
+plan was successfully completed; she could not help but feeling ecstatic. “Whether
+Genghis Khan can break the city defense or not, it has nothing to do with me. But if Jing
+Gege listens to what I say, he can seize the opportunity to do great things.”
+
+Once his feet landed on the ground Guo Jing tore the parachute from his waist, bran-
+dishing his big saber he fiercely swept the defending troops. By that time there were
+some defending troops on night watch duty. They saw thousands of enemy troops descending 
+from the sky; they were amazed and scared, they lost their will to fight.
+Moreover, those who landed first were the Beggar Clan disciples, each one skilled in
+martial art. In a short moment they were approaching the city gate.
+
+After that the Mongolian army successively landed. Although there were some soldiers
+who lost their lives because their parachutes failed to open, but in ten soldiers, nine ac-
+tually made it to the ground safe and sound. Some of them were blown away by the
+strong wind and landed outside the city gate; some landed separate from their unit,
+these soldiers were either captured or killed by the enemy. But those who landed suc-
+cessfully were numbered around one or two thousands. Guo Jing ordered half of them
+to fight the enemy, while the other half moved toward the city gate.
+
+Genghis Khan saw Guo Jing’s troops flew into the city, he was amazed and pleasantly
+surprised. He ordered all three units of his army to attack concurrently. They saw the
+south gate was widely open; several hundreds Mongolian soldiers with spears in their
+hands guarded the gate, letting several thousands of their companions enter the city;
+and then they immediately joined themselves with Guo Jing’s troops, decimating the
+enemies.
+
+The hundred-thousand defending troops were in panic; they did not know where the
+enemy came from. The Mongolians killed and splashed oil everywhere, setting the city
+on fire. The inferno reached the sky, Khoresm army was in total chaos.
+
+It was almost dawn, the defending troops were scattered everywhere. The Khoresm
+king, Muhammad, received a report that there was no enemy at the north gate, so he
+rushed to the north to escape. Unexpectedly to him, Guo Jing’s ten thousand men had
+already waited at the either sides of the north gate; arrows and spears moved and
+made a great kill.
+
+Muhammad did not want to prolong the fight. He ordered Wanyan Honglie to com-
+mand the defending troops, while he took his personal guards trying to save his own
+life.
+
+Guo Jing’s sole purpose was to find Wanyan Honglie; seeing his golden helmet flashing
+among the chaotic battle, Guo Jing ordered his troops to hunt him down. The Khoresm
+army knew they had lost, but their number was greater; they fought desperately, al-
+most to the point of disregarding their own lives. Guo Jing’s troops were smaller, their
+movement was hindered. From the front came a fast horse reporting that the enemy
+troops soon would make a break through.
+
+Guo Jing remembered the military strategy book had this saying, “Do not eat enemy’s
+bait, do not stop retreating troops. Surrounded troops are not necessarily weak, ex-
+hausted enemy should not be pursued too far.” He issued an order to change tactic im-
+mediately. His signal flag unfolding, the four formations: sky, earth, wind and cloud,
+dispersed to surround the enemy. By that time the enemy troops remained around the
+palace was about ten thousand men; although all were warriors, but they realized the
+imminent defeat and had lost their fighting spirit; they were easily captured by Guo
+Jing’s troops.
+
+Guo Jing examined the prisoners, but did not see Wanyan Honglie among them. Even
+though he had achieved victory, but his heart was unavoidably discontented.
+
+By daybreak the city defense was completely destroyed. Genghis Khan held a general
+assembly inside Muhammad’s imperial palace. Guo Jing was in the process of going
+through his troops, taking care of the dead and comforting the wounded, when he
+heard the Great Khan’s golden horn sounded. Immediately he rushed toward the royal
+palace.
+
+By the palace gate he saw a small squad of soldiers; Huang Rong, Lu Youjiao and the
+other elders were standing among them. Huang Rong clapped her hands and two sol-
+diers stepped forward carrying a big gunnysack. She smiled and said, “Hey, can you
+guess what’s inside this sack?”
+
+Guo Jing laughed, “This city has all kinds of strange and wonderful things, how can I
+guess?” he said.
+
+“This one is my gift to you, I am sure you will like it,” Huang Rong said.
+
+Suddenly Guo Jing remembered; could it be that she found a good looking woman in
+the city and gave her to him as a joke? Quickly he shook his head, “I don’t want it,” he
+said.
+
+Huang Rong laughed, “Are you sure?” she asked. “You can’t change your mind after you
+see it.”
+
+Immediately she shook the sack and indeed somebody rolled out of it. His hair was di-
+sheveled, his face was full of blood; he was wearing a Khoresm army uniform. Guo Jing
+looked at his face intently, and to his awe, found out that he was the Great Jin’s Prince
+Zhao, Wanyan Honglie. Guo Jing was ecstatic, “Amazing! Where did you capture him?”
+he asked.
+
+Huang Rong said, “I saw the defeated and dispersed soldiers were fleeing toward the
+north gate. A squad of soldiers bearing the Prince Zhao’s banner were heading east
+with someone wearing a golden helmet leading them. I thought this scoundrel Wanyan
+Honglie was slyer than that; in no way would he blatantly flaunt the Prince Zhao’s ban-
+ner in time of defeat. I thought if his banner flew to the east, he must be running to the
+west; so I took Elder Lu and the others to prepare an ambush in the west. We did in-
+deed capture this scoundrel immediately.”
+
+Guo Jing bowed deeply to her, he said, “Rong’er, you have avenged my dear father for
+me. I really don’t know how to express my gratitude.”
+
+Huang Rong pursed her lips and smiled, “It was just a coincidence. You have rendered
+this great service, the Great Khan will generously reward you. Won’t that be great?” she
+said.
+
+“I don’t want anything,” Guo Jing said.
+
+Huang Rong stepped to the side and whispered, “Come here.” Guo Jing followed. “You
+really don’t want anything in the world?” Huang Rong asked.
+
+Guo Jing was taken aback, “All I want is never to be separated from you anymore,” he
+earnestly said.
+
+Huang Rong smiled. “Today you have rendered this great service. Whatever you ask, I
+believe the Great Khan won’t get angry at you.”
+
+“Hmm,” Guo Jing still did not understand. Huang Rong continued, “Right this moment if
+you ask him to appoint you as some high ranking official, he won’t deny it. If you ask
+him not to appoint you, it will also be difficult for him to deny. Important thing is, you
+have to make him promise in advance. Whatever you ask, he has to grant it.”
+
+“Right!” Guo Jing said.
+
+Listening to his short reply ‘Right!’ without saying anything else, Huang Rong shook her
+head; she was mad. “Looks like becoming the Golden Blade Consort is the best thing
+that ever happened to you, isn’t it?”
+
+Her words made Guo Jing understand, he called out, “Hmm, I understand. You want me
+to ask the Great Khan to cancel my marriage; but I have to make sure he promises in
+advance he won’t deny whatever I ask.”
+
+Huang Rong was hurt, “It all depends on you. You probably do want to be the Consort?”
+
+“Rong’er,” Guo Jing said, “Sister Huazheng treats me with nothing but sincerity, but my
+love to her is a brotherly love. At first I thought I was holding to my gentleman’s agree-
+ment, since I did not object to the marriage arrangement a long time ago. But if the
+Great Khan is willing to nullify the agreement, that would certainly satisfy all parties
+involved.”
+
+Huang Rong was overjoyed; she cast a sidelong glance to him with the sweetest smile
+on her face. Guo Jing wanted to stay and talk with her some more, but the horn was
+sounded for the second time from the palace. He placed his hand on hers and said,
+“Rong’er, wait for my good news here.” He dragged Wanyan Honglie inside the palace
+to see the Great Khan.
+
+Genghis Khan was very delighted to see Guo Jing arrived; he left his throne to greet
+him, and then took his hand to enter the hall together. He ordered Guo Jing to take a
+stool covered with embroidery work and tell him to sit next to him. Listening to Guo
+Jing’s report on the capture of Wanyan Honglie he was even happier. Seeing Wanyan
+Honglie kneel down in front of him Genghis Khan lifted his right foot to tread on
+
+Wanyan Honglie’s head. Smiling broadly he said, “That day you came to Mongolia
+flaunting your military power and prestige, did you ever think that there will come a
+day like today?”
+Wanyan Honglie knew his death was imminent, he raised his head boldly and said,
+“That time my Great Jin country was rich and powerful. I regret the fact that we did not
+extinguish your tiny Mongolia early on, rather than living to this day.”
+
+Genghis Khan laughed a big laugh, ordering his guard to take Wanyan Honglie out and
+behead him in front of the palace. Guo Jing remembered his father’s death was finally
+avenged; his heart was filled with happiness and grief.
+
+Genghis Khan said, “I have promised that whoever breaks the city defense and capture
+Wanyan Honglie I will give this city’s women and children, with all its gold and silk. Go
+ahead and receive your rewards.”
+
+Guo Jing shook his head, “My mother and I have enjoyed the Great Khan’s benevolence.
+We have enough food and clothing. I don’t have any use of slaves or gold and silk.”
+
+“Good,” Genghis Khan said, “That was precisely the true quality of a hero. What then
+you do want? All you have to do is ask, I will not deny anything.”
+
+Guo Jing left his seat and bowed in front of the Khan. “I do have a favor to ask; Great
+Khan, please do not get angry,” he said.
+
+Genghis Khan laughed, “Just say it,” he said.
+
+Guo Jing was about to talk about the betrothal when suddenly he heard a heart-rend-
+ing, earth-shaking cry of thousands of people from a distance. The assembled generals
+leaped up from their seats, unsheathing their weapons. They thought the surrendered
+Khoresm soldiers and people suddenly staged a rebellion; they were ready to dash out
+and suppress it. Genghis Khan laughed. “It’s all right! It’s all right!” he said, “This dog
+city refuses to subdue under the Heaven’s power, had killed many of my officers and
+soldiers, it even killed my beloved grandson; it has to be cleansed by slaughter. Let us
+go and take a look.” He left his seat immediately followed by the generals.
+
+They left the palace on horseback heading toward the western part of the city. The
+nearer they got, the more miserable the cry became. Just outside the city gate they saw
+hundreds of thousands common people running around wailing loudly, they pushed
+and rolled and threw themselves down in panic, with Mongolian soldiers on horseback
+chasing them, killing the people with long sabers.
+
+Earlier the Mongolian soldiers ordered all the inhabitants to go out of the city, nobody
+was left behind. At the beginning the people thought the Mongolians were going to
+search for spies among them; who would have thought that after searching for weap-
+ons, they also searched for all kinds of valuables; then they took all good looking young
+women, married or not, tied them together with long ropes. Samarkhand’s residents
+now realized that they were facing a grave danger. Some people showed resistance, but
+they were killed immediately with long sabers. Finally several thousands of Mongolian
+soldiers with loud battle cries charged toward these people, and went on a killing spree
+with their long sabers. Male or female, young or old, they were randomly chopped
+down. This massacre was truly with unprecedented brutality; from white or gray
+haired old men and women, to babies on their mothers’ arms, nobody could escape by
+luck.
+
+When Genghis Khan and his entourage arrived to watch; more than ten thousands peo-
+ple had already fallen victim to the soldiers’ brutality; flesh and blood splattered to all
+directions, the Mongolian horses’ iron horseshoes tread on corpses everywhere; going
+back and forth among the people and kill some more.
+
+Genghis Khan laughed big and called out, “Kill well! Kill well! Let them know my
+fierceness.”
+
+After watching for a short moment, Guo Jing could not endure patiently, he dashed to
+the front of Genghis Khan’s horse and called out, “Great Khan, please spare their lives.”
+
+Genghis Khan waved his hand, shouted loudly, “Kill them all, don’t leave anybody
+standing.”
+
+Guo Jing did not dare to say anything, but then he saw a boy about seven, eight years
+old, dash out from the crowd and threw himself down at a woman who was just
+knocked down by a horse, calling out, “Mama!” A Mongolian soldier dashed in and
+swung his long saber, mother and son were chopped into four parts. The child’s hands
+were still clutching tightly to his mother.
+
+Guo Jing’s blood boiled; he forgot everything and called out, “Great Khan, you said that
+this city’s women and children, along with all gold and silk are mine; why did you give
+your order to massacre them?”
+
+Genghis Khan was startled; he smiled, “You said you didn’t want it.”
+
+“You said that whatever I ask you, you will not deny it, didn’t you?” Guo Jing asked.
+
+Genghis Khan nodded, still smiling.
+
+With a loud voice Guo Jing said, “The Great Khan’s words are like a mountain; I am ask-
+ing you to spare this tens of thousands lives.”
+
+Genghis Khan was greatly astounded, not in his wildest dream would he guess Guo Jing
+would ask him this; but he had already given his promise, how could he refuse? He was
+enraged, his eyes blazing with fire looking at Guo Jing. His hand squeezed his saber’s
+hilt, he roared, “Kid, you really want this?”
+
+All the princes and generals were scared to see Genghis Khan this angry. Genghis Khan
+was surrounded by brave warriors, each one had fought countless battles, none were
+weak or had a feeble heart, they faced death straight in the face; but facing Genghis
+Khan’s anger they could not help but tremble.
+
+Guo Jing had never seen Genghis Khan look at him this way, he was also extremely
+scared; his body could not stop shivering, but he said, “I am asking the Great Khan to
+spare these people’s lives.”
+
+With a low growling voice Genghis Khan asked, “You won’t regret it?”
+
+Guo Jing remembered Huang Rong told him to ask for cancellation of his betrothal;
+now he let this good opportunity slipped away. He had lost the Great Khan’s favor for-
+ever, which he didn’t mind; but he actually realized his relationship with Huang Rong
+was just being thrown down the drain. He had seen and heard these hundreds of thou-
+sands common people wailing pitifully; how could he see others facing death and do
+nothing? Therefore, boldly he said, “I won’t regret it.”
+
+Genghis Khan heard his trembling voice, he knew Guo Jing was scared to death, but
+still he boldly made a request. He was forced to admire Guo Jing’s guts; drawing a long
+saber he called out, “Withdraw troops!”
+
+His guard blew the horn. Tens of thousands Mongolian cavalry with blood all over their
+bodies reined their horses and arranged themselves in neat formation.
+
+Since Genghis Khan became the Great Khan, nobody had ever dared to defy his order.
+This time Guo Jing bravely hampered his order to massacre the city; he was really an-
+gry. With a loud shout he threw his long saber to the ground; then sped his horse back
+to the city.
+
+The other generals cast their angry looks toward Guo Jing; now that the Great Khan
+was angry who knew who would be unlucky enough to bear the brunt of his anger.
+They were also discontented, since as Samarkhand’s defense was broken, they were
+hoping to plunder and kill to their hearts’ content for several days; but now their hopes
+were shattered.
+
+Guo Jing knew the resentment of others, but he ignored them all, he rode his little red
+horse slowly to a secluded place. Since the beginning of the war, thousands upon thou-
+sands homes had been burnt to the ground, corpses scattered everywhere, the snow
+covered plain was dyed red with blood. He thought, “War brings wretched disaster; bad
+as it is now. In order for me to seek vengeance for my father I have commanded troops
+to kill these many people. In order to rule the world, the Great Khan has killed even
+more people. But for the officers, soldiers, and the common people, what did they do to
+deserve the cruelest death; their bones abandoned in the wilderness?”
+
+The more he thought, the more restless his heart became, “I destroyed a city to avenge
+my father, actually killed these many people. In the end, is it worth it?” He wandered
+around the wilderness on horseback, going back and forth while painstakingly thinking
+deeply. It was dark when finally decided to go back to his camp.
+
+As he arrived at the camp’s gate, he saw the Great Khan’s two personal guards were
+waiting outside. They stepped forward and bowed, reporting, “The Great Khan sum-
+mons Master Consort. Xiao Ren had been waiting for a long time; asking Master
+Consort to quickly go.”
+
+Guo Jing thought, “Today I have defied his command; the Great Khan might want to be-
+head me. It has gone thus far, I just have to wait and see what will happen.” Beckoning
+to his own guard he whispered to his ear, ordering him to tell Lu Youjiao that he is go-
+ing to the palace. He was anxious, but he had determined, “No matter how angry he is, I
+won’t take back my request to spare these people’s lives. He is the Great Khan, he can’t
+go back on his words.”
+
+His heart was full of the idea that the Great Khan would unleash his anger, who would
+have thought that as he approached the palace gate he actually heard the Great Khan’s
+merry laughter were heard intermittently from inside the palace. Guo Jing could not
+help but to be a little bit surprised. He sped up his footstep entering the main hall.
+
+He saw next to the Great Khan sat a man, and next to his foot a young maiden sat lean-
+ing on his knee. The man had a ruddy face with white hair, he was none other than the
+Perpetual Spring [Changchun Zi] Qiu Chuji. As for the young woman; who else but
+Princess Huazheng?
+
+Guo Jing was delighted, hastily he rushed to meet them. Suddenly Genghis Khan
+snatched a long halberd from his guard’s hand, turned around and fiercely attacked
+Guo Jing’s head with the halberd.
+
+Guo Jing was shocked, he leaned sideways to elude. ‘Crack!’ the halberd’s shaft hit his
+left shoulder and broke into two pieces. Genghis Khan burst into laughter, “Kid, let the
+bygone be bygone. If I am not looking at Qiu Daozhang [Taoist Priest] and my
+daughter’s face, I should have taken your head away today.”
+
+Princess Huazheng sprang up, she called out, “Father, you must be bullying my Brother
+Guo Jing while I am not here.”
+
+Genghis Khan tossed the broken halberd to the floor. He laughed, “Who said that?”
+
+“I’ve seen it with my own eyes, how could you deny it?” Huazheng said, “For that rea-
+son my heart was troubled, I came with Qiu Daozhang to take a look.”
+
+Genghis Khan laughed, he pulled his daughter with one hand, and Guo Jing with the
+other; he said, “Let’s not bicker, just sit nicely, listen while Qiu Daozhang recites his
+poem.”
+
+At the battle of Misty Rain Tavern [‘yan yu lou’ – ‘lou’ means upper level of buildings
+with more than one floor] Qiu Chuji saw with his own eyes that Zhou Botong was alive
+and well; he also realized that Tan Chuduan was killed by Ouyang Feng. Along with Ma
+Yu and the others they went to apologize to Huang Yaoshi. Later on Quanzhen Six
+Masters came across Ke Zhen’e who told them everything, which made everybody sigh
+deeply. Qiu Chuji regretted deeply that he had been careless with his disciple, he taught
+Yang Kang martial arts, but did not take him out of the palace. The youngster was
+spoiled in riches and honor, and finally met his tragic end.
+
+One day he received Genghis Khan’s and Guo Jing’s letter; he thought Mongolia was get-
+ting stronger and might swallow up China. It was exceptional that Genghis Khan should
+invite someone to come over. He thought he might want to seize the opportunity to give
+the Khan some advice, trying to open up his heart to the truth, so if he might prevent
+the slaughter of countless people all over the world, that would be his greatest contri-
+bution to mankind. Also, he missed seeing Guo Jing; therefore, braving the cold he took
+more than a dozen of his disciples to the west.
+
+Qiu Chuji saw Guo Jing had been through wind and snow, his skin was darker, but his
+body actually looked stronger and healthier; Qiu Chuji was delighted. Before Guo Jing
+arrived he had been discussing what he had seen and heard with the Great Khan. He
+said that he experienced the harshness of the weather first hand, so he composed sev-
+eral poems. Stroking his beard he started to recite: “For ten years the people had
+dreaded the calamity of war, among millions not even one or two could survive. The
+past year met a good fortune receiving merciful imperial order, this spring braving the
+cold making the journey. Taming the three-thousand ‘li’ of northern mountain range,
+roaming two-hundred eastern hill provinces. Exhausted and anxious, gasping for the
+last breath of life; consumed by the people’s suffering.”
+
+An officer with understanding of Chinese literature called Yelu Chucai translated the
+poem into Mongolian. Genghis Khan listened; he nodded his head but did not say
+anything.
+
+To Guo Jing Qiu Chuji said, “That year when your seven masters and I were having a
+martial art contest at the Drunken Immortal Tavern, your Second Master took a half-
+finished poem from my pocket. This time I am traveling to the west without being able
+to see your seven masters again; but finally I have finished this poem.” He started reciting 
+immediately, “ ‘Since the ancient time, the moon of ‘zhong-qiu’ [mid-autumn festi-
+val] has always been the brightest; the cool breeze of the night is so clear. The day the
+shooting star is brighter than the Milky Way, the dragons of the four seas leaped from
+the water.’ These first four lines were the ones your Second Master had read; I have
+just finished the next four, he had not seen them yet. ‘The song from the Wu and Yue
+kingdoms tower was heard extensively, the military barrack of Qin kingdom was full
+with songs, food and wine. I arrived before the emperor upstream of the river, desiring
+to stop the spears, wishing for peace and security.’”
+
+Remembering The Seven Freaks of Jiangnan, Guo Jing’s eyes were brimming in tears.
+
+Genghis Khan said, “During the journey to the west, the Priest must have seen my
+Mongolia’s military prowess. I wonder if you have composed a poem about it?”
+
+Qiu Chuji answered, “Along the way I have seen the Great Khan’s power in destroying
+the cities and ransacking the earth. It made a deep impression in my heart, gave me in-
+spiration to write two stanzas. The first one is, ‘The Heaven has sent a messenger down
+to the earth, why not try to save millions of suffering souls? These millions of souls day
+and night put to death by dismemberment, drinking the wrath, swallowing their weep-
+ing without uttering a word. They looked up and cried to the Heaven, but the Heaven
+did not answer; it was a mere trivial thing unworthy of Heaven’s attention. Peace
+among thousands of chaos, without religion building refined souls.’”
+
+Yelu Chuchai thought Genghis Khan would not be happy listening to this, so he hesi-
+tated and did not translate immediately. Qiu Chuji ignored him, he continued, “My sec-
+ond poem is this, ‘Alas, the world is opened wide, on it live millions of living beings.
+Cruelty and wickedness battle each other incessantly, carrying the human suffering to
+its utmost. The Emperor of Heaven, the Queen of the earth, along with all deities, wit-
+nessing death; why not help? The messenger is sad but helpless, day and night full of
+heartache in vain’” [Translator’s note: all these poems consist of seven-character sub-
+sentences]
+
+These two poems although not really deep, but the essence of lamenting the fate of
+mankind was so obvious. Earlier that day Guo Jing had witnessed first hand the mas-
+sacre of the people in that city, he was even more somber.
+
+“The Priest’s poems must be good, what did they say? Quick, translate them for me,”
+Genghis Khan said.
+
+Yelu Chuchai thought, “I have advised the Great Khan not to kill too many innocent
+civilians, but he didn’t want to listen. Luckily this Priest has a deep merciful feeling and
+composed these beautiful poems. I hope he can persuade the Great Khan.” He trans-
+lated the poem immediately.
+
+Listening to the poems, Genghis Khan was dissatisfied, he turned to Qiu Chuji and said,
+“I heard there is a technique to reach immortality, to never get old, in China. I hope the
+Priest would teach me that.”
+
+“There is no such thing as reaching immortality, to never get old,” Qiu Chuji replied,
+“But there is indeed a Taoist method of circulating the breathing that will result in pre-
+venting illness and prolong life.”
+
+“May I ask what the most important thing in that breathing exercise is?” Genghis Khan
+asked.
+
+“The way of Heaven knows no favorite, always recognizes good man,” Qiu Chuji
+answered.
+
+“Which one would you call good?” Genghis Khan asked.
+
+“A saint’s heart is undivided, his heart is for the common people,” Qiu Chuji said.
+
+Genghis Khan was silent. Qiu Chuji continued, “There is a scripture in China, it is called
+the ‘Dao De Jing’ [Holy Scripture of Virtue] which we, Taoists view as our treasure. The
+‘the way of Heaven knows’ and ‘a saint’s heart’ were taken from that book. There is an-
+other saying in that book, ‘Soldiers and weapons are inauspicious devices, not the tool
+of person with noble character. The tool will be used against his own will, not to gain
+fame or fortune from it. But woe is the man who loves to murder. Those who love to
+kill will not be able to realize his wish under the sky.”
+
+When Qiu Chuji was traveling to the west, he saw the savageness of the war disaster;
+his heart was filled with sorrow. He took advantage of Genghis Khan asking him the se-
+cret of long life to repeatedly pleading for common people’s lives.
+
+Genghis Khan was getting old, his strength waned, he wanted to learn the technique of
+immortality; he was very delighted to see Qiu Chuji arrive, thinking that very soon he
+would learn the technique to defy death and the method to prolong his life. Who would
+have thought that instead he was advised not to resort of military power and not to kill
+too much? This conversation did not suit his taste. Therefore, after talking a little bit
+more he turned to Guo Jing and said, “Go and accompany the Priest to take a rest.”
+
+[Author’s note:
+
+1. Khoresm is a great Islamic country, located on the southern part of Soviet Union,
+near Afghanistan and Iran. Samarkhand is located in modern day Soviet Union’s
+Uzbekistan Republic. According to the ‘yuan shi’ [the history of Yuan dynasty],
+Genghis Khan attacked Khoresm during the year of ‘yu long jie chi’ [jade dragon,
+scarlet hero], using petroleum to burn the city down and break their defense.
+2. According to historical records, Qiu Chuji and Genghis Khan exchanged correspon-
+dence three times before finally he took eighteen of his disciples traveling through
+the snowy Kunlun Mountains. His disciple, Li Zhicang compiled a book called ‘chang
+chun zhen ren xi you ji’ [Changchun (perpetual spring) Sage’s journey to the west],
+recording their experience en route. This book is still highly esteemed by the schol-
+ars of today.]
+
+
+**Last line was Page 42 in PDF**
 
