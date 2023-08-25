@@ -1539,7 +1539,7 @@ ajaran Tao untuk mengatur pernafasan, yang akan mencegah penyakit dan memperpanj
 "Hati Orang Suci tidak terbagi-bagi, hatinya adalah untuk rakyat," kata Qiu Chuji.
 
 Genghis Khan diam. Qiu Chuji melanjutkan, "Ada sebuah kitab di Zhong Yuan, namanya 
-[Dao de Jing](referensi-karakter.md#dao-de-jing "Dao De Jing (道德经) atau dalam istilah Hokkian Tao Te Ching, adalah kitab utama ajaran Tao."), yang mana kami — para penganut ajaran Tao — memandangnya sebagai benda pusaka. Kata-kata semacam
+[Dao De Jing](referensi-karakter.md#dao-de-jing "Dao De Jing (道德经) atau dalam istilah Hokkian Tao Te Ching, adalah kitab utama ajaran Tao."), yang mana kami — para penganut ajaran Tao — memandangnya sebagai benda pusaka. Kata-kata semacam
 'Jalan dari Surga' atau 'Hati Orang Suci' diambil dari kitab itu. Ada pepatah lain dalam kitab itu, 'Prajurit dan 
 senjata adalah alat-alat yang jahat, bukan alat bagi seorang terhormat. Alat itu akan digunakan untuk melawan 
 keinginannya sendiri, bukan digunakan untuk mencari keuntungan. Tapi berdukalah orang yang suka membunuh. Barang siapa

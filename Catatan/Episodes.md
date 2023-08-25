@@ -40,7 +40,7 @@ _Lengkapi uraian ini dengan fakta-fakta penting lainnya..._
 
 Ilustrasi untuk Bab 33 dalam bentuk video:
 
-[![Shangren Ling Zhi dan Huang Rong](images/lingzhi-dan-huang-rong.jpg)](https://youtube.com/clip/UgkxTkM7TIoTl7lpaYqqKuG0xDUM9pJ0rHbV)
+[![Shangren Ling Zhi dan Huang Rong](../Buku1/images/lingzhi-dan-huang-rong.jpg)](https://youtube.com/clip/UgkxTkM7TIoTl7lpaYqqKuG0xDUM9pJ0rHbV)
 
 
 Bab 34:
@@ -50,18 +50,27 @@ Bab 34:
 
 Bab 35:
 
-[![Ke Zhen'E digotong dua orang prajurit Jin](images/ke-zhene-digotong-prajurit.jpg)](https://youtube.com/clip/UgkxgPyhRYgvzNkP7gzQ6JrTBXrwUEkP4CbW)
+[![Ke Zhen'E digotong dua orang prajurit Jin](../Buku1/images/ke-zhene-digotong-prajurit.jpg)](https://youtube.com/clip/UgkxgPyhRYgvzNkP7gzQ6JrTBXrwUEkP4CbW)
 
 
 Bab 36: Perjalanan ke Barat
 
-[![Ouyang Feng bermaksud menghabisi Ke Zhen'E](images/ouyang-feng-mau-membunuh-ke-zhene.jpg)](https://youtube.com/clip/Ugkxx2QwAxpkIVJNqUJfax1HPunZKCG0QeAE)
+[![Ouyang Feng bermaksud menghabisi Ke Zhen'E](../Buku1/images/ouyang-feng-mau-membunuh-ke-zhene.jpg)](https://youtube.com/clip/Ugkxx2QwAxpkIVJNqUJfax1HPunZKCG0QeAE)
 
 ***
 
 Bab 37:
 
-[![Ouyang Feng muncul di barak tentara Mongolia](images/ouyang-feng-di-barak-tentara.jpg)](https://youtube.com/clip/UgkxhP90KFYXtz9o4X3jCEvWG75FylDjbhmv)
+[![Ouyang Feng muncul di barak tentara Mongolia](../Buku1/images/ouyang-feng-di-barak-tentara.jpg)](https://youtube.com/clip/UgkxhP90KFYXtz9o4X3jCEvWG75FylDjbhmv)
+
+***
+
+Bab 38:
+
+[![Ouyang Feng lolos dari maut](../Buku1/images/ouyang-feng-lolos.jpg)](https://youtube.com/clip/UgkxWKRJIhlDr32ZiOSfihRvXGpORYCnQzr8)
+
+Gerak-gerik Lu Zhanglao makin mencurigakan bagi Guo Jing, ia merasa bahwa sebenarnya Tetua Kai Pang
+itu _bukan_ orang yang merancang segala siasat perang yang dijalankannya selama ini.
 
 ***
 
