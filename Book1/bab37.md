@@ -1569,7 +1569,7 @@ akhirnya Qiu Chuji membawa delapan belas muridnya dalam perjalanan mengarungi pe
 Muridnya, Li Zhicang menyusun sebuah buku yang berjudul Chang Chun Zhen Ren Xi You Ji[^judul-buku], merekam
 pengalaman mereka di sepanjang perjalanan. Buku ini masih dipandang tinggi oleh para pelajar hingga hari ini.
 
-[^tahun-naga]: Yu Long Jie Chi (玉龙杰赤), Yu Long secara literal berarti 'Naga Giok'. Sedangkan karakter Jie (杰) bisa mengandung beberapa makna, salah satunya adalah 'outstanding'. Dan karakter Chi (赤) bermakna 'Scarlet', atau 'merah'. Asumsi pribadi saya (yang bisa jadi salah), gabungan kedua karakter Jie Chi (杰赤) ini mengacu dan bisa kita artikan 'tramat sangat merah', mengingat keempat karakter tersebut adalah nama tahun, yang dalam hal ini adalah Tahun Naga Giok.
+[^tahun-naga]: Yu Long Jie Chi (玉龙杰赤), Yu Long secara literal berarti 'Naga Giok'. Sedangkan karakter Jie (杰) bisa mengandung beberapa makna, salah satunya adalah 'outstanding'. Dan karakter Chi (赤) bermakna 'Scarlet', atau 'merah'. Asumsi pribadi saya (yang bisa jadi salah), gabungan kedua karakter Jie Chi (杰赤) ini mengacu dan bisa kita artikan 'teramat sangat merah', mengingat keempat karakter tersebut adalah nama tahun, yang dalam hal ini adalah Tahun Naga Giok.
 
 [^judul-buku]: Chang Chun Zhen Ren Xi You Ji (长春真人西游记), secara literal berarti Perjalanan Ke Barat Orang Suci Chang Chun. Chang Chun adalah gelar keagamaan Qiu Chuji. Dalam judul itu ditambahkan sebuah gelar kehormatan 'Zhen Ren', yang secara literal berarti 'Manusia Sejati', dan adalah gelar tertinggi yang dikenal oleh para penganut Taoisme. Guru Qiu Chuji, Wang Chongyang juga menyandang gelar ini, demikian juga pendiri Perguruan Wudang (Bu Tong Pai), Zhang Sanfeng.
 
