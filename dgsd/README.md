@@ -95,6 +95,10 @@ diceritakan sesuai dengan novel dalam [episode 36](https://www.youtube.com/watch
 Selanjutnya sampai dengan [episode 40](https://www.youtube.com/watch?v=K9Qug8UmCZc&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=41) adalah cerita tentang petualangan di Pulau Ular, dengan cukup banyak bumbu yang membuatnya berbeda dengan versi 
 lainnya. Sayangnya episode 40 tidak tersedia untuk _download_.
 
+[Twist dalam serial ini di episode 60](https://www.youtube.com/watch?v=xRYgPPggwTI&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=60), menampilkan pernikahan Zhan Wuji dan Zhao Min, yang tidak ada di dalam novel.
+
+
+
 
 
 

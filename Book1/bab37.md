@@ -1401,170 +1401,150 @@ Para jendral lainnya menatap marah ke arah Guo Jing. Sekarang setelah Genghis Kh
 yang akan cukup sial untuk menjadi sasaran kemarahannya. Mereka juga tidak puas, karena sejak pertahanan Samarkand
 jebol, mereka berharap untuk merampas dan membunuh sepuasnya sampai beberapa hari, tetapi sekarang harapan mereka pupus.
 
+Guo Jing tahu rasa tidak senang yang lain, tetapi ia mengabaikannya, ia menunggangi kuda merahnya 
+perlahan-lahan menuju ke sebuah tempat terpensil. Sejak awal peperangan itu ribuan rumah telah terbakar habis,
+mayat bergelimpangan di mana-mana, salju yang menutupi tanah berwarna merah darah. Ia berpikir, "Perang membawa
+kehancuran, sampai seburuk saat ini. Supaya bisa membalas dendam ayahku, aku harus memimpin pasukan untuk 
+membunuh orang sebanyak ini. Supaya bisa memerintah dunia, Khan Agung membunuh lebih banyak orang lagi.
+Tetapi bagi para prajurit, pejabat, dan juga rakyat jelata, apa yang mereka lakukan sehingga layak dibunuh
+secara kejam, tulang-belulang mereka terlantar di alam liar?"
 
+Makin dipikir, ia makin gelisah. "Aku menghancurkan sebuah kota untuk membalas dendam ayahku, sungguh-sungguh
+membunuh orang sebanyak ini. Pada akhirnya, apakah semua ini pantas dilakukan?" Ia mengelilingi alam liar 
+tanpa arah di punggung kudanya, mondar-mandir sementara berpikir keras dan dalam. Sudah gelap ketika ia 
+memutuskan untuk kembali ke perkemahan.
 
-Guo Jing knew the resentment of others, but he ignored them all, he rode his little red
-horse slowly to a secluded place. Since the beginning of the war, thousands upon thou-
-sands homes had been burnt to the ground, corpses scattered everywhere, the snow
-covered plain was dyed red with blood. He thought, “War brings wretched disaster; bad
-as it is now. In order for me to seek vengeance for my father I have commanded troops
-to kill these many people. In order to rule the world, the Great Khan has killed even
-more people. But for the officers, soldiers, and the common people, what did they do to
-deserve the cruelest death; their bones abandoned in the wilderness?”
+Ketika tiba di gerbang perkemahan, ia melihat dua orang pengawal pribadi Khan Agung sedang menunggunya di luar.
+Mereka melangkah maju dan membungkuk hormat, melapor, "Khan Agung memanggil Pangeran. Xiaoren sudah lama menunggu,
+meminta Pangeran untuk segera pergi."[^sebutan-1]
 
-The more he thought, the more restless his heart became, “I destroyed a city to avenge
-my father, actually killed these many people. In the end, is it worth it?” He wandered
-around the wilderness on horseback, going back and forth while painstakingly thinking
-deeply. It was dark when finally decided to go back to his camp.
+[^sebutan-1]: Saat itu Guo Jing sudah bergelar 'Menantu Khan Agung', meskipun resminya ia belum menikah dengan Huazheng. Gelar ini adalah setingkat dengan pangeran. Karena tidak ada istilah yang sesuai dalam bahasa Indonesia, istilah 'Pangeran' bisa kita gunakan di sini, bergantian dengan istilah bahasa mandarin Fu Ma Ye.
 
-As he arrived at the camp’s gate, he saw the Great Khan’s two personal guards were
-waiting outside. They stepped forward and bowed, reporting, “The Great Khan sum-
-mons Master Consort. Xiao Ren had been waiting for a long time; asking Master
-Consort to quickly go.”
+Guo Jing berpikir, "Hari ini aku menantang perintahnya, Khan Agung bisa jadi ingin memenggal kepalaku. Sudah terlanjur
+seperti ini, aku tinggal menunggu apa yang akan terjadi." Memberi isyarat kepada pengawalnya sendiri, ia berbisik ke
+telinganya, memerintahkan untuk mengatakan kepada Lu Youjiao bahwa ia pergi ke istana. Ia cemas, tapi ia sudah bertekad,
+"Tak peduli semarah apapun dia, aku tidak akan menarik permohonanku untuk mengampuni orang-orang itu. Dia adalah 
+seorang Khan Agung, dia tidak bisa mengingkari kata-katanya sendiri."
 
-Guo Jing thought, “Today I have defied his command; the Great Khan might want to be-
-head me. It has gone thus far, I just have to wait and see what will happen.” Beckoning
-to his own guard he whispered to his ear, ordering him to tell Lu Youjiao that he is go-
-ing to the palace. He was anxious, but he had determined, “No matter how angry he is, I
-won’t take back my request to spare these people’s lives. He is the Great Khan, he can’t
-go back on his words.”
+Hatinya dipenuhi gambaran bahwa Khan Agung akan mengumbar amarahnya, tapi di luar dugaan ketika ia mendekati pintu
+gerbang istana ia ternyata suara Khan Agung tertawa gembira terdengar dari dalam istana. Guo Jing mau tak mau agak
+terkejut. Ia mempercepat langkahnya memasuki gedung utama.
 
-His heart was full of the idea that the Great Khan would unleash his anger, who would
-have thought that as he approached the palace gate he actually heard the Great Khan’s
-merry laughter were heard intermittently from inside the palace. Guo Jing could not
-help but to be a little bit surprised. He sped up his footstep entering the main hall.
+Ia melihat di sebelah Khan Agung duduk seorang laki-laki, dan di dekat kakinya duduk seorang gadis muda sedang
+bersandar di lututnya. Laki-laki itu berwajah kaemerahan dengan rambut putih, ia tak lain dan tak bukan adalah
+Changchun Zi, Qiu Chuji. Dan siapa lagi nona muda itu kalau bukan Putri Huazheng.
 
-He saw next to the Great Khan sat a man, and next to his foot a young maiden sat lean-
-ing on his knee. The man had a ruddy face with white hair, he was none other than the
-Perpetual Spring [Changchun Zi] Qiu Chuji. As for the young woman; who else but
-Princess Huazheng?
+Guo Jing sangat senang, ia bergegas menemui mereka. Tiba-tiba Genghis Khan merebut sebuah tombak panjang dari tangan
+pengawalnya, bepaling dan menyerang kepala Guo Jing dengan ganas dengan tombak itu.
 
-Guo Jing was delighted, hastily he rushed to meet them. Suddenly Genghis Khan
-snatched a long halberd from his guard’s hand, turned around and fiercely attacked
-Guo Jing’s head with the halberd.
+Guo Jing terkejut, ia memiringkan tubuhnya ke samping untuk mengelak. 'Krekk!' gagang tombak menghantam bahu kirinya
+dan patah menjadi dua. Genghis Khan meledak dalam tawa. "Nak, yang sudah berlalu biarkan berlalu. Kalau bukan 
+memandang muka Qiu Daozhang dan anakku, aku pasti sudah memenggal kepalamu hari ini."
 
-Guo Jing was shocked, he leaned sideways to elude. ‘Crack!’ the halberd’s shaft hit his
-left shoulder and broke into two pieces. Genghis Khan burst into laughter, “Kid, let the
-bygone be bygone. If I am not looking at Qiu Daozhang [Taoist Priest] and my
-daughter’s face, I should have taken your head away today.”
+Putri Huazheng bangkit berdiri. "Ayah, kau pasti sudah menganiaya kakak Guo Jing-ku sementara aku tidak ada di sini."
 
-Princess Huazheng sprang up, she called out, “Father, you must be bullying my Brother
-Guo Jing while I am not here.”
+Genghis Khan membuang tombak yang patah itu ke lantai. Ia tertawa. "Siapa bilang begitu?"
 
-Genghis Khan tossed the broken halberd to the floor. He laughed, “Who said that?”
+"Aku melihatnya dengan mataku sendiri, kenapa kau menyangkalnya?" kata Huazheng. "Itu sebabnya hatiku gelisah,
+aku datang kemari bersama dengan Qiu Daozhang untuk melihat."
 
-“I’ve seen it with my own eyes, how could you deny it?” Huazheng said, “For that rea-
-son my heart was troubled, I came with Qiu Daozhang to take a look.”
+Genghis Khan tertawa, ia menarik tangan pputrinya dengan satu tangan, dan Guo Jing dengan tangan yang lain,
+ia berkata, "Jangan cekcok, duduk manis, kita dengarkan Qiu Daozhang membaca puisi."
 
-Genghis Khan laughed, he pulled his daughter with one hand, and Guo Jing with the
-other; he said, “Let’s not bicker, just sit nicely, listen while Qiu Daozhang recites his
-poem.”
+[^yanyulou]: Yan Yu Lou (烟雨), dalam episode sebelumnya diterjemahkan menjadi 'Kedai Hujan Berkabut'. Pertarungan sengit antara Enam Pendekar Quanzhen melawan Huang Yaoshi trejadi di lokasi ini.
 
-At the battle of Misty Rain Tavern [‘yan yu lou’ – ‘lou’ means upper level of buildings
-with more than one floor] Qiu Chuji saw with his own eyes that Zhou Botong was alive
-and well; he also realized that Tan Chuduan was killed by Ouyang Feng. Along with Ma
-Yu and the others they went to apologize to Huang Yaoshi. Later on Quanzhen Six
-Masters came across Ke Zhen’e who told them everything, which made everybody sigh
-deeply. Qiu Chuji regretted deeply that he had been careless with his disciple, he taught
-Yang Kang martial arts, but did not take him out of the palace. The youngster was
-spoiled in riches and honor, and finally met his tragic end.
+Dalam pertarungan di Yan Yu Lou[^yanyulou], Qiu Chuji melihat dengan matanya sendiri bahwa Zhou Botong masih hidup dan dalam
+keadaan sehat walafiat, Ia sadar bahwa Tan Chuduan dibunuh oleh Ouyang Feng, dan bukan Huang Yaoshi. Bersama-sama
+dengan Ma Yu dan yang lain mereka minta maaf kepada Huang Yaoshi. Setelak itu Keenam Pendekar Quanzhen berpapasan
+dengan Ke Zhen'E yang menceritakan semua yang trejadi, mereka semua menghela nafas dalam-dalam. Penyesalan Qiu Chuji 
+sangat mendalam, ia merasa kurang berhati-hati dengan miridnya, ia mengajarkan ilmu silat kepada Yang Kang, tetapi
+tidak membawanya keluar dari istana. Anak muda itu telah dimanjakan dalam kekayaan dan kehormatan, dan sekarang 
+hidupnya berakhir dengan tragis.
 
-One day he received Genghis Khan’s and Guo Jing’s letter; he thought Mongolia was get-
-ting stronger and might swallow up China. It was exceptional that Genghis Khan should
-invite someone to come over. He thought he might want to seize the opportunity to give
-the Khan some advice, trying to open up his heart to the truth, so if he might prevent
-the slaughter of countless people all over the world, that would be his greatest contri-
-bution to mankind. Also, he missed seeing Guo Jing; therefore, braving the cold he took
-more than a dozen of his disciples to the west.
+Suatu hari ia menerima surat dari Genghis Khan dan Guo Jing. Ia berpikir bahwa sekarang Mongolia telah menjadi lebih 
+kuat dan bisa jadi akan menelan Kekaisaran Song. Adalah tidak biasa Genghis Khan mengundang seseorang untuk 
+mengunjunginya. Ia berpikir bahwa ia akan bisa menggunakan kesempatan ini untuk memberi nasihat kepada Genghis Khan,
+berusaha untuk membuka hatinya bagi kebenaran, supaya seandainya ia dapat mencegah pembantaian sejumlah tak terbatas 
+manusia di seluruh dunia, ini akan menjadi sumbangan terbesarnya bagi umat manusia. Dan juga, ia sangat merindukan 
+Guo Jing, karenanya dengan melawan cuaca dingin ia membawa serta lebih dari selusin muridnya untuk pergi ke arah Barat.
 
-Qiu Chuji saw Guo Jing had been through wind and snow, his skin was darker, but his
-body actually looked stronger and healthier; Qiu Chuji was delighted. Before Guo Jing
-arrived he had been discussing what he had seen and heard with the Great Khan. He
-said that he experienced the harshness of the weather first hand, so he composed sev-
-eral poems. Stroking his beard he started to recite: “For ten years the people had
-dreaded the calamity of war, among millions not even one or two could survive. The
-past year met a good fortune receiving merciful imperial order, this spring braving the
-cold making the journey. Taming the three-thousand ‘li’ of northern mountain range,
-roaming two-hundred eastern hill provinces. Exhausted and anxious, gasping for the
-last breath of life; consumed by the people’s suffering.”
+Qiu Chuji melihat Guo Jing telah ditempa angin dan salju, kulitnya sekarang lebih gelap, tetapi tubuhnya sungguh terlihat
+lebih sehat dan kuat. Qiu Chuji sangat gembira. Sebelum Guo JIng datang ia telah mendiskusikan apa yang dilihatnya dengan 
+Khan Agung. Ia berkata bahwa ia telah mengalami kedahsyatan cuaca, karena itu ia telah menyusun beberapa baris puisi.
+Sambil mengelus janggutnya ia mulai membaca: "Selama sepuluh tahun rakyat telah menderita akibat perang, di tengah 
+jutaan bahkan satu-dua nyawa pun tidak lolos. Tahun kemarin telah bertemu kebaikan nasib menerima perintah kerajaan 
+yang welas asih, musim semi ini menghadapi cuaca dingin menempuh perjalanan. Menantang tiga ribu _li_ pegunungan Utara,
+menjelajah dua ratus propinsi di perbukitan Timur. Kelelahan dan cemas, terengah-engah mempertahankan hidup, digerogoti
+penderitaan rakyat."
 
-An officer with understanding of Chinese literature called Yelu Chucai translated the
-poem into Mongolian. Genghis Khan listened; he nodded his head but did not say
-anything.
+Seorang pejabat yang memahami literatur bangsa Han memanggil Yelu Chucai untuk menerjemahkan puisi itu ke 
+dalam bahasa Mongolia. Genghis Khan mendengarkan. Ia menganggukkan kepalanya tetapi tidak mengatakan apa-apa.
 
-To Guo Jing Qiu Chuji said, “That year when your seven masters and I were having a
-martial art contest at the Drunken Immortal Tavern, your Second Master took a half-
-finished poem from my pocket. This time I am traveling to the west without being able
-to see your seven masters again; but finally I have finished this poem.” He started reciting 
-immediately, “ ‘Since the ancient time, the moon of ‘zhong-qiu’ [mid-autumn festi-
-val] has always been the brightest; the cool breeze of the night is so clear. The day the
-shooting star is brighter than the Milky Way, the dragons of the four seas leaped from
-the water.’ These first four lines were the ones your Second Master had read; I have
-just finished the next four, he had not seen them yet. ‘The song from the Wu and Yue
-kingdoms tower was heard extensively, the military barrack of Qin kingdom was full
-with songs, food and wine. I arrived before the emperor upstream of the river, desiring
-to stop the spears, wishing for peace and security.’”
+Kepada Guo Jing Qiu Chuji berkata, "Tahun itu ketika aku dan ketujuh orang gurumu mengadu ilmu silat di Kedai 
+Dewa Mabuk, gurumu yang kedua mmengambil puisi yang baru setengah jadi dari sakuku. Kali ini aku berjalan ke Barat
+tanpa bisa melihat ketujuh orang gurumu lagi, tapi akhirnya aku berhasil menyelesaikan puisi itu." Ia mulai 
+membacanya. "Sejak jaman dahulu kala, bulan Zhongqiu adalah yang paling terang. Hembusan angin sejuk di malam hari
+begitu jelas. Hari ketika meteor jatuh lebih terang daripada jagat raya, Sang Naga dari Empat Samudera melompat
+dari dalam air." Ia berhenti sejenak, dan mengomentari bacaan itu, "Keempat baris itu adalah yang dibaca oleh 
+gurumu yang kedua. Aku baru saja menyelesaikan empat baris berikutnya, dia belum pernah melihatnya." Ia malanjutkan 
+bacaannya, "Nyanyian dari menara Kerajaan Wu dan Yue terdengar luas, barak militer Kerajaan Qin dipenuhi nyanyian,
+makan dan minuman. Aku tiba di hadapan Kaisar dari sebelah Utara Sungai, berhasrat menghentikan tikaman tombak,
+berharap menikmati kedamaian dan rasa aman."
 
-Remembering The Seven Freaks of Jiangnan, Guo Jing’s eyes were brimming in tears.
+Terinat akan Tujuh Orang Aneh dari Jiangnan, Gou Jing berlinang air mata.
 
-Genghis Khan said, “During the journey to the west, the Priest must have seen my
-Mongolia’s military prowess. I wonder if you have composed a poem about it?”
+Genghis Khan berkata, "Dalam perjalanan ke Barat, Daozhang pasti sudah melihat kekuatan militerku. Apakah puisimu
+itu bercerita tentang hal ini?" 
 
-Qiu Chuji answered, “Along the way I have seen the Great Khan’s power in destroying
-the cities and ransacking the earth. It made a deep impression in my heart, gave me in-
-spiration to write two stanzas. The first one is, ‘The Heaven has sent a messenger down
-to the earth, why not try to save millions of suffering souls? These millions of souls day
-and night put to death by dismemberment, drinking the wrath, swallowing their weep-
-ing without uttering a word. They looked up and cried to the Heaven, but the Heaven
-did not answer; it was a mere trivial thing unworthy of Heaven’s attention. Peace
-among thousands of chaos, without religion building refined souls.’”
+Qiu Chuji menjawab, "Di sepanjang jalan aku telah melihat kekuatan Khan Agung dalam menghancurkan kota-kota dan 
+mengobrak-abrik bumi. Hal itu menimbulkan kesan mendalam di hatiku, memberiku inspirasi untuk menulis dua bait 
+puisi. Yang pertama adalah, 'Surga telah mengirim seorang pembawa pesan ke bumi, mengapa tidak berusaha
+menyelamatkan jutaan jiwa yang menderita? Jutaan jiwa itu siang dan malam dirajang sampai mati, menelan amarahnya,
+menelan ratapan mereka tanpa bersuara. Mereka memandang langit dan menjerit ke Surga, tetapi Surga tidak menjawab.
+Ini hanya masalah sepele yang tak layak diperhatikan Surga. Kedamaian di antara ribuan kekacauan, tanpa agama 
+membangun jiwa-jiwa yang berbudi.'"
 
-Yelu Chuchai thought Genghis Khan would not be happy listening to this, so he hesi-
-tated and did not translate immediately. Qiu Chuji ignored him, he continued, “My sec-
-ond poem is this, ‘Alas, the world is opened wide, on it live millions of living beings.
-Cruelty and wickedness battle each other incessantly, carrying the human suffering to
-its utmost. The Emperor of Heaven, the Queen of the earth, along with all deities, wit-
-nessing death; why not help? The messenger is sad but helpless, day and night full of
-heartache in vain’” [Translator’s note: all these poems consist of seven-character sub-
-sentences]
+Yelu Chucai berpikir bahwa Genghis Kha tidak akan senang mendengar kalimat puisi itu, maka ia ragu-ragu dan 
+tidak menerjemahkan dengan segera. Qiu Chuji mengabaikan dia, ia melanjutkan, "Puisiku yang kedua adalah ini:
+'Wahai, dunia terbuka luas, di atasnya hidup jutaan makhluk. Kekejaman dan keganasan saling berperang tanpa henti,
+membawa kesengsaraan manusia sebagai persembahan ke tahtanya. Kaisara dari Surga, Ratu dari bumi, bersama dengan
+para dewa, menyaksikan maut, mengapa mereka tidak menolong? Pembawa pesan itu sedih tapi tak berdaya, siang dan 
+malam dipenuhi sakit hati yang sia-sia'."[^catatan-penulis]
 
-These two poems although not really deep, but the essence of lamenting the fate of
-mankind was so obvious. Earlier that day Guo Jing had witnessed first hand the mas-
-sacre of the people in that city, he was even more somber.
+[^catatan-penulis]: **Catatan Penulis**: Semua puisi ini berisi bait dengan tujuh karakter dalam bahasa aslinya.
 
-“The Priest’s poems must be good, what did they say? Quick, translate them for me,”
-Genghis Khan said.
+Kedua puisi itu meskipun tak terlalu dalam, tetapi esensi ratapan nasib manusia yang kerkandung di dalamnya
+sangat jelas. Sebelumnya pada hari itu Guo Jing telah melihat sendiri pembantaian rakyat di kota, ia jadi 
+makin muram.
 
-Yelu Chuchai thought, “I have advised the Great Khan not to kill too many innocent
-civilians, but he didn’t want to listen. Luckily this Priest has a deep merciful feeling and
-composed these beautiful poems. I hope he can persuade the Great Khan.” He trans-
-lated the poem immediately.
+"Puisi Daozhang pasti bagus, apa isinya? Cepat, terjemahkan," kata Genghis Khan.
 
-Listening to the poems, Genghis Khan was dissatisfied, he turned to Qiu Chuji and said,
-“I heard there is a technique to reach immortality, to never get old, in China. I hope the
-Priest would teach me that.”
+Yelu Chucai berpikir, "Aku sudah menasihati Khan Agung supaya jangan membunuh terlalu banyak rakyat yang tidak bersalah,
+tapi dia tidak mau mendengar. Untungnya Pendeta ini punya belas kasihan yang dalam, dan menggubah puisi yang indah ini.
+Kuharap dia bisa membujuk Khan Agung." Ia cepat-cepat menerjemahkan puisi itu.
 
-“There is no such thing as reaching immortality, to never get old,” Qiu Chuji replied,
-“But there is indeed a Taoist method of circulating the breathing that will result in pre-
-venting illness and prolong life.”
+Mendengar puisi itu, Genghis Khan merasa tidak puas, ia berpaling kepada Qiu Chuji dan berkata, "Aku mendengar ada 
+sebuah teknik untuk mencapai hidup abadi, untuk tidak menjadi tua, di Zhong Yuan. Kuharap Daozhang sudi mengajarkannya
+kepadaku."
 
-“May I ask what the most important thing in that breathing exercise is?” Genghis Khan
-asked.
+"Tidak ada hal semacam itu — mencapai hidup abadi — atau tidak menjadi tua," jawab Qiu Chuji. "Tapi sungguh ada 
+ajaran Tao untuk mengatur pernafasan, yang akan mencegah penyakit dan memperpanjang usia."
 
-“The way of Heaven knows no favorite, always recognizes good man,” Qiu Chuji
-answered.
+"Boleh aku tanya apa yang paling penting dalam mengatur pernafasan itu?" tanya Genghis Khan.
 
-“Which one would you call good?” Genghis Khan asked.
+"jalan Surga tidak berpihak, selalu mengenali orang baik," jawab Qiu Chuji.
 
-“A saint’s heart is undivided, his heart is for the common people,” Qiu Chuji said.
+"Yang seperti apa kau bilang 'baik'?" tanya Genghis Khan.
 
-Genghis Khan was silent. Qiu Chuji continued, “There is a scripture in China, it is called
-the ‘Dao De Jing’ [Holy Scripture of Virtue] which we, Taoists view as our treasure. The
-‘the way of Heaven knows’ and ‘a saint’s heart’ were taken from that book. There is an-
-other saying in that book, ‘Soldiers and weapons are inauspicious devices, not the tool
-of person with noble character. The tool will be used against his own will, not to gain
-fame or fortune from it. But woe is the man who loves to murder. Those who love to
-kill will not be able to realize his wish under the sky.”
+"Hati Orang Suci tidak terbagi-bagi, hatinya adalah untuk rakyat," kata Qiu Chuji.
+
+Genghis Khan diam. Qiu Chuji melanjutkan, "Ada sebuah kitab di Zhong Yuan, namanya 
+[Dao de Jing](referensi-karakter.md#dao-de-jing "Dao De Jing (道德经) atau dalam istilah Hokkian Tao Te Ching, adalah kitab utama ajaran Tao."), yang mana kami — para penganut ajaran Tao — memandangnya sebagai benda pusaka. Kata-kata semacam
+'Jalan dari Surga' atau 'Hati Orang Suci' diambil dari kitab itu. Ada pepatah lain dalam kitab itu, 'Prajurit dan 
+senjata adalah alat-alat yang jahat, bukan alat bagi seorang terhormat. Alat itu akan digunakan untuk melawan 
+keinginannya sendiri, bukan digunakan untuk mencari keuntungan. Tapi berdukalah orang yang suka membunuh. Barang siapa
+suka membunuh tidak akan mengenali harapannya sendiri di bawah kolong langit.'"
+
 
 When Qiu Chuji was traveling to the west, he saw the savageness of the war disaster;
 his heart was filled with sorrow. He took advantage of Genghis Khan asking him the se-
