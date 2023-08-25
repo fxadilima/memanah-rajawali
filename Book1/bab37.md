@@ -1532,7 +1532,7 @@ ajaran Tao untuk mengatur pernafasan, yang akan mencegah penyakit dan memperpanj
 
 "Boleh aku tanya apa yang paling penting dalam mengatur pernafasan itu?" tanya Genghis Khan.
 
-"jalan Surga tidak berpihak, selalu mengenali orang baik," jawab Qiu Chuji.
+"Jalan Surga tidak berpihak, selalu mengenali orang baik," jawab Qiu Chuji.
 
 "Yang seperti apa kau bilang 'baik'?" tanya Genghis Khan.
 
