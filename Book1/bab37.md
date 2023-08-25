@@ -1545,32 +1545,31 @@ senjata adalah alat-alat yang jahat, bukan alat bagi seorang terhormat. Alat itu
 keinginannya sendiri, bukan digunakan untuk mencari keuntungan. Tapi berdukalah orang yang suka membunuh. Barang siapa
 suka membunuh tidak akan mengenali harapannya sendiri di bawah kolong langit.'"
 
+Ketika Qiu Chuji melakukan perjalanan ke Barat, ia melihat kebiadaban dalam bencana akibat peperangan,
+hatinya dipenuhi duka. Ia memanfaatkan keuntungan yang didapatnya dari undangan Genghis Khan yang ingin 
+bertanya mengenai kehidupan abadi untuk secara terus-menerus memohon bagi keselamatan rakyat jelata.
 
-When Qiu Chuji was traveling to the west, he saw the savageness of the war disaster;
-his heart was filled with sorrow. He took advantage of Genghis Khan asking him the se-
-cret of long life to repeatedly pleading for common people’s lives.
-
-Genghis Khan was getting old, his strength waned, he wanted to learn the technique of
-immortality; he was very delighted to see Qiu Chuji arrive, thinking that very soon he
-would learn the technique to defy death and the method to prolong his life. Who would
-have thought that instead he was advised not to resort of military power and not to kill
-too much? This conversation did not suit his taste. Therefore, after talking a little bit
-more he turned to Guo Jing and said, “Go and accompany the Priest to take a rest.”
-
-[Author’s note:
-
-1. Khoresm is a great Islamic country, located on the southern part of Soviet Union,
-near Afghanistan and Iran. Samarkhand is located in modern day Soviet Union’s
-Uzbekistan Republic. According to the ‘yuan shi’ [the history of Yuan dynasty],
-Genghis Khan attacked Khoresm during the year of ‘yu long jie chi’ [jade dragon,
-scarlet hero], using petroleum to burn the city down and break their defense.
-2. According to historical records, Qiu Chuji and Genghis Khan exchanged correspon-
-dence three times before finally he took eighteen of his disciples traveling through
-the snowy Kunlun Mountains. His disciple, Li Zhicang compiled a book called ‘chang
-chun zhen ren xi you ji’ [Changchun (perpetual spring) Sage’s journey to the west],
-recording their experience en route. This book is still highly esteemed by the schol-
-ars of today.]
+Genghis Khan semakin tua, kekuatannya memudar, ia ingin mempelajari teknik untuk mencapai 'hidup abadi'. Ia 
+sangat gembira melihat kedatangan Qiu Chuji, dan mengira bahwa dengan segera ia akan mempelajari teknik untuk 
+mencegah kematian dan metode untuk memperpanjang umurnya. Di luar dugaannya, ia malah dinasihati untuk tidak 
+menggunakan kekuatan militer dan tidak terlalu banyak membunuh orang. Pembicaraan itu tidak sesuai dengan 
+seleranya. Karena itu setelah bicara sedikit lagi, ia berpaling kepada Guo Jing dan berkata, "Temani Daozhang 
+untuk beristirahat."
 
 
-**Last line was Page 42 in PDF**
+### Catatan Penulis
+
+Khwarezmia adalah negara Islam yang besar, lokasinya ada di bagian Selatan Uni Soviet di dunia modern, di dekat 
+Afganistan dan Iran. Samarkand berada di lokasi yang di jaman modern ini adalah Uzbekistan. Menurut catatan
+yang ada di dalam Yuan Shi (Sejarah Dinasti Yuan), Genghis Khan menyerang Khwarezmia dalam tahun 
+Yu Long Jie Chi[^tahun-naga], menggunakan minyak bumi untuk membakar kota dan mematahkan pertahanan lawan.
+
+Menurut catatan sejarah, Pendeta Qiu Chuji dan Genghis Khan bertukar korespondensi hingga tiga kali sebelum
+akhirnya Qiu Chuji membawa delapan belas muridnya dalam perjalanan mengarungi pegunungan bersalju Kunlun. 
+Muridnya, Li Zhicang menyusun sebuah buku yang berjudul Chang Chun Zhen Ren Xi You Ji[^judul-buku], merekam
+pengalaman mereka di sepanjang perjalanan. Buku ini masih dipandang tinggi oleh para pelajar hingga hari ini.
+
+[^tahun-naga]: Yu Long Jie Chi (玉龙杰赤), Yu Long secara literal berarti 'Naga Giok'. Sedangkan karakter Jie (杰) bisa mengandung beberapa makna, salah satunya adalah 'outstanding'. Dan karakter Chi (赤) bermakna 'Scarlet', atau 'merah'. Asumsi pribadi saya (yang bisa jadi salah), gabungan kedua karakter Jie Chi (杰赤) ini mengacu dan bisa kita artikan 'tramat sangat merah', mengingat keempat karakter tersebut adalah nama tahun, yang dalam hal ini adalah Tahun Naga Giok.
+
+[^judul-buku]: Chang Chun Zhen Ren Xi You Ji (长春真人西游记), secara literal berarti Perjalanan Ke Barat Orang Suci Chang Chun. Chang Chun adalah gelar keagamaan Qiu Chuji. Dalam judul itu ditambahkan sebuah gelar kehormatan 'Zhen Ren', yang secara literal berarti 'Manusia Sejati', dan adalah gelar tertinggi yang dikenal oleh para penganut Taoisme. Guru Qiu Chuji, Wang Chongyang juga menyandang gelar ini, demikian juga pendiri Perguruan Wudang (Bu Tong Pai), Zhang Sanfeng.
 
