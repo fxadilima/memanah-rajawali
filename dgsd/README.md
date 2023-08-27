@@ -98,8 +98,95 @@ lainnya. Sayangnya episode 40 tidak tersedia untuk _download_.
 [Twist dalam serial ini di episode 60](https://www.youtube.com/watch?v=xRYgPPggwTI&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=60), menampilkan pernikahan Zhan Wuji dan Zhao Min, yang tidak ada di dalam novel.
 
 
+[Episode 35](https://www.youtube.com/watch?v=xiD732buqVM&list=PLgS92HVmelKTK5rXTPlNbKHJMKfkjUXKy&index=35) yang menggambarkan
+ketika Wei Yixiao sengaja mengotori muka Zhao Min lumayan.
+
+## Empress Ki
+
+Permaisuri Ki adalah Ki Seung Nyang, yang awalnya adalah seorang bocah cilik tawanan perang dari Kerajaan Goryeo. Melalui
+liku-liku yang sangat panjang ia berakhir di istana dan bekerja sebagai pelayan istana. Saat itu Toghon Temur yang
+menjadi Kaisar Dinasti Yuan berada dalam cengkeraman Jendral Besar El Temur, yang bertindak sebagai Wali Negeri.
+
+Dinasti Yuan saat itu memang sudah mengalami masalah berkepanjangan akibat perang urat syaraf di antara keluarga 
+dalam istana. Ini memang sungguh tercermin dalam cerita Golok Pembunuh Naga, di mana Zhao Min digambarkan oleh 
+Zhu Yuanzhang sebagai pribadi yang berbahaya karena kedekatannya dengan Putra Mahkota. Putra Mahkota saat itu
+tentunya adalah putra kandung Toghon Temur dari Selir Ki, yang akhirnya menjadi permaisurinya. Pangeran itu
+memiliki sekutu dekat, yaitu kakak Zhao Min, Wang Baobao, atau Koke Temur.
+
+[Episode 28 A](https://www.youtube.com/watch?v=PVhzhr2KLy4&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=55&pp=iAQB) 
+dan [Episode 28 B](https://www.youtube.com/watch?v=lhWw9yr5iUI&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=56&pp=iAQB),
+masih sekitar persaingan antara Selir Ki dan Permaisuri.
+
+[Episode 29 A](https://www.youtube.com/watch?v=bnuC8KIju74&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=57&pp=iAQB) diberi judul 'Three hot people falling into a swamp of tidal flat. Sedangkan 
+[Episode 29 B](https://www.youtube.com/watch?v=UhjpDycTPDU&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=58&pp=iAQB) 'Infinite Refill of Chinese and Korean Food.
+
+[Episode 30 A](https://www.youtube.com/watch?v=VoA_YR2O0s4&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=59&pp=iAQB) dan 
+[B](https://www.youtube.com/watch?v=t87J58YmgpY&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=60&pp=iAQB) kelihatannya sarat dengan ketegangan politik antara Toghon Temur melawan Wangyu dan El Temur.
+
+[Episode 31 A](https://www.youtube.com/watch?v=NHu64rqcqvs&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=61&pp=iAQB) 
+kelihatannya berbau iklan layanan masyarakat mengenai 'Makanan Sehat Berkadar Gula Rendah', tetapi masih sekitar 
+pergulatan antara Toghon dan El Temur. Ini berlanjut sampai dengan [Episode 31 B](https://www.youtube.com/watch?v=I88IVYP69R8&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=62&pp=iAQB) 
+yang diberi _mark_ HOT, dan diberi keterangan 'Kim Kwang-kyu, the leader of the rainbow. Dalam episode ini El Temur 
+dikejutkan oleh Toghon yang dengan lancar membacakan dengan lantang isi salah satu petisi yang disodorkannya. Semua orang
+tahu bahwa Toghon _tidak bisa membaca dan menulis_, dan dengan sengaja dimanjakan supaya tetap bodoh.
+
+Mulai dari sini ia menyadari mengapa Lady Ki memaksanya untuk belajar.
+
+Mulai dari [Episode 32 A](https://www.youtube.com/watch?v=cRiC63GnzRw&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=63&pp=iAQB) 
+segala jerih payah Lady Ki mulai membuahkan hasil, Toghon mengejutkan semua orang dengan menunjukkan kualitas sebagai 
+seorang kaisar yang sejati. [Episode 32 B](https://www.youtube.com/watch?v=5vervckad0A&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=64&pp=iAQB) adalah kelanjutan semua itu.
 
 
+Episode 33 [A](https://www.youtube.com/watch?v=3wa80S6nMgk&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=65&pp=iAQB) dan 
+[B](https://www.youtube.com/watch?v=Ml7fBiBkNKg&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=66&pp=iAQB) menceritakan
+perbaikan nasib Selir Ki selanjutnya.
+
+Episode 34 [A](https://www.youtube.com/watch?v=FJxifUZCsME&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=67&pp=iAQB) 
+dan [B](https://www.youtube.com/watch?v=CMbc5Lug4e8&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=68&pp=iAQB).
+
+Episode 35 [A](https://www.youtube.com/watch?v=c_eNwmum8g8&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=69&pp=iAQB) dan 
+[B](https://www.youtube.com/watch?v=da6-Lzatkng&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=70&pp=iAQB) adalah 
+kebahagiaan bagi Selir Ki dan Toghon Temur, dengan hadirnya seorang putra.
+
+Episode 36 [A](https://www.youtube.com/watch?v=GYRflio4QIM&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=71&pp=iAQB) dan
+[B](https://www.youtube.com/watch?v=o5AnKAwp4kQ&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=72&pp=iAQB).
+
+Episode 37 [A](https://www.youtube.com/watch?v=l9j-aO3ck4o&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=73&pp=iAQB) dan 
+[B](https://www.youtube.com/watch?v=Ofrov-OaGfI&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=74&pp=iAQB) adalah 
+tamatnya kekuasaan keluarga El Temur, ditandai dengan tewasnya El Temur sendiri, tetapi putranya, Tanggici masih hidup.
+Nama Tanggici ini sering juga ditulis Tangqishi (唐其勢).
+
+[Playlist](https://www.youtube.com/playlist?list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5).
+
+
+Dalam Episode 38 [B](https://www.youtube.com/watch?v=mYbm4G5HYAc&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=76&pp=iAQB) 
+dan [A](https://www.youtube.com/watch?v=rlE5AfUYulU&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=75&pp=iAQB) dimulailah masalah 
+besar selanjutnya, yaitu identitas asli dari anak yang dipungut Danasiri, dan sebenarnya adalah anak dari Selir Ki dengan 
+Wang Yoo.
+
+Kemugkinan kita skip dulu episode ini, dan langsung melompat ke Episode 39 [A](https://www.youtube.com/watch?v=AJOz9LkL-tg&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=77&pp=iAQB) yang menghadirkan saingan besar Selir Ki selanjutnya, yaitu
+Bayan Khutugh, atau Bayan Qudu, seorang putri dari suku Merkit, keponakan langsung dari Jendral Bayan. Tentunya 
+dalam Episode 39 [B](https://www.youtube.com/watch?v=cTvNafXFLhI&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=78&pp=iAQB) problem ini diperjelas. Bayan Khutugh adalah adik sepupu dari Tal-Tal. Jalan Selir Ki menuju tahta sungguh tidak mudah.
+
+Episode 40 [A](https://www.youtube.com/watch?v=CKY13IDIVLw&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=79&pp=iAQB) dan 
+[B](https://www.youtube.com/watch?v=CfAEPvnLuNQ&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=80&pp=iAQB) adalah awal 
+dari timbulnya persaingan kekuasaan antara Selir Ki dan Bayan, paman dari Bayan Khutugh. Toghon harus melakukan 
+negosiasi politik dengan mengangkat Bayan menjadi Wali Negeri menggantikan El Temur, dan ini sama sekali tidak 
+memuaskan dirinya dan Selir Ki. Bayan adalah tipe bangsawan Mongol klasik, yang memandang rendah semua orang dari
+suku lain, apalagi seorang keturunan Goryeo seperti Selir Ki.
+
+Kelihatannya sepanjang Episode 41 [A](https://www.youtube.com/watch?v=YgsR_dZnwnA&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=81&pp=iAQB) dan [B](https://www.youtube.com/watch?v=2g6P0XaGQn0&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=82&pp=iAQB) menceritakan akal bulus Selir Ki untuk memfitnah Jendral Bayan, setidaknya memperalat dia.
+
+Seperti yang sudah diantisipasi episode 42 [A](https://www.youtube.com/watch?v=ioXLsS-tV_k&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=83&pp=iAQB) dan [B](https://www.youtube.com/watch?v=y4XQtUIvYUA&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=84&t=706s&pp=iAQB) mengungkap langkah awal Bayan Khutugh dalam persaingannya 
+dengan Selir Ki, ini melibatkan anak Selir Ki yg petama. Dalam episode A rancangan Selir Ki juga nyaris terungkap, dan 
+suatu malam rapat rahasianya dengan kelompok Goryeo yang dipimpin Wang Yoo diketahui oleh mata-mata Tanggici yang 
+sebelumnya sebelah matanya dibutakan oleh Selir Ki dalam sebuah insiden. Sementara dalam 42 B diungkapkan suatu hari 
+ketika Pangeran Maha berusia sekitar 10 thn menolong Ayushiridara kecil yg terjatuh, tapi menolak Selir Ki dgn kasar.
+Ini adalah hasil didikan neneknya, yg menanamkan pengertian yg salah tentang Selir Ki. Sekaligus mengawali permusuhan
+antara Selir Ki dengan Ibu Suri. 
+
+Episode 44 [A](https://www.youtube.com/watch?v=TMm4TrqAr3k&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=87&pp=iAQB) 
+dan [B](https://www.youtube.com/watch?v=mCeo-LKKOkE&list=PLOBbhydezQbdZcdU9Te28Sywq-_--ShO5&index=88&pp=iAQB).
 
 
 
