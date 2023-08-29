@@ -122,169 +122,149 @@ Guo Jing melaju melewati pohon itu di atas kuda, ia melihat sebuah cincin kuning
 Ia mendekatkan kudanya ke arah pohon itu, mengulurkan tangannya dan menangkap cincin itu. Itu ternyata cincin
 emas yang biasa dikenakan Huang Rong di rambutnya. Jantungnya hampir melompat dari tenggorokannya.
 
-**——Batas Saduran——**
+Ia memutar kudanya ke arah timur. Beberapa _li_ kemudian ia melihat berkilauan di atas salju di depan. Membungkukkan
+tubuhnya, Guo Jing masih di atas kuda mengulurkan tangannya untuk meraup onggokan benda itu. Itu adalah perhiasan
+kepala dari emas berbentuk bunga yang selalu dikenakan Huang Rong. Guo Jing sangat cemas, "Rong'er, Ring'er kau 
+di mana?" teriaknya sekuat tenaga. Ia memandang ke sekeliling sejauh matanya bisa memandang, tetapi tak terlihat
+satu gerakan pun di sepanjang padang salju nan putih yang luas tak berujung itu.
 
-He turned his horse’s head toward the east. Several ‘li’s later he saw something glitter-
-ing on the snow ahead. Bending his body, hanging from the horseback he stretched his
-arm out and scooped that thing. It was the flower-patterned gold inlaid pearl head or-
-nament that Huang Rong often wore. Guo Jing was very anxious, “Rong’er, Rong’er,
-where are you?” he shouted at the top of his lungs. He looked around as far as his eyes
-could see, but there was not a single movement on the vast and boundless white plain.
+Ia bergerak beberapa _li_ lebih jauh, di arah sebelah kirinya ia melihat sebuah mantel bulu hitam tergeletak di atas 
+salju. Itu adalah mantel bulunya sendiri pemberian Tolui, yang diberikannya kepada Huang Rong ketika mereka pertama
+kalinya bertemu di Kalgan. Ia mengitari mantel itu bersama kudanya, sambil berseru nyarig, "Rong'er!" Suaranya terbawa
+sangat jauh ke padang salju itu. Di sekitar situ tak ada bukit ataupun pegunungan yang terlihat, karenanya juga tak
+terdengar gema dari suaranya sendiri. Gui Jing benar-benar cemas, ia ingin menangis tapi tak satu suara pun
+keluar dari tenggorokannya.
 
-He went several ‘li’s further, toward his left he saw a black sable fur coat lying on the
-snowy ground. It was his own coat that he gave to Huang Rong when they first met at
-Zhangjiakou [Kalgan?]. He made the little red horse circle around the coat, while shout-
-ing loudly, “Rong’er!” His voice traveled far on the open snowy plain. There was no hill
-or mountain around, therefore, there was no echo answering his call. Guo Jing was ex-
-tremely anxious, he wanted to cry but no sound was coming out from his throat.
+Sesaat kemudian Ouyang Feng tiba. "Biarkan aku beristirahat di atas kudamu, lalu kita akan mencari Nona Huang
+bersama-sama," katanya.
 
-A moment later Ouyang Feng arrived, “Let me rest on your horseback, then we will
-seek Miss Huang together,” he said.
+Guo Jing acuh tak acuh. "Kalau kau tidak mengejarnya, mana mungkin dia jatuh ke rawa ini?" omelnya. Ia menjepit perut
+kuda dengan kakinya, membuatnya melompat ke depan.
 
-Guo Jing was indignant, “If you did not chase her, how could she fall into this marsh?”
-he scolded. Squeezing his legs he made his little red horse leap forward.
+Ouyang Feng marah, ia melompat maju, dan dalam tiga lompatan ia telah berada di belakang kuda itu, mengulurkan 
+tangannya untuk merenggut ekor kuda.
 
-Ouyang Feng was angry, he leaped forward, and in three jumps he had already behind
-the horse, stretching his hand to grab the horse’s tail.
+Guo Jing sama sekali tidak menduga ia akan secepat itu, dengan jurus Sang Naga Mengibaskan Ekor[^shenlong-baiwei] tangan
+kanannya meluncur ke belakang, menghantam telapak tangan Ouyang Feng, keduanya menggunakan tenaga penuh. Guo Jing
+terpental akibat kekuatan pukulan Ouyang Feng, tubuhnya melayang dari pelana kuda. Untung kuda merahnya bergegas maju,
+ia mengulurkan tangan kirinya untung meraih pantat kuda, dan mengayunkan tubuhnya ke depan ia berhasil kembali ke atas
+pelana dengan cepat.
 
-Guo Jing did not expect him to come this quick, with a ‘Divine Dragon Swings Its Tail’
-his right palm shot backward, crashing Ouyang Feng’s palm, both people were using
-their full strength. Guo Jing was blown by Ouyang Feng’s palm strength, his body flew
-from his saddle. Fortunately his red horse dashed forward; he stretched his left hand,
-grabbing the horse’s buttocks, and swinging his body forward he was back on his sad-
-dle in no time.
+[^shenlong-baiwei]: Shen Long Bai Wei (神龙摆尾).
 
-Ouyang Feng, on the other hand, was pushed two steps backwards. Because of Guo
-Jing’s palm strength he landed heavily; his left leg unexpectedly fell deeply into the
-mud, straight to his knee. Ouyang Feng was totally shocked; he knew on this kind of
-quicksand, as soon as he exerted his strength and tried to jump out, his right foot would
-also fall into the mud. Once both legs were in, it did not matter if his skill was as high as
-the sky, he would have a very difficult time pulling his own body out of the mud. In des-
-peration he laid his body horizontally on the ground, then rolled around while at the
-same time kicked his right leg to the air. Using ‘lian huan yuan yang tui’ [chain man-
-darin duck’s leg] he borrowed the strength from his right kick to lift his left foot. Mud
-splashed everywhere, but his legs were free.
+Di lain pihak, Ouyang Feng terdorong mundur dua langkah. Karena kekuatan tangan Guo Jing ia mendarat dengan berat,
+di luar dugaan kaki kirinya terperosok ke lumpur yang dalam, langsung terbenam sampai ke lututnya. Ouyang Feng sungguh
+sangat terkejut, ia tahu bagaimana karakteristik pasir hisap semacam ini, segera setelah ia mengerahkan tenaganya,
+kaki kanannya juga akan masuk ke dalam lumpur itu. Sekali kedua kakinya masuk, tak jadi soal lagi apakah ilmunya
+setinggi langit, ia tetap akan sangat sulit menarik diri keluar dari situ. Dalam keputusasaan ia merebahkan tubuhnya
+secara horizontal di atas tanah, lalu bergulingan sambil menendang dengan kaki kanannya ke udara. Menggunakan teknik
+Lian Huan Yuan Yang Tui[^kaki-bebek] ia meminjam tenaga dari tendangan kaki kanannya untuk mengangkat kaki kirinya
+keluar dari pasir hisap itu. Lumpur berpasir berhamburan kemana-mana, tetapi kaki kirinya berhasil dibebaskan.
 
-He turned over and stood up, only to hear Guo Jing’s loud calls, “Rong’er! Rong’er!” The
-man on the horse had left him for more than a ‘li’. He saw the little red horse was run-
-ning steadily; apparently they were already out of the marsh area. Ouyang Feng de-
-cided to pursue, but the further he ran, the more he felt the ground underneath his feet
-was getting softer; as if he was at the edge of the marsh and now he had treaded into
-the center of it.
+Ia berplaing dan bangkit berdiri, hanya untuk mendengar suara nyaring Guo Jing memanggil-manggil, "Rong'er! Rong'er!"
+Orang itu bersama kudanya telah melaju sejauh lebih dari satu _li_ dari tempatnya. Ia melihat kuda merah itu berlari
+dengan mantap, tampaknya mereka telah keluar dari areal rawa. Ouyang Feng memutuskan untuk mengejar, tetapi makin jauh
+ia berlari, ia merasa tanah yang diinjaknya semakin gembur, seolah-olah ia sedang berdiri di ujung rawa dan sekarang 
+sedang menginjak bagian tengahnya.
 
-Three times had Ouyang Feng fallen under Guo Jing’s hands; the last time he was
-forced to be naked in front of hundreds of thousands people. It was an extremely dan-
-gerous situation; other people might admire his martial art skill, but he actually
-thought that was his greatest disgrace. This time he met Guo Jing again, alone. Good or
-bad he simply had to seek revenge. Even though the terrain was dangerous, he simply
-could not let this good opportunity pass. Much less Huang Rong’s life or death was still
-unknown; he could not give up in light of this, no way; therefore, in his anger he de-
-cided to pursue Guo Jing.
+Ini ketiga kalinya Ouyang Feng jatuh di tangan Guo Jing, sebelumnya ia dipaksa untuk telanjang di hadapan ratusan ribu
+orang. Itu situasi yang sangat berbahaya. Orang lain barangkali beranggapan ilmu silatnya snagat tinggi, tapi sebenarnya
+ia sendiri merasa bahwa kejadian tersebut adalah sebuah penghinaan besar. Kali ini ia kembali bertemu dengan Guo Jing,
+sendirian. Entah baik atau buruk ia merasa harus membalas dendam. Meskipun dataran itu berbahaya, ia tidak bisa membiarkan
+peluan ini berlalu begitu saja. Lagipula Huang Rong masih belum ketahuan masih hidup atau sudah mati, ia tidak bisa
+menyerah dalam keadaan ini, tidak bisa. Karena itu dalam murkanya ia memutuskan untuk mengejar Guo Jing.
 
-Displaying his excellent lightness kungfu; in just several ‘li’s he had reached the speed
-of a fast horse. Guo Jing heard footsteps on the snow behind him; he turned his head
-quickly only to see Ouyang Feng was only several ‘zhang’s behind his horse’s tail. He
-was startled, hastily urged his horse to run faster. In just a short moment they have
-covered more than a dozen ‘li’s.
+Memamerkan ilmu meringankan tubuhnya yang hebat, dalam beberapa _li_ ia telah mencapai kecepatan yang sama dengan 
+seekor kuda cepat. Guo Jing mendengar suara langkah manusia di belakangnya, ia cepat-cepat memalingkan kepalanya dan
+melihat Ouyang Feng dalam jarak _hanya_ beberapa _zhang_ di belakang kudanya. Ia kaget, buru-buru memacu kudanya.
+Dalam waktu singkat mereka telah menempuh lebih dari selusin _li_.
 
-Guo Jing did stop calling, “Rong’er!” but he saw the sky was getting darker; Huang
-Rong’s fate was increasingly uncertain. His voice was hoarse from shouting, his occa-
-sional choke turned into sobs. The little red horse understood the danger they were on
-from the start, as it felt softer ground underneath, it ran even faster; eventually its four
-hooves moved so fast as if they were flying above the snow.
+Guo Jing tak henti-hentinya berteriak, "Rong'er!" tetapi ia hanya melihat langit yang semakin gelap. Nasib Huang Rong
+semakin tak menentu. Suaranya serak karena berteriak-teriak. Dari kadang-kadang tersedak ia menjadi terisak. Kuda 
+merah kecil itu mengerti situasi berbahaya yang mereka hadapi sejak awal, begitu merasa tanah yang diinjaknya menjadi
+agak lunak, ia melaju lebih kencang. Akhirnya keempat kakinya bergerak seolah-olah sedang melayang di atas salju.
 
-‘Han xue bao ma’ [precious horse with blood-like sweats] was a rare animal capable of
-running very fast; but Ouyang Feng’s lightness kungfu was not inferior. Unfortunately
-he was getting tired, after running for a long time his breathing was getting heavier, his
-legs’ strength diminished, his footsteps gradually slowing down. Little red horse was
-also sweating profusely; beads of red sweats trickled down from its body, splashing to
-the white snow below, next to its hoof tracks, like cherry blossom in full bloom.
+Kuda Merah berkeringat darah adalah hewan yang sangat langka, mampu berlari sangat cepat, tetapi ilmu meringankan tubuh
+Ouyang Feng tidak kalah. Malangnya ia makin kelelahan, setelah berlari sangat lama nafasnya makin memburu, kekuatan
+kakinya melemah, langkah kakinya berangsur-angsur melambat. Kuda merah kecil itu juga berkeringat deras, butiran
+keringat merah menetes dari tubuhnya, terpercik ke atas salju, jatuh di dekat jejak kakinya, mirip sekumpulan
+cherry yang bermekaran.
 
-By the time the sky was completely dark the little red horse had completely left the
-marsh; early on Ouyang Feng had disappeared without a trace. Guo Jing thought, “The
-horse Rong’er was riding did not have this kind of divine speed; it wouldn’t run for half
-a li into the marsh without falling into the mud below. Even if I have to lose my life I
-must try to rescue her.” He very well realized that Huang Rong had been missing for a
-very long time; if she did fall into the marsh, even if he could pull her out, he would not
-be able to bring her back to life. So his motivation was really for his own peace of mind.
+Ketika langit berubah gelap total, kuda merah kecil itu telah berada di luar rawa. Sebelumnya Ouyang Feng telah 
+menghilang tanpa jejak. Guo Jing berpikir, "Kuda yang ditunggangi Rong'er tidak punya kecepatan ajaib seperti ini.
+Ia tidak akan bisa berlari setengah _li_ memasuki rawa tanpa tersedot oleh lumpur di bawahnya. Kalaupun harus 
+kehilangan nyawa aku tetap harus menyelamatkannya." Ia sangat sadar bahwa Huang Rong telah hilang sangat lama, kalau memang
+terjatuh ke rawa, meskipun ia bisa saja menariknya keluar, ia tak akan mampu menghidupkannya kembali. Jadi motivasinya
+itu sebenarnya hanya untuk menenangkan dirinya sendiri.
 
-Guo Jing dismounted his horse to give it a rest; caressing his horse’s back he said, “Little
-horse, oh little horse, today I am asking you not to be afraid of exhaustion. Let’s take a
-short rest and then we’ll go again.”
+Guo Jing turun dari kuda untuk memberi kudanya kesempatan untuk beristirahat. Sambil mengelus punggung kudanya ia 
+berkata, "Xiao Hongma, Xiao Hongma[^xiao-hongma], hari ini aku memintamu untuk tidak takut lelah. Kita istrahat sebentar, lalu
+pergi lagi."
 
-Guo Jing leaped back to his saddle and pulled the rein to turn the horse’ head. The little
-red horse was afraid to tread back into the marsh, but Guo Jing kept urging it to go.
-Finally with a loud neigh the horse’s four hooves splashed back into the marsh. The
-horse knew their destination was still far away, so it ran with all its might, faster and
-faster into the marsh.
+[^xiao-hongma]: Xiao Hong Ma (小红马) berarti 'Kuda Merah Kecil'.
 
-Suddenly they heard Ouyang Feng’s desperate cry, “Help! Help!” Guo Jing sped his
-horse up. Under the glimmering reflection of the white snow he saw Ouyang Feng had
-fallen into the mud. His hands were high in the air, flailing chaotically. The mud was
-slowly rising, it already reached his chest. As soon as it reached his mouth and nose, he
-would certainly be suffocated to death.
+Guo Jing melompat kembali ke atas pelana dan menarik tali kekang untuk memutar kudanya. Kuda merah kecil itu 
+takut melangkahkan kakinya lagi ke rawa, tetpi Guo Jing terus memaksanya. Akhirnya dengan diiringi ringkikkan panjang
+keempat kaki kuda itu melesat memasuki rawa. Kuda itu tahu tujuan mereka masih sangat jauh, jadi ia berlari dengan 
+segenap tenaganya, makin lama makin cepat memasuki areal rawa.
 
-Guo Jing could see his desperate situation; he recalled Huang Rong might face similar
-danger. His blood boiled inside his chest; he almost dismounted his horse and fell into
-the same trap; but decided against doing so at the last minute.
+Tiba-tiba mereka mendengar jeritan putus asa Ouyang Feng, "Tolong! Tolong!" Guo Jing mempercepat langkah kudanya.
+Di bawah kilau pantulan cahaya bulan di atas salju ia melihat Ouyang Feng terperosok ke dalam rawa. Tangannya terangkat
+tinggi, menggapai-gapai di udara dengan panik. Lumpur berpasir itu pelan-pelan naik sampai ke dadanya. Begitu mencapai
+mulut dan hidungnya, maka ia pasti akan mati sesak nafas.
 
-“Quick, help me!” Ouyang Feng cried out.
+Guo Jing bisa melihat betapa daruratnya keadaan itu. Ia teringat bahwa Huang Rong bisa jadi menghadapi ancaman bahaya
+yang serupa. Darahnya mendidih di dalam dada, ia hampir turun dari kuda dan terperosok ke tempat yang sama, tetapi
+di detik terakhir ia sempat melawan keinginan itu.
 
-Guo Jing gritted his teeth and said, “You killed my benevolent masters, you also killed
-Miss Huang; do you still want me to save you? Dream on!”
+"Cepat tolong aku!" jerit Ouyang Feng.
 
-With a stern voice Ouyang Feng replied, “We had made an agreement, you have to
-spare my life three times. This is the third time. Are you saying you don’t give a thought
-to the good faith?”
+Guo Jing menggertakkan giginya dan berkata, "Kau membunuh guru-guruku yang mulia, kau juga membunuh Nona Huang. Kau
+masih berharap aku akan menolongmu? Mimpi!"
 
-With tears in his eyes Guo Jing said, “Miss Huang is no longer alive, what use is our
-agreement?”
+Dengan galak Ouyang Feng menjawab, "Kita sudah sepakat, kau harus menyelamatkan aku tiga kali. Ini yang ketiga. Kau 
+mau bilang tidak peduli akan nasib baik?"
 
-Ouyang Feng shouted curse and abusive words, but Guo Jing simply ignored him; he
-rode his horse away. Only a dozen ‘zhang’s later he heard Ouyang Feng’s pitiful cry. Guo
-Jing could not bear it anymore. He heaved a sigh and turned his horse around. The
-mud had already reached Ouyang Feng’s neck. “I am willing to save you, but if both of
-us ride on this horse, we will sink into the mud together,” he said.
+Dengan air mata berlinang Guo Jing berkata, "Nona Huang tidak lagi hidup, apa gunanya kesepakatan kita?"
 
-“Use a rope to tow me,” Ouyang Feng suggested. Guo Jing did not carry any rope, but he
-remembered his long robe. Grabbing one end, he let his horse ran close to Ouyang
-Feng. Ouyang Feng held out his hand and grabbed the other end. Guo Jing squeezed his
-legs and gave a loud shout. The little red horse furiously charged forward and with a
-loud splashing sound Ouyang Feng was pulled out of the mire and dragged along on the
-snowy ground.
+Ouyang Feng berteriak mengutuk dan memaki-maki dengan bahasa kasar, tetapi Guo Jing mengabaikannya. Ia pergi dengan 
+kudanya. Baru beberapa _zhang_ berikutnya ia kembali mendengar jeritan Ouyang feng yang memelas hati. Guo Jing 
+tidak tahan lagi. Ia menghela nafas dan berbalik. Lumpur telah mencapai leher Ouyang Feng. "Aku mau menyelamatkanmu,
+tapi kalau kita berdua naik ke atas kuda ini, maka kita akan sama-sama tenggelam di lumpur itu," katanya.
 
-If they were heading east, very soon they were going to leave the marsh area; but Guo
-Jing was very anxious over Huang Rong, how would he be willing to give up searching
-for her? Therefore, they were galloping to the west. Ouyang Feng was still holding on to
-the robe, he laid down facing up, being dragged rapidly on the snow. He used this op-
-portunity to catch his breath.
+"Kalau begitu pakai tali untuk menyeretku," usul Ouyang Feng. Guo Jing tidak membawa tali, tapi ia teringat akan 
+jubah panjangnya. Sambil memegang salah satu ujungnya, ia membiarkan kudanya berlari ke dekat Ouyang Feng. Ouyang
+Feng menangkap ujung satunya. Guo Jing menjepit perut kuda dengan kakinya dan berteriak keras. Kuda merah kecil itu
+mengamuk dan menerjang ke depan, dengan diiringi suara cipratan keras Ouyang Feng berhasil ditarik keluar dan 
+diseret di atas tanah bersalju.
 
-The little red horse ran very fast, before daybreak they had crossed the marsh. Guo Jing
-saw horse’s track on the snow; it was Huang Rong’s horse entering the marsh area. The
-track was still there, but what about Huang Rong? Guo Jing dismounted his horse, stood
-on the snow, lost in thought.
+Kalau mereka mengarah ke timur, maka dengan cepat mereka akan keluar dari areal rawa, tetapi Guo Jing sangat cemas
+akan keadaan Huang Rong, jadi ia memutuskan untuk menuju ke barat. Ouyang Feng masih berpegang pada jubah itu, ia 
+berbaring telentang, diseret dengan cepat di atas salju. Ia menggunakan kesempatan itu untuk mengatur nafas.
 
-In his grief he had completely forgotten his archenemy; he stood with his left hand
-holding the rein, and his right hand holding the fur coat, his eyes gazing into the dis-
-tance, his heart was shaken, beating rapidly.
+Kuda merah kecil itu berlari secepat kilat, sebelum fajar mereka telah menyeberangi rawa. Guo Jing melihat jejak 
+kuda di atas salju, itu jejak kuda Huang Rong yang memasuki rawa. Jejak itu masih terlihat, tapi bagaimana dengan
+Huang Rong? Guo Jing turun dari kuda, berdiri di atas salju, melamun.
 
-Suddenly he felt a light touch on his shoulder. He turned around in shock, only to see
-Ouyang Feng’s palm was touching his ‘tao dao’ [pottery way] acupoint. When Ouyang
-Feng fell into Guo Jing’s trap and he came out from the sand, Guo Jing had sealed his
-‘tao dao’ acupoint. This time Ouyang Feng managed to do the same to Guo Jing, it was a
-pay back time; Ouyang Feng could not help but laugh merrily.
+Dalam duka ia telah sama sekali melupakan musuh bebuyutannya. Ia berdiri dengan tangan kiri memegang tali kekang,
+sementara tangan kanannya memegang mantel bulu, matanya memandang ke kejauhan, hatinya tergetar, jantungnya berdetak
+keras.
 
-Guo Jing was overwhelmed with grief, he had no regard of his life anymore; “If you
-want to kill me then just kill me; we don’t have any agreement that you should spare
-my life anyway,” he wryly said.
+Tiba-tiba ia merasakan sentuhan ringan di bahunya. Ia berpaling engan kaget, dan melihat tangan Ouyang Feng menyentuh
+titik akupuntur Tao Dao. Ketika Ouyang Feng jatuh ke perangkap Guo Jing dan keluar dari dalam pasir, Guo Jing menotok
+titik Tao Dao-nya. Kali ini Ouyang Feng berhasil melakukan hal yang sama terhadap Guo JIng, ini sebuah pembalasan,
+tak tertahankan lagi Ouyang Feng tertawa terbahak-bahak.
 
-Ouyang Feng was taken aback; he had thought of torturing Guo Jing to disgrace him be-
-fore finally taking his life. Who would have thought that Guo Jing did not expect to
-live? Ouyang Feng thought, “This dumb kid loves that little girl very much; if I kill him,
-then I am helping him fulfilling his desire to die together in the name of love.” He
-changed his mind and thought, “That little girl is already buried beneath this snow; he
-becomes my only hope of the explanation of the manual.” Grabbing Guo Jing’s arm he
-lifted him up and leaped to the horseback. They rode toward a valley in the south.
+Guo Jing sedang diselimuti duka, ia tak lagi mempedulikan keselamatannya. "Kalau kau ingin membunuhku, bunuh saja.
+Kita toh tidak punya kesepakatan bahwa kau harus mengampuniku," katanya dengan nada kering.
+
+Ouyang Feng tercengang, sebelumnya ia ingin menyiksa Guo Jing untuk mempermalukannya sebelum akhirnya membunuhnya.
+Di luar dugaannya Guo Jing telah kehilangan semangat hidup. Ia berpikir, "Bocah tolol ini sangat mencintai anak 
+perempuan itu, kalau aku membunuhnya maka aku akan membantunya meraih harapan untuk mati bersama-sama atas nama cinta."
+Ia berubah pikiran dan berpikir, "Anak perempuan itu sudah terkubur di bawah salju. Sekarang bocah tolol ini menjelma 
+menjadi satu-satunya harapanku untuk menjelaskan isi kitab itu." Ia mencekal lengan Guo Jing, mengangkatnya,
+dan melompat ke punggung kuda. Mereka berkuda menuju ke arah lembah di selatan.
+
 
 About the sixth hour [between 9 – 11 am] he saw a village by the roadside. Ouyang
 Feng steered the horse to enter the village, but everywhere he looked there were
