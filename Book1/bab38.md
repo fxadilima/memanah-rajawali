@@ -265,6 +265,7 @@ Ia berubah pikiran dan berpikir, "Anak perempuan itu sudah terkubur di bawah sal
 menjadi satu-satunya harapanku untuk menjelaskan isi kitab itu." Ia mencekal lengan Guo Jing, mengangkatnya,
 dan melompat ke punggung kuda. Mereka berkuda menuju ke arah lembah di selatan.
 
+**--Batas Saduran--**
 
 About the sixth hour [between 9 – 11 am] he saw a village by the roadside. Ouyang
 Feng steered the horse to enter the village, but everywhere he looked there were
