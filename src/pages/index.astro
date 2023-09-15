@@ -1,11 +1,12 @@
 ---
-import {getEntry} from 'astro:content';
+import {getEntry, getCollection} from 'astro:content';
 import ReferenceCard from '../components/ReferenceCard.astro';
 const intro = await getEntry('sdyxz', 'intro');
 const {Content, headings} = await intro.render();
 const bab1 = await getEntry('sdyxz', 'bab1');
 const bab2 = await getEntry('sdyxz', 'bab2');
 const bab3 = await getEntry('sdyxz', 'bab3');
+const chapters = await getCollection('sdyxz');
 ---
 
 <!DOCTYPE html>
@@ -27,30 +28,11 @@ const bab3 = await getEntry('sdyxz', 'bab3');
 				</div>
 			</div>
 			<div class="w3-col m3 l4">
-				<p></p>
-				<div class="w3-container w3-card-4 w3-round-large">
-					<h4>Bab 1</h4>
-					<a href="/memanah-rajawali/bab1">
-						<img src="/images/cropped/bab1.jpg" alt="bab1" width="100%"/>
-					</a>
-					<div class="w3-container">
-						<p>{bab1.data.ilustrasi}</p>
-						<p>
-							<a href="/memanah-rajawali/bab1" class="w3-btn w3-hover-black w3-round w3-border">Read more...</a>
-						</p>
-					</div>
-				</div>
-				<ReferenceCard 
-					image={bab2.data.image}
-					title={bab2.data.title}
-					ilustrasi={bab2.data.ilustrasi} 
-					href={"/memanah-rajawali/" + bab2.slug} 
-				/>
-				<ReferenceCard 
-					image={bab3.data.image}
-					title={bab3.data.title}
-					ilustrasi={bab3.data.ilustrasi} 
-					href={"/memanah-rajawali/" + bab3.slug}/>
+				{
+					chapters.map(bab => (
+						<ReferenceCard image={bab.data.image} title={bab.data.title} ilustrasi={bab.data.ilustrasi} href={"/memanah-rajawali/" + bab.slug} />
+					))
+				}
 			</div>
 		</main>
 	</body>

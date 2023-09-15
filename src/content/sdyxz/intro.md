@@ -2,6 +2,8 @@
 title: Memanah Rajawali - Prolog
 author: FX. Adi Lima
 description: Pendahuluan untuk novel Memanah Rajawali.
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
+ilustrasi: Pendahuluan untuk novel Memanah Burung Rajawali 
 ---
 
 # Intro
