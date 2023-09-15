@@ -6,11 +6,13 @@ description: Pendahuluan untuk novel Memanah Rajawali.
 
 # Intro
 
-She Diao Ying Xiong Zhuan (射鵰英雄傳), atau judul yang lebih populer dalam
-bahasa Inggris adalah **The Legend of The Condor Heroes**, adalah novel laris
-hasil karya Louis Cha (Jin Yong) yang dirilis pertama kalinya di Hong Kong
-antara 1 Januari 1957 - 19 Mei 1959 dalam bentuk cerita bersambung di surat
+Kisah Memanah Burung Rajawali, She Diao Ying Xiong Zhuan (射鵰英雄傳), atau judul 
+yang lebih populer dalam bahasa Inggris adalah **The Legend of The Condor Heroes**[^judul-1], 
+adalah novel laris hasil karya Louis Cha (Jin Yong) yang dirilis pertama kalinya di 
+Hong Kong antara 1 Januari 1957 - 19 Mei 1959 dalam bentuk cerita bersambung di surat
 kabar Hong Kong Commercial Daily.
+
+[^judul-1]: Judul bahasa Inggris ini dipopulerkan oleh TVB, Hong Kong, dengan serial televisinya, yang diadaptasikan dari cerita yang sama.
 
 Ini adalah bagian pertama dalam **Trilogi Rajawali** (Condor Trilogy), yang secara
 keseluruhan berkaitan sangat erat dengan perkembangan hubungan antara Tiongkok
@@ -21,9 +23,9 @@ Pada saat itu wilayah padang rumput di bagian Utara Tiongkok terbagi menjadi
 beberapa konfederasi dari suku-suku nomad seperti Naiman, Khamag Mongol, Merkit,
 Keraite, dan juga Tatar. Sedangkan di sebelah Selatan, Dinasti Song sendiri
 mulai dari tahun 1184 sudah kehilangan kendali atas wilayah Utara mereka, yang jatuh
-ke tangan suku Jurchen[^nuzhen], yang akhirnya mendirikan Dinasti Jin[^1].
+ke tangan suku Jurchen[^nuzhen], yang akhirnya mendirikan Dinasti Jin[^dinasti-jin].
 
-Dalam perkembangan nama Jurchen ini nantinya akan berganti menjadi Manchu.
+Dalam perkembangan nama Jurchen ini nantinya akan berganti menjadi Mancu.
 
 Jurchen adalah bagian  dari Dinasti Liao (907- 1125), sebuah kekaisaran yang dipimpin oleh suku Khitan. 
 Bagi para penggemar cerita silat, suku ini dipopulerkan oleh seorang ketua Kai Pang 
@@ -97,10 +99,9 @@ bernama Temujin.
 Sebelum Temujin dilahirkan, di tahun 1146, Hambussin Khan, atau Ambaghai dari suku Khamag Mongol,
 ditangkap oleh suku Tatar bersama dengan putra Khabul Khan, yaitu Todo'en Otchigin,
 ketika melamar putri dari kepala suku Tatar untuk dikawinkan dengan putranya Qadaan Taishi.
-Ambaghai adalah paman dari Yesugai, ayah kandung Temujin.
+Ambaghai[^ambaghai-1] adalah paman dari Yesugai, ayah kandung Temujin.
 
-[Ambaghai mengalami penyiksaan fisik](https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK "Cuplikan adegan Ambaghai ditangkap oleh suku Tatar") 
-ketika ditangkap oleh suku Tatar. 
+[^ambaghai-1]: Cuplikan adegan [Ambaghai mengalami penyiksaan fisik](https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK "Cuplikan adegan Ambaghai ditangkap oleh suku Tatar") ketika ditangkap oleh suku Tatar ini adalah bagian dari serial The Legend of Genghis Khan, atau disingkat 'Genghis Khan', 2004.
 
 Sebenarnya kejadian tersebut adalah hasil rancangan para pemimpin Dinasti Jin yang saat
 itu dipimpin oleh Wanyan Dan, atau lebih dikenal sebagai Kaisar Xizong,
@@ -199,10 +200,10 @@ maka nama tersebut mendapat romanisasi menjadi Huang Chang.
 
 — FX. Adi Lima
 
-[^1]: Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah
+[^dinasti-jin]: Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah
   Kekaisaran setelah Dinasti Han ambruk, yang dipimpin oleh cucu dari Sima Yi, yaitu Sima Yan.
 
-[^2]: Di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang.
+[^bianjing]: Di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang.
 
 [^kebijakan-sosial]: 
     **Kebijakan sosial** ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku

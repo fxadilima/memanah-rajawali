@@ -1,7 +1,11 @@
 ---
 import {getEntry} from 'astro:content';
+import ReferenceCard from '../components/ReferenceCard.astro';
 const intro = await getEntry('sdyxz', 'intro');
 const {Content, headings} = await intro.render();
+const bab1 = await getEntry('sdyxz', 'bab1');
+const bab2 = await getEntry('sdyxz', 'bab2');
+const bab3 = await getEntry('sdyxz', 'bab3');
 ---
 
 <!DOCTYPE html>
@@ -13,13 +17,40 @@ const {Content, headings} = await intro.render();
 		<meta name="description" content={intro.data.description} />
 		<title>{intro.data.title}</title>
 		<link rel="stylesheet" href="/styles/w3.css"/>
+		<link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/4.7.0/css/font-awesome.min.css">
 	</head>
 	<body>
-		<main class="w3-main w3-container">
-			<div class="w3-content w3-row-padding">
-				<div class="w3-col m9 l8">
+		<main class="w3-main w3-row-padding">
+			<div class="w3-col m9 l8">
+				<div class="w3-container w3-content">
 					<Content />
 				</div>
+			</div>
+			<div class="w3-col m3 l4">
+				<p></p>
+				<div class="w3-container w3-card-4 w3-round-large">
+					<h4>Bab 1</h4>
+					<a href="/memanah-rajawali/bab1">
+						<img src="/images/cropped/bab1.jpg" alt="bab1" width="100%"/>
+					</a>
+					<div class="w3-container">
+						<p>{bab1.data.ilustrasi}</p>
+						<p>
+							<a href="/memanah-rajawali/bab1" class="w3-btn w3-hover-black w3-round w3-border">Read more...</a>
+						</p>
+					</div>
+				</div>
+				<ReferenceCard 
+					image={bab2.data.image}
+					title={bab2.data.title}
+					ilustrasi={bab2.data.ilustrasi} 
+					href={bab2.slug} 
+				/>
+				<ReferenceCard 
+					image={bab3.data.image}
+					title={bab3.data.title}
+					ilustrasi={bab3.data.ilustrasi} 
+					href={bab3.slug}/>
 			</div>
 		</main>
 	</body>

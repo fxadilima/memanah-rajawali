@@ -1,0 +1,21 @@
+---
+interface Props {
+    image: string,
+    title: string,
+    ilustrasi: string,
+    href: string
+}
+const {image, title, ilustrasi, href} = Astro.props;
+---
+
+<div class="w3-card w3-padding-16">
+    <div class="w3-container w3-round-large">
+        <a href={href} title=`Go to: ${href}`>
+        <img src={image} alt=`Gambar ilustrasi ${title}` width="100%"/>
+    </a>
+    <div class="w3-container">
+        <h3>{title}</h3>
+        <em>{ilustrasi}</em>
+        <a href={href}>Read more...</a>
+    </div>
+</div>

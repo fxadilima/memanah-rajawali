@@ -258,9 +258,9 @@ dan kalau dihitung-hitung sudah berjalan 5 tahun sampai saat ini." lanjut Zhang 
 "Ia boleh dibilang hanya mengikuti semua pendapat Penasihat Agung Han Tuozhou. Masa depan
 akan seperti apa, sulit diperkirakan, sulit...!"
 
-Sambil bicara ia terus menggelengkan kepalanya.
+Sambil bicara ia terus menggelengkan kepalanya.[^cuplikan-1]
 
-[Cuplikan adegan ini dari Youtube](https://youtube.com/clip/UgkxVA6xG-NgdbtBejjl2PM8vtE5jMRvAeqc)
+[^cuplikan-1]: [Cuplikan adegan ini dari Youtube](https://youtube.com/clip/UgkxVA6xG-NgdbtBejjl2PM8vtE5jMRvAeqc).
 
 "Apanya yang sulit?" kata Guo Xiaotian, agak emosi. "Ini daerah pinggiran, bukan
 Lin'an. Tidak ada yang akan memenggal kepalamu. Tidak ada orang di dunia yang tidak
