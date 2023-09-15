@@ -1,6 +1,15 @@
 {
-  "name": "memanah-burung-rajawali",
-  "node-main": "memanah-rajawali/index.html",
-  "node-remote": "http://localhost:3000",
-  "scripts": {"start": "nw ."}
+  "name": "memanah-rajawali",
+  "type": "module",
+  "version": "1.0.1",
+  "scripts": {
+    "dev": "astro dev",
+    "start": "astro dev",
+    "build": "astro build",
+    "preview": "astro preview",
+    "astro": "astro"
+  },
+  "dependencies": {
+    "astro": "^3.0.12"
+  }
 }

@@ -1,0 +1,26 @@
+---
+import {getEntry} from 'astro:content';
+const intro = await getEntry('sdyxz', 'intro');
+const {Content, headings} = await intro.render();
+---
+
+<!DOCTYPE html>
+<html lang="en">
+	<head>
+		<meta charset="utf-8" />
+		<link rel="icon" type="image/svg+xml" href="/favicon.svg" />
+		<meta name="viewport" content="width=device-width, initial-scale=1.0" />
+		<meta name="description" content={intro.data.description} />
+		<title>{intro.data.title}</title>
+		<link rel="stylesheet" href="/styles/w3.css"/>
+	</head>
+	<body>
+		<main class="w3-main w3-container">
+			<div class="w3-content w3-row-padding">
+				<div class="w3-col m9 l8">
+					<Content />
+				</div>
+			</div>
+		</main>
+	</body>
+</html>

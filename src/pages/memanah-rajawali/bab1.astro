@@ -1,0 +1,40 @@
+---
+import {getEntry} from 'astro:content';
+const bab1 = await getEntry('sdyxz', 'bab1');
+const {Content, headings} = await bab1.render();
+---
+
+<!DOCTYPE html>
+<html lang="en">
+	<head>
+		<meta charset="utf-8" />
+		<link rel="icon" type="image/svg+xml" href="/favicon.svg" />
+		<meta name="viewport" content="width=device-width, initial-scale=1.0" />
+		<meta name="description" content={bab1.data.description} />
+		<title>{bab1.data.title}</title>
+		<link rel="stylesheet" href="/styles/w3.css"/>
+	</head>
+	<body>
+		<main class="w3-main">
+			<div class="w3-content w3-container w3-row-padding">
+                <div class="w3-col m3 l4 w3-padding-32">
+                    <h3>Memanah Rajawali</h3>
+                    <div class="w3-card">
+                        <img src={bab1.data.image} alt="Gambar ilustrasi Bab 1" width="100%"/>
+                        <div class="w3-container">
+                            <h3>{bab1.data.title}</h3>
+                            <em>{bab1.data.ilustrasi}</em>
+                            <p></p>
+                        </div>
+                        <div class="w3-bar-block">
+                            <a class="w3-bar-item w3-hover-black w3-btn" href="/">Home</a>
+                        </div>
+                    </div>
+                </div>
+				<div class="w3-col m9 l8">
+					<Content />
+				</div>
+			</div>
+		</main>
+	</body>
+</html>

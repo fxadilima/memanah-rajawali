@@ -1,0 +1,6 @@
+{
+  "name": "memanah-burung-rajawali",
+  "node-main": "memanah-rajawali/index.html",
+  "node-remote": "http://localhost:3000",
+  "scripts": {"start": "nw ."}
+}
