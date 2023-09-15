@@ -1,12 +1,12 @@
 ---
 import {getEntry} from 'astro:content';
 import ReferenceCard from '../../components/ReferenceCard.astro';
-import IllustrationCard
- from '../../components/IllustrationCard.astro';
+import IllustrationCard from '../../components/IllustrationCard.astro';
+
 const bab2 = await getEntry('sdyxz', 'bab2');
-const {Content, headings} = await bab2.render();
 const bab1 = await getEntry('sdyxz', 'bab1');
 const bab3 = await getEntry('sdyxz', 'bab3');
+const {Content, headings} = await bab2.render();
 ---
 
 <!DOCTYPE html>
@@ -45,7 +45,12 @@ const bab3 = await getEntry('sdyxz', 'bab3');
 					<ReferenceCard image={bab1.data.image} title={bab1.data.title} 
 					    ilustrasi={bab1.data.ilustrasi}
 						href={bab1.slug}
-					/> 
+					/>
+					<ReferenceCard 
+						image={bab3.data.image}
+						title={bab3.data.title}
+						ilustrasi={bab3.data.ilustrasi} 
+						href={bab3.slug}/>
                 </div>
 			</div>
 		</main>

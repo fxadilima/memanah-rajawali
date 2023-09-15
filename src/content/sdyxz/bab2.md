@@ -9,7 +9,7 @@ ilustrasi: |
     dengan kedua tangannya memegang tong, menjaga 
     keseimbangannya di atas pelana. Kuda itu sangat cepat 
     dan stabil, seolah-olah tangga itu hanya sebidang tanah datar.
-
+defaultRef: /memanah-rajawali/bab2
 ---
 
 ## Bab 2
