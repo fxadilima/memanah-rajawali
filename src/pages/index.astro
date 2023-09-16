@@ -1,7 +1,9 @@
 ---
 import {getEntry, getCollection} from 'astro:content';
 import ReferenceCard from '../components/ReferenceCard.astro';
-const intro = await getEntry('sdyxz', 'intro');
+import ContentRenderer from '../components/ContentRenderer.astro';
+
+const intro = await getEntry('blog', 'memanah-rajawali');
 const {Content, headings} = await intro.render();
 const chapters = await getCollection('sdyxz');
 ---
@@ -18,18 +20,30 @@ const chapters = await getCollection('sdyxz');
 		<link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/4.7.0/css/font-awesome.min.css">
 	</head>
 	<body>
-		<main class="w3-main w3-row-padding">
-			<div class="w3-col m9 l8">
-				<div class="w3-container w3-content">
-					<Content />
+		<main class="w3-main w3-padding-16">
+			<div class="w3-row-padding">
+				<div class="w3-col m9 l8">
+					<div class="w3-container w3-content">
+						<Content />
+					</div>
+					<div class="w3-panel">
+						<ContentRenderer namaKoleksi='tutorial' namaEntry='menggunakan-w3css' namaTag="w3css-tutorial" />
+					</div>
 				</div>
-			</div>
-			<div class="w3-col m3 l4">
-				{
-					chapters.map(bab => (
-						<ReferenceCard image={bab.data.image} title={bab.data.title} ilustrasi={bab.data.ilustrasi} href={"/memanah-rajawali/" + bab.slug} />
-					))
-				}
+				<div class="w3-col m3 l4 w3-padding-16">
+					<img src={intro.data.image} alt="Gambar front page" width="100%"/>
+					<div class="w3-container w3-padding-16">
+						<h3>Genghis Khan</h3>
+						<p>
+							Dalam cerita ini tokoh sejarah yang paling menonjol adalah Genghis Khan.
+						</p>
+					</div>
+					{
+						chapters.map(bab => (
+							<ReferenceCard image={bab.data.image} title={bab.data.title} ilustrasi={bab.data.ilustrasi} href={"/memanah-rajawali/" + bab.slug} />
+						))
+					}
+				</div>	
 			</div>
 		</main>
 	</body>

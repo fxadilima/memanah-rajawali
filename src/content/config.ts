@@ -1,6 +1,5 @@
 // 1. Import utilities from `astro:content`
 import { z, defineCollection, reference } from 'astro:content';
-import { optional } from 'zod';
 // 2. Define your collection(s)
 const sdyxzCollection = defineCollection({
     type: 'content',
@@ -10,8 +9,7 @@ const sdyxzCollection = defineCollection({
         description: z.string(),
         image: z.string().optional(),
         ilustrasi: z.string().optional(),
-        nextPage: z.string().optional(),
-        prevPage: z.string().optional(),
+        relatedPages: z.array(reference('sdyxz')).optional(),
     })
 });
 
@@ -34,10 +32,33 @@ const yttljCollection = defineCollection({
     })
 });
 
+const blogCollection = defineCollection({
+    type: 'content', // v2.5.0 and later
+    schema: z.object({
+        title: z.string(),
+        tags: z.array(z.string()),
+        image: z.string().optional(),
+        description: z.string().optional(),
+    }),
+});
+
+const tutorialCollection = defineCollection({
+    type: 'content', // v2.5.0 and later
+    schema: z.object({
+        title: z.string(),
+        description: z.string().optional(),
+        author: z.string(),
+        tags: z.array(z.string()),
+        keywords: z.string(),
+    }),
+});
+
 // 3. Export a single `collections` object to register your collection(s)
 //    This key should match your collection directory name in "src/content"
 export const collections = {
     'sdyxz': sdyxzCollection,
     'dgsd': dgsdCollection,
-    'yttlj': yttljCollection
+    'yttlj': yttljCollection,
+    'blog': blogCollection,
+    'tutorial': tutorialCollection,
 };

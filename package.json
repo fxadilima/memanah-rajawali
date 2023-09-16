@@ -11,5 +11,8 @@
   },
   "dependencies": {
     "astro": "^3.0.12"
+  },
+  "devDependencies": {
+    "@astrojs/react": "^3.0.2"
   }
 }
