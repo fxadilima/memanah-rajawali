@@ -7,7 +7,8 @@ ilustrasi: |
   Akhirnya si pendeta tertawa, mendadak telapak kanannya menghantam pegangan tombak dengan kecepatan seperti angin. 
   Yang Tiexin merasa pangkal jempol dan telunjuknya mati rasa, dan dengan segera ia melepaskan tombak ke tanah 
   yang diselimuti salju.
-
+nextPage: bab2
+prevPage: intro
 ---
 
 # Bab 1

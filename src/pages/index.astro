@@ -3,9 +3,6 @@ import {getEntry, getCollection} from 'astro:content';
 import ReferenceCard from '../components/ReferenceCard.astro';
 const intro = await getEntry('sdyxz', 'intro');
 const {Content, headings} = await intro.render();
-const bab1 = await getEntry('sdyxz', 'bab1');
-const bab2 = await getEntry('sdyxz', 'bab2');
-const bab3 = await getEntry('sdyxz', 'bab3');
 const chapters = await getCollection('sdyxz');
 ---
 

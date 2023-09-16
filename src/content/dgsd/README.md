@@ -1,3 +1,9 @@
+---
+title: About Demi Gods and Semi Devils
+author: FX. Adi Lima
+description: Catatan mengenai serial Tian Long Ba Bu
+---
+
 # Demi Gods and Semi Devils
 
 Judul asli cerita ini adalah Tian Long Ba Bu (天龙八部, atau karakter tradisional 天龍八部), yang maknanya diambil dari

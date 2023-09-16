@@ -9,7 +9,7 @@ ilustrasi: |
     berguling-guling kesakitan. Ia berguling di sebelah kaki Jochi sebelum tiba-tiba melompat dan meraih 
     kaki kanannya. Jochi mencoba menghempaskannya dengan sebuah tendangan, tetapi cengkeraman bocah itu 
     sangat kuat, dan ia tidak bisa melepaskan kakinya
-
+relatedBooks: [ bab1, bab2 ]
 ---
 
 ## Bab 3

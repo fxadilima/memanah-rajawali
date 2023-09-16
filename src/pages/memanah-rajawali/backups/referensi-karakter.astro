@@ -1,0 +1,25 @@
+---
+import {getEntry} from 'astro:content';
+const buku = await getEntry('sdyxz', 'referensi-karakter');
+const {Content, headings} = await buku.render();
+---
+
+<!DOCTYPE html>
+<html lang="en">
+	<head>
+		<meta charset="utf-8" />
+		<link rel="icon" type="image/svg+xml" href="/favicon.svg" />
+		<meta name="viewport" content="width=device-width, initial-scale=1.0" />
+		<meta name="description" content={buku.data.description} />
+		<title>{buku.data.title}</title>
+		<link rel="stylesheet" href="/styles/w3.css"/>
+		<link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/4.7.0/css/font-awesome.min.css">
+	</head>
+	<body>
+		<main class="w3-main w3-row-padding">
+            <div class="w3-container w3-content">
+                <Content />
+            </div>
+		</main>
+	</body>
+</html>

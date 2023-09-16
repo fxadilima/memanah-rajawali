@@ -1,5 +1,5 @@
 ---
-import {getEntry} from 'astro:content';
+import {getEntry, getCollection} from 'astro:content';
 import ReferenceCard from '../../components/ReferenceCard.astro';
 import IllustrationCard from '../../components/IllustrationCard.astro';
 
@@ -7,6 +7,7 @@ const bab2 = await getEntry('sdyxz', 'bab2');
 const bab1 = await getEntry('sdyxz', 'bab1');
 const bab3 = await getEntry('sdyxz', 'bab3');
 const {Content, headings} = await bab2.render();
+const chapters = await getCollection('sdyxz');
 ---
 
 <!DOCTYPE html>
@@ -42,15 +43,11 @@ const {Content, headings} = await bab2.render();
                     <IllustrationCard image={bab2.data.image} title={bab2.data.title} 
                         ilustrasi={bab2.data.ilustrasi} 
                     />
-					<ReferenceCard image={bab1.data.image} title={bab1.data.title} 
-					    ilustrasi={bab1.data.ilustrasi}
-						href={bab1.slug}
-					/>
-					<ReferenceCard 
-						image={bab3.data.image}
-						title={bab3.data.title}
-						ilustrasi={bab3.data.ilustrasi} 
-						href={bab3.slug}/>
+					{
+						chapters.map(bab => (
+							<ReferenceCard image={bab.data.image} title={bab.data.title} ilustrasi={bab.data.ilustrasi} href={"/memanah-rajawali/" + bab.slug} />
+						))
+					}
                 </div>
 			</div>
 		</main>

@@ -1,0 +1,66 @@
+---
+import { CollectionEntry, getCollection, getEntry } from 'astro:content';
+
+export async function getStaticPaths() {
+    const posts = await getCollection('sdyxz');
+
+    return posts.map((post) => {
+        return {
+            params: {
+                slug: post.slug,
+            },
+            props: {
+                post,
+            },
+        };
+    });
+}
+
+interface Props {
+    post: CollectionEntry<'sdyxz'>;
+}
+
+const { post } = Astro.props;
+const { Content } = await post.render();
+
+const allPosts = await getCollection('sdyxz', ({data}) => {
+    return data.title === post.data.title ? false : true;
+})
+---
+
+<!DOCTYPE html>
+<html lang="en">
+	<head>
+		<meta charset="utf-8" />
+		<link rel="icon" type="image/svg+xml" href="/favicon.svg" />
+		<meta name="viewport" content="width=device-width, initial-scale=1.0" />
+		<meta name="author" content={post.data.author} />
+		<title>{post.data.title}</title>
+		<link rel="stylesheet" href="https://www.w3schools.com/w3css/4/w3.css"/>
+		<link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/4.7.0/css/font-awesome.min.css">
+	</head>
+	<body>
+		<main class="w3-main w3-row-padding">
+            <div class="w3-col m8 l8">
+                <div class="w3-container">
+                    <Content />
+                </div>
+            </div>
+            <div class="w3-col m4 l4">
+                <div class="w3-container">
+                    <h3>All Posts</h3>
+                    <ul class="w3-ul w3-card-4">
+                        {
+                            allPosts.map((rb) => (
+                                <li>
+                                    <a href={`/memanah-rajawali/${rb.slug}`} class="w3-btn w3-hover-blue">{rb.data.title}</a>
+                                </li>
+                            ))
+                        }
+                    </ul>
+                </div>
+            </div>
+        </main>
+    </body>
+</html>
+

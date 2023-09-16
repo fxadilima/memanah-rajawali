@@ -1,0 +1,21 @@
+---
+import type { CollectionEntry } from 'astro:content';
+interface Props {
+  buku: CollectionEntry<'sdyxz'>;
+}
+
+// `buku` will match our 'sdyxz' collection schema type
+const { buku } = Astro.props;
+---
+
+<div class="w3-card w3-padding-16">
+    <div class="w3-container w3-round-large">
+        <a href={buku.data.image} title=`Go to: ${buku.slug}`>
+        <img src={buku.data.image} alt=`Gambar ilustrasi ${buku.data.title}` width="100%"/>
+    </a>
+    <div class="w3-container">
+        <h3>{buku.data.title}</h3>
+        <em>{buku.data.ilustrasi}</em>
+        <a href=`/memanah-rajawali/${buku.slug}`>Read more...</a>
+    </div>
+</div>
