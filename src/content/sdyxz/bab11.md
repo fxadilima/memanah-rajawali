@@ -10,12 +10,6 @@ ilustrasi: |
 # Bab 11
 ## Qiu Chuji Mengaku Kalah
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 11](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692824/sdyxz/originals/loch-11_pmioc0.jpg) | _Pada hari yang ke delapan, Guo Jing berhasil mencapai puncak. Ia mengulurkan tangan dan mengangkat Huang Rong ke atas. Mereka melompat-lompat kegirangan, larut dalam kemenangan. Lalu sambil bergandengan tangan, mereka menuruni air terjun sekali lagi._ |
-
-***
-
 Melihat adik seperguruannya dalam bahaya besar, Sha Tongtian melompat untuk bergegas 
 melepaskan genggaman Mei Chaofeng. Segera setelah kedua tangan mereka bertemu, mereka merasa
 tangan mereka mendadak nyeri. Sementara itu dari arah kiri datanglah suara berdesir dari

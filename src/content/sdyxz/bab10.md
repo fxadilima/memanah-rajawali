@@ -241,42 +241,6 @@ ia bergegas menuju pintu keluar. Ouyang Ke berteriak keras, "Aku tertipu!" Ia ha
 berseru untuk memperingatkan, tapi tidak bisa mengejar. Sha Tongtian, Peng Lianhu dan
 yang lain melihat Huang Rong menipu Ouyang Ke dengan cerdik, dan tidak bisa menahan tawa.
 
-<div class="w3-panel w3-card-4">
-    <h4>Catatan</h4>
-    <p>
-    Peristilahan dalam sebuah jurus yang diperagakan Huang Rong ini terasa agak aneh, dan
-    saya tidak dapat menemukan padanan kata yang pas. Terjemahan bahasa Inggris menulisnya
-    Hui Feng Fu Liu, dengan keterangan 'Encircling the Wind to Stroke the Willow'. Tiga karakter
-    yang terakhir dapat kita pastikan adalah 风拂柳 (Feng Fu Liu), sedangkan karakter pertama,
-    saya menemukan 2 variasi yang kelihatannya agak cocok. Karakter 'Wei' (围), atau 'Hui' (会).
-    </p>
-    <p>
-    Karakter Wei (围) bermakna 'sekitar', sedangkan Hui (会) dapat diterjemahkan menjadi 'pertemuan'
-    atau 'meeting'. Bunyi kedua karakter tersebut secara signifikan berbeda. Gabungan dua karakter
-    terakhir Fu Liu (拂柳) menghasilkan kalimat seperti 'Meniup pohon Willow', sedangkan Feng adalah
-    'Angin'.
-    </p>
-    <p>
-    Kesimpulan saya adalah, istilah tersebut ingin mengungkapkan 'Tiupan angin yang melanda pohon Willow',
-    karakter pertama berfungsi untuk memberi efek maksimum yang dilebih-lebihkan, semacam 'gulungan angin',
-    'angin puyuh', dsb. Dengan demikian intinya adalah <em>tiupan angin yang menerpa pohon willow</em> itu
-    sendiri.
-    </p>
-    <p>
-    Cuplikan berikut ini tidak tepat menggambarkan adegan terkait seperti cerita di novel,
-    tetapi masih cukup mewakili <em>event</em> pada saat Huang Rong yang memakai sebuah rompi
-    berduri dipukul keras oleh Ling Zhi.
-    </p>
-    <div class="w3-container w3-center">
-        <a href="https://youtube.com/clip/Ugkx_qcXP96oAORlP9RfPfzf5LAMTjc4AHQh" target="_blank">
-            <img src="/images/rompi-berduri.jpg" alt="Rompi Berduri Huang Rong">
-        </a>
-        <div class="w3-container w3-center">
-        <p><em>Raut wajahnya berubah saat ia teringat, berteriak, "Rompi Kulit Landak... Rompi Kulit Landak!"</em></p>
-        </div>
-    </div>
-</div>
-
 Huang Rong baru saja hendak mencapai pintu ketika terdengar suara dahsyat dari atas dan
 sekonyong-konyong sesosok tubuh besar seolah-olah jatuh menimpanya tanpa diketahui jelas
 dari mana datangnya. Ia melangkah ke samping untuk menghindar, menahan rasa takutnya
