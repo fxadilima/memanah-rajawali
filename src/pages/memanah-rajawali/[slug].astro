@@ -48,6 +48,9 @@ const allPosts = await getCollection('sdyxz', ({data}) => {
         <main class="w3-main w3-row-padding">
             <div class="w3-col m8 l8">
                 <div class="w3-container">
+                    <!-- May not be neccessary for now
+                    <img src={post.data.image} alt={post.data.title} style="float:left;margin:16px;width:25%;"/>
+                    -->
                     <Content />
                 </div>
             </div>
@@ -65,6 +68,7 @@ const allPosts = await getCollection('sdyxz', ({data}) => {
                     </ul>
                 </div>
             </div>
+
         </main>
     </body>
 </html>

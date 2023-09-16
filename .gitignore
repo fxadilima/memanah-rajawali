@@ -1,6 +1,9 @@
 node_modules/
 *.code-workspace
 
+# local master folder (staging)
+master/
+ 
 # build output
 dist/
 # generated types
