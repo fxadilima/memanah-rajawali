@@ -13,6 +13,7 @@
     "astro": "^3.0.12"
   },
   "devDependencies": {
+    "@astrojs/mdx": "^1.1.0",
     "@astrojs/react": "^3.0.2"
   }
 }
