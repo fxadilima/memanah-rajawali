@@ -52,12 +52,6 @@ const allPosts = await getCollection('sdyxz', ({data}) => {
                 </div>
             </div>
             <div class="w3-col m4 l4">
-                <div class="w3-bar">
-                    <a href="/" class="w3-bar-item w3-hover-black w3-round"><i class="fa fa-home"></i></a>
-                    {post.data.relatedPages?.map((page) => (
-                        <a href={`/memanah-rajawali/${page.slug}`}>{page.data.title}</a>
-                    ))}
-                </div>
                 <div class="w3-container">
                     <h3>All Posts</h3>
                     <ul class="w3-ul w3-card-4">
