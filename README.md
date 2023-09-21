@@ -14,6 +14,10 @@ To view the novel outside of GitHub, we may need some _simple_, and yet effectiv
 here. I do not use fancy codes to transform the **Markdown** text, just enough to give us convenience and nice text,
 with all references videos (if any), and also some screenshots I get from dramas here and there.
 
+- [ ] Translation has been suspended on Chapter 38.
+- [X] My story is about to grow from there.
+
+
 ## Server
 
 Convenient reading, we should use some HTTP server, in this repository I added a server.js that you can use with node.js or
