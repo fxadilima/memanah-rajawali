@@ -258,7 +258,7 @@ keras.
 
 Tiba-tiba ia merasakan sentuhan ringan di bahunya. Ia berpaling engan kaget, dan melihat tangan Ouyang Feng menyentuh
 titik akupuntur Tao Dao. Ketika Ouyang Feng jatuh ke perangkap Guo Jing dan keluar dari dalam pasir, Guo Jing menotok
-titik Tao Dao-nya. Kali ini Ouyang Feng berhasil melakukan hal yang sama terhadap Guo JIng, ini sebuah pembalasan,
+titik Tao Dao-nya. Kali ini Ouyang Feng berhasil melakukan hal yang sama terhadap Guo Jing, ini sebuah pembalasan,
 tak tertahankan lagi Ouyang Feng tertawa terbahak-bahak.
 
 Guo Jing sedang diselimuti duka, ia tak lagi mempedulikan keselamatannya. "Kalau kau ingin membunuhku, bunuh saja.
