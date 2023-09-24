@@ -1,4 +1,6 @@
-# &#8505;&#65039; Memanah Rajawali
+# &#8505;&#65039; Informasi
+
+[🦅 Home](https://fxadilima.github.io/docs/sdyxz/bab1.html "Memanah Rajawali Bab 1")
 
 Cerita karangan Jin Yong, Yi Tian Tu Long Ji[^judul-1], atau lebih populer diterjemahkan dalam bahasa Indonesia
 menjadi 'Pedang Langit dan Golok Pembunuh Naga', ditulis dengan maksud mengakhiri secara definitif rangkaian cerita
@@ -20,12 +22,6 @@ dan terbawa jauh sekali melampaui itu.
 [^manikeisme]: Manikeisme adalah sebuah ajaran agama yang berdasarkan ajaran tokoh bernama Mani. Ajaran ini memang marak di era tersebut, tetapi di jaman modern ini sudah nyaris tidak ada peminatnya lagi. Sebelum menjadi seorang pastor, Agustinus dari Hippo juga adalah pengikut setia aliran ini. Ajaran inilah yang dianut oleh Ming Jiao yang dalam cerita Pedang Langit dan Golok Pembunuh Naga dipimpin oleh Zhang Wuji, meskipun Zhang Wuji sendiri bukan penganut agama ini. 
 
 [^judul-1]: Yi Tian Tu Long Ji (倚天屠龙记), secara berturut-turut arti literal kelima karakter itu adalah, 'Bersandar pada', 'Langit/Surga/Tuhan', 'Jagal/Menyembelih/Membunuh', 'Naga', dan 'Kenangan/Kisah/Cerita'. Karena itu istilah tersebut seharusnya diterjemahkan menjadi 'Kisah Bersandar pada Langit untuk membunuh Sang Naga'. Tetapi di sepanjang cerita kita akan sering membaca atau mendengar istilah Yi Tian Jian (倚天剑), di mana karakter Jian (剑) adalah 'Pedang'. Dan juga istilah Tulong Dao (屠龙刀) yang berarti 'Golok yang membunuh Sang Naga'. Ini membuat istilah 'Pedang Langit dan Golok Pembunuh Naga' menjadi masuk akal untuk diterima sebagai sebuah judul. Tetapi judul aslinya sebenarnya tidak bermakna demikian. Barangkali judul 'Kisah Membunuh Sang Naga dengan Kehendak Surga' lebih sesuai dengan judul aslinya.
-
-[Ringkasan](./ringkasan-peristiwa) ini memperdalam kupasan mengenai latar belakang keluarga Zhao Min
-dan keluarga Sang Kaisar Dinasti Yuan, Toghon Temur, yang akhirnya digulingkan oleh Ming. Landasan yang telah diceritakan 
-Jin Yong masih dipakai sebagai bahan bercerita, tetapi fakta mengenai keluarga istana diceritakan dengan patokan sejarah nyata. 
-Kehadiran Zhao Min sebagai putri kesayangan Jendral Chaghan Temur tidak merusak jalannya peristiwa sejarah. Chaghan Temur 
-sendiri _memang_ akhirnya tewas di tangan salah seorang pejuang dari kalangan petani. 
 
 Wang Baobao, atau Koke Temur, yang sebelumnya selalu digambarkan sebagai putra Chaghan Temur, diungkapkan sesuai dengan 
 fakta sejarah, yaitu bahwa ia sebenarnya adalah anak dari saudara perempuan Chaghan Temur, yang diangkat anak oleh 
