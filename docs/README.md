@@ -1,6 +1,9 @@
 # &#8505;&#65039; Informasi
 
-[🦅 Home](https://fxadilima.github.io/docs/sdyxz/bab1.html "Memanah Rajawali Bab 1")
+
+- [🦅 Home](https://fxadilima.github.io/docs/sdyxz/bab1.html "Memanah Rajawali Bab 1").
+- [🦅 Netlify App](https://memanah-rajawali.netlify.app).
+
 
 Cerita karangan Jin Yong, Yi Tian Tu Long Ji[^judul-1], atau lebih populer diterjemahkan dalam bahasa Indonesia
 menjadi 'Pedang Langit dan Golok Pembunuh Naga', ditulis dengan maksud mengakhiri secara definitif rangkaian cerita
