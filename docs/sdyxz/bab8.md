@@ -1,15 +1,16 @@
 ---
-title: Bab 8
+layout: default
+title: 🦅 Memanah Rajawali | Bab 8 | Memamerkan Ilmu Silat
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 8 | Memamerkan Ilmu Silat
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692724/sdyxz/originals/loch-08_yhusym.jpg
 ---
 
 # Bab 8
 ## Memamerkan Ilmu Silat
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 8](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692724/sdyxz/originals/loch-08_yhusym.jpg) | _Tiba-tiba terdengar suara tawa lembut dan Guo Jing berpaling, dan mendengar suara cipratan air dan sehelai daun melayang turun dari sebuah pohon. Lalu ia melihat seorang anak perempuan di bagian belakang sebuah perahu, sedang mendayung dengan santai. Rambutnya panjang melewati bahu, ia mengenakan setelan putih dari ujung kepala sampai ujung kaki, dan di rambutnya terselip sebuah jepit berwarna keemasan yang berkilau seperti api._ |
+[🏠](/)  [◀ Prev](bab7)  [Next ▶](bab9)
+
 
 ***
 

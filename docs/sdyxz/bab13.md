@@ -1,11 +1,17 @@
 ---
-title: Bab 13
+layout: default
+title: 🦅 Memanah Rajawali | Bab 13 | Orang Lumpuh Di Lima Danau
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 13 | Orang Lumpuh Di Lima Danau
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692862/sdyxz/originals/loch-13_q1tnfz.jpg
 ---
 
 # Bab 13
 ## Orang Lumpuh Di Lima Danau
+
+[🏠](/)  [◀ Prev](bab12)  [Next ▶](bab14)
+
+***
 
 | Ilustrasi | Narasi |
 |   :---:   | :---   |

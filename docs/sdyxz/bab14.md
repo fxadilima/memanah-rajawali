@@ -1,16 +1,15 @@
 ---
-title: Bab 14
+layout: default
+title: 🦅 Memanah Rajawali | Bab 14 | Majikan Pulau Bunga Persik
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 14 | Majikan Pulau Bunga Persik
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692895/sdyxz/originals/loch-14_fkrvnr.jpg
 ---
 
 # Bab 14
 ## Majikan Pulau Bunga Persik
 
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 14](https://res.cloudinary.com/drzjshskk/image/upload/v1676692895/sdyxz/originals/loch-14_fkrvnr.jpg) | _Kekuatan Delapan Belas Jurus Penakluk Naga tidaklah ringan. Namun Mei Chaofeng selalu tahu sebelumnya kemana arah serangannya dan mampu menghindar dengan cepat. Beberapa langkah kemudian orang aneh itu menjentikkan tiga kerikil secara berurutan. Mei Chaofeng mengikuti suara itu dan meluncurkan tiga serangan mematikan satu demi satu._ |
+[🏠](/)  [◀ Prev](bab13)  [Next ▶](bab15)
 
 ***
 

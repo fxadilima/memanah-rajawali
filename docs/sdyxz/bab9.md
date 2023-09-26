@@ -1,15 +1,15 @@
 ---
-title: Bab 9
+layout: default
+title: 🦅 Memanah Rajawali | Bab 9 | Tombak Berkarat dan Bajak Rusak
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 9 | Tombak Berkarat dan Bajak Rusak
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692753/sdyxz/originals/loch-09_fpvxuk.jpg
 ---
 
 # Bab 9
 ## Tombak Berkarat dan Bajak Rusak
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 9](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692753/sdyxz/originals/loch-09_fpvxuk.jpg) | _Yang Tiexin menurunkan tombak berkarat yang tergantung di dinding. Ia mengetuk gagang tombak itu dengan lembut sambil menghela nafas, "Tombak besi ini sudah berkarat. Ini sudah lama tidak dipakai." Wang Fei berkata dengan lembut, "Tolong jangan sentuh tombak itu. Tombak itu barang paling berharga yang aku miliki." "Betulkah?" tanya Yang Tiexin. "Tombak ini dulunya punya pasangan, tapi sekarang ia tinggal sendirian."_ |
+[🏠](/)  [◀ Prev](bab8)  [Next ▶](bab10)
 
 ***
 

@@ -1,7 +1,8 @@
 ---
-title: Bab 11
+layout: default
+title: 🦅 Memanah Rajawali | Bab 11 | Qiu Chuji Mengaku Kalah
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 11, Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 11 | Qiu Chuji Mengaku Kalah
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692824/sdyxz/originals/loch-11_pmioc0.jpg
 ilustrasi: |
     Pada hari yang ke delapan, Guo Jing berhasil mencapai puncak. Ia mengulurkan tangan dan mengangkat Huang Rong ke atas. Mereka melompat-lompat kegirangan, larut dalam kemenangan. Lalu sambil bergandengan tangan, mereka menuruni air terjun sekali lagi
@@ -9,6 +10,10 @@ ilustrasi: |
 
 # Bab 11
 ## Qiu Chuji Mengaku Kalah
+
+[🏠](/)  [◀ Prev](bab10)  [Next ▶](bab12)
+
+* * *
 
 Melihat adik seperguruannya dalam bahaya besar, Sha Tongtian melompat untuk bergegas 
 melepaskan genggaman Mei Chaofeng. Segera setelah kedua tangan mereka bertemu, mereka merasa

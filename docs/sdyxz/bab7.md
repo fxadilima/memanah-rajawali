@@ -1,15 +1,15 @@
 ---
-title: Bab 7
+layout: default
+title: 🦅 Memanah Rajawali | Bab 7 |Perlombaan Mencari Jodoh
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 7
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch07_ijj1tf.jpg
 ---
 
 # Bab 7
 ## Perlombaan Mencari Jodoh
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 7](https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch07_ijj1tf.jpg) | _Guo Jing merampas spanduk yang bertuliskan Lomba Mencari Jodoh itu, lalu menyapu tiangnya di sepanjang lengannya. Spanduk itu terbalik di atas muka si pangeran. Si Pangeran memiringkan tubuhnya ke samping dan mengangkat tombaknya. Dengan bayangan merah melingkar dan mata tombak yang berkelap-kelip ia menusukkan tombaknya ke arah Guo Jing._     |
+[🏠](/)  [◀ Prev](bab6)  [Next ▶](bab8)
 
 ***
 

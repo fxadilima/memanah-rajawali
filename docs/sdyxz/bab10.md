@@ -1,16 +1,15 @@
 ---
-title: Bab 10
+layout: default
+title: 🦅 Memanah Rajawali | Bab 10 | Pertemuan Para Musuh
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 10 | Pertemuan Para Musuh
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692788/sdyxz/originals/loch-10_nsxcbk.jpg
 ---
 
 # Bab 10
 ## Pertemuan Para Musuh
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 10](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692788/sdyxz/originals/loch-10_nsxcbk.jpg) | _Mengikuti arahannya, Guo Jing menempatkan Mei Chaofeng di atas bahunya dan buru-buru mengejar lawan yang melarikan diri. Tubuhnya memiliki dasar-dasar kungfu yang kuat, dan tubuh Mei Chaofeng tidak berat, jadi meskipun wanita itu bertengger di atas bahunya, kegesitannya sama sekali tidak berkurang. Ia dengan cepat melompat ke depan dan Mei Chaofeng tegak bersamanya._ |
+[🏠](/)  [◀ Prev](bab9)  [Next ▶](bab11)
 
 ***
 
