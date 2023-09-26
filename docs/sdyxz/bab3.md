@@ -1,4 +1,5 @@
 ---
+layout: default
 title: Kehidupan Di Padang Rumput
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
@@ -14,7 +15,7 @@ relatedBooks: [ bab1, bab2 ]
 
 ## 🦅 Bab 3
 
-[🏠](/)  [◀ Prev](bab2.md) [Next ▶](bab4.md)
+[🏠](/)  [◀ Prev](bab2)  [Next ▶](bab4)
 
 Para biksu menangisi kematian Biksu Jiaomu, tetapi beberapa orang dari mereka 
 masih sempat merawat orang-orang yang terluka dengan membalut luka mereka dan membawa mereka 

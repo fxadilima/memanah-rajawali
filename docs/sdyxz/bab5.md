@@ -1,17 +1,17 @@
 ---
+layout: default
 title: Bab 5
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 5 | Memanah Rajawali
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:162/v1676692567/sdyxz/originals/loch-05_exhrii.jpg
 ---
 
 # Bab 5
 ## Memanah Rajawali
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 5](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:162/v1676692567/sdyxz/originals/loch-05_exhrii.jpg) | _Temujin tersenyum, mengarahkan busurnya dan menembakkan panah besi yang, seperti petir, mengiris tubuh elang hitam. Kerumunan bertepuk tangan. Khan kemudian memberikan busurnya kepada Ogedai. "Sekarang giliranmu!"_     |
+[🏠](/)  [◀ Prev](bab4)  [Next ▶](bab6)
 
-***
+* * *
 
 Sederet orang turun gunung. Setelah berjalan beberapa saat, tiba-tiba mereka mendengar raungan binatang buas di depan mereka. Han Baoju melompat ke atas kuda kuningnya, dan pergi untuk melihat apa yang terjadi. Setelah berlari beberapa saat, kuda kuning itu tiba-tiba berhenti dan tidak ada desakan yang bisa membuatnya bergerak.
 

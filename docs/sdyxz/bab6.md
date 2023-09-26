@@ -1,17 +1,17 @@
 ---
+layout: default
 title: Bab 6
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 6. Misteri di pubcak tebing.
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692655/sdyxz/originals/loch-06_hqtnmd.jpg
 ---
 
 # Bab 6
 ## Misteri Di Puncak Tebing
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 6](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692655/sdyxz/originals/loch-06_hqtnmd.jpg) | _Guo Jing menembakkan tiga anak panah yang melesat dengan kecepatan seperti angin, dan menewaskan tiga orang pengejar terdekat. Sambil tetap menembakkan panah, ia membunuh seorang pengejar lagi. Sementara itu, Jebe sudah tiba di dekatnya dan juga ikut menembakkan anak-anak panahnya, yang sangat cepat dan mematikan._     |
+[🏠](/)  [◀ Prev](bab5)  [Next ▶](bab7)
 
-***
+* * *
 
 Tetap tinggal di dalam _ger_, mereka berenam merundingkan masalah itu. "Orang ini mengajarkan ilmu tenaga dalam tingkat
 tinggi kepada Jing'er kita." kata Han Xiaoying. "Jadi dia _pasti_ tidak punya niat untuk melukai Jing'er."

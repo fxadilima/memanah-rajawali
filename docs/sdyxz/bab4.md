@@ -1,15 +1,15 @@
 ---
-title: Bab 4
+layout: default
+title: Bab 4 | Sepasang Iblis Cakar Tengkorak Putih
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:965/v1676692605/sdyxz/originals/loch-04_xgfiqj.jpg
 ---
 
 # Bab 4
 ## Sepasang Iblis Cakar Tengkorak Putih
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 4](https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:965/v1676692605/sdyxz/originals/loch-04_xgfiqj.jpg) | _Han Baoju merasakan tenaga pukulan itu mendatanginya, dan karena menyadari bahwa ia tidak mampu menahannya, melakukan salto turun dari atas pohon. Tie Shi tidak membiarkannya lolos dan mengikuti tepat di belakangnya, mengincar punggung si pria kecil dengan cakarnya._     |
+[🏠](/)  [◀ Prev](bab3)  [Next ▶](bab5)
 
 ***
 

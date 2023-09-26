@@ -1,4 +1,5 @@
 ---
+layout: default
 title: Tujuh Orang Aneh Dari Jiangnan
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 2. Tujuh Orang Aneh Dari Jiangnan
@@ -14,7 +15,7 @@ defaultRef: /memanah-rajawali/bab2
 
 ## 🦅 Bab 2
 
-[🏠](/)  [◀ Prev](bab1.md) [Next ▶](bab3.md)
+[🏠](/)  [◀ Prev](bab1)  [Next ▶](bab3)
 
 
 Pada saat Yan Lie berjalan keluar, ia berpapasan dengan seorang pelajar setengah
