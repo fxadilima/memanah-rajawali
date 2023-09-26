@@ -1,7 +1,7 @@
 # &#8505;&#65039; Informasi
 
 
-- [🦅 Home](https://fxadilima.github.io/docs/sdyxz/bab1.html "Memanah Rajawali Bab 1").
+- [🦅 Bab 1](sdyxz/bab1 "Memanah Rajawali Bab 1").
 - [🦅 Netlify App](https://memanah-rajawali.netlify.app).
 
 
