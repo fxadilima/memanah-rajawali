@@ -1,5 +1,9 @@
-# &#8505;&#65039; Informasi
-
+---
+layout: default
+title: 🦅 Memanah Rajawali | Prolog
+description: Prolog untuk cerita silat Memanah Rajawali.
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
+---
 
 - [🦅 Bab 1](sdyxz/bab1 "Memanah Rajawali Bab 1").
 - [🦅 Netlify App](https://memanah-rajawali.netlify.app).

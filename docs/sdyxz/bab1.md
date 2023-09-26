@@ -1,9 +1,8 @@
 ---
 title: Insiden Di Tengah Badai Salju
-author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 1.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_contrast:85,q_auto:best/v1676662508/sdyxz/originals/ch01_qqa6or.jpg
-ilustrasi: |
+ilustrasi: >
   Akhirnya si pendeta tertawa, mendadak telapak kanannya menghantam pegangan tombak dengan kecepatan seperti angin. 
   Yang Tiexin merasa pangkal jempol dan telunjuknya mati rasa, dan dengan segera ia melepaskan tombak ke tanah 
   yang diselimuti salju.

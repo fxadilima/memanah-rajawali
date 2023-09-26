@@ -2,5 +2,9 @@ remote_theme: pages-themes/dinky@v0.2.0
 plugins:
 - jekyll-remote-theme # add this line to the plugins list if you already have one
 title: Memanah Rajawali
-description: Jelaskan mengenai novel ini di sini.
+description: Novel Memanah Rajawali, terjemahan dari karya Jin Yong.
+author:
+  name: FX. Adi Lima
+  email: xaverius2017@gmail.com 
+
 
