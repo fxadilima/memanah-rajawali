@@ -1,15 +1,15 @@
 ---
-title: Bab 20
+layout: default
+title: 🦅 Memanah Rajawali | Bab 20 | Kitab Yang Diubah
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 20 | Kitab Yang Diubah
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg
 ---
 
 # Bab 20
 ## Kitab Yang Diubah
 
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 20](https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg)  | _Tiang yang terbakar memisahkan kedua orang itu. Ouyang Feng mengambil tongkat ularnya dan melompati tiang yang menyala. Hong Qigong segera mencabut tongkat bambu dari pinggangnya dan menangkis serangan itu. Mereka telah bertarung dengan ganas dengan tangan kosong sebelumnya, jadi bayangkan betapa sengitnya pertempuran sekarang karena keduanya menggunakan senjata._  |
+[🏠](/)  [◀ Prev](bab19)  [Next ▶](bab21)
 
 ***
 

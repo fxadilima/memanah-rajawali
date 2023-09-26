@@ -1,167 +1,241 @@
 ---
 layout: default
 title: 🦅 Memanah Rajawali | Prolog
-description: Prolog untuk cerita silat Memanah Rajawali.
+description: > 
+    Prolog untuk cerita silat Memanah Rajawali, terjemahan bahasa Indonesia
+    dari karya Jin Yong. Bagian pertama dari Trilogi Rajawali
+
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
 ---
 
-- [🦅 Bab 1](sdyxz/bab1 "Memanah Rajawali Bab 1").
-- [🦅 Netlify App](https://memanah-rajawali.netlify.app).
+- [🦅 Bab 1](sdyxz/bab1 "Memanah Rajawali Bab 1 di GitHub Pages").
+- [🦅 Netlify App](https://memanah-rajawali.netlify.app "Memanah Rajawali di Netlify").
 
 
-Cerita karangan Jin Yong, Yi Tian Tu Long Ji[^judul-1], atau lebih populer diterjemahkan dalam bahasa Indonesia
-menjadi 'Pedang Langit dan Golok Pembunuh Naga', ditulis dengan maksud mengakhiri secara definitif rangkaian cerita
-**Trilogi Rajawali** yang sangat panjang dan rumit. Yitian Tulong Ji sendiri terdiri dari 40 bab yang padat dan 
-tidak mudah diikuti, karena di dalamnya terdapat banyak _kilas balik_ yang diceritakan dari sudut pandang beberapa
-tokoh yang berlainan.
+Kisah Memanah Burung Rajawali, She Diao Ying Xiong Zhuan (射鵰英雄傳), atau judul 
+yang lebih populer dalam bahasa Inggris adalah **The Legend of The Condor Heroes**[^judul-1], 
+adalah novel laris hasil karya Louis Cha (Jin Yong) yang dirilis pertama kalinya di 
+Hong Kong antara 1 Januari 1957 - 19 Mei 1959 dalam bentuk cerita bersambung di surat
+kabar Hong Kong Commercial Daily.
 
-Tetapi ternyata di ujung akhir cerita Jin Yong menulisnya dengan cara yang membuka kemungkinan sangat luas bagi kita untuk
-mengembangkan cerita selanjutnya dengan memakai ulang semua karakter yang ada, termasuk tokoh-tokoh sejarah nyata
-di dalamnya. Adalah sangat sayang kalau kita melewatkan begitu saja detil-detil tentang Zhu Yuanzhang yang merebut
-tahta, dan mengangkat dirinya menjadi seorang Kaisar Dinasti Ming.
+[^judul-1]: Judul bahasa Inggris ini dipopulerkan oleh TVB, Hong Kong, dengan serial televisinya, yang diadaptasikan dari cerita yang sama.
 
-Dalam sejarah nyata, Zhu Yuanzhang _memang_ didukung oleh sejumlah besar pejuang beraliran Manikeisme[^manikeisme], 
-Islam, dan sejumlah aliran lain. Hampir semua tokoh yang menonjol dan berjasa besar dari berbagai aliran ini akhirnya 
-disingkirkannya. Zhu Yuanzhang adalah seorang tokoh sejarah yang sangat unik dan kontroversial. Konsekuensi logis 
-dari berbagai keputusan dan tindakannya tidak berhenti sampai ketika ia sendiri akhirnya meninggal, tetapi meluas
-dan terbawa jauh sekali melampaui itu.
+Ini adalah bagian pertama dalam **Trilogi Rajawali** (Condor Trilogy), yang secara
+keseluruhan berkaitan sangat erat dengan perkembangan hubungan antara Tiongkok
+kuno dengan Mongol. Berawal dari menjelang akhir era Dinasti Song, di mana yang
+berkuasa adalah Dinasti Song Selatan, dengan ibukotanya Lin'an.
 
-[^manikeisme]: Manikeisme adalah sebuah ajaran agama yang berdasarkan ajaran tokoh bernama Mani. Ajaran ini memang marak di era tersebut, tetapi di jaman modern ini sudah nyaris tidak ada peminatnya lagi. Sebelum menjadi seorang pastor, Agustinus dari Hippo juga adalah pengikut setia aliran ini. Ajaran inilah yang dianut oleh Ming Jiao yang dalam cerita Pedang Langit dan Golok Pembunuh Naga dipimpin oleh Zhang Wuji, meskipun Zhang Wuji sendiri bukan penganut agama ini. 
+Pada saat itu wilayah padang rumput di bagian Utara Tiongkok terbagi menjadi
+beberapa konfederasi dari suku-suku nomad seperti Naiman, Khamag Mongol, Merkit,
+Keraite, dan juga Tatar. Sedangkan di sebelah Selatan, Dinasti Song sendiri
+mulai dari tahun 1184 sudah kehilangan kendali atas wilayah Utara mereka, yang jatuh
+ke tangan suku Jurchen[^nuzhen], yang akhirnya mendirikan Dinasti Jin[^dinasti-jin].
 
-[^judul-1]: Yi Tian Tu Long Ji (倚天屠龙记), secara berturut-turut arti literal kelima karakter itu adalah, 'Bersandar pada', 'Langit/Surga/Tuhan', 'Jagal/Menyembelih/Membunuh', 'Naga', dan 'Kenangan/Kisah/Cerita'. Karena itu istilah tersebut seharusnya diterjemahkan menjadi 'Kisah Bersandar pada Langit untuk membunuh Sang Naga'. Tetapi di sepanjang cerita kita akan sering membaca atau mendengar istilah Yi Tian Jian (倚天剑), di mana karakter Jian (剑) adalah 'Pedang'. Dan juga istilah Tulong Dao (屠龙刀) yang berarti 'Golok yang membunuh Sang Naga'. Ini membuat istilah 'Pedang Langit dan Golok Pembunuh Naga' menjadi masuk akal untuk diterima sebagai sebuah judul. Tetapi judul aslinya sebenarnya tidak bermakna demikian. Barangkali judul 'Kisah Membunuh Sang Naga dengan Kehendak Surga' lebih sesuai dengan judul aslinya.
+Dalam perkembangan nama Jurchen ini nantinya akan berganti menjadi Mancu.
 
-Wang Baobao, atau Koke Temur, yang sebelumnya selalu digambarkan sebagai putra Chaghan Temur, diungkapkan sesuai dengan 
-fakta sejarah, yaitu bahwa ia sebenarnya adalah anak dari saudara perempuan Chaghan Temur, yang diangkat anak oleh 
-Chaghan. Ini berarti Koke Temur adalah kakak angkat Zhao Min. Dengan demikian sebenarnya dari sisi politik di kalangan 
-keluarga, mereka sebenarnya cukup bersaing, dan bukan saling mendukung. Koke Temur punya ambisi besar untuk
-berkuasa sebagai Khan, bukan seperti Chaghan Temur yang adalah pejabat Dinasti Yuan yang setia dan menghabiskan 
-waktunya di medan tempur.
+Jurchen adalah bagian  dari Dinasti Liao (907- 1125), sebuah kekaisaran yang dipimpin oleh suku Khitan. 
+Bagi para penggemar cerita silat, suku ini dipopulerkan oleh seorang ketua Kai Pang 
+bernama Xiao Feng — yang awalnya selalu percaya bahwa dirinya adalah seorang 
+suku Han, dan memang dibesarkan oleh keluarga dari suku Han — dalam cerita berjudul 
+**Demi Gods and Semi Devils**, yang mengambil _setting_ dalam era Dinasti Song lebih awal dari cerita ini sendiri. 
+Wilayah asal mereka adalah daerah Timur Laut Tiongkok yang sekarang, dan meskipun berlainan wilayah, mereka adalah
+termasuk suku semi-nomad dari Utara. Dengan demikian kita bisa menyimpulkan bahwa
+rentang waktu dalam cerita **Demi Gods and Semi Devils** adalah sebelum tahun 1125,
+karena pada saat itu Dinasti Liao dan suku Khitan masih ada dan berjaya.
 
-Cerita Yitian Tulong Ji[^judul-1] dibuka dengan pendahuluan dari era menjelang berdirinya Dinasti Yuan, yaitu ketika 
-[Zhang Sanfeng](#zhang-sanfeng) masih berada di Shaolin di bawah bimbingan Jue Yuan Dashi, dan bertemu dengan 
-Guo Xiang, putri kedua dari Guo Jing, yang saat itu baru lolos dari maut dalam peperangan yang menewaskan 
-Khan Agung Mongolia saat itu, yaitu Mongke Khan, kakak kandung Kubilai. Tentunya saat itu Perguruan Wudang 
-masih belum terbentuk.
+Pada tanggal 9 Januari 1127, Jurchen menginvasi istana Kekaisaran Song di Bianjing 
+ibukota Dinasti Song Utara[^bianjing], 
+dan mereka berhasil menyandera 2 kaisar sekaligus, yaitu Kaisar Hui Zong, yang saat
+itu sudah pensiun dan menyandang gelar Taishang Huang, dan Kaisar Qin Zong, yang 
+mewarisi tahta ayahnya. Sebenarnya dalam realita pelimpahan tahta ini terjadi 
+dalam kepanikan, karena Kaisar Hui Zong merasa tidak mampu mengatasi serbuan
+bangsa Jin (Jurchen), dan ia kemudian mengambil langkah mengundurkan diri dari tahta.
 
-Saat itu sebenarnya Guo Xiang sedang patah hati. Ia diam-diam telah jatuh hati kepada Yang Guo yang akhirnya bersatu 
-kembali dengan istrinya, Xiao Longnu, yang dinikahinya tak lama setelah Guo Xiang dilahirkan. Yang Guo akhirnya
-memilih untuk mengasingkan diri dan menghilang dari dunia persilatan.
+Kejadian ini tentu saja dipandang dan dirasakan sebagai sebuah penghinaan oleh bangsa Song,
+dan dikenal dalam sejarah sebagai Insiden Jing Kang. Sampai beberapa generasi setelah
+era ini, rakyat Song akan terus mengingatnya sebagai sebuah peristiwa sangat memalukan
+dan merendahkan martabat mereka sebagai manusia. Salah seorang menteri Song yang ikut
+berperan dalam peristiwa ini adalah Qin Hui, yang untuk seterusnya akan selalu dipandang
+sebagai salah satu tokoh antagonis utama.
 
-Guo Xiang hanya satu-dua tahun lebih tua dari Zhang Sanfeng. Saat itu Zhang Sanfeng masih berusia sekitar enam atau 
-tujuh belas tahun, dengan alis tebal, mata besar, dan tubuhnya sangat jangkung. Ini membuat Zhang Sanfeng sempat 
-mengenal dan mempelajari sebagian ilmu tenaga dalam yang disebut Jiu Yang Shen Gong[^jiuyang-shengong]. Pengetahuannya 
-memang tidak lengkap, tetapi dengan pengetahuan itu ia memberi Zhang Wuji dasar-dasar yang diperlukan untuk menyembuhkan 
-diri dari cedera berat ketika masih berusia sepuluh tahun akibat pukulan dari Xuanming Er Lao[^xuanming].
+Invasi Jurchen di atas dipimpin oleh Khan mereka yang bernama Wuqimai, ia punya nama
+lain yang disesuaikan dengan nama yang lebih dekat dengan masyarakat Selatan (Song), 
+yaitu Wanyan Sheng, ia adalah kaisar kedua Dinasti Jin. Sedangkan orang yang mendirikan 
+Dinasti Jin adalah Wanyan Aguda, yang awalnya bermarkas di sekitar Timur Laut Tiongkok yang 
+sekarang, dan di sebelah Timur sangat dekat dengan Semenanjung Korea. Tempat ini adalah
+[Jilin](https://en.wikipedia.org/wiki/Jilin) dan [Heilongjiang](https://en.wikipedia.org/wiki/Heilongjiang).
 
-[^jiuyang-shengong]: Jiu Yang Shen Gong (九阳神功) adalah ilmu tenaga dalam pertama yang dipelajari Zhang Wuji dalam keadaan terdesak akibat luka dalam yang parah ketika masih berusia sepuluh tahun. Ilmu ini adalah kebalikan dari tenaga dalam yang berasal dari Jiu Yin Zhen Jing milik Zhou Zhiruo, Kalau ilmu Zhou Zhiruo bersifat dingin/feminin, maka ilmu ini bersifat panas/maskulin. Istilah ini sendiri bisa diterjemahkan menjadi 'Tenaga Dewa Sembilan Matahari'.
+Seperti semua insiden bersejarah lainnya, kejadian tersebut juga melahirkan para pahlawan
+bangsa, dan dalam hal ini yang paling sering disebutkan namanya dalam sejarah adalah Jendral Yue Fei,
+yang secara aktif terus melakukan perlawanan terhadap bangsa Jin, dan ironisnya, akhirnya
+ia tewas dieksekusi oleh kaisarnya sendiri. Qin Hui tentu saja ikut berperan dalam
+eksekusi tersebut. Namun begitu, sebenarnya perintah eksekusi itu diturunkan oleh
+Sang Kaisar sendiri, dalam hal ini adalah Gao Zong, yang ketika itu berhasil menyatukan
+sisa-sisa kekuatan Song, lalu membangun basis di wilayah Selatan, dan kembali memulihkan
+Dinasti Song, yang akhirnya dikenal dengan nama Song Selatan.
 
-[^xuanming]: Xuan Ming Shen Zhang (玄冥神掌) adalah ilmu silat milik Xuan Ming Er Lao (玄冥二老), sepasang kakak beradik seperguruan yang bekerja untuk Chaghan Temur. Mereka masing-masing adalah Lu Zhangke (鹿杖客) dan He Biweng (鶴筆翁). Di sini kita sebut saja 'Telapak Dewa Xuanming'.
+Sama seperti Hui Zong, Gao Zong juga sengaja turun tahta, lalu mengangkat putranya
+sebagai Kaisar Guang Zong. Tetapi alasannya sedikit berbeda. Kalau ternyata perjuangan
+Jendral Yue Fei yang pada saat itu sedang unggul di atas Jin, sampai sukses, ia takut
+bahwa kakaknya Qin Zong akan dibebaskan, dan setelah itu siapa yang akan menjadi
+kaisar? Secara otomatis Yue Fei akan cenderung kepada Qin Zong, dan bukan dirinya,
+dengan demikian ia lalu memberikan perintah kepada Yue Fei untuk menarik mundur pasukan,
+dan ini tentu saja sangat menguntungkan bagi Jin. Mereka selanjutnya menuntut Gao Zong
+untuk mengeksekusi Yue Fei, barulah kesepakatan damai ditandatangani.
 
-## Zhang Sanfeng
+Dalam buku pertama dari Trilogi Rajawali karya Jin Yong ini, nama-nama dan uraian 
+di atas akan sering disebut.
 
-Zhang Sanfeng (張三丰) adalah seorang pemuda tanggung yang baru berusia 16 atau 17 tahun ketika bertemu dengan Gua Xiang.
-Ia bernaung di Shaolin sebagai penjaga perpustakaan, dan di bawah bimbingan Jue Yuan Dashi. Para biksu Shaolin mengenalnya
-sebagai Zhang Junbao (張君寶).
+Sementara Kekaisaran Song terus melemah, dan Kekaisaran Jin di wilayah Utara terus
+berusaha memperkuat diri, di wilayah yang lebih Utara lagi, para suku nomad terus bertikai
+di antara suku mereka sendiri, seringkali atas dasar dendam atau perebutan wilayah.
+Permusuhan di antara mereka dipertajam lagi oleh taktik adu-domba yang dijalankan
+oleh Dinasti Jin, karena dengan demikian mereka sendiri akan merasa lebih aman dari
+kemungkinan gangguan dari Utara, sementara mereka terus berusaha untuk menang atas
+Dinasti Song di Selatan. Dalam urusan ini mereka berkoalisi dengan Song, tanpa menunjukkan
+ambisi mereka untuk menguasai Song secara terang-terangan.
 
-Ia mempelajari sebagian ilmu dari Jiu Yang Zhen Jing, dan sebagian lagi dipelajari oleh Guo Xiang. Mereka berdua masing-masing
-memiliki ilmu yang tidak lengkap, karena kitab asli ilmu itu sendiri tidak berhasil didapatkan. 
+Seorang pemimpin dari suku Khamag Mongol kalangan Borjigin akhirnya mengambil
+inisiatif untuk menyatukan mereka semua, dengan tujuan awal untuk mengakhiri semua
+pertikaian yang sebetulnya tidak perlu ini. Sebelumnya ia sendiri juga sempat terlibat
+pertikaian untuk membalas dendam atas tewasnya ayahnya, kepala suku dari Khamag Mongol,
+Yesugai, dan juga untuk merebut kembali istrinya dari tangan suku Merkit. Orang ini
+bernama Temujin.
 
-Sekitar 80 tahun kemudian Zhang Sanfeng teringat akan peristiwa ini ketika anak yang dititipkan murid kesayangannya,
-[Zhang Cuishan](#zhang-cuishan-dan-yin-soso "Riwayat singkat Zhang Cuisan dan Yin Soso"), yang ketika itu baru menjelang 
-10 tahun, terkena Telapak Dewa Xuanming, dan ia sendiri tidak mampu menyelamatkannya.
+Sebelum Temujin dilahirkan, di tahun 1146, Hambussin Khan, atau Ambaghai dari suku Khamag Mongol,
+ditangkap oleh suku Tatar bersama dengan putra Khabul Khan, yaitu Todo'en Otchigin,
+ketika melamar putri dari kepala suku Tatar untuk dikawinkan dengan putranya Qadaan Taishi.
+Ambaghai adalah paman dari Yesugai, ayah kandung Temujin.
 
-Tujuh murid Zhang Sanfeng yang terkenal sebagai Tujuh Pendekar Wudang adalah:
+<details>
+<summary>📽 Cuplikan adegan Ambaghai mengalami penyiksaan fisik.</summary>
 
-1. Song Yuanqiao.
-2. Yu Lianzhou.
-3. Yu Daiyan.
-4. Zhang Songxi.
-5. Zhang Cuisan.
-6. Yin Liting.
-7. Mo Shenggu.
+<p>
+Cuplikan video di YouTube ini menggambarkan <a href="https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK" 
+title="Cuplikan adegan Ambaghai ditangkap oleh suku Tatar" 
+target="_blank">Ambaghai mengalami penyiksaan fisik
+ketika ditangkap oleh suku Tatar</a>. Ini bagian dari serial The Legend of Genghis Khan, atau disingkat 'Genghis Khan', 2004.
+</p>
 
-Zhang Sanfeng tidak pernah menyetujui gerakan keagamaan Ming Jiao, yang tetap dianggapnya _salah_. Tetapi ia tidak
-pernah memakai patokan partai, kelompok atau aliran dalam menilai orang. Ia akan selalu memakai patokan 'Meskipun 
-anggota perguruan lurus, kalau jahat ya tetap jahat. Sebaliknya, meskipun dari aliran sesat, kalau orangnya baik,
-apa salahnya berteman?'.
+</details>
 
-Dengan pandangan semacam ini Zhang Sanfeng bisa dengan mudah melihat bahwa Ming Jiao tidak mungkin membela pemerintah,
-dalam hal ini Dinasti Yuan, karena gerakan mereka sejak awal memang selalu bertujuan untuk menggulingkan pemerintah.
-Karena itu taktik yang dirancang Yuanzhen dan dijalankan oleh Zhao Min tidak berguna bagi Zhang Sanfeng.
+Sebenarnya kejadian tersebut adalah hasil rancangan para pemimpin Dinasti Jin yang saat
+itu dipimpin oleh Wanyan Dan, atau lebih dikenal sebagai Kaisar Xizong,
+menanggapi perkembangan pesat suku-suku Mongol. Kejadian tersebut membekas di hati Temujin,
+dan sebetulnya mempengaruhi hampir semua orang Mongol. Ini membuat mereka selalu curiga
+kalau berhadapan dengan orang dari Dinasti Jin.
 
-Karena sikapnya yang unik dan pengalaman hidupnya yang kaya, maka sebenarnya Zhang Sanfeng adalah tokoh sentral
-yang tahu sangat banyak mengenai berbagai misteri dalam cerita ini. Berdasarkan pengalamannya hidup di akhir era
-Dinasti Song Selatan, Dinasti Yuan, sampai akhirnya Dinasti Ming yang baru berdiri di akhir cerita Yitian Tulong Ji,
-ia bisa menilai dengan tepat mengenai apa yang sedang terjadi.
+Tidak lama setelah peristiwa itu, Kaisar Xizong sendiri digulingkan oleh sebuah
+kudeta yang dilakukan oleh Digunai, yang kemudian lebih dikenal sebagai Wanyan Liang.
+Saat itu Digunai adalah seorang panglima militer dari Xizong.
 
-Zhang Sanfeng adalah tokoh sejarah nyata, yang memang hidup melampaui usia seratus tahun, sebelum akhirnya secara
-misterius menghilang tanpa jejak setelah menyerahkan kepemimpinan Wudang kepada muridnya.
+Segera setelah ia naik tahta, ia menyingkirkan semua pejabat penting yang dipandang
+berbahaya karena setia kepada Kaisar Xizong, dan selalu curiga kepada semua orang
+yang cukup dekat dengan keluarga kaisar sebelumnya. Ini mempengaruhi stabilitas
+pemerintahan Dinasti Jin sendiri.
 
-Di usia tuanya ia telah menyempurnakan Jurus Tai Chi, yang hingga hari ini, di jaman modern, masih tetap populer
-dan _minimal_ dianggap sebagai olah raga yang menyehatkan.
+Selain hal itu Wanyan Liang juga membuat sebuah kebijakan baru, yaitu mengadopsi
+sebagian besar kebudayaan Song, mulai dari nama orang, tulisan, kesenian, cara berpakaian,
+dan banyak elemen sosial lainnya. Semua upaya ini bertujuan untuk menjadikan dirinya
+seorang Kaisar baru dalam masyarakat Dinasti Song, pendahulunya, dan secara bertahap
+akan menggeser popularitas Dinasti Song Selatan yang saat itu masih bertahan.
 
-## Zhang Cuishan dan Yin Soso
+Dalam upaya untuk menyatukan para suku Mongol, Temujin kemudian membangun aliansi
+dengan saudara angkatnya, yaitu Toghrul, atau yang lebih populer dengan sebutan
+Wang Khan atau Ong Khan, dari suku Keraite, yang turun-temurun adalah penganut
+agama Kristen. Mereka mulai segala upaya tersebut sejak tahun 1184.
 
-Zhang Cuishan pulang ke Zhongyuan[^zhongyuan] bersama Yin Soso dan Zhang Wuji yang saat itu baru menjelang 10 tahun,
-menjelang hari ulang tahun ke-100 gurunya. Sebelumnya mereka bertiga, bersama Xie Xun, terjebak di Pulau Api dan Es[^binghuodao].
-Setelah berhasil merebut Golok Pembunuh Naga dari Tian Yingjiao, Xie Xun memutuskan untuk mengasingkan diri, dan
-di luar dugaan ia juga memaksa Zhang Cuisan dan Yin Soso untuk mengikutinya. Hal inilah yang membuat Zhang Wuji 
-terlahir di Pulau Api dan Es, dan tidak pernah mengenal orang lain sampai menjelang usia 10 tahun, kecuali kedua
-orang tuanya dan Xie Xun.
+Ketika itu bangsa Jin yang menginvasi wilayah Utara Kekaisaran Song menjadi semakin kuat,
+dan yang bertahta sebagai Kaisar Song Selatan adalah Xiao Zong, sedangkan yang 
+menjadi kaisar dalam Dinasti Jin adalah Wanyan Yong, atau Wulu, dengan gelar
+Kaisar Shizong dari Jin. Ia menjadi kaisar setelah Wanyan Liang, atau Digunai,
+yang merebut tahta dari keluarganya, berusaha membunuhnya di tengah upaya untuk menginvasi
+wilayah Song Selatan dan menyatukannya dengan wilayah Utara yang mereka kuasai. 
 
-[^zhongyuan]: Zhong Yuan (中元) secara literal berarti 'Dataran Pusat', atau Mainland. Istilah ini dipakai untuk mewakili wilayah yang dikuasai oleh Kekaisaran Tiongkok kuno, dari dinasti manapun. Dari generasi ke generasi perbatasan memang bisa berubah, tetapi wilayah di sekitar Sungai Yangtze dan Sungai Kuning adalah tetap.
+Para prajurit dan pejabat yang tidak puas dengan kebijakan yang diterapkan oleh 
+Wanyan Liang pada saat itu mendukung Wulu dan berusaha menyelamatkannya,
+dan akhirnya Wanyan Liang tewas dibunuh oleh Wanyan Mouyan yang ikut serta dalam
+pemberontakan tersebut. Wulu pun melenggang ke tahta tanpa kesulitan berarti
+setelah kematiannya. 
 
-[^binghuodao]: Pulau Api dan Es, atau Bing Huo Dao (冰火岛), adalah pulau tempat Xie Xun terdampar bersama Zhang Cuishan dan Yin Soso. Akhirnya Zhang Wuji dilahirkan di situ. Pulau ini terletak di dekat Siberia.
+Setelah naik tahta, Wulu sebagai Kaisar Shizong menurunkan gelar Wanyan Liang yang
+sudah tewas menjadi Pangeran Yang dari Hailing. Ia secara otomatis juga bersikap oposisi
+terhadap kebijakan sistem berpakaian dan segala kebudayaan masyarakat Song. Dengan
+demikian sebagian masyarakat Song Utara yang sebelumnya sempat tergerak oleh perubahan
+yang dilakukan oleh Wanyang Liang menjadi kembali antipati kepada bangsa Jin[^kebijakan-sosial].
 
-Zhang Cuisan adalah murid ke-5 dari Zhang Sanfeng, dan otomatis termasuk 7 Pendekar Wudang. Orang mengenal dan
-memasukkan Wudang dalam kategori 'Aliran Lurus'. Sebaliknya, Yin Soso adalah putri Yin Tianzheng, yang adalah
-Ketua Tian Yingjiao, atau Perguruan Elang Langit. Karena Yin Tianzheng adalah salah seorang 'Raja Pengawal Hukum'
-Ming Jiao, dalam hal ini jabatannya adalah Baimei Ying Wang[^raja-elang], maka otomatis Tian Yingjiao 
-dimasukkan dalam kategori 'Aliran Sesat'. Tian Yingjiao adalah perguruan yang didirikan Yin Tianzheng setelah 
-memisahkan diri dari Ming Jiao akibat persengketaan mengenai posisi ketua. Saat itu secara tak terduga Yang Dingtian 
-dan istrinya menghilang tanpa jejak, tak seorang pun bisa menemukan mereka. Ming Jiao ditinggalkan tanpa pemimpin.
+Sebagai penganut Taoisme, Kaisar Shizong pada tahun 1187 sempat mengundang
+salah seorang murid dari pendiri Perguruan Quanzhen, Wang Chongyang, yang bernama
+Wang Chuyi ke istana untuk berkotbah[^wangchuyi]. Hal ini sempat menimbulkan pertanyaan
+di hati sebagian orang dalam Perguruan Quanzhen sendiri. Menurut beberapa sumber sejarah,
+Pendeta Qiu Chuji juga diundang dalam acara tersebut. Meskipun demikian, baik dalam
+novel ini sendiri maupun dalam catatan sejarah, kita bisa melihat bahwa akhirnya
+Qiu Chuji lebih cenderung mendukung Genghis Khan, dan bukan Dinasti Jin[^qiuchuji].
 
-[^raja-elang]: Bai Mei Ying Wang (白眉鷹王), secara literal adalah 'Raja Elang Beralis Putih'. Ini adalah gelar dan sekaligus jabatan Yin Tianzheng di Ming Jiao.
+Buku pertama dari Trilogi Rajawali ini mengawali cerita di era kekuasaan Kaisar
+Ning Zong dari Song, yang mewarisi tahta dari ayahnya, Kaisar Guang Zong. Sementara
+dari sisi Dinasti Jin, yang berkuasa saat itu adalah Madage, atau Wanyan Jing,
+dengan gelar Kaisar Zhang Zong dari Jin.
 
-Perbedaan status antara Zhang Cuisan dan Yin Soso tersebut akhirnya bisa diterima oleh Zhang Sanfeng. Meskipun
-ada muridnya yang ragu-ragu, terutama sekali Yin Liting yang sedang mencari tunangannya Ji Xiaofu, yang menurut
-kabar telah diculik oleh Yang Xiao. Awalnya Yin Liting tidak bisa menerima Yin Soso, tetapi setelah mendengar
-penjelasan gurunya, ia tidak berani membantah lagi.
+Pada saat itu para pendeta Tao dari aliran Quanzhen yang didirikan oleh Wang Chongyang
+sangat aktif dalam membela rakyat yang tertindas, khususnya yang diakibatkan oleh
+invasi bangsa Jin di wilayah Utara.
 
-Meskipun persoalan internal Wudang itu akhirnya beres, tetapi tidak demikian dengan pihak luar. Banyak orang tahu
-bahwa Zhang Cuisan dan Yin Soso menghilang bersama Xie Xun, dan sekarang keduanya telah kembali, tetapi bagaimana
-dengan Xie Xun? Beberapa pihak ingin membalas dendam kepada Xie Xun, beberapa lainnya diam-diam ingin mengorek
-informasi mengenai Tulong Dao. Hasilnya adalah mereka beramai-ramai datang ke Wudang tepat di hari ulang tahun
-ke seratus Zhang Sanfeng. Semuanya memberikan ucapan selamat. Tetapi kemudian mulailah timbul pembicaraan
-mengenai Xie Xun. Seperti sebelumnya yang sempat terjadi di atas kapal Tian Yingjiao, Zhang Cuisan dan Yin Soso
-tetap menolak untuk memberitahu di mana Xie Xun berada.
+## 🔖 Catatan Mengenai Peristilahan
 
-Singkat cerita, semuanya itu akhirnya memicu sebuah peristiwa tragis, Zhang Cuisan memilih jalan pintas, ia 
-bunuh diri di hadapan semua orang. Kaget, putus asa, dan merasa berdosa karena sempat menyembunyikan fakta bahwa
-sepuluh tahun yang lalu ia telah melukai Yu Daiyan dengan jarumnya, akhirnya Yin Soso mengikuti jejak suaminya.
+Istilah-istilah Tionghoa yang dipakai dalam tulisan ini memakai 
+[sistem romanisasi dengan gaya Wade-Giles](https://en.wikipedia.org/wiki/Wade%E2%80%93Giles), 
+dan tentunya berdasarkan bahasa Mandarin yang netral, bukan seperti
+yang bisa dibaca dalam karya-karya penulis legendaris Indonesia seperti Kho Ping Hoo atau Gan KL, yang
+cenderung memakai dialek Hokkian.
 
-Peristiwa menggemparkan itu masih diikuti kejadian tragis berikutnya. He Biweng mengantarkan Zhang Wuji kecil
-kembali ke Wudang dalam keadaan terluka, tetapi masih hidup. Tujuannya adalah untuk menguras tenaga Zhang Sanfeng
-untuk mengobatinya. Ia telah memukul Zhang Wuji kecil dengan Xuanming Shen Zhang.
+Beberapa istilah sudah terlanjur melekat di hati dan pikiran masyarakat Indonesia, baik mereka adalah
+pecinta cerita silat atau bukan, dan belum tentu seorang keturunan Tionghoa. Contoh nyata adalah 'Kaipang',
+atau biasa diterjemahkan menjadi 'Partai Pengemis'. Istilah tersebut juga sering ditulis Kay Pang atau 
+Kai Pang, pendeknya cara penulisan ini sudah menjadi semacam tradisi, dan sulit digantikan. Karena 
+alasan ini saya tetap mempertahankan cara penulisan yang lama, dan sudah populer.
 
-Zhang Wuji akhirnya menemukan kitab asli Jiu Yang Zhen Jing di dalam perut monyet, ketika ia sedang melarikan diri dari
-kejaran Zhu Changling (朱長齡), keturunan Zhu Ziliu, salah seorang pengawal Yideng Dashi, dan Wu Lie (武烈), keturunan pengawal
-Yideng Dashi lainnya, Wu Santong. Saat itu Zhang Wuji yang baru berusia sekitar 15 atau 16 tahun terperosok ke dalam
-jurang yang dalam, dan berusaha diselamatkan oleh Zhu Changling. Mereka berdua akhirnya sama-sama terjebak di atas sebuah 
-tebing terjal yang sempit, dengan hanya sebuah lubang kecil. Saat itu hanya Zhang Wuji yang bisa memasuki lubang tersebut,
-karena tubuhnya belum berkembang sempurna seperti orang dewasa. Ia menghabiskan waktu sampai 6 tahun di balik lubang 
-tersebut, yang ternyata menyembunyikan sebuah tempat tersendiri, lengkap dengan pepohonan yang memberinya makanan yang
-cukup layak untuk bertahan hidup. Juga sebuah sungai dan air terjun.
+Sebenarnya bahasa Mandarin untuk istilah tersebut adalah 丐帮. Kalau kita secara konsisten mengikuti gaya 
+Wade-Giles akan menjadi 'Gai Bang'. Tetapi kalau di sepanjang novel ini dituliskan seperti itu, saya kira 
+akan cukup mengganggu, karena para pembaca setia cerita silat (termasuk yang bukan karya Jin Yong) sudah 
+terbiasa membacanya sebagai Kaipang atau Kai Pang. Karakter pertama 'Kai' atau 'Gai' (丐) artinya adalah 
+'Pengemis' atau 'Beggars', sedangkan karakter kedua 'Bang' atau 'Pang' (帮) bermakna 'Geng', yang secara 
+umum sama saja dengan 'Kelompok' atau 'Partai', organisasi, dsb. Tetapi 'Partai' mengandung konotasi politik, 
+sedangkan 'Geng' memang mengandung konotasi negatif. Tetapi justru sebenarnya kehadiran Kaipang sendiri 
+_memang_ agak negatif — yaitu bagi pemerintah di jaman itu — karena kehadiran mereka biasanya cenderung 
+mengacaukan suatu tatanan yang dibangun oleh pemerintah. Dalam konteks ini kita bisa melihat bahwa Ketua 
+Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 
-Jiu Yang Shengong yang dipelajari Zhang Wuji di tempat itu, hanya dengan tujuan untuk menyembuhkan cederanya, ternyata
-memberinya dasar-dasar tenaga dalam yang luar biasa, meskipun ia hanya berbekal kungfu dasar Wudang ajaran ayahnya,
-dan beberapa jurus dasar ajaran Xie Xun.
+## 🔖 Catatan Lain
 
-Setelah ia keluar dari situ, ternyata Zhu Changling kembali melemparkannya ke dalam jurang, yang membuatnya terjatuh di 
-lembah yang berhubungan dengan rumah Zhu Changling, yang sekarang hanya ditempati oleh putrinya, Zhu Jiuzhen.
+Tokoh yang menerjemahkan dan merangkum isi Jiu Yin Zhen Jing dalam terjemahan bahasa Inggris bernama Huang Shang,
+tetapi yang benar adalah Huang Chang (黃裳). Ini sebetulnya cukup penting karena Huang Shang dalam _pinyin_ sebetulnya 
+lebih sering dipakai sebagai sebutan bagi seorang Kaisar. Kalau kita memakai Google Translate, memang kedua karakter 
+tersebut akan diberi cara penyebutan Huang Shang, tetapi kalau kita menerjemahkannya menjadi bahasa Indonesia atau Inggris,
+maka nama tersebut mendapat romanisasi menjadi Huang Chang.
 
-Dari situ pengalaman Zhang Wuji di dunia persilatan pun baru dimulai, sementara Zhu Changling sendiri malah tetap
-terjebak di tempatnya tanpa bisa diketahui nasibnya.
+— FX. Adi Lima
 
-***
+[^dinasti-jin]: Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah
+    Kekaisaran setelah Dinasti Han ambruk, yang dipimpin oleh cucu dari Sima Yi, yaitu Sima Yan.
+
+[^bianjing]: Di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang.
+
+[^kebijakan-sosial]: 
+    Kebijakan sosial ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
+    Jurchen yang akhirnya kembali menguasai wilayah pusat setelah berhasil menggulingkan
+    Dinasti Ming, dan mendirikan Dinasti Qing. Tidak seperti sebelumnya, proses asimilasi
+    etnis tersebut sangat sukses dan pemerintahan Dinasti Qing berlangsung selama ratusan
+    tahun, dengan struktur sosial yang cukup mencolok berbeda dengan Dinasti pendahulunya.
+
+[^qiuchuji]:
+    Pendeta Qiu Chuji adalah seorang tokoh spiritual beraliran Taoisme yang _memang_ ada dan
+    pernah hidup dalam sejarah, tepat di era seperti dalam cerita. Ia juga _sungguh-sungguh_
+    adalah anggota dari Aliran Quanzhen, dan _memang_ sempat sangat dekat dengan Genghis Khan.
+
+[^wangchuyi]:
+    Pendeta Wang Chuyi, seperti saudara seperguruannya, Qiu Chuji, juga adalah seorang tokoh
+    Aliran Quanzhen yang pernah hidup dalam sejarah.
+
+[^nuzhen]: Nu Zhen (女真) adalah bahasa mandarin untuk Jurchen.
 

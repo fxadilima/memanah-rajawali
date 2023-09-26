@@ -1,19 +1,17 @@
 ---
-title: Bab 19
+layout: default
+title: 🦅 Memanah Rajawali | Bab 19 | Badai dan Serangan Hiu
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: Novel Memanah Rajawali, Bab 19 | Badai dan Serangan Hiu
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693129/sdyxz/originals/loch-19_wldhsq.jpg
 ---
 
 # Bab 19
 ## Badai dan Serangan Hiu
 
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 19](https://res.cloudinary.com/drzjshskk/image/upload/v1676693129/sdyxz/originals/loch-19_wldhsq.jpg)  | _Sendirian di ruangan bawah tanah yang kecil itu dan melihat lukisan mendiang ibunya yang dibuat oleh tangan ayahnya sendiri, dengan emosi yang naik turun, Huang Rong berpikir, "Aku belum pernah melihat ibu. Aku bertanya-tanya setelah aku mati, akankah aku bertemu dengannya? Apakah dia benar-benar secantik di gambar? Di mana dia sekarang? Apa dia di langit, di bawah tanah, atau masih di ruangan ini?"_ |
+[🏠](/)  [◀ Prev](bab18)  [Next ▶](bab20)
 
 ***
-
 
 Hong Qigong sama sekali tidak mengira bahwa kontes menghafal buku itu akan berakhir seperti ini. Guo Jing mengalahkan 
 Ouyang Ke dan membuatnya berguling-guling di tanah tujuh belas atau delapan belas kali akan sepuluh kali lebih bisa 
