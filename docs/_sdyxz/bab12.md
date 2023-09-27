@@ -1,19 +1,14 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 12 | Kebanggaan Sang Naga
+title: 🦅 Kebanggaan Sang Naga
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 12 | Kebanggaan Sang Naga
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch12_shdy3n.jpg
-ilustrasi: |
+description: >
     Tiba-tiba Wanyan Kang mengerti. "Dia sedang mengatakan bahwa kami berdua sama sekali tidak ada hubungan darah!" Ia menggenggam tangan kanan gadis itu dan tersenyum. Muka Mu Nianci memerah, ia meronta sedikit, tetapi tidak melepaskan genggamannya, membiarkan pemuda itu menggenggam tangannya. Kepalanya tertunduk lebih dalam. 
+nextPage: bab13
+prevPage: bab11
 ---
 
-# Bab 12
-## Kebanggaan Sang Naga
-
-[🏠](/)  [◀ Prev](bab11)  [Next ▶](bab13)
-
-* * *
 
 Huang Rong siap untuk memotong ayam itu ketika mereka mendengar suara dari arah belakang,
 "Porsi ketiga. Aku mau pantatnya!"

@@ -1,17 +1,12 @@
 ---
 layout: default
-title: Bab 6
+title: 🦅 Misteri Di Puncak Tebing
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 6. Misteri di pubcak tebing.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692655/sdyxz/originals/loch-06_hqtnmd.jpg
+prevPage: bab5
+nextPage: bab7
 ---
-
-# Bab 6
-## Misteri Di Puncak Tebing
-
-[🏠](/)  [◀ Prev](bab5)  [Next ▶](bab7)
-
-* * *
 
 Tetap tinggal di dalam _ger_, mereka berenam merundingkan masalah itu. "Orang ini mengajarkan ilmu tenaga dalam tingkat
 tinggi kepada Jing'er kita." kata Han Xiaoying. "Jadi dia _pasti_ tidak punya niat untuk melukai Jing'er."

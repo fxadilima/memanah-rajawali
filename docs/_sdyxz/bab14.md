@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 14 | Majikan Pulau Bunga Persik
+title: 🦅 Majikan Pulau Bunga Persik
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 14 | Majikan Pulau Bunga Persik
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692895/sdyxz/originals/loch-14_fkrvnr.jpg
+nextPage: bab15
+prevPage: bab13
 ---
-
-# Bab 14
-## Majikan Pulau Bunga Persik
-
-[🏠](/)  [◀ Prev](bab13)  [Next ▶](bab15)
-
-***
 
 Yang dilihatnya adalah enam orang, lima pria dan satu wanita, memasuki aula. Mereka adalah Enam Orang Aneh dari Jiangnan.
 Mereka menjelajah ke utara dan selatan dan pada hari itu tiba di Danau Tai, di mana mereka bertemu dengan beberapa orang

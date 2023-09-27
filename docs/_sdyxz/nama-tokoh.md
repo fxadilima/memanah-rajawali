@@ -1,7 +1,9 @@
 ---
+layout: default
 title: Daftar Tokoh Memanah Rajawali
 author: FX. Adi Lima
 description: Daftar Karakter yang dipakai dalam novel Memanah Rajawali.
+image: /images/wuxia.jpg
 ---
 
 # Nama-nama Tokoh Sejarah

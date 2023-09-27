@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 7 |Perlombaan Mencari Jodoh
+title: 🦅 Perlombaan Mencari Jodoh
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 7
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch07_ijj1tf.jpg
+nextPage: bab8
+prevPage: bab6
 ---
-
-# Bab 7
-## Perlombaan Mencari Jodoh
-
-[🏠](/)  [◀ Prev](bab6)  [Next ▶](bab8)
-
-***
 
 Keenam Orang Aneh dan Guo Jing mengambil arah ke Tenggara. Perjalanan itu memakan
 waktu sangat panjang. Mereka memerlukan waktu berhari-hari hanya untuk keluar dari

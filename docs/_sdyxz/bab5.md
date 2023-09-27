@@ -1,16 +1,13 @@
 ---
 layout: default
-title: Memanah Rajawali
+title: "🦅 Lomba Memanah Burung Elang"
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 5 | Memanah Rajawali
+description: Novel Memanah Rajawali, Bab 5
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:162/v1676692567/sdyxz/originals/loch-05_exhrii.jpg
+nextPage: bab6
+prevPage: bab4
 ---
 
-[🏠](/)  [◀ Prev](bab4)  [Next ▶](bab6)
-
-* * *
-
-# Bab 5
 
 Sederet orang turun gunung. Setelah berjalan beberapa saat, tiba-tiba mereka mendengar raungan binatang buas di depan mereka. Han Baoju melompat ke atas kuda kuningnya, dan pergi untuk melihat apa yang terjadi. Setelah berlari beberapa saat, kuda kuning itu tiba-tiba berhenti dan tidak ada desakan yang bisa membuatnya bergerak.
 

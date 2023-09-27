@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 10 | Pertemuan Para Musuh
+title: 🦅 Pertemuan Para Musuh
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 10 | Pertemuan Para Musuh
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692788/sdyxz/originals/loch-10_nsxcbk.jpg
+prevPage: bab9
+nextPage: bab11
 ---
-
-# Bab 10
-## Pertemuan Para Musuh
-
-[🏠](/)  [◀ Prev](bab9)  [Next ▶](bab11)
-
-***
 
 Wanyan Kang sangat terkejut ketika melihat Yang Tiexin keluar dari dalam lemari itu,
 dan kemudian mengenalinya. Ia berteriak, "Ternyata kau!" Ia mengacungkan tombak besi itu

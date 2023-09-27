@@ -1,7 +1,10 @@
 ---
+layout: default
 title: Kutipan Kitab Perubahan
 author: FX. Adi Lima
-description: Pendahuluan untuk novel Memanah Rajawali.
+description: >
+   Aneka macam kutipan dari Kitab Perubahan yang dipakai dalam cerita Memanah Rajawali.
+image: /images/yijing.jpg
 ---
 
 # Mengenai Jian Long Zai Tian 

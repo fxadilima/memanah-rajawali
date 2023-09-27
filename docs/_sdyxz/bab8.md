@@ -1,18 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 8 | Memamerkan Ilmu Silat
+title: 🦅 Memamerkan Ilmu Silat
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 8 | Memamerkan Ilmu Silat
+description: Novel Memanah Rajawali, Bab 8. Memamerkan Ilmu Silat
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692724/sdyxz/originals/loch-08_yhusym.jpg
+nextPage: bab9
+prevPage: bab7
 ---
-
-# Bab 8
-## Memamerkan Ilmu Silat
-
-[🏠](/)  [◀ Prev](bab7)  [Next ▶](bab9)
-
-
-***
 
 Wang Chuyi berlari luar biasa cepat. Dalam waktu singkat mereka sudah tiba di luar kota. Dalam 
 beberapa li, mereka sudah sampai di bawah kaki bukit. Karena penasaran ingin menguji kemampuan

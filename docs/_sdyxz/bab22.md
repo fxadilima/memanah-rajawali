@@ -1,17 +1,15 @@
 ---
-title: Bab 22
+layout: default
+title: 🦅 Menunggang Ikan Hiu
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Huang Rong duduk dengan mantap di dahan dan berseru, "Tembak!" Membidik ke arah rakit, 
+    Guo Jing melepaskan genggamannya dan tubuh Huang Rong terbang ke langit. Dia jungkir 
+    balik dua kali di udara dan terjun ke air.
+nextPage: bab23
+prevPage: bab21
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693258/sdyxz/originals/loch-22_qgzx61.jpg
 ---
-
-# Bab 22
-## Menunggang Ikan Hiu
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 22](https://res.cloudinary.com/drzjshskk/image/upload/v1676693258/sdyxz/originals/loch-22_qgzx61.jpg)  | _Huang Rong duduk dengan mantap di dahan dan berseru, "Tembak!" Membidik ke arah rakit, Guo Jing melepaskan genggamannya dan tubuh Huang Rong terbang ke langit. Dia jungkir balik dua kali di udara dan terjun ke air._  |
-
-***
 
 Huang Rong melihat Ouyang Feng membawa keponakannya yang berlumuran lumpur ke pantai. Ia berseri-seri bahagia, tetapi tidak 
 pernah mengucapkan terima kasih kepada Guo Jing dan Huang Rong. Huang Rong menarik lengan baju Guo Jing dan mereka kembali 

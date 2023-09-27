@@ -1,17 +1,17 @@
 ---
-title: Bab 20
+layout: default
+title: 🦅 Batu Seribu Kati
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Mereka beraksi bersama dan menggunakan pohon oak sebagai poros untuk menarik formasi 
+    tali yang saling silang. Tali menjadi kencang dan batu terangkat perlahan. Matahari 
+    akan terbenam dan langit berwarna merah, menyinari permukaan air. Air pasang sudah 
+    padam dan tubuh Ouyang Ke berada di lumpur dengan mata tertuju ke batu. Itu bergerak 
+    perlahan dan mantap dengan suara berderit, menyebabkan dia cemas namun bahagia.
+nextPage: bab22
+prevPage: bab20
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693205/sdyxz/originals/loch-21_na37vf.jpg
 ---
-
-# Bab 21
-## Batu Seribu Kati
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 21](https://res.cloudinary.com/drzjshskk/image/upload/v1676693205/sdyxz/originals/loch-21_na37vf.jpg)  | _Mereka beraksi bersama dan menggunakan pohon oak sebagai poros untuk menarik formasi tali yang saling silang. Tali menjadi kencang dan batu terangkat perlahan. Matahari akan terbenam dan langit berwarna merah, menyinari permukaan air. Air pasang sudah padam dan tubuh Ouyang Ke berada di lumpur dengan mata tertuju ke batu. Itu bergerak perlahan dan mantap dengan suara berderit, menyebabkan dia cemas namun bahagia._  |
-
-***
 
 Ouyang Feng merasakan sekelilingnya menjadi lebih panas dan geladak kapal berguncang hebat, ia tahu perahu itu akan 
 tenggelam kapan saja. Tapi Hong Qigong menyerang lebih ganas dan tidak mengendurkan langkahnya, jika ia tidak menggunakan 

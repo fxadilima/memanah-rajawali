@@ -3,9 +3,18 @@ layout: page
 title: Daftar Buku
 ---
 
-<div class="w3-bar-block">
+<div class="w3-container">
   {% for book in site.sdyxz %}
-    <a href="{{ site.url | relative_path }}{{ book.url }}" class="w3-bar-item w3-btn w3-round">{{book.title}}</a>
+  <div class="w3-panel w3-card w3-row-padding">
+    <div class="w3-col m3 l3">
+      <a href="{{ site.url | relative_path }}{{ book.url }}">
+        <img src="{{book.image}}" width="100%" alt="{{book.title}}"/>
+      </a>
+    </div>
+    <div class="w3-container w3-col m9 l9">
+      <h3>{{book.title}}</h3>
+      <p>{{book.description | markdownify}}</p>
+    </div>
+  </div>
   {% endfor %}
 </ul>
-

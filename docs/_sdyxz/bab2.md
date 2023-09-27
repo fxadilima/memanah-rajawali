@@ -1,22 +1,17 @@
 ---
 layout: default
-title: Tujuh Orang Aneh Dari Jiangnan
+title: 🦅 Tujuh Orang Aneh Dari Jiangnan
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 2. Tujuh Orang Aneh Dari Jiangnan
 image: /images/cropped/bab2.jpg
-ilustrasi: >
+description: >
     Tubuh Han Baoju sebetulnya berada di perut kuda, 
     dengan kaki kirinya di pedal, dan kaki kanan bersama 
     dengan kedua tangannya memegang tong, menjaga 
     keseimbangannya di atas pelana. Kuda itu sangat cepat 
     dan stabil, seolah-olah tangga itu hanya sebidang tanah datar.
-defaultRef: /memanah-rajawali/bab2
+nextPage: bab3
+prevPage: bab1
 ---
-
-## 🦅 Bab 2
-
-[🏠](/)  [◀ Prev](bab1)  [Next ▶](bab3)
-
 
 Pada saat Yan Lie berjalan keluar, ia berpapasan dengan seorang pelajar setengah
 baya yang sedang berjalan masuk, menyeret kakinya sambil terus menguap. Ia seperti

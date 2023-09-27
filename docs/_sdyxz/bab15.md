@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 15 | Sang Naga Mengibaskan Ekor
+title: 🦅 Sang Naga Mengibaskan Ekor
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 15 | Sang Naga Mengibaskan Ekor
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692925/sdyxz/originals/loch-15_bqilvq.jpg
+nextPage: bab16
+prevPage: bab14
 ---
-
-# Bab 15
-## Sang Naga Mengibaskan Ekor
-
-[🏠](/)  [◀ Prev](bab14)  [Next ▶](bab16)
-
-***
 
 Sesaat kemudian Lu Guanying teringat tamu mereka yang lain. Ia membantu Wanyan Kang berdiri tapi ternyata Wanyan Kang 
 tidak bisa bergerak karena jalan darahnya masih tertotok. Hanya matanya yang bergerak.

@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 19 | Badai dan Serangan Hiu
+title: 🦅 Badai dan Serangan Hiu
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 19 | Badai dan Serangan Hiu
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693129/sdyxz/originals/loch-19_wldhsq.jpg
+nextPage: bab20
+prevPage: bab18
 ---
-
-# Bab 19
-## Badai dan Serangan Hiu
-
-[🏠](/)  [◀ Prev](bab18)  [Next ▶](bab20)
-
-***
 
 Hong Qigong sama sekali tidak mengira bahwa kontes menghafal buku itu akan berakhir seperti ini. Guo Jing mengalahkan 
 Ouyang Ke dan membuatnya berguling-guling di tanah tujuh belas atau delapan belas kali akan sepuluh kali lebih bisa 

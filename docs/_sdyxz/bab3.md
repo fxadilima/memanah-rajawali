@@ -1,21 +1,17 @@
 ---
 layout: default
-title: Kehidupan Di Padang Rumput
+title: 🦅 Kehidupan Di Padang Rumput
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
-image: /images/cropped/bab3.jpg
-originalImage: https://res.cloudinary.com/drzjshskk/image/upload/e_hue:30/v1676668128/sdyxz/originals/loch-03_pk9ptl.jpg
-ilustrasi: |
+# image: /images/cropped/bab3.jpg
+image: https://res.cloudinary.com/drzjshskk/image/upload/e_hue:30/v1676668128/sdyxz/originals/loch-03_pk9ptl.jpg
+description: >
     Karena marah, Jochi mulai memukul Guo Jing dengan cambuk tunggangannya lagi, menyebabkan Guo Jing 
     berguling-guling kesakitan. Ia berguling di sebelah kaki Jochi sebelum tiba-tiba melompat dan meraih 
     kaki kanannya. Jochi mencoba menghempaskannya dengan sebuah tendangan, tetapi cengkeraman bocah itu 
     sangat kuat, dan ia tidak bisa melepaskan kakinya
-relatedBooks: [ bab1, bab2 ]
+nextPage: bab4
+prevPage: bab2
 ---
-
-## 🦅 Bab 3
-
-[🏠](/)  [◀ Prev](bab2)  [Next ▶](bab4)
 
 Para biksu menangisi kematian Biksu Jiaomu, tetapi beberapa orang dari mereka 
 masih sempat merawat orang-orang yang terluka dengan membalut luka mereka dan membawa mereka 

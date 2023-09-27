@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 17 | Pertarungan Antar Tangan
+title: 🦅 Pertarungan Antar Tangan
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 17 | Pertarungan Antar Tangan
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693001/sdyxz/originals/loch-17_n5qznj.jpg 
+nextPage: bab18
+prevPage: bab16
 ---
-
-# Bab 17
-## Pertarungan Antar Tangan
-
-[🏠](/)  [◀ Prev](bab16)  [Next ▶](bab18)
-
-***
 
 "Kau pikir kakak seperguruanku jadi hantu?" tanya Zhou Botong, "Atau menurutmu dia bangkit dari kematian? Tidak, 
 tidak sama sekali. Dia berpura-pura mati."

@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 20 | Kitab Yang Diubah
+title: 🦅 Kitab Yang Diubah
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 20 | Kitab Yang Diubah
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg
+nextPage: bab21
+prevPage: bab19
 ---
-
-# Bab 20
-## Kitab Yang Diubah
-
-[🏠](/)  [◀ Prev](bab19)  [Next ▶](bab21)
-
-***
 
 Hong Qigong dan Guo Jing menyaksikan Ouyang Feng dan keponakannya membawa Zhou Botong ke kabin di belakang, sementara mereka 
 dibawa ke kabin lain untuk berganti pakaian. Empat gadis berpakaian putih melayani mereka. Hong Qigong tertawa, "Pengemis Tua 

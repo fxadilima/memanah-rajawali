@@ -1,18 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 18 | Tiga Ujian
+title: 🦅 Tiga Ujian
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 18 | Tiga Ujian
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693099/sdyxz/originals/loch-18_fltfk1.jpg
+nextPage: bab19
+prevPage: bab17
 ---
-
-# Bab 18
-## Tiga Ujian
-
-[🏠](/)  [◀ Prev](bab17)  [Next ▶](bab19)
-
-
-***
 
 Guo Jing pergi ke arah asal suara ular itu. Setelah puluhan langkah di bawah sinar rembulan yang terang, ia melihat jutaan 
 ular hijau berkerumun merayap bersama. Bersama-sama mereka ada lebih dari sepuluh orang yang mengenakan pakaian putih dan 

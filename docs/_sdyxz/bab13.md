@@ -1,23 +1,15 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 13 | Orang Lumpuh Di Lima Danau
+title: 🦅 Orang Lumpuh Di Lima Danau
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 13 | Orang Lumpuh Di Lima Danau
+description: >
+    Saat perompak Danau Tai dan perahu pejabat Jin mendekat, terdengar suara teriakan, makian, benturan senjata, dan suara
+    cipratan air, saat tubuh-tubuh manusia jatuh ke air. Setelah beberapa saat, perahu pejabat terbakar, apinya menerangi langit yang gelap dan memancarkan sinar merah menyala di atas danau.
+
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692862/sdyxz/originals/loch-13_q1tnfz.jpg
+nextPage: bab14
+prevPage: bab12
 ---
-
-# Bab 13
-## Orang Lumpuh Di Lima Danau
-
-[🏠](/)  [◀ Prev](bab12)  [Next ▶](bab14)
-
-***
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 13](https://res.cloudinary.com/drzjshskk/image/upload/v1676692862/sdyxz/originals/loch-13_q1tnfz.jpg) | _Saat perompak Danau Tai dan perahu pejabat Jin mendekat, terdengar suara teriakan, makian, benturan senjata, dan suara cipratan air, saat tubuh-tubuh manusia jatuh ke air. Setelah beberapa saat, perahu pejabat terbakar, apinya menerangi langit yang gelap dan memancarkan sinar merah menyala di atas danau._ |
-
-***
 
 Ketika Huang Rong pulang ke penginapan malam itu, ia berpikir bahwa ia baru saja berbuat baik, dan ia merasa
 teramat sangat senang. Seiring dengan hal itu, ia tertidur pulas dan nyaman, lalu menceritakan semuanya kepada

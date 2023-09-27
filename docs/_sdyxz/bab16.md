@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 16 | Kitab Sembilan Bulan
+title: 🦅 Kitab Sembilan Bulan
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 16 | Kitab Sembilan Bulan
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692966/sdyxz/originals/loch-16_e8xajn.jpg
+nextPage: bab17
+prevPage: bab15
 ---
-
-# Bab 16
-## Kitab Sembilan Bulan
-
-[🏠](/)  [◀ Prev](bab15)  [Next ▶](bab17)
-
-***
 
 Guo Jing dan Huang Rong meninggalkan rumah kediaman keluarga Cheng dan sangat lelah karena mereka tidak tidur malam itu. 
 Mereka tadinya ingin kembali ke penginapan untuk beristirahat, namun tiba-tiba terdengar suara derap kaki kuda yang 

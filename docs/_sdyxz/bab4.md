@@ -1,17 +1,12 @@
 ---
 layout: default
-title: Bab 4 | Sepasang Iblis Cakar Tengkorak Putih
+title: 🦅 Sepasang Iblis Cakar Tengkorak Putih
 author: FX. Adi Lima
 description: Novel Memanah Rajawali
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:965/v1676692605/sdyxz/originals/loch-04_xgfiqj.jpg
+prevPage: bab3
+nextPage: bab5
 ---
-
-# Bab 4
-## Sepasang Iblis Cakar Tengkorak Putih
-
-[🏠](/)  [◀ Prev](bab3)  [Next ▶](bab5)
-
-***
 
 "Baiklah, ayo kita perang lagi!" kata Wanyan Hongxi dengan lantang.
 

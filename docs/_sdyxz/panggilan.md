@@ -1,7 +1,9 @@
 ---
+layout: default
 title: Daftar Panggilan Bahasa Mandarin 
 author: FX. Adi Lima
 description: Artikel pendukung untuk novel Memanah Rajawali.
+image: /images/chinese-term.png
 ---
 
 # Nama-Nama Panggilan

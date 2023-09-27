@@ -1,17 +1,12 @@
 ---
 layout: default
-title: 🦅 Memanah Rajawali | Bab 9 | Tombak Berkarat dan Bajak Rusak
+title: 🦅 Tombak Berkarat dan Bajak Rusak
 author: FX. Adi Lima
 description: Novel Memanah Rajawali, Bab 9 | Tombak Berkarat dan Bajak Rusak
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692753/sdyxz/originals/loch-09_fpvxuk.jpg
+nextPage: bab10
+prevPage: bab8
 ---
-
-# Bab 9
-## Tombak Berkarat dan Bajak Rusak
-
-[🏠](/)  [◀ Prev](bab8)  [Next ▶](bab10)
-
-***
 
 Guo Jing dan Huang Rong kembali ke kediaman Pangeran Zhao dan melompati tembok tinggi untuk memasuki
 halaman. Huang Rong berbisik ke telinga Guo Jing, "Qing Gong-mu bagus sekali!" Guo Jing mengendap-endap

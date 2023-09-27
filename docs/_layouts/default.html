@@ -1,10 +1,19 @@
 ---
 layout: base
 ---
+
 <article class="post">
 
   <header class="post-header">
     <h1 class="post-title">{{ page.title | escape }}</h1>
+    <div class="w3-bar">
+      {% if page.prevPage %}
+        <a class="w3-btn w3-round w3-border w3-hover-black" href="{{ page.prevPage }}">◀ Prev</a>
+      {% endif %}
+      {% if page.nextPage %}
+        <a class="w3-btn w3-round w3-border w3-hover-black" href="{{ page.nextPage }}">Next ▶</a>
+      {% endif %}
+    </div>
   </header>
 
   <div class="post-content">

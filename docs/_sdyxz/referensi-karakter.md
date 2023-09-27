@@ -1,14 +1,11 @@
 ---
-title: Referensi Karakter Bahasa Mandarin
+layout: default
+title: ※ Referensi Karakter Bahasa Mandarin
 author: FX. Adi Lima
-description: Pendahuluan untuk novel Memanah Rajawali.
-image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
-ilustrasi: |
+image: /images/chinese-dictionary.png
+description: >
     Buku ini sering diakses sebagai referense dari buku lain yang memakai
     banyak istilah bahasa mandarin atau kutipan dari kitab-kitab kuno.
-relatedBooks: 
-- intro
-- referensi-unit
 ---
 
 # Referensi Karakter dan Istilah
