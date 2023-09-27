@@ -1,11 +1,11 @@
 ---
 layout: page
-title: Books
+title: Daftar Buku
 ---
 
-<ul class="w3-bar-block">
+<div class="w3-bar-block">
   {% for book in site.sdyxz %}
-    <li class="w3-bar-item"><a href="{{ site.url }}{{ book.url }}" class="w3-btn w3-round">{{book.title}}</a></li>
+    <a href="{{ site.url }}{{ book.url | relative_path }}" class="w3-bar-item w3-btn w3-round">{{book.title}}</a>
   {% endfor %}
 </ul>
 
