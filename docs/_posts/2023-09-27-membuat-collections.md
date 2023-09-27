@@ -35,9 +35,29 @@ title: Books
 <ul>
 {% raw %}
   {% for book in site.sdyxz %}
-    <li><a href="{{ book.url }}">\{{book.title}}</a></li>
+    <li><a href="{{ book.url }}">{{book.title}}</a></li>
   {% endfor %}
 {% endraw %}
 </ul>
 {% endhighlight %}
+
+### Masalah Dengan URL
+
+Dalam contoh di atas kelihatannya semuanya sederhana, tetapi kalau kita sedang menulis dokumentasi
+untuk proyek yang akan dimuat di halaman GitHub, dan proyek itu adalah sebuah _repository_, maka
+variabel ```book.url``` di atas akan menjadi lain, dan halaman tidak akan ditemukan.
+
+Contohnya, repository untuk proyek ini sendiri adalah `https://github.com/memanah-rajawali`,
+dan saya deploy menggunakan sub-direktori `docs`, nantinya **Base URL** dari proyek ini akan
+menjadi `https://fxadilima.github.io/memanah-rajawali`, tetapi isi variabel `book.url` di atas
+ternyata masih tetap `/sdyxz/bab1.html`, yang _pasti_ salah.
+
+Solusinya adalah menambahkan `url: https://fxadilima.github.io/memanah-rajawali` di dalam
+file `_config.yml`, lalu kita ubah sedikit `href` untuk link di atas menjadi sbb:
+
+```html
+{% raw %}
+<li><a href="{{ site.url }}{{book.url}}">{{book.title}}</a></li>
+{% endraw %}
+```
 
