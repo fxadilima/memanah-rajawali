@@ -1,6 +1,6 @@
 ---
-layout: default
-title: 🦅 Memanah Rajawali | Prolog
+layout: home
+title: Prolog
 description: > 
     Prolog untuk cerita silat Memanah Rajawali, terjemahan bahasa Indonesia
     dari karya Jin Yong. Bagian pertama dari Trilogi Rajawali

@@ -1,0 +1,11 @@
+---
+layout: page
+title: Books
+---
+
+<ul class="w3-bar-block">
+  {% for book in site.sdyxz %}
+    <li class="w3-bar-item"><a href="{{ book.url }}" class="w3-btn w3-round">{{book.title}}</a></li>
+  {% endfor %}
+</ul>
+
