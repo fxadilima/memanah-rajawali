@@ -1,12 +1,12 @@
 ---
+layout: default
 title: Daftar Titik Akupuntur
 author: FX. Adi Lima
-description: Daftar Istilah untuk novel Memanah Rajawali.
-image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
-ilustrasi: Daftar titik akupuntur untuk novel Memanah Burung Rajawali 
----
+description: >
+    Daftar titik-titik akupuntur yang dipakai dalam cerita Memanah Rajawali.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1682711597/misc/yongquan_dwlwqu.png
 
-# Daftar Titik Akupuntur
+---
 
 Di sini kita tempatkan nama-nama titik akupuntur yang sering dipakai dalam novel ini,
 supaya bisa diakses dari bab manapun.

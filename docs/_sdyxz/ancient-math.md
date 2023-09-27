@@ -1,9 +1,9 @@
 ---
+layout: default
 title: Matematika Tiongkok Kuno
 author: FX. Adi Lima
 description: Matematika Tiongkok Kuno dalam novel Memanah Rajawali.
-image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
-ilustrasi: Matematika Tiongkok Kuno dalam novel Memanah Rajawali
+image: /images/chinese-math.png
 ---
 
 # Intro Mengenai Matematika Tiongkok Kuno
