@@ -1,6 +1,7 @@
 ---
 layout: post
 author: FX. Adi Lima
+tags: frontmatter jekyll collections template blogs memanah-rajawali
 ---
 
 Seandainya kita punya koleksi buku-buku seperti yang sudah ditulis dengan susah payah dalam situs ini,
@@ -57,7 +58,21 @@ file `_config.yml`, lalu kita ubah sedikit `href` untuk link di atas menjadi sbb
 
 ```html
 {% raw %}
-<li><a href="{{ site.url }}{{book.url}}">{{book.title}}</a></li>
+<li><a href="{{ site.url | relative_path }}{{ book.url }}">{{book.title}}</a></li>
 {% endraw %}
 ```
+
+Dengan cara ini kalau kita sedang membaca hasil _rendering_ dokumen tersebut di _localhost_, maka
+`site.url` akan menjadi `localhost:4000` atau `PORT` berapa pun yang kita pakai, sedangkan kalau
+kita sedang membacanya secara online, misalnya di host `https://fxadilima.github.io/memanah-rajawali`,
+maka nama tersebut akan menjadi semacam `https://fxadilima.github.io/memanah-rajawali/sdyxz/bab1.html`.
+
+Dalam contoh dokumen ini sendiri, variabel `post.relative_path` adalah: {{post.relative_path}}.
+
+Sedangkan variabel `tags` dokumen ini, yang bisa diakses melalui `page.tags` adalah:
+
+<p>Tags: {% for tag in page.tags %}
+          <span class="w3-tag w3-teal w3-round-large">{{ tag }}</span>
+      {% endfor %}
+</p>
 

@@ -5,7 +5,7 @@ title: Daftar Buku
 
 <div class="w3-bar-block">
   {% for book in site.sdyxz %}
-    <a href="{{ site.url }}{{ book.url | relative_path }}" class="w3-bar-item w3-btn w3-round">{{book.title}}</a>
+    <a href="{{ site.url | relative_path }}{{ book.url }}" class="w3-bar-item w3-btn w3-round">{{book.title}}</a>
   {% endfor %}
 </ul>
 
