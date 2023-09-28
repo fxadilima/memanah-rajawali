@@ -1,7 +1,7 @@
 ---
 layout: default
 chapter: "Appendex A"
-title: Prolog
+title: 🦅 Prolog
 author: FX. Adi Lima
 description: >
     Ini adalah bagian pertama dalam Trilogi Rajawali, yang secara
@@ -20,7 +20,7 @@ kabar Hong Kong Commercial Daily.
 
 [^judul-1]: Judul bahasa Inggris ini dipopulerkan oleh TVB, Hong Kong, dengan serial televisinya, yang diadaptasikan dari cerita yang sama.
 
-Ini adalah bagian pertama dalam **Trilogi Rajawali**, yang secara
+Ini adalah bagian pertama dalam **Trilogi Rajawali** (Condor Trilogy), yang secara
 keseluruhan berkaitan sangat erat dengan perkembangan hubungan antara Tiongkok
 kuno dengan Mongol. Berawal dari menjelang akhir era Dinasti Song, di mana yang
 berkuasa adalah Dinasti Song Selatan, dengan ibukotanya Lin'an.
@@ -105,9 +105,19 @@ bernama Temujin.
 Sebelum Temujin dilahirkan, di tahun 1146, Hambussin Khan, atau Ambaghai dari suku Khamag Mongol,
 ditangkap oleh suku Tatar bersama dengan putra Khabul Khan, yaitu Todo'en Otchigin,
 ketika melamar putri dari kepala suku Tatar untuk dikawinkan dengan putranya Qadaan Taishi.
-Ambaghai[^ambaghai-1] adalah paman dari Yesugai, ayah kandung Temujin.
+Ambaghai adalah paman dari Yesugai, ayah kandung Temujin.
 
-[^ambaghai-1]: Cuplikan adegan [Ambaghai mengalami penyiksaan fisik](https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK "Cuplikan adegan Ambaghai ditangkap oleh suku Tatar") ketika ditangkap oleh suku Tatar ini adalah bagian dari serial The Legend of Genghis Khan, atau disingkat 'Genghis Khan', 2004.
+<details>
+<summary>📽 Cuplikan adegan Ambaghai mengalami penyiksaan fisik.</summary>
+
+<p>
+Cuplikan video di <a href="https://youtube.com/clip/UgkxK5DhZ9TpFtXCun2eeKuTqYv-PCRDK5oK" 
+title="Cuplikan adegan Ambaghai ditangkap oleh suku Tatar" 
+target="_blank">YouTube</a> ini menggambarkan Ambaghai mengalami penyiksaan fisik 
+ketika ditangkap oleh suku Tatar. Ini bagian dari serial The Legend of Genghis Khan, atau disingkat 'Genghis Khan', 2004.
+</p>
+
+</details>
 
 Sebenarnya kejadian tersebut adalah hasil rancangan para pemimpin Dinasti Jin yang saat
 itu dipimpin oleh Wanyan Dan, atau lebih dikenal sebagai Kaisar Xizong,
@@ -171,7 +181,7 @@ Pada saat itu para pendeta Tao dari aliran Quanzhen yang didirikan oleh Wang Cho
 sangat aktif dalam membela rakyat yang tertindas, khususnya yang diakibatkan oleh
 invasi bangsa Jin di wilayah Utara.
 
-## Catatan Mengenai Peristilahan
+## 🔖 Catatan Mengenai Peristilahan
 
 Istilah-istilah Tionghoa yang dipakai dalam tulisan ini memakai 
 [sistem romanisasi dengan gaya Wade-Giles](https://en.wikipedia.org/wiki/Wade%E2%80%93Giles), 
@@ -196,7 +206,7 @@ _memang_ agak negatif — yaitu bagi pemerintah di jaman itu — karena kehadira
 mengacaukan suatu tatanan yang dibangun oleh pemerintah. Dalam konteks ini kita bisa melihat bahwa Ketua 
 Kaipang, Hong Qigong, sebenarnya adalah semacam Ketua Gangster.
 
-## Catatan Lain
+## 🔖 Catatan Lain
 
 Tokoh yang menerjemahkan dan merangkum isi Jiu Yin Zhen Jing dalam terjemahan bahasa Inggris bernama Huang Shang,
 tetapi yang benar adalah Huang Chang (黃裳). Ini sebetulnya cukup penting karena Huang Shang dalam _pinyin_ sebetulnya 
@@ -207,24 +217,24 @@ maka nama tersebut mendapat romanisasi menjadi Huang Chang.
 — FX. Adi Lima
 
 [^dinasti-jin]: Istilah Dinasti Jin di sini berbeda dengan Dinasti Jin yang mengacu ke sebuah
-  Kekaisaran setelah Dinasti Han ambruk, yang dipimpin oleh cucu dari Sima Yi, yaitu Sima Yan.
+    Kekaisaran setelah Dinasti Han ambruk, yang dipimpin oleh cucu dari Sima Yi, yaitu Sima Yan.
 
 [^bianjing]: Di kemudian hari nama ibukota ini diganti menjadi Kaifeng, sampai sekarang.
 
 [^kebijakan-sosial]: 
-    **Kebijakan sosial** ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
+    Kebijakan sosial ala Wanyan Liang ini nantinya akan kembali diadopsi oleh suku
     Jurchen yang akhirnya kembali menguasai wilayah pusat setelah berhasil menggulingkan
     Dinasti Ming, dan mendirikan Dinasti Qing. Tidak seperti sebelumnya, proses asimilasi
     etnis tersebut sangat sukses dan pemerintahan Dinasti Qing berlangsung selama ratusan
     tahun, dengan struktur sosial yang cukup mencolok berbeda dengan Dinasti pendahulunya.
 
 [^qiuchuji]:
-    **Pendeta Qiu Chuji** adalah seorang tokoh spiritual beraliran Taoisme yang _memang_ ada dan
+    Pendeta Qiu Chuji adalah seorang tokoh spiritual beraliran Taoisme yang _memang_ ada dan
     pernah hidup dalam sejarah, tepat di era seperti dalam cerita. Ia juga _sungguh-sungguh_
     adalah anggota dari Aliran Quanzhen, dan _memang_ sempat sangat dekat dengan Genghis Khan.
 
 [^wangchuyi]:
-    **Pendeta Wang Chuyi**, seperti saudara seperguruannya, Qiu Chuji, juga adalah seorang tokoh
+    Pendeta Wang Chuyi, seperti saudara seperguruannya, Qiu Chuji, juga adalah seorang tokoh
     Aliran Quanzhen yang pernah hidup dalam sejarah.
 
 [^nuzhen]: Nu Zhen (女真) adalah bahasa mandarin untuk Jurchen.

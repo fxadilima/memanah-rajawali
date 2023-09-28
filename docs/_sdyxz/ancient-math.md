@@ -4,10 +4,9 @@ chapter: "Appendix J"
 title: Matematika Tiongkok Kuno
 author: FX. Adi Lima
 description: Matematika Tiongkok Kuno dalam novel Memanah Rajawali.
-image: https://fxadilima.github.io/memanah-rajawali/images/chinese-math.png
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1695874554/misc/lo-shu_epmjs7.png
 ---
 
-# Intro Mengenai Matematika Tiongkok Kuno
 
 Saat ini karena keterbatasan waktu, kita akan menggunakan Tian Yuan Shu (天元术) sebagai dasar untuk menulis
 halaman ini, tetapi karena buku itu disusun berdasarkan teori-teori yang sudah lama ada sejak sebelum Masehi,
@@ -69,7 +68,7 @@ Bagi kita yang boleh dikatakan produk dunia modern yang belajar matematika dari 
 dengan _magic square_ atau kotak ajaib 3x3. Di mana operasi penjumlahan yang diterapkan ke semua arah, baik horizontal, vertikal,
 dan diagonal, akan menghasilkan angka 15.
 
-![Perbandingan Lo Shu dan Magic Box](/images/lo-shu.png "Perbandingan Lo Shu dengan Magic Box").
+![Perbandingan Lo Shu dan Magic Box](https://res.cloudinary.com/drzjshskk/image/upload/v1695874554/misc/lo-shu_epmjs7.png "Perbandingan Lo Shu dengan Magic Box").
 
 
 
