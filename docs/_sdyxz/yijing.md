@@ -1,6 +1,7 @@
 ---
 layout: default
 title: Kutipan Kitab Perubahan
+chapter: "Appendix F"
 author: FX. Adi Lima
 description: >
    Aneka macam kutipan dari Kitab Perubahan yang dipakai dalam cerita Memanah Rajawali.

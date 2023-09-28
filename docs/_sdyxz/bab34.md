@@ -1,17 +1,17 @@
 ---
-title: Bab 34
+layout: default
+chapter: 34
+title: Perubahan Radikal Di Pulau Persik
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Di dalam ruangan itu meja terbalik dan kotoran berserakan di sisinya, 
+    buku-buku, pena dan tinta berserakan di lantai dan setengah bagian 
+    dari lukisan dan puisi di dinding merosot turun. Guo Jing berdiri terpaku, 
+    matanya menatap lurus tanpa ekspresi di mukanya.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693640/sdyxz/originals/loch-34_txqrlu.jpg
+nextPage: bab35
+prevPage: bab33
 ---
-
-# Bab 34
-## Perubahan Radikal Di Pulau Persik
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 34](https://res.cloudinary.com/drzjshskk/image/upload/v1676693640/sdyxz/originals/loch-34_txqrlu.jpg)  | _Di dalam ruangan itu meja terbalik dan kotoran berserakan di sisinya, buku-buku, pena dan tinta berserakan di lantai dan setengah bagian dari lukisan dan puisi di dinding merosot turun. Guo Jing berdiri terpaku, matanya menatap lurus tanpa ekspresi di mukanya._ |
-
-***
 
 Ketika Huang Rong sedang menari di udara, tiba-tiba ia berseru tertahan, "Ah!" dan melompat turun dari pohon. Memberi 
 isyarat kepada Guo Jing ia berjalan masuk kedalam hutan. Guo Jing takut tersesat, maka ia mengikutinya dalam jarak dekat

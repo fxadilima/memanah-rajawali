@@ -1,8 +1,14 @@
 ---
 layout: default
+chapter: 7
 title: 🦅 Perlombaan Mencari Jodoh
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 7
+description: >
+    Guo Jing merampas spanduk yang bertuliskan Lomba Mencari Jodoh itu, 
+    lalu menyapu tiangnya di sepanjang lengannya. Spanduk itu terbalik 
+    di atas muka si pangeran. Si Pangeran memiringkan tubuhnya ke samping 
+    dan mengangkat tombaknya. Dengan bayangan merah melingkar dan mata tombak 
+    yang berkelap-kelip ia menusukkan tombaknya ke arah Guo Jing.
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch07_ijj1tf.jpg
 nextPage: bab8
 prevPage: bab6

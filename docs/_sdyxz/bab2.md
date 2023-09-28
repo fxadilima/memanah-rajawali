@@ -1,5 +1,6 @@
 ---
 layout: default
+chapter: 2
 title: 🦅 Tujuh Orang Aneh Dari Jiangnan
 author: FX. Adi Lima
 image: /images/cropped/bab2.jpg

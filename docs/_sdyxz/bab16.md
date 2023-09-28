@@ -1,8 +1,12 @@
 ---
 layout: default
+chapter: 16
 title: 🦅 Kitab Sembilan Bulan
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 16 | Kitab Sembilan Bulan
+description: >
+    Tutup peti mati terbuka, ternyata belum dipaku. Tidak ada jenazah di dalamnya, 
+    hanya seorang gadis cantik dengan sepasang mata lebar. Itu tidak lain adalah 
+    Mu Nianci. Yang Kang terkejut dan dengan cepat ia mengulurkan tangannya untuk membantunya bangkit.
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692966/sdyxz/originals/loch-16_e8xajn.jpg
 nextPage: bab17
 prevPage: bab15

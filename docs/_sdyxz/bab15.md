@@ -1,8 +1,14 @@
 ---
 layout: default
+chapter: 15
 title: 🦅 Sang Naga Mengibaskan Ekor
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 15 | Sang Naga Mengibaskan Ekor
+description: >
+    Guo Jing melihat di depannya ada dua patung tanah liat, 
+    yang satu mirip laki-laki, yang lain perempuan. 
+    Patung-patung ini dibuat di kota Wuxi yang terkenal. 
+    Mereka bulat, gemuk dan sangat lucu. Di depan patung-patung 
+    itu ada mangkuk tanah liat kecil berisi kelopak bunga, daun, dan sebagainya.
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692925/sdyxz/originals/loch-15_bqilvq.jpg
 nextPage: bab16
 prevPage: bab14

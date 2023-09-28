@@ -1,17 +1,18 @@
 ---
-title: Bab 29
+layout: default
+chapter: 29
+title: Seorang Wanita Di Tengah Rawa
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Di atas meja panjang ada tujuh lampu minyak, disusun dalam Formasi Bintang Utara, 
+    di tanah berjongkok seorang wanita berambut kelabu, perhatiannya tertuju pada 
+    potongan bambu yang tak terhitung jumlahnya, yang tersebar di tanah. Begitu dalam 
+    konsentrasinya bahkan ketika mendengar orang masuk, ia tidak mengangkat kepalanya 
+    untuk melihat.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693489/sdyxz/originals/loch-29_frtffi.jpg
+nextPage: bab30
+prevPage: bab28
 ---
-
-# Bab 29
-## Seorang Wanita Di Tengah Rawa
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 29](https://res.cloudinary.com/drzjshskk/image/upload/v1676693489/sdyxz/originals/loch-29_frtffi.jpg)  | _Di atas meja panjang ada tujuh lampu minyak, disusun dalam Formasi Bintang Utara, di tanah berjongkok seorang wanita berambut kelabu, perhatiannya tertuju pada potongan bambu yang tak terhitung jumlahnya, yang tersebar di tanah. Begitu dalam konsentrasinya bahkan ketika mendengar orang masuk, ia tidak mengangkat kepalanya untuk melihat._  |
-
-***
 
 Mengendarai elang Guo Jing berulang kali berteriak, memanggil kuda merah kecil di darat untuk mengikuti mereka. Dalam waktu 
 singkat sepasang elang itu telah menempuh jarak yang cukup jauh. Meskipun sepasang elang ini luar biasa besar, mereka tidak dapat 

@@ -1,15 +1,19 @@
 ---
 layout: default
-title: Daftar Panggilan Bahasa Mandarin 
+chapter: "Appendix G"
+title: Daftar Panggilan Dalam Bahasa Mandarin 
 author: FX. Adi Lima
-description: Artikel pendukung untuk novel Memanah Rajawali.
+description: >
+    Artikel pendukung untuk novel Memanah Rajawali.
+    Halaman ini berisi sebutan atau panggilan dalam bahasa mandarin yang sering
+    dipakai di dalam cerita. Kita harus menyortir semua isi buku Referensi Karakter.md
+    dan memindahkan yang sesuai ke dalam buku ini.
 image: /images/chinese-term.png
 ---
 
-# Nama-Nama Panggilan
-
 Kita memerlukan halaman tersendiri untuk nama-nama panggilan dalam bahasa Mandarin, karena kalau
 semuanya ditumpuk ke dalam satu halaman, maka proses loading akan berat.
+
 
 ### <a name="dizi" id="dizi">Di Zi (弟子)</a>
 

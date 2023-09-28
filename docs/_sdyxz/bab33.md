@@ -1,17 +1,17 @@
 ---
-title: Bab 33
+layout: default
+chapter: 33
+title: Malapetaka Yang Akan Datang
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Huang Rong memaki, "Kau mau mati?" dan mendorong pelan bahu Lingzhi Shangren. 
+    Tanpa menjawab biksu itu terjungkal ke tanah dengan mukanya menghadap ke atas, 
+    kaku dan tangannya tidak bergerak, masih tetap dalam posisi duduk bersila, 
+    ia tampak sangat aneh.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693613/sdyxz/originals/loch-33_o2g4bn.jpg
+nextPage: bab34
+prevPage: bab32
 ---
-
-# Bab 33
-## Malapetaka Yang Akan Datang
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 33](https://res.cloudinary.com/drzjshskk/image/upload/v1676693613/sdyxz/originals/loch-33_o2g4bn.jpg)  | _Huang Rong memaki, "Kau mau mati?" dan mendorong pelan bahu Lingzhi Shangren. Tanpa menjawab biksu itu terjungkal ke tanah dengan mukanya menghadap ke atas, kaku dan tangannya tidak bergerak, masih tetap dalam posisi duduk bersila, ia tampak sangat aneh._  |
-
-***
 
 Pada saat itu Guo Jing dan Huang Rong sedang menikmati kebahagiaan dan sukacita di hati mereka, mereka tidak mau
 peduli pada urusan orang lain. Tetapi ketika mendengar 'Bocah Tua Nakal' hati mereka terusik. Mereka melompat 

@@ -1,17 +1,16 @@
 ---
-title: Bab 24
+layout: default
+title: Perawatan Di Tempat Tersembunyi
+chapter: 24
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Sha Gu menghampiri Liang Ziweng dan berkata, "Kau memukul hidungku, 
+    aku harus memukul hidungmu. Kau memukulku sekali, aku harus membalas 
+    tiga kali." Tinjunya melayang lurus ke arah hidung Liang Ziweng.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693322/sdyxz/originals/loch-24_qca8fo.jpg
+nextPage: bab25
+prevPage: bab23
 ---
-
-# Bab 24
-## Perawatan Di Tempat Tersembunyi
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 24](https://res.cloudinary.com/drzjshskk/image/upload/v1676693322/sdyxz/originals/loch-24_qca8fo.jpg)  | _Sha Gu menghampiri Liang Ziweng dan berkata, "Kau memukul hidungku, aku harus memukul hidungmu. Kau memukulku sekali, aku harus membalas tiga kali." Tinjunya melayang lurus ke arah hidung Liang Ziweng._  |
-
-***
 
 Huang Rong sudah berjalan dua langkah ketika melihat raut muka Guo Jing yang curiga, seolah-olah bisa membaca
 niatnya untuk membunuh. Ia berpikir, "Aku sih tidak punya masalah kalau membunuh Sha Gu, tapi Jing Gege bisa

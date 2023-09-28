@@ -1,8 +1,14 @@
 ---
 layout: default
+chapter: 4
 title: 🦅 Sepasang Iblis Cakar Tengkorak Putih
 author: FX. Adi Lima
-description: Novel Memanah Rajawali
+description: >
+    Han Baoju merasakan tenaga pukulan itu mendatanginya, 
+    dan karena menyadari bahwa ia tidak mampu menahannya, 
+    melakukan salto turun dari atas pohon. Tie Shi tidak 
+    membiarkannya lolos dan mengikuti tepat di belakangnya, 
+    mengincar punggung si pria kecil dengan cakarnya.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:965/v1676692605/sdyxz/originals/loch-04_xgfiqj.jpg
 prevPage: bab3
 nextPage: bab5

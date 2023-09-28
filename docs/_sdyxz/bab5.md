@@ -1,13 +1,17 @@
 ---
 layout: default
+chapter: 5
 title: "🦅 Lomba Memanah Burung Elang"
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 5
+description: >
+    Temujin tersenyum, mengarahkan busurnya dan menembakkan 
+    panah besi yang, seperti petir, mengiris tubuh elang hitam. 
+    Kerumunan bertepuk tangan. Khan kemudian memberikan busurnya 
+    kepada Ogedai. "Sekarang giliranmu!"
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:162/v1676692567/sdyxz/originals/loch-05_exhrii.jpg
 nextPage: bab6
 prevPage: bab4
 ---
-
 
 Sederet orang turun gunung. Setelah berjalan beberapa saat, tiba-tiba mereka mendengar raungan binatang buas di depan mereka. Han Baoju melompat ke atas kuda kuningnya, dan pergi untuk melihat apa yang terjadi. Setelah berlari beberapa saat, kuda kuning itu tiba-tiba berhenti dan tidak ada desakan yang bisa membuatnya bergerak.
 

@@ -1,17 +1,18 @@
 ---
-title: Bab 23
+layout: default
+title: Masalah Besar Di Istana
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Sementara mereka berbicara, mereka tiba di Jembatan Rusak di tepi Danau Barat. 
+    Karena saat itu musim panas yang mereka lihat adalah teratai di bawah jembatan. 
+    Huang Rong melihat toko arak kecil yang rapi di tepi danau. "Ayo minum secawan 
+    arak dan nikmati teratai," katanya. 
+    "Bagus sekali," kata Guo Jing setuju.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693287/sdyxz/originals/loch-23_tarlpe.jpg
+nextPage: bab24
+prevPage: bab22
+chapter: 23
 ---
-
-# Bab 23
-## Masalah Besar Di Istana
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 23](https://res.cloudinary.com/drzjshskk/image/upload/v1676693287/sdyxz/originals/loch-23_tarlpe.jpg)  | _Sementara mereka berbicara, mereka tiba di Jembatan Rusak di tepi Danau Barat. Karena saat itu musim panas yang mereka lihat adalah teratai di bawah jembatan. Huang Rong melihat toko arak kecil yang rapi di tepi danau. "Ayo minum secawan arak dan nikmati teratai," katanya. "Bagus sekali," kata Guo Jing setuju._  |
-
-***
 
 Hong Qigong, Zhou Botong, Huang Rong dan Guo Jing naik perahu kecil ke barat. Guo Jing mendayung di buritan, sementara 
 Huang Rong terus menerus mengganggu Zhou Botong dengan pertanyaan tentang menunggangi hiu di laut. Zhou Botong menemukan 

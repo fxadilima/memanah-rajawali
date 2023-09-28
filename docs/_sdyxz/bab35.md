@@ -1,17 +1,17 @@
 ---
-title: Bab 35
+chapter: 35
+title: Di Sebuah Kuil
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Kedua prajurit itu terpaksa menggotong Ke Zhen'E saat mereka meneruskan perjalanan. 
+    Huang Rong menggerakkan tongkat bambunya, terus-menerus melecut mereka. 
+    Menjelang senja mereka tiba di Kuil Tombak Besi. Di atas pagoda yang tinggi 
+    di dekat kuil, burung-burung gagak telah membuat sarang selama beberapa generasi. 
+    Ribuan burung gagak terbang kian kemari di udara.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693695/sdyxz/originals/loch-35_focsxf.jpg
+nextPage: bab36
+prevPage: bab34
 ---
-
-# Bab 35
-## Di Sebuah Kuil
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 35](https://res.cloudinary.com/drzjshskk/image/upload/v1676693695/sdyxz/originals/loch-35_focsxf.jpg)  | _Kedua prajurit itu terpaksa menggotong Ke Zhen'E saat mereka meneruskan perjalanan. Huang Rong menggerakkan tongkat bambunya, terus-menerus melecut mereka. Menjelang senja mereka tiba di Kuil Tombak Besi. Di atas pagoda yang tinggi di dekat kuil, burung-burung gagak telah membuat sarang selama beberapa generasi. Ribuan burung gagak terbang kian kemari di udara._ |
-
-***
 
 Begitu kapal itu mencapai tepian, dua sampai tiga puluh orang turun ke pantai, di antara mereka ada Peng Lianhu,
 Sha Tongtian dan kawan-kawan. Yang terakhir mendaratkan kaki adalah dua orang, yang satu tinggi dan yang lainnya 

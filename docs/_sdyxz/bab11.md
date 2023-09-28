@@ -1,5 +1,6 @@
 ---
 layout: default
+chapter: 11
 title: 🦅 Qiu Chuji Mengaku Kalah
 author: FX. Adi Lima
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692824/sdyxz/originals/loch-11_pmioc0.jpg

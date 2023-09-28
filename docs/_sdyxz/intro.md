@@ -1,13 +1,16 @@
 ---
-title: "Memanah Rajawali: Prolog"
+layout: default
+chapter: "Appendex A"
+title: Prolog
 author: FX. Adi Lima
-description: Pendahuluan untuk novel Memanah Rajawali.
+description: >
+    Ini adalah bagian pertama dalam Trilogi Rajawali, yang secara
+    keseluruhan berkaitan sangat erat dengan perkembangan hubungan antara Tiongkok 
+    kuno dengan Mongol. Berawal dari menjelang akhir era Dinasti Song, di mana yang
+    berkuasa adalah Dinasti Song Selatan, dengan ibukotanya Lin'an.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
 nextPage: bab1
-prevPage: /
 ---
-
-# Intro
 
 Kisah Memanah Burung Rajawali, She Diao Ying Xiong Zhuan (射鵰英雄傳), atau judul 
 yang lebih populer dalam bahasa Inggris adalah **The Legend of The Condor Heroes**[^judul-1], 
@@ -17,7 +20,7 @@ kabar Hong Kong Commercial Daily.
 
 [^judul-1]: Judul bahasa Inggris ini dipopulerkan oleh TVB, Hong Kong, dengan serial televisinya, yang diadaptasikan dari cerita yang sama.
 
-Ini adalah bagian pertama dalam **Trilogi Rajawali** (Condor Trilogy), yang secara
+Ini adalah bagian pertama dalam **Trilogi Rajawali**, yang secara
 keseluruhan berkaitan sangat erat dengan perkembangan hubungan antara Tiongkok
 kuno dengan Mongol. Berawal dari menjelang akhir era Dinasti Song, di mana yang
 berkuasa adalah Dinasti Song Selatan, dengan ibukotanya Lin'an.

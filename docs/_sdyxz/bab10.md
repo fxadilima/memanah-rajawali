@@ -1,8 +1,16 @@
 ---
 layout: default
+chapter: 10
 title: 🦅 Pertemuan Para Musuh
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 10 | Pertemuan Para Musuh
+description: >
+    Mengikuti arahannya, Guo Jing menempatkan Mei Chaofeng 
+    di atas bahunya dan buru-buru mengejar lawan yang 
+    melarikan diri. Tubuhnya memiliki dasar-dasar kungfu 
+    yang kuat, dan tubuh Mei Chaofeng tidak berat, jadi 
+    meskipun wanita itu bertengger di atas bahunya, 
+    kegesitannya sama sekali tidak berkurang. Ia dengan 
+    cepat melompat ke depan dan Mei Chaofeng tegak bersamanya.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692788/sdyxz/originals/loch-10_nsxcbk.jpg
 prevPage: bab9
 nextPage: bab11

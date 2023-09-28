@@ -1,5 +1,6 @@
 ---
 layout: default
+chapter: 3
 title: 🦅 Kehidupan Di Padang Rumput
 author: FX. Adi Lima
 # image: /images/cropped/bab3.jpg

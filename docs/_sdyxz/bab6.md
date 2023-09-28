@@ -1,8 +1,14 @@
 ---
 layout: default
+chapter: 6
 title: 🦅 Misteri Di Puncak Tebing
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 6. Misteri di pubcak tebing.
+description: >
+    Guo Jing menembakkan tiga anak panah yang melesat secepat angin, 
+    dan menewaskan tiga orang pengejar terdekat. Sambil tetap 
+    menembakkan panah, ia membunuh seorang pengejar lagi. Sementara itu, 
+    Jebe sudah tiba di dekatnya dan juga ikut menembakkan anak-anak panahnya, 
+    yang sangat cepat dan mematikan.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692655/sdyxz/originals/loch-06_hqtnmd.jpg
 prevPage: bab5
 nextPage: bab7

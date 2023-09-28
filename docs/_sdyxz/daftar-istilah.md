@@ -1,13 +1,12 @@
 ---
 layout: default
+chapter: "Appendix C"
 title: 🔖 Daftar Istilah
 author: FX. Adi Lima
 description: Daftar Istilah untuk novel Memanah Rajawali.
 image: /images/chinese-term.png
-ilustrasi: Daftar istilah untuk novel Memanah Burung Rajawali 
 ---
 
-# Nama Orang
 
 Guo Jing (郭靖), tokoh utama cerita ini.
 Huang Rong (黄蓉), tokoh utama cerita ini.
@@ -61,7 +60,7 @@ Yue Nu Jian Fa = Jurus Pedang Nona Yue/Yue Maiden Swordplay (越女劍法)
 Bù xiāng shàngxià (不相上下) = ???
 
 
-# Nama Panggilan
+## Nama Panggilan
 
 Gege (哥哥) = Koko (kakak laki-laki).
 
@@ -364,52 +363,7 @@ Gabungan ketiga karakter ini tidak bisa diterjemahkan secara literal, karena ini
 
 ***
 
-[Kata-kata makian](https://en.wikipedia.org/wiki/Mandarin_Chinese_profanity).
-
-## Tanda Baca
-
-Karakter _dash_ pendek: —
-                Panjang: —
-
-
 ## Harus Dicari
 
 1. Peribahasa "Di atas langit ada langit, di atas manusia ada manusia". Tian ... You Tian, Ren ... You Ren
 2. Tautkan sekalian daftar panggilan _wuxia_ untuk Shifu, Shibo, dsb ke halaman ini, supaya mudah dicari, kalau perlu bahkan print menjadi PDF.
-
-## The Legend of Kublai Khan
-
-[ep 34](https://www.youtube.com/watch?v=GVON9I3s6QY)
-[ep 35](https://www.youtube.com/watch?v=Ng5PSGd6URU)
-[ep 36](https://www.youtube.com/watch?v=fSV_2hvl27U)
-[ep 37](https://www.youtube.com/watch?v=4CX5nVJV5Vc)
-[ep 38](https://www.youtube.com/watch?v=RhgjgwNGAaE)
-[ep 39](https://www.youtube.com/watch?v=YGRCtoVnFmM)
-[ep 40](https://www.youtube.com/watch?v=bxHDz7fvEPw)
-[ep 41](https://www.youtube.com/watch?v=t4q0Az-7VPE)
-[ep 42](https://www.youtube.com/watch?v=4l3qOorWm_M)
-[ep 43](https://www.youtube.com/watch?v=_F-mkWG8Qpw)
-[ep 44](https://www.youtube.com/watch?v=61_B17yWYds)
-[ep 45](https://www.youtube.com/watch?v=NSvUjHlhDH0)
-[ep 46](https://www.youtube.com/watch?v=rKn-rXMj-oc)
-[ep 47](https://www.youtube.com/watch?v=Rt5axGc51gw)
-[ep 48](https://www.youtube.com/watch?v=PAIHlXF2BWI)
-[ep 49](https://www.youtube.com/watch?v=jY_ZGaD_lzM)
-[ep 50](https://www.youtube.com/watch?v=wGh88GV2e_Q)
-
-
-# Zodiak
-
-         tikus
-               kerbau
-                      kelinci
-                             macan
-                                  naga
-                                      ular
-                                  kuda
-                             kambing
-                      monyet
-                ayam
-            anjing
-        babi
-

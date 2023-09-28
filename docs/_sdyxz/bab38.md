@@ -1,17 +1,18 @@
 ---
-title: Bab 38
+layout: default
+chapter: 38
+title: Perintah Rahasia
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Guo Jing meraih salah satu ujung jubah panjangnya dan membiarkan kudanya 
+    berlari mendekati Ouyang Feng. Ouyang Feng mengulurkan tangannya dan meraih 
+    ujung lainnya. Guo Jing meremas kakinya dan berteriak keras. Kuda merah kecil 
+    itu dengan marah menyerbu ke depan dan dengan suara cipratan yang keras, 
+    Ouyang Feng ditarik keluar dari lumpur dan diseret ke tanah bersalju.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693833/sdyxz/originals/loch-38_zagfqz.jpg
+nextPage: bab39
+prevPage: bab37
 ---
-
-# Bab 38
-## Perintah Rahasia
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 38](https://res.cloudinary.com/drzjshskk/image/upload/v1676693833/sdyxz/originals/loch-38_zagfqz.jpg)  | _Guo Jing meraih salah satu ujung jubah panjangnya dan membiarkan kudanya berlari mendekati Ouyang Feng. Ouyang Feng mengulurkan tangannya dan meraih ujung lainnya. Guo Jing meremas kakinya dan berteriak keras. Kuda merah kecil itu dengan marah menyerbu ke depan dan dengan suara cipratan yang keras, Ouyang Feng ditarik keluar dari lumpur dan diseret ke tanah bersalju._ |
-
-***
 
 Guo Jing menemani Qiu Chuji dan kedelapan belas muridnya, di antara mereka ada Li Zhicang, Yin Zhiping, 
 Xia Zhiceng, Yu Zhike, Zhang Zhisu, Wang Zhiming dan Song Defang. Ketika keluar dari istana, mereka melihat

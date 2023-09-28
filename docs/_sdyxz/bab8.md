@@ -1,8 +1,16 @@
 ---
 layout: default
+chapter: 8
 title: 🦅 Memamerkan Ilmu Silat
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 8. Memamerkan Ilmu Silat
+description: >
+    Tiba-tiba terdengar suara tawa lembut dan Guo Jing berpaling, 
+    dan mendengar suara cipratan air dan sehelai daun melayang 
+    turun dari sebuah pohon. Lalu ia melihat seorang anak perempuan 
+    di bagian belakang sebuah perahu, sedang mendayung dengan santai. 
+    Rambutnya panjang melewati bahu, ia mengenakan setelan putih 
+    dari ujung kepala sampai ujung kaki, dan di rambutnya terselip 
+    sebuah jepit berwarna keemasan yang berkilau seperti api.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:200/v1676692724/sdyxz/originals/loch-08_yhusym.jpg
 nextPage: bab9
 prevPage: bab7

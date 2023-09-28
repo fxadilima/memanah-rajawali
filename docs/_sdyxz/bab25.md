@@ -1,17 +1,16 @@
 ---
-title: Bab 25
+layout: default
+chapter: 25
+title: Penginapan Terpencil Di Desa
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Huang Yaoshi terdiam, berpikir tentang putrinya tetapi menyembunyikan kesedihannya. 
+    Lu Guanying dan Cheng Yaojia mencuri pandang ke Huang Yaoshi dan mereka saling pandang, 
+    merasa bahagia tetapi juga sedih. Muka dan telinga mereka memerah.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693355/sdyxz/originals/loch-25_vonq0z.jpg
+nextPage: bab26
+prevPage: bab24
 ---
-
-# Bab 25
-## Penginapan Terpencil Di Desa
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 25](https://res.cloudinary.com/drzjshskk/image/upload/v1676693355/sdyxz/originals/loch-25_vonq0z.jpg)  | _Huang Yaoshi terdiam, berpikir tentang putrinya tetapi menyembunyikan kesedihannya. Lu Guanying dan Cheng Yaojia mencuri pandang ke Huang Yaoshi dan mereka saling pandang, merasa bahagia tetapi juga sedih. Muka dan telinga mereka memerah._  |
-
-***
 
 Huang Yaoshi tertawa dan berkata, "Guanying dan nona ini tetap tinggal." Lu Guanying sadar bahwa kakek gurunya
 itu sudah tiba sejak tadi, tetapi ketika melihat Huang Yaoshi memakai topeng, ia kuatir bahwa kakek gurunya tidak

@@ -1,8 +1,16 @@
 ---
 layout: default
+chapter: 9
 title: 🦅 Tombak Berkarat dan Bajak Rusak
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 9 | Tombak Berkarat dan Bajak Rusak
+description: >
+    Yang Tiexin menurunkan tombak berkarat yang tergantung di dinding. 
+    Ia mengetuk gagang tombak itu dengan lembut sambil menghela nafas, 
+    "Tombak besi ini sudah berkarat. Ini sudah lama tidak dipakai." 
+    Wang Fei berkata dengan lembut, "Tolong jangan sentuh tombak itu. 
+    Tombak itu barang paling berharga yang aku miliki." 
+    "Betulkah?" tanya Yang Tiexin. 
+    "Tombak ini dulunya punya pasangan, tapi sekarang ia tinggal sendirian."
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:400/v1676692753/sdyxz/originals/loch-09_fpvxuk.jpg
 nextPage: bab10
 prevPage: bab8

@@ -1,8 +1,14 @@
 ---
 layout: default
+chapter: 17
 title: 🦅 Pertarungan Antar Tangan
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 17 | Pertarungan Antar Tangan
+description: >
+    Bocah Tua Nakal Zhou Botong dan Si Sesat Timur Huang Yaoshi sedang 
+    mengadu kelereng, dengan taruhan Jiu Yin Zhen Jing dan Rompi Kulit Landak. 
+    Istri Huang Yaoshi yang baru dinikahinya menyaksikan acara itu dari 
+    pinggir lapangan. Meskipun adu kelereng adalah permainan anak-anak, 
+    permainan khusus ini punya tingkat kesulitannya sendiri.
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693001/sdyxz/originals/loch-17_n5qznj.jpg 
 nextPage: bab18
 prevPage: bab16

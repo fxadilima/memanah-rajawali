@@ -1,17 +1,18 @@
 ---
-title: Bab 31
+layout: default
+chapter: 31
+title: Saputangan Kekasih
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Yideng Dashi menceritakan segala rasa syukur dan dendam, cinta dan benci, 
+    yang dilaluinya bersama dengan Selir Liu di masa lalu. Guo Jing dan Huang Rong 
+    duduk di tikar meditasi di hadapannya, mendengarkan dengan seksama, 
+    sementara Nelayan, Penebang Kayu, Petani dan Sastrawan, keempat murid itu, 
+    berdiri di belakang Yideng Dashi.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693551/sdyxz/originals/loch-31_cvfbzh.jpg
+nextPage: bab32
+prevPage: bab30
 ---
-
-# Bab 31
-## Saputangan Kekasih
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 31](https://res.cloudinary.com/drzjshskk/image/upload/v1676693551/sdyxz/originals/loch-31_cvfbzh.jpg)  | _Yideng Dashi menceritakan segala rasa syukur dan dendam, cinta dan benci, yang dilaluinya bersama dengan Selir Liu di masa lalu. Guo Jing dan Huang Rong duduk di tikar meditasi di hadapannya, mendengarkan dengan seksama, sementara Nelayan, Penebang Kayu, Petani dan Sastrawan, keempat murid itu, berdiri di belakang Yideng Dashi._ |
-
-***
 
 Yideng Dashi menundukkan kepala dan menghela nafas. "Sebetulnya aku hanya bisa menyalahkan diri sendiri untuk musibah yang 
 tidak menguntungkan ini. Coba kalian pikir, Kerajaan Dali itu kecil, meskipun tidak bisa dibandingkan dengan harem 

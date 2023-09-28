@@ -1,8 +1,15 @@
 ---
 layout: default
+chapter: 20
 title: 🦅 Kitab Yang Diubah
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 20 | Kitab Yang Diubah
+description: >
+    Tiang yang terbakar memisahkan kedua orang itu. Ouyang Feng 
+    mengambil tongkat ularnya dan melompati tiang yang menyala. 
+    Hong Qigong segera mencabut tongkat bambu dari pinggangnya 
+    dan menangkis serangan itu. Mereka telah bertarung dengan 
+    ganas dengan tangan kosong sebelumnya, jadi bayangkan betapa 
+    sengitnya pertempuran sekarang karena keduanya menggunakan senjata.
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693160/sdyxz/originals/loch-20_vjlz0s.jpg
 nextPage: bab21
 prevPage: bab19

@@ -1,44 +1,33 @@
 ---
 layout: default
+chapter: "Appendix B"
 title: ※ Referensi Karakter Bahasa Mandarin
 author: FX. Adi Lima
 image: /images/chinese-dictionary.png
 description: >
-    Buku ini sering diakses sebagai referense dari buku lain yang memakai
+    Buku ini sering diakses sebagai referensi dari buku lain yang memakai
     banyak istilah bahasa mandarin atau kutipan dari kitab-kitab kuno.
 ---
 
-# Referensi Karakter dan Istilah
 
-Daftar yang ada di sini harus bisa dipakai sebagai referensi dari dalam _markdown_
-yang mana pun. Seharusnya tidak ada kesulitan yang berarti karena kita memakai `tag <dl>`
-yang dilengkapi dengan `id`.
+### <a id="lingzhi-shangren" name="lingzhi-shangren">Lingzhi Shang Ren (靈智上人)</a>
 
-Saat ini hampir semua istilah terkumpul di dalam masing-masing `Bab`, padahal banyak
-istilah yang dipakai ulang, dan dengan terpaksa kita harus menerjemahkan ulang. Di satu
-sisi ini bagus, karena seringkali konteksnya sedikit berbeda, tetapi kalau terlalu banyak
-akan menambah pekerjaan kita.
+Lingzhi (靈智) adalah seorang biksu Tibet, yang adalah pemimpin tertinggi dalam sekte agama Budha Tibet
+pada saat itu. Jabatan tersebut adalah cikal-bakal jabatan Dalai Lama yang sekarang.
+Gelar Shangren (上人) di belakang namanya bisa diartikan "Master" atau "Pemimpin Tertinggi", karena
+karakter Shang (上) di sini bermakna "Superior". Sedangkan Ren (人) berarti "Manusia" atau "Orang".
 
-Tumpuk semua istilah atau karakter yang punya makna khusus di antara tag `dl` berikut.
+### <a id="shao-xia" name="shao-xia">Shao Xia (少侠)</a>
 
-***
+Bisa diterjemahkan menjadi 'Pendekar Muda', bedakan dengan Tuan Muda (Shao Ye).
+
+### <a id="zhongqiu-jie" name="zhongqiu-jie">Zhong Qiu Jie (中秋节)</a>
+
+Perayaan Pertengahan Musim Gugur. Di Indonesia perayaan ini lebih dikenal dengan nama "Tiong Ciu", yang
+ditandai dengan berbagi "Kue Bulan" (Tiong Ciu Pia). Zhong Qiu Jie adalah istilah bahasa mandarin untuk
+nama yang sama dalam dialek Hokkian itu.
 
 <dl>
-    <dt id="lingzhi-shangren">Lingzhi Shang Ren (靈智上人)</dt>
-    <dd>
-        Lingzhi (靈智) adalah seorang biksu Tibet, yang adalah pemimpin tertinggi dalam sekte agama Budha Tibet
-        pada saat itu. Jabatan tersebut adalah cikal-bakal jabatan Dalai Lama yang sekarang.
-        Gelar Shangren (上人) di belakang namanya bisa diartikan "Master" atau "Pemimpin Tertinggi", karena
-        karakter Shang (上) di sini bermakna "Superior". Sedangkan Ren (人) berarti "Manusia" atau "Orang".
-    </dd>
-    <dt id="shao-xia">Shao Xia (少侠)</dt>
-    <dd>Pendekar Muda</dd>
-    <dt id="zhongqiu-jie">Zhong Qiu Jie (中秋节)</dt>
-    <dd>
-        Perayaan Pertengahan Musim Gugur. Di Indonesia perayaan ini lebih dikenal dengan nama "Tiong Ciu", yang
-        ditandai dengan berbagi "Kue Bulan" (Tiong Ciu Pia). Zhong Qiu Jie adalah istilah bahasa mandarin untuk
-        nama yang sama dalam dialek Hokkian itu.
-    </dd>
     <dt id="jiaxing">Jia Xing (嘉兴)</dt>
     <dd>
         Jiaxing adalah sebuah kota di sebelah Utara propinsi Zhejiang. Di sebelah Barat Daya berbatasan dengan Hangzhou,

@@ -1,5 +1,6 @@
 ---
 layout: default
+chapter: 12
 title: 🦅 Kebanggaan Sang Naga
 author: FX. Adi Lima
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676662508/sdyxz/originals/ch12_shdy3n.jpg

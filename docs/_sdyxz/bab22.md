@@ -9,6 +9,7 @@ description: >
 nextPage: bab23
 prevPage: bab21
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693258/sdyxz/originals/loch-22_qgzx61.jpg
+chapter: 22
 ---
 
 Huang Rong melihat Ouyang Feng membawa keponakannya yang berlumuran lumpur ke pantai. Ia berseri-seri bahagia, tetapi tidak 

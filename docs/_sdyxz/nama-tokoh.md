@@ -1,12 +1,14 @@
 ---
 layout: default
 title: Daftar Tokoh Memanah Rajawali
+chapter: "Appendix H"
 author: FX. Adi Lima
-description: Daftar Karakter yang dipakai dalam novel Memanah Rajawali.
+description: > 
+    Daftar karakter atau pemeran dalam novel Memanah Rajawali.
+    Juga secara singkat menceritakan beberapa tokoh sejarah yang dihadirkan 
+    di dalam cerita.
 image: /images/wuxia.jpg
 ---
-
-# Nama-nama Tokoh Sejarah
 
 Dokumen ini kita pakai untuk menumpuk semua referensi untuk tokoh-tokoh _real_ yang memang pernah hadir
 di dalam sejarah. Kalau semuanya kita tumpuk dalam sebuah dokumen, lama kelamaan akan kacau dan sulit

@@ -1,17 +1,18 @@
 ---
-title: Bab 30
+layout: default
+chapter: 30
+title: Biksu Yideng
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Berturut-turut melewati tujuh celah, mereka mendengar seseorang 
+    sedang membaca dengan keras, sepertinya mereka sudah sampai di ujung 
+    jembatan batu. Di sisi lain celah itu, seorang sastrawan sedang 
+    duduk bersila, dengan sebuah buku di tangannya, yang sedang dibacanya. 
+    Di belakang sastrawan itu ada celah pendek lainnya.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693517/sdyxz/originals/loch-30_v5wnzr.jpg
+nextPage: bab31
+prevPage: bab29
 ---
-
-# Bab 30
-## Biksu Yideng
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 30](https://res.cloudinary.com/drzjshskk/image/upload/v1676693517/sdyxz/originals/loch-30_v5wnzr.jpg)  | _Berturut-turut melewati tujuh celah, mereka mendengar seseorang membaca dengan keras, sepertinya mereka sudah sampai di ujung jembatan batu. Di sisi lain celah itu, seorang sastrawan sedang duduk bersila, dengan sebuah buku di tangannya, yang sedang dibacanya. Di belakang sastrawan itu ada celah pendek lainnya._  |
-
-***
 
 Kedua orang itu berjalan maju mengikuti jalan setapak pegunungan, dan tak lama kemudian jalur itu berakhir. Di depan ada jembatan 
 batu selebar satu kaki, bertengger di antara dua puncak gunung, tertutup awan yang ujung lainnya tidak terlihat. Jika jembatan 

@@ -11,6 +11,7 @@ plugins:
 collections:
   sdyxz:
     output: true
+    sort_by: chapter
 
 url: https://fxadilima.github.io/memanah-rajawali
 

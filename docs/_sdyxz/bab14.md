@@ -1,8 +1,15 @@
 ---
 layout: default
+chapter: 14
 title: 🦅 Majikan Pulau Bunga Persik
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 14 | Majikan Pulau Bunga Persik
+description: >
+    Kekuatan Delapan Belas Jurus Penakluk Naga tidaklah ringan. 
+    Namun Mei Chaofeng selalu tahu sebelumnya kemana arah serangannya 
+    dan mampu menghindar dengan cepat. Beberapa langkah kemudian 
+    orang aneh itu menjentikkan tiga kerikil secara berurutan. 
+    Mei Chaofeng mengikuti suara itu dan meluncurkan tiga serangan 
+    mematikan satu demi satu.
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676692895/sdyxz/originals/loch-14_fkrvnr.jpg
 nextPage: bab15
 prevPage: bab13

@@ -1,17 +1,18 @@
 ---
-title: Bab 32
+layout: default
+chapter: 32
+title: Di Tepi Sungai Deras
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Tukang perahu bisu itu mengambil kapak dan dengan dua bacokan ia 
+    memutuskan tali tambat. Segera setelah itu ia mengangkat jangkar. 
+    Sementara perahu itu bebas, arus deras menghanyutkannya. Perahu 
+    itu belok mendadak ketika lambungnya miring ke samping dan meluncur 
+    deras seolah-olah terbang menyusuri sungai.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693580/sdyxz/originals/loch-32_quqfrc.jpg
+nextPage: bab33
+prevPage: bab31
 ---
-
-# Bab 32
-## Di Tepi Sungai Deras
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 32](https://res.cloudinary.com/drzjshskk/image/upload/v1676693580/sdyxz/originals/loch-32_quqfrc.jpg)  | _Tukang perahu bisu itu mengambil kapak dan dengan dua bacokan ia memutuskan tali tambat. Segera setelah itu ia mengangkat jangkar. Sementara perahu itu bebas, arus deras menghanyutkannya. Perahu itu belok mendadak ketika lambungnya miring ke samping dan meluncur deras seolah-olah terbang menyusuri sungai._  |
-
-***
 
 Mu Nianci membiarkan Huang Rong memegang tangan kanannya, ia memandangi rontokan kelopak bunga yang terapung di permukaan 
 air sambil berkata, "Waktu melihatnya membunuh Ouyang Ke, kupikir dia berniat bertobat. Lagipula aku melihat dua orang 

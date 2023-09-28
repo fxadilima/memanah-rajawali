@@ -1,18 +1,17 @@
 ---
-title: Bab 36
+layout: default
+chapter: 36
+title: Perjalanan Ke Barat
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Ke Zhen'E menggerakkan tombaknya untuk menyerang tangan yang datang itu. 
+    Ouyang Feng mengangkat lengannya sedikit dan lengan Ke Zhen'E mati rasa, 
+    ia merasakan tekanan di dadanya. Tombaknya terbang ke atas, membuat lubang 
+    di langit-langit dan mendarat di atap kuil itu.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693749/sdyxz/originals/loch-36_z1qxk6.jpg
+nextPage: bab37
+prevPage: bab35
 ---
-
-# Bab 36
-## Perjalanan Ke Barat
-
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 36](https://res.cloudinary.com/drzjshskk/image/upload/v1676693749/sdyxz/originals/loch-36_z1qxk6.jpg)  | _Ke Zhen'E menggerakkan tombaknya untuk menyerang tangan yang datang itu. Ouyang Feng mengangkat lengannya sedikit dan lengan Ke Zhen'E mati rasa, ia merasakan tekanan di dadanya. Tombaknya terbang ke atas, membuat lubang di langit-langit dan mendarat di atap kuil itu._ |
-
-***
 
 Huang Rong berkata dengan tenang, "Aku menghargai pujian Paman Ouyang. Sayangnya Guo Jing mudah dibodohi, sampai-sampai
 sekarang ini dia tidak mau hidup di bawah langit yang sama dengan ayahku dan aku. Setelah kau menyelamatkan ayah, kalau 

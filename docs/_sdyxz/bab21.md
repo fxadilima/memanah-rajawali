@@ -11,6 +11,7 @@ description: >
 nextPage: bab22
 prevPage: bab20
 image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693205/sdyxz/originals/loch-21_na37vf.jpg
+chapter: 21
 ---
 
 Ouyang Feng merasakan sekelilingnya menjadi lebih panas dan geladak kapal berguncang hebat, ia tahu perahu itu akan 

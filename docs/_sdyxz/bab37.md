@@ -1,17 +1,20 @@
 ---
-title: Bab 37
+layout: default
+chapter: 37
+title: Turun Dari Langit
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Dari segala penjuru perkemahan, petugas dan tentara datang ke tenda 
+    komando untuk menyaksikan pemandangan yang menakjubkan. Para prajurit 
+    menggabungkan kekuatan untuk mengangkat es balok itu. Di bawah cahaya 
+    obor yang terang mereka melihat Ouyang Feng memamerkan gigi dengan 
+    ekspresi marah di wajahnya, tangan dan kakinya terentang lebar. 
+    Ia membeku di dalam es balok dan tidak bisa bergerak sedikit pun. 
+    Para petugas dan prajurit meledak dalam tepuk tangan meriah.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693785/sdyxz/originals/loch-37_xbi4k7.jpg
+nextPage: bab38
+prevPage: bab36
 ---
-
-# Bab 37
-## Turun Dari Langit
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 37](https://res.cloudinary.com/drzjshskk/image/upload/v1676693785/sdyxz/originals/loch-37_xbi4k7.jpg)  | _Dari segala penjuru perkemahan, petugas dan tentara datang ke tenda komando untuk menyaksikan pemandangan yang menakjubkan. Para prajurit menggabungkan kekuatan untuk mengangkat es balok itu. Di bawah cahaya obor yang terang mereka melihat Ouyang Feng memamerkan gigi dengan ekspresi marah di wajahnya, tangan dan kakinya terentang lebar. Ia membeku di dalam es balok dan tidak bisa bergerak sedikit pun. Para petugas dan prajurit meledak dalam tepuk tangan meriah._ |
-
-***
 
 Suatu hari pasukan Guo Jing mendirikan kemah di tepi sungai. Di sore hari Guo Jing sedang membaca buku strategi militer
 ketika tiba-tiba terdengar suara ribut-ribut di luar tenda. Tirai yang menutup tendanya terbuka, dan seseorang memaksa masuk.

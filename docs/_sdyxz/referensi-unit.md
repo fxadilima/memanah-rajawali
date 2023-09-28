@@ -1,18 +1,16 @@
 ---
-title: Referensi Unit
+layout: default
+title: Referensi Unit Ukuran
+chapter: "Appendix E"
 author: FX. Adi Lima
-description: Referensi unit untuk novel Memanah Rajawali.
+description: Referensi unit ukuran yang dipakai dalam novel Memanah Rajawali.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
 ilustrasi: |
     Buku ini sering diakses sebagai referense dari buku lain yang memakai
     banyak ukuran-ukuran berat, panjang, luas area, atau yang lain, dalam 
     bahasa mandarin.
-relatedBooks: 
-- intro
-- referensi-karakter
 ---
 
-# Standard Ukuran Tiongkok Kuno
 
 Tiongkok kuno memakai _standard_ yang berbeda dengan yang biasa kita pakai di dunia modern,
 dan itu hampir di semua aspek, baik standard untuk menimbang, mengukur jarak, atau mengukur

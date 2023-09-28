@@ -1,17 +1,19 @@
 ---
-title: Bab 28
+layout: default
+chapter: 28
+title: Puncak Gunung Telapak Besi
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: > 
+    Jian Zhanglao buru-buru mundur untuk menghindari pukulan, 
+    tetapi Huang Rong tidak mau kehilangan momentum dan terus 
+    mengincar titik akupunturnya dengan gencar. Ia mulai berlari, 
+    tapi semakin cepat ia berlari, semakin cepat pula tongkat itu 
+    mengejarnya. Ia harus terus melompat kesana-kemari sampai 
+    keringat menetes di janggut putihnya.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693457/sdyxz/originals/loch-28_cvchzn.jpg
+nextPage: bab29
+prevPage: bab27
 ---
-
-# Bab 28
-## Puncak Gunung Telapak Besi
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 28](https://res.cloudinary.com/drzjshskk/image/upload/v1676693457/sdyxz/originals/loch-28_cvchzn.jpg)  | _Jian Zhanglao buru-buru mundur untuk menghindari pukulan, tetapi Huang Rong tidak mau kehilangan momentum dan terus mengincar titik akupunturnya dengan gencar. Ia mulai berlari, tapi semakin cepat ia berlari, semakin cepat pula tongkat itu mengejarnya. Ia harus terus melompat kesana-kemari sampai keringat menetes di janggut putihnya._  |
-
-***
 
 Saat ini Lu Youjiao sedang berdebat dengan ketiga penatua lainnya. Ia berkata, "Kita belum tahu apa yang sebenarnya terjadi,
 kita harus menanyai mereka lebih jelas untuk menentukan menentukan nasib ketua kita." Penatua ketiga cabang Baju Bersih 

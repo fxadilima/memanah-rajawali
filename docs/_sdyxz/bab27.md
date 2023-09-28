@@ -1,17 +1,18 @@
 ---
-title: Bab 27
+layout: default
+chapter: 27
+title: Mimbar Di Xuan Yuan
 author: FX. Adi Lima
-description: Novel Memanah Rajawali, Bab 3. Kehidupan Di Padang Rumput
+description: >
+    Empat pengemis muda, masing-masing dengan pisau terhunus menjaga di sisi mereka. 
+    Huang Rong membalikkan tubuhnya dan tertegun. Ternyata mereka berada di atas 
+    sebuah puncak kecil. Di bawah sinar bulan ia dengan jelas melihat air danau 
+    di sekitar mereka. Ada panggung tinggi selusin zhang jauhnya. Area di sekitar 
+    panggung itu dipenuhi deretan ratusan pengemis.
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676693428/sdyxz/originals/loch-27_zgmdpi.jpg
+nextPage: bab28
+prevPage: bab26
 ---
-
-# Bab 27
-## Mimbar Xuan Yuan
-
-| Ilustrasi | Narasi |
-|   :---:   | :---   |
-| ![Ilustrasi Bab 27](https://res.cloudinary.com/drzjshskk/image/upload/v1676693428/sdyxz/originals/loch-27_zgmdpi.jpg)  | _Empat pengemis muda, masing-masing dengan pisau terhunus menjaga di sisi mereka. Huang Rong membalikkan tubuhnya dan tertegun. Ternyata mereka berada di atas sebuah puncak kecil. Di bawah sinar bulan ia dengan jelas melihat air danau di sekitar mereka. Ada panggung tinggi selusin zhang jauhnya. Area di sekitar panggung itu dipenuhi deretan ratusan pengemis._  |
-
-***
 
 Saat keduanya bercanda, terdengar langkah kaki dari tangga, tiga pengemis tua yang baru saja keluar bersama Yang Kang 
 kembali. Mereka berjalan lurus menuju ke meja Guo Jing dan Huang Rong lalu membungkuk hormat. Pengemis yang di tengah 

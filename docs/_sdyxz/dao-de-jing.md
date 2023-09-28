@@ -1,9 +1,10 @@
 ---
-title: Dao De Jing
+layout: default
+chapter: "Appendix D"
+title: ☯ Dao De Jing
 author: FX. Adi Lima
-description: Dao De Jing dalam novel Memanah Rajawali.
+description: ☯ Dao De Jing dalam novel Memanah Rajawali.
 image: https://res.cloudinary.com/drzjshskk/image/upload/e_sharpen:120/v1676716319/sdyxz/originals/loch-00_x3cshn.jpg
-ilustrasi: Dao De Jing untuk novel Memanah Burung Rajawali 
 ---
 
 # <a name="dao-de-jing" id="dao-de-jing">Dao De Jing (道德经)</a>
