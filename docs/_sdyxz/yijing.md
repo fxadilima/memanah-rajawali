@@ -5,7 +5,7 @@ chapter: "Appendix F"
 author: FX. Adi Lima
 description: >
    Aneka macam kutipan dari Kitab Perubahan yang dipakai dalam cerita Memanah Rajawali.
-image: /images/yijing.jpg
+image: https://fxadilima.github.io/memanah-rajawali/images/yijing.jpg
 ---
 
 # Mengenai Jian Long Zai Tian 

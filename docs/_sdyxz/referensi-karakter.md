@@ -3,7 +3,7 @@ layout: default
 chapter: "Appendix B"
 title: ※ Referensi Karakter Bahasa Mandarin
 author: FX. Adi Lima
-image: /images/chinese-dictionary.png
+image: https://fxadilima.github.io/memanah-rajawali/images/chinese-dictionary.png
 description: >
     Buku ini sering diakses sebagai referensi dari buku lain yang memakai
     banyak istilah bahasa mandarin atau kutipan dari kitab-kitab kuno.

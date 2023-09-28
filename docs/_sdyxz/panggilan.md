@@ -8,7 +8,7 @@ description: >
     Halaman ini berisi sebutan atau panggilan dalam bahasa mandarin yang sering
     dipakai di dalam cerita. Kita harus menyortir semua isi buku Referensi Karakter.md
     dan memindahkan yang sesuai ke dalam buku ini.
-image: /images/chinese-term.png
+image: https://fxadilima.github.io/memanah-rajawali/images/chinese-term.png
 ---
 
 Kita memerlukan halaman tersendiri untuk nama-nama panggilan dalam bahasa Mandarin, karena kalau

@@ -4,7 +4,7 @@ chapter: "Appendix C"
 title: 🔖 Daftar Istilah
 author: FX. Adi Lima
 description: Daftar Istilah untuk novel Memanah Rajawali.
-image: /images/chinese-term.png
+image: https://fxadilima.github.io/memanah-rajawali/images/chinese-term.png
 ---
 
 

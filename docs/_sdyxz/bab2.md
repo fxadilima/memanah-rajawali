@@ -3,7 +3,7 @@ layout: default
 chapter: 2
 title: 🦅 Tujuh Orang Aneh Dari Jiangnan
 author: FX. Adi Lima
-image: /images/cropped/bab2.jpg
+image: https://res.cloudinary.com/drzjshskk/image/upload/v1676666031/sdyxz/originals/ch02_hrww24.jpg
 description: >
     Tubuh Han Baoju sebetulnya berada di perut kuda, 
     dengan kaki kirinya di pedal, dan kaki kanan bersama 

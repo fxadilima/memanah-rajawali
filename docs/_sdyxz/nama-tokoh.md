@@ -7,7 +7,7 @@ description: >
     Daftar karakter atau pemeran dalam novel Memanah Rajawali.
     Juga secara singkat menceritakan beberapa tokoh sejarah yang dihadirkan 
     di dalam cerita.
-image: /images/wuxia.jpg
+image: https://fxadilima.github.io/memanah-rajawali/images/wuxia.jpg
 ---
 
 Dokumen ini kita pakai untuk menumpuk semua referensi untuk tokoh-tokoh _real_ yang memang pernah hadir

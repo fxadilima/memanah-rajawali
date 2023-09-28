@@ -4,7 +4,7 @@ chapter: "Appendix J"
 title: Matematika Tiongkok Kuno
 author: FX. Adi Lima
 description: Matematika Tiongkok Kuno dalam novel Memanah Rajawali.
-image: /images/chinese-math.png
+image: https://fxadilima.github.io/memanah-rajawali/images/chinese-math.png
 ---
 
 # Intro Mengenai Matematika Tiongkok Kuno
